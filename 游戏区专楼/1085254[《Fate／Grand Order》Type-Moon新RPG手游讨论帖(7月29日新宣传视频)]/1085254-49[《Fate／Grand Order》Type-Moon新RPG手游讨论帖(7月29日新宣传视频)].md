@@ -5,7 +5,7 @@
 >>>>>>> ee39be9d1a29b2407431c79e1dcb8dccf05da11d
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72001#       发表于 2020-2-18 21:39
@@ -14,7 +14,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">活动毕业了....只是看到还有100多个巧克力要收和送就头大
 
 
------
+*****
 
 ####  白清羽  
 ##### 72002#       发表于 2020-2-18 23:26
@@ -36,7 +36,7 @@ A204C267-1A75-4FE0-A25E-D160DED7B1E3.jpeg
 <img src="https://img.saraba1st.com/forum/202002/18/232604cg11zrgcszrre8cg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  風卷豹  
 ##### 72003#       发表于 2020-2-18 23:41
@@ -49,7 +49,7 @@ A204C267-1A75-4FE0-A25E-D160DED7B1E3.jpeg
 —— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  D．Va  
 ##### 72004#       发表于 2020-2-19 04:06
@@ -58,7 +58,7 @@ A204C267-1A75-4FE0-A25E-D160DED7B1E3.jpeg
 一发令咒暴力解决
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72005#       发表于 2020-2-19 07:54
@@ -70,7 +70,7 @@ A204C267-1A75-4FE0-A25E-D160DED7B1E3.jpeg
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">白**呆沉得太凶我放弃明天抽梅芙了
 
 
------
+*****
 
 ####  dante888  
 ##### 72006#       发表于 2020-2-19 14:23
@@ -81,7 +81,7 @@ A204C267-1A75-4FE0-A25E-D160DED7B1E3.jpeg
 你沉了多少？
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72007#       发表于 2020-2-19 14:41
@@ -93,7 +93,7 @@ A204C267-1A75-4FE0-A25E-D160DED7B1E3.jpeg
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">10+单才一宝，把清少纳言的RP都补回来
 
 
------
+*****
 
 ####  白清羽  
 ##### 72008#       发表于 2020-2-19 17:05
@@ -102,7 +102,7 @@ A204C267-1A75-4FE0-A25E-D160DED7B1E3.jpeg
 Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72009#       发表于 2020-2-22 21:23
@@ -113,7 +113,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 我的点数都还没到一半<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72010#       发表于 2020-2-22 22:12
@@ -122,7 +122,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 刚到一半，，，
 
 
------
+*****
 
 ####  rooarr  
 ##### 72011#       发表于 2020-2-22 22:21
@@ -131,7 +131,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 我连礼装都没掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72012#       发表于 2020-2-22 22:48
@@ -142,7 +142,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 这次活动因为这清少纳言是我讨厌的那类，完全提不起劲打……剧情也全跳了……
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72013#       发表于 2020-2-22 22:56
@@ -151,7 +151,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 我居然跟上大部队了（指点数过半）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  卡蓮  
 ##### 72014#       发表于 2020-2-22 23:09
@@ -160,7 +160,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 活动剧情肉眼可见的水，直接跳了…就慢慢打到毕业了事呗
 
 
------
+*****
 
 ####  khxooo  
 ##### 72015#       发表于 2020-2-22 23:42
@@ -169,7 +169,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 明天好像有生放送？不知道是FA还是事件薄复刻。复刻然后白情，大奥复刻然后就2.5.2了吧。
 
 
------
+*****
 
 ####  白清羽  
 ##### 72016#       发表于 2020-2-23 15:24
@@ -178,7 +178,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 算是有拿绝版活动从者的方法了
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72017#       发表于 2020-2-23 15:34
@@ -187,7 +187,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 不知不觉qp又满了…<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72018#       发表于 2020-2-23 15:45
@@ -196,7 +196,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 梦火不能换了，等R金时。
 
 
------
+*****
 
 ####  yangun22  
 ##### 72019#       发表于 2020-2-23 18:58
@@ -205,7 +205,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 纹章居然给换第二个，开心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72020#       发表于 2020-2-23 21:17
@@ -216,7 +216,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 这系统做的真是鸡肋
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72021#       发表于 2020-2-23 21:38
@@ -225,7 +225,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 满宝活动英灵起码要八个金方..这系统真是给新人用的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72022#       发表于 2020-2-23 21:52
@@ -236,7 +236,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 没卵用
 
 
------
+*****
 
 ####  dante888  
 ##### 72023#       发表于 2020-2-23 23:26
@@ -248,7 +248,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 午茶也复刻了，这才是真人权礼装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72024#       发表于 2020-2-24 08:23
@@ -260,7 +260,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 还有开活动得第一个宝具的5个金方……一共13个
 
 
------
+*****
 
 ####  白清羽  
 ##### 72025#       发表于 2020-2-24 09:54
@@ -272,7 +272,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差一千个绿方块，再来个两次活动应该就能换了
 
 
------
+*****
 
 ####  eilot  
 ##### 72026#       发表于 2020-2-24 13:42
@@ -283,7 +283,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 不過不知道能否期待一下第1/2年的活動角色能否再出
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72027#       发表于 2020-2-24 13:51
@@ -298,7 +298,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  eilot  
 ##### 72028#       发表于 2020-2-24 14:09
@@ -318,7 +318,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 所以為何是已經復刻了的提媽是第一個復刻...不應該是黑貞或黑傻才對嗎...
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72029#       发表于 2020-2-24 14:21
@@ -335,7 +335,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 宏观来看有可能只是配合第七章动画上映所以出了这个
 
 
------
+*****
 
 ####  eilot  
 ##### 72030#       发表于 2020-2-24 14:27
@@ -355,7 +355,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 不過嚴岩王那個用金磚換回來的又真是永久存在，只要你未打完
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72031#       发表于 2020-2-24 14:27
@@ -372,7 +372,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72032#       发表于 2020-2-24 14:28
@@ -384,7 +384,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72033#       发表于 2020-2-24 14:44
@@ -398,7 +398,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我想了半天提妈什么时候实装了
 
 
------
+*****
 
 ####  khxooo  
 ##### 72034#       发表于 2020-2-24 14:50
@@ -411,7 +411,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 什么？提妈实装了？什么时候，我为什么不知道<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kulanyee  
 ##### 72035#       发表于 2020-2-24 17:24
@@ -420,7 +420,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">入坑晚缺术龙娘。叶鸽鸽搞一套花里胡哨的先兑换弓大王可还行。果真是处处有惊喜，天天马高飞。
 
 
------
+*****
 
 ####  eilot  
 ##### 72036#       发表于 2020-2-24 18:58
@@ -433,7 +433,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 如果全部都要金磚開活動，再之後4隻都要獨立金磚入手，那非常要命
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72037#       发表于 2020-2-24 18:59
@@ -442,7 +442,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 强度上来说活动英灵就是小黑r金时还有bb..复刻先来个弓大王确实让人摸不着头脑<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72038#       发表于 2020-2-24 19:55
@@ -451,7 +451,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 290w点数的时候连续掉两张礼装，真有你的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72039#       发表于 2020-2-24 20:30
@@ -462,7 +462,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 复刻艾蕾，圣诞骗氪，圣诞送弓大王，复刻弓大王，思路没毛病。
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72040#       发表于 2020-2-24 20:34
@@ -474,7 +474,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 艹，照这个规律下次活动兑换还要等2000wdl嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72041#       发表于 2020-2-25 00:32
@@ -486,7 +486,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 应该不会，估计以后就是随便找个借口，纪念什么什么开个复刻活动吧。
 
 
------
+*****
 
 ####  花枝鱿鱼面  
 ##### 72042#       发表于 2020-2-25 15:36
@@ -497,7 +497,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 —— 来自 HUAWEI VRD-W10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  奈落的孤火花  
 ##### 72043#       发表于 2020-2-25 22:21
@@ -515,7 +515,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 2020-2-25 22:20 上传
 
 
------
+*****
 
 ####  eilot  
 ##### 72044#       发表于 2020-2-26 17:10
@@ -526,7 +526,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 而且聖誕阿提拉是直接開不用黃磚
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72045#       发表于 2020-2-26 17:11
@@ -535,7 +535,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 双黄了大象和棉被，逼游戏开始搞我心态了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  D．Va  
 ##### 72046#       发表于 2020-2-26 17:42
@@ -544,7 +544,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 40连出货，我也终于是有艾蕾的人了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72047#       发表于 2020-2-26 18:02
@@ -556,7 +556,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬要5宝吗
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72048#       发表于 2020-2-26 18:04
@@ -565,7 +565,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">一个第2次复刻的活动后面的关卡还要隔天开
 
 
------
+*****
 
 ####  在海岸  
 ##### 72049#       发表于 2020-2-26 18:17
@@ -574,7 +574,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 怎么出本卡在获得大王这里了
 
 
------
+*****
 
 ####  xpisces  
 ##### 72050#       发表于 2020-2-26 18:20
@@ -583,7 +583,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 乌鲁克小队终于集齐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">石头可以存到天荒地老了
 
 
------
+*****
 
 ####  eilot  
 ##### 72051#       发表于 2020-2-26 18:22
@@ -592,7 +592,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 暫時看來活動角的突破素材都能順便打回，是寶5如何處置
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72052#       发表于 2020-2-26 19:47
@@ -604,7 +604,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 5宝谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72053#       发表于 2020-2-26 19:48
@@ -616,7 +616,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽今天的卡池你不是要5宝爱雷吗
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72054#       发表于 2020-2-26 20:41
@@ -628,7 +628,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 我又不是凛厨，为啥要满宝艾蕾<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72055#       发表于 2020-2-26 20:42
@@ -640,7 +640,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天不是只有爱雷吗
 
 
------
+*****
 
 ####  rooarr  
 ##### 72056#       发表于 2020-2-26 20:50
@@ -649,7 +649,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 绿方块极缺，后悔无限池咸鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72057#       发表于 2020-2-26 21:27
@@ -661,7 +661,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 我在等歪大王丫<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72058#       发表于 2020-2-26 21:31
@@ -672,7 +672,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 剧情池请<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过估计你现在抽的就是剧情池了
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72059#       发表于 2020-2-26 22:14
@@ -681,7 +681,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 说起来，今天这NEW的大象没跑狗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72060#       发表于 2020-2-26 22:16
@@ -696,7 +696,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72061#       发表于 2020-2-26 22:31
@@ -711,7 +711,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 可是我没数据啊，上个月手机降过系统以后就没下过一括了，奇怪
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72062#       发表于 2020-2-26 22:53
@@ -723,7 +723,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是从来没什么跑狗出货。。又不是公主连接
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72063#       发表于 2020-2-27 12:17
@@ -734,7 +734,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  eilot  
 ##### 72064#       发表于 2020-2-27 14:05
@@ -745,7 +745,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 不過復刻的4星紋章居然要用2個黃磚來換，5星的話會用多少...
 
 
------
+*****
 
 ####  白清羽  
 ##### 72065#       发表于 2020-2-28 10:44
@@ -754,7 +754,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 抽光了友情点，再加上沉船卖的三星，丑新凑够5000个绿方块了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72066#       发表于 2020-2-28 20:03
@@ -767,7 +767,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 都是1宝这差距怎么来的....礼装也都是满级相扑....杨贵妃的2技幅度没这么大吧
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72067#       发表于 2020-2-28 20:29
@@ -779,7 +779,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 阿比的技能BUFF都能给她加，除了2技的降防还有3技的，再加特攻呗<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dante888  
 ##### 72068#       发表于 2020-2-28 20:34
@@ -791,7 +791,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 果然氪的多就不会缺绿砖<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72069#       发表于 2020-2-29 09:07
@@ -803,7 +803,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 换完感觉已经不是丑新是丑旧了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72070#       发表于 2020-2-29 13:04
@@ -813,7 +813,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这次活动变15ap 突然ap都不想清了
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72071#       发表于 2020-3-1 10:55
@@ -822,7 +822,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 衣服练满于是去试了一下宇宙凛兰陵王的队，结果打2.4的双新素材本27NP进第二面，不是说好对面只要有3个人就好了么<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72072#       发表于 2020-3-3 11:14
@@ -834,7 +834,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 壁之村毕竟前两面都是狂，对NP回收比较中庸的那些卡的限制比较大
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72073#       发表于 2020-3-3 11:20
@@ -846,7 +846,7 @@ Oh No，紫式部复刻的池子在哪里<img src="https://static.saraba1st.com/
 主要是之前看那些配置帖根本没说这队会吃限制，别的队反而有说<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72074#       发表于 2020-3-3 11:26
@@ -861,7 +861,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 考虑到技能和宝具都略慢，最佳使用方法大概还是带换人然后盲进本打剧情吧（然后剧情关底刷了一个大象
 
 
------
+*****
 
 ####  白清羽  
 ##### 72075#       发表于 2020-3-3 11:56
@@ -870,7 +870,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 好像有白情活动的舅舅爆料了？
 
 
------
+*****
 
 ####  卡蓮  
 ##### 72076#       发表于 2020-3-3 16:38
@@ -879,7 +879,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 茹西的话应该是解包解出东西了 
 
 
------
+*****
 
 ####  khxooo  
 ##### 72077#       发表于 2020-3-3 16:42
@@ -888,7 +888,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 如果主题真的是魔女，那么奥德修斯的机会很大了。
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72078#       发表于 2020-3-3 17:15
@@ -899,7 +899,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  alex_chow  
 ##### 72079#       发表于 2020-3-3 19:21
@@ -908,7 +908,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 解包说3hit蓝光炮
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72080#       发表于 2020-3-3 20:10
@@ -920,7 +920,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 其实艾蕾第一次Up时我就抽到美杜莎Lily来着，也是一口老血，这种同职介四五星放一起的池子真是恶心，抹杀希望之池。
 
 
------
+*****
 
 ####  angelooo  
 ##### 72081#       发表于 2020-3-3 20:37
@@ -932,7 +932,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 艾蕾池子每次都有守门员的，简直恶意
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72082#       发表于 2020-3-3 21:01
@@ -941,7 +941,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 所以不飘彩羽毛的金卡都当四星看的，虽然还是会歪<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72083#       发表于 2020-3-3 21:07
@@ -950,7 +950,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 所以为什么不直接点掉，非要看抽卡演出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72084#       发表于 2020-3-3 21:09
@@ -961,7 +961,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  白清羽  
 ##### 72085#       发表于 2020-3-3 21:30
@@ -970,7 +970,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 除了1技能好像可以当插件用，感觉还不如欧罗巴奶奶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72086#       发表于 2020-3-3 21:37
@@ -979,7 +979,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 又一个敌方战神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 72087#       发表于 2020-3-3 21:50
@@ -988,7 +988,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 这卡做出来就是为了高难时候放对面恶心人的吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72088#       发表于 2020-3-3 22:56
@@ -997,7 +997,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 这卡看起来实在太菜了，应该是真的
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72089#       发表于 2020-3-3 23:01
@@ -1008,7 +1008,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 2.5.2要做好准备被这货恶心了吗
 
 
------
+*****
 
 ####  kulanyee  
 ##### 72090#       发表于 2020-3-3 23:06
@@ -1017,7 +1017,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这强度控制，有盐鸽鸽在1.5那味儿了
 
 
------
+*****
 
 ####  yangun22  
 ##### 72091#       发表于 2020-3-3 23:24
@@ -1026,7 +1026,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 这解包是解到DW服务器去了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72092#       发表于 2020-3-3 23:32
@@ -1035,7 +1035,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 都没更新为什么会有解包？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yzj134100  
 ##### 72093#       发表于 2020-3-4 16:49
@@ -1044,7 +1044,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 捷豹牛逼欸
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72094#       发表于 2020-3-4 16:50
@@ -1053,7 +1053,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 噗....你游又出了174个封神榜
 
 
------
+*****
 
 ####  jackyhuang  
 ##### 72095#       发表于 2020-3-4 17:07
@@ -1062,7 +1062,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 看来解包数据妥妥的了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72096#       发表于 2020-3-4 17:12
@@ -1071,7 +1071,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 活动就10天？感觉挺休闲的
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72097#       发表于 2020-3-4 17:45
@@ -1080,7 +1080,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 解包太神了吧...奥德修斯妥了，除非和大帝一样强化一波NP，否则就是实力换颜值选手了...
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72098#       发表于 2020-3-4 17:57
@@ -1092,7 +1092,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 奥德修斯是妥了，但应该不是之前传的那个样子<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LOLITA  
 ##### 72099#       发表于 2020-3-4 18:39
@@ -1101,7 +1101,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 给艾蕾补到5宝了，当初就是看了艾蕾立绘才入坑的，现在总算了却心愿了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72100#       发表于 2020-3-4 21:29
@@ -1110,7 +1110,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 好像死了不少，不知道是黑卡代充还是黑卡礼品卡
 
 
------
+*****
 
 ####  白清羽  
 ##### 72101#       发表于 2020-3-4 21:52
@@ -1119,7 +1119,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 看到贴吧有个氪佬年买到苹果的黑卡礼品卡被封了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72102#       发表于 2020-3-4 22:01
@@ -1128,7 +1128,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">礼品卡被封我是不信的 应该想想有没有其他地方中过招。。例如IP变动频繁换号 还有就是自己可能都不记得的成年老账
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72103#       发表于 2020-3-4 22:26
@@ -1139,7 +1139,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 翻了一下，卡比只能在贴吧那样说，他应该冲过黑卡代充的
 
 
------
+*****
 
 ####  白清羽  
 ##### 72104#       发表于 2020-3-4 22:39
@@ -1150,7 +1150,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 那看来是旧账被翻的可能高点，毕竟刚封过一波，应该不至于顶风找黑卡代充
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72105#       发表于 2020-3-4 22:56
@@ -1161,7 +1161,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  dante888  
 ##### 72106#       发表于 2020-3-5 09:12
@@ -1172,7 +1172,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 就是黑卡，被封的都是著名黑卡店的，毕竟黑卡比白卡便宜太多，这个价格无论封多少次都有人充的，甩锅旧账什么的无非就是突出不是自己的问题
 
 
------
+*****
 
 ####  dante888  
 ##### 72107#       发表于 2020-3-5 09:13
@@ -1183,7 +1183,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 很多人都知道他充的啥，给他个面子罢了
 
 
------
+*****
 
 ####  白清羽  
 ##### 72108#       发表于 2020-3-5 14:49
@@ -1194,7 +1194,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 看到他和贴吧另一个被封的很快又搞了个号继续玩，大概这就是真爱吧
 
 
------
+*****
 
 ####  dante888  
 ##### 72109#       发表于 2020-3-5 15:23
@@ -1205,7 +1205,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 因为群里有个很久没玩的大佬把号送他了，落差还是很大的
 
 
------
+*****
 
 ####  Coda  
 ##### 72110#       发表于 2020-3-5 16:58
@@ -1214,7 +1214,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 为啥课黑卡被封也飞yls的马 奇怪的行为
 
 
------
+*****
 
 ####  白清羽  
 ##### 72111#       发表于 2020-3-5 17:10
@@ -1228,7 +1228,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 刚看到奥德修斯跟欧罗巴一样是常驻的，那技能组估计就是那么菜了
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72112#       发表于 2020-3-5 17:13
@@ -1237,7 +1237,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 宝具动画又长又蠢，把我看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72113#       发表于 2020-3-5 17:15
@@ -1246,7 +1246,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝具都能一抹一样　技能组当然也是一样的啦　
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72114#       发表于 2020-3-5 17:18
@@ -1255,7 +1255,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 白情是我最喜欢的活动了，无他，能抽出来的新东西多（而且礼装卡面都真的赞）
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72115#       发表于 2020-3-5 17:19
@@ -1267,7 +1267,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72116#       发表于 2020-3-5 17:21
@@ -1282,7 +1282,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 技能我记着第一个是蓝绿卡三回合UP来着，二技能20自充这样，在NGA看的解包
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72117#       发表于 2020-3-5 17:24
@@ -1303,7 +1303,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 其实我对奥德修斯好感还行，小时候看过他的动画，第五章一开始堵出生点杀野生从者的操作很惊艳,,,但常桂角色是真没啥抽的欲望（声优要素暂略）
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72118#       发表于 2020-3-5 17:27
@@ -1318,7 +1318,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">终焉木马是无敌贯通，大木马就是现在这个防御强化接触。技能解包那个整个看着都有点虚假的感觉
 
 
------
+*****
 
 ####  D．Va  
 ##### 72119#       发表于 2020-3-5 17:28
@@ -1327,7 +1327,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 是你！白色木马！行きます！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72120#       发表于 2020-3-5 17:30
@@ -1345,7 +1345,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 希望技能组确实和解包不一样，预测来看的话不强啊
 
 
------
+*****
 
 ####  xunit  
 ##### 72121#       发表于 2020-3-5 17:32
@@ -1354,7 +1354,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 这木马比想象的还要奇怪，这玩意不是作为计谋道具进入特洛伊，而是直接强攻进去的吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72122#       发表于 2020-3-5 17:32
@@ -1363,7 +1363,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 难怪特洛伊人会把木马拉进城，没有男人能拒绝萝卜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔法，解开了
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72123#       发表于 2020-3-5 17:33
@@ -1375,7 +1375,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 谁家的手办丢在这里了，快带回去重涂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72124#       发表于 2020-3-5 17:34
@@ -1386,7 +1386,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  eyeego  
 ##### 72125#       发表于 2020-3-5 17:35
@@ -1395,7 +1395,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 可能性之兽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  風卷豹  
 ##### 72126#       发表于 2020-3-5 17:37
@@ -1406,7 +1406,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 不过我觉得无敌贯通可能还要好点，毕竟现在带框的BUFF越来越多<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  廖化  
 ##### 72127#       发表于 2020-3-5 17:44
@@ -1415,7 +1415,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 猛然一看还以为是终焉的木大，你也是JO厨哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yangun22  
 ##### 72128#       发表于 2020-3-5 17:44
@@ -1424,7 +1424,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 真这么个玩意倒是拖进城的理由反而好理解了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KOBI  
 ##### 72129#       发表于 2020-3-5 17:53
@@ -1437,7 +1437,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 哈哈哈亚该亚联军这帮鶸连高达都丢掉滚回家了WWWW
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72130#       发表于 2020-3-5 18:02
@@ -1451,7 +1451,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 不过能找古谷彻来配也挺好。
 
 
------
+*****
 
 ####  廖化  
 ##### 72131#       发表于 2020-3-5 18:07
@@ -1465,7 +1465,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 如果是大型新人苍月升那就艹了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72132#       发表于 2020-3-5 18:18
@@ -1489,7 +1489,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 编辑：多谢楼下提醒，这是黑Assassin，切丝老爹，我光看到EMIYA了...
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72133#       发表于 2020-3-5 18:20
@@ -1504,7 +1504,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  天天那个啥  
 ##### 72134#       发表于 2020-3-5 18:22
@@ -1513,7 +1513,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 叫都叫木马屠城记，肯定是白色木马发威亲自变形成萝卜把特洛伊屠了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xunit  
 ##### 72135#       发表于 2020-3-5 18:24
@@ -1526,7 +1526,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 72136#       发表于 2020-3-5 18:26
@@ -1537,7 +1537,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 是切嗣吧
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72137#       发表于 2020-3-5 18:35
@@ -1560,7 +1560,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 本来以为是心狠手辣ARCHER组，没想到是面恶心善FATHER组...
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72138#       发表于 2020-3-5 19:05
@@ -1574,7 +1574,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看的大概是那个表格的吧　　有一个文字解包和现在的一摸一样
 
 
------
+*****
 
 ####  ネロ  
 ##### 72139#       发表于 2020-3-5 19:16
@@ -1585,7 +1585,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 出击却是种味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72140#       发表于 2020-3-5 19:51
@@ -1594,7 +1594,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 喷了，这个木马
 
 
------
+*****
 
 ####  suibiankk  
 ##### 72141#       发表于 2020-3-5 20:00
@@ -1603,7 +1603,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 惊人的技术力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72142#       发表于 2020-3-5 20:02
@@ -1612,7 +1612,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 这个出击怎么没有一个机体展开闪光的特效动画呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 72143#       发表于 2020-3-5 20:56
@@ -1621,7 +1621,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 这宝具我笑了5分钟，常驻真是绝了，亏得一开始还是2.5的c位英灵，真是太惨了
 
 
------
+*****
 
 ####  LOLITA  
 ##### 72144#       发表于 2020-3-5 21:04
@@ -1633,7 +1633,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 不抽等歪。
 
 
------
+*****
 
 ####  缘一  
 ##### 72145#       发表于 2020-3-6 02:37
@@ -1644,7 +1644,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  eilot  
 ##### 72146#       发表于 2020-3-6 17:12
@@ -1657,7 +1657,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 不過60石一隻4星英靈都沒有，一隻活動英靈交換要2黃磚...
 
 
------
+*****
 
 ####  白清羽  
 ##### 72147#       发表于 2020-3-6 17:19
@@ -1666,7 +1666,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 奥德修斯满破的铠甲头盔有点帅啊，不过这个开胸有点……
 
 
------
+*****
 
 ####  v22325  
 ##### 72148#       发表于 2020-3-6 17:31
@@ -1678,7 +1678,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">友情池抽礼装抽到个莉莉
 
 
------
+*****
 
 ####  萨尤克  
 ##### 72149#       发表于 2020-3-6 17:35
@@ -1687,7 +1687,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">傻逼弱智DW，奥德修斯这2破卡面都戴头盔了建模还是摘的，我就想看头盔啊
 
 
------
+*****
 
 ####  angelooo  
 ##### 72150#       发表于 2020-3-6 17:44
@@ -1698,7 +1698,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 省钱不好吗233
 
 
------
+*****
 
 ####  jackyhuang  
 ##### 72151#       发表于 2020-3-6 17:56
@@ -1707,7 +1707,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 二十连二宝，附带术狗医生哥伦布等三星欧证若干，暂时不黑YLS了
 
 
------
+*****
 
 ####  萨尤克  
 ##### 72152#       发表于 2020-3-6 18:03
@@ -1719,7 +1719,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我已经抽到了才发现的
 
 
------
+*****
 
 ####  yangun22  
 ##### 72153#       发表于 2020-3-6 18:05
@@ -1728,7 +1728,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 通常池子里希腊三色骑光炮都是30自充，好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72154#       发表于 2020-3-6 18:11
@@ -1737,7 +1737,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前透的图找不到了 技能组一样吗?
 
 
------
+*****
 
 ####  khxooo  
 ##### 72155#       发表于 2020-3-6 18:13
@@ -1746,7 +1746,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 被动和技能对姑姑的公开处刑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72156#       发表于 2020-3-6 18:35
@@ -1757,7 +1757,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 一样，但是数值都加强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">落地奶了一口
 
 
------
+*****
 
 ####  jackyhuang  
 ##### 72157#       发表于 2020-3-6 18:36
@@ -1777,7 +1777,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 说不定是叶良树发现被解包了临时改的
 
 
------
+*****
 
 ####  10925  
 ##### 72158#       发表于 2020-3-6 18:49
@@ -1794,7 +1794,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 技能CD也对不上。
 
 
------
+*****
 
 ####  rooarr  
 ##### 72159#       发表于 2020-3-6 19:19
@@ -1803,7 +1803,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 开高达这么难的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全沉了
 
 
------
+*****
 
 ####  angelooo  
 ##### 72160#       发表于 2020-3-6 20:33
@@ -1815,7 +1815,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 我错了OTZ
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72161#       发表于 2020-3-6 20:55
@@ -1827,7 +1827,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">继续课继续抽啊
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72162#       发表于 2020-3-6 21:24
@@ -1836,7 +1836,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 三单一宝外加姑姑满宝..见好就收了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72163#       发表于 2020-3-7 04:55
@@ -1847,7 +1847,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 这卡池太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 72164#       发表于 2020-3-7 16:31
@@ -1860,7 +1860,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 不是，你游部分玩家不是之前说白情出新男人绝逼氪爆吗23333
 
 
------
+*****
 
 ####  eyeego  
 ##### 72165#       发表于 2020-3-7 17:44
@@ -1872,7 +1872,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 现在这操作 基本就是本来打算出在251的 但白情又不想搞新卡 就把他踢到了白情 但这样251常驻5星的位置空出来了 又只好把欧罗巴踢了过去 我不是拳师都觉得月球女玩家没人权了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72166#       发表于 2020-3-7 18:36
@@ -1881,7 +1881,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 唔？那个宇宙凛兰陵王队打新的三杀本，第二面也打不够NP<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鱼缸  
 ##### 72167#       发表于 2020-3-7 19:31
@@ -1906,7 +1906,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 看到这个罪冠妹妹头又不肯把头盔戴起来的家伙 是不会抽的
 
 
------
+*****
 
 ####  白金口袋  
 ##### 72168#       发表于 2020-3-7 20:41
@@ -1920,7 +1920,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 第五：对老婆一心一意，从绊到灵基再临语音对master真的是一丁点love势倾向都没有，别说月球男友，连梦日记对象都当不了，这种男角严重打击母猪的氪金热情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 72169#       发表于 2020-3-7 20:49
@@ -1932,7 +1932,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 我站在死宅的角度，这几年情人节，女帝和天草的事大家FA的时候就知道了，紫式部和清少纳言也没啥master love倾向，后者脑子里甚至只有自己的姬友，可见这两个节日本来就不完全是以ML作为卖点的
 
 
------
+*****
 
 ####  v22325  
 ##### 72170#       发表于 2020-3-7 20:55
@@ -1941,7 +1941,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我这种喜欢姑姑的 奥德修斯出来现在剧情这态度还是有点难受的 姑姑怪文书明明那么好 毕竟二设没法抵抗前男友
 
 
------
+*****
 
 ####  鱼缸  
 ##### 72171#       发表于 2020-3-7 21:40
@@ -1955,7 +1955,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 其实还蛮生草的
 
 
------
+*****
 
 ####  鱼缸  
 ##### 72172#       发表于 2020-3-7 21:50
@@ -1976,7 +1976,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 八成就是要让姑姑对这段无果的旧关系划清界限 专门masterlove了（划掉
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72173#       发表于 2020-3-7 22:01
@@ -1985,7 +1985,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 一个假面骑士领着一群希腊兵从帆船上走下来的场面怎么这么喜感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rxrx  
 ##### 72174#       发表于 2020-3-7 22:45
@@ -1994,7 +1994,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 自从有人说奥德修斯长得象伍佰我就忍不住想抽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72175#       发表于 2020-3-8 17:26
@@ -2003,7 +2003,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 可以开始刷铜材料了吧？估计90级是混合掉落？
 
 
------
+*****
 
 ####  eilot  
 ##### 72176#       发表于 2020-3-8 23:52
@@ -2014,7 +2014,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 再十張卷，先出雀仔，再出機動戰士木馬...
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72177#       发表于 2020-3-9 08:38
@@ -2031,7 +2031,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 同比去年教授蜘蛛白情的抽的人也不算多
 
 
------
+*****
 
 ####  新吾  
 ##### 72178#       发表于 2020-3-9 21:02
@@ -2042,7 +2042,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈耶，新剧情还真是在拆姑姑的master love，撮合面具男跟姑姑，这次活动怕不是樱井写的
 
 
------
+*****
 
 ####  新吾  
 ##### 72179#       发表于 2020-3-9 21:14
@@ -2059,7 +2059,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 最后现在塑造完全不够，你游特意为了凑他跟姑姑cp的人估计十个也没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  炙热之狐  
 ##### 72180#       发表于 2020-3-9 21:16
@@ -2070,7 +2070,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 所以这次活动只是为了恶心姑姑单推而已<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新吾  
 ##### 72181#       发表于 2020-3-9 21:45
@@ -2080,7 +2080,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">都不知道这群人在干嘛，真就搞笑活动不用带脑子咯
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72182#       发表于 2020-3-10 00:31
@@ -2089,7 +2089,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 为什么要看活动剧情，直接跳过不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 72183#       发表于 2020-3-10 02:52
@@ -2098,7 +2098,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 每天活动都在被酸臭剧情痛殴 咕哒真就一般群众
 
 
------
+*****
 
 ####  白清羽  
 ##### 72184#       发表于 2020-3-10 09:25
@@ -2107,7 +2107,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 昨天黑狗up血沉，连高达男都木有，看了下白情就up一次，罢了明年再来了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 72185#       发表于 2020-3-10 09:30
@@ -2120,7 +2120,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 伍佰就是一劣化版杨过，怎么没出来一个郭大小姐砍他一条手臂<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72186#       发表于 2020-3-10 11:21
@@ -2129,7 +2129,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 茹西又剧透下个活动了，估计是FA复刻
 
 
------
+*****
 
 ####  khxooo  
 ##### 72187#       发表于 2020-3-10 11:28
@@ -2138,7 +2138,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 杰克 改模<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rzxa  
 ##### 72188#       发表于 2020-3-10 16:33
@@ -2147,7 +2147,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 盾阶脚后跟gkd
 
 
------
+*****
 
 ####  eilot  
 ##### 72189#       发表于 2020-3-11 14:22
@@ -2159,7 +2159,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 點解不是最早期的活動復刻，FA/FZ都是上年已復刻
 
 
------
+*****
 
 ####  白清羽  
 ##### 72190#       发表于 2020-3-11 14:57
@@ -2170,7 +2170,7 @@ S伊斯塔不换人的组队限制还是蛮多的……这卡原本的设计就�
 fate/apocrypha联动，这还没复刻过呢
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72191#       发表于 2020-3-11 15:00
@@ -2182,7 +2182,7 @@ fate/apocrypha联动，这还没复刻过呢
 apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72192#       发表于 2020-3-11 17:55
@@ -2191,7 +2191,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最近越来越懒的打了。。高难以前还有心情玩玩现在都直接令咒爆破了
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72193#       发表于 2020-3-11 19:08
@@ -2200,7 +2200,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 上女人不好打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上r金随便就3t了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72194#       发表于 2020-3-11 19:26
@@ -2212,7 +2212,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3bba 3回合啊（令咒
 
 
------
+*****
 
 ####  白清羽  
 ##### 72195#       发表于 2020-3-11 19:43
@@ -2221,7 +2221,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 碎了颗石头，给泥潭丢脸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  D．Va  
 ##### 72196#       发表于 2020-3-11 20:43
@@ -2230,7 +2230,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 弱爆了这个木马，两个迦摩随便打
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72197#       发表于 2020-3-11 21:28
@@ -2239,7 +2239,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 听说你会给自己挂回避?很好,又到了老福同志发光发热的时候了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kulanyee  
 ##### 72198#       发表于 2020-3-12 01:14
@@ -2248,7 +2248,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">1宝俄里翁，第三管血一拳30W
 
 
------
+*****
 
 ####  v22325  
 ##### 72199#       发表于 2020-3-12 09:13
@@ -2257,7 +2257,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">每天放一段真要命 最后一段还可以 要是一口气看下来就不会那么酸了
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72200#       发表于 2020-3-12 12:52
@@ -2266,7 +2266,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 大熊刚出来时还以为是高难杂技选手，然而这几回用下来发现，只要有BB，根本就是脑死play选手，输出能力溢出就是这么自信，随便sl3张卡（两红足以，有时候一张都行）魔性菩萨加双梅林启动开干就完了，无敌贯通弱体无效，管你什么乱七八糟的机制，统统打爆，一张红卡白字随随便便30w往上，普通的高难（低难）真是闭着眼睛就砸穿了，这次的伍佰第三关30w血逆克制愣是两拳就揍死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72201#       发表于 2020-3-12 12:56
@@ -2282,7 +2282,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72202#       发表于 2020-3-13 16:25
@@ -2297,7 +2297,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 个人意见：这玩意吧，一方面是完全不准，结果还不如一般的星座性格测试沾边，另一方面就是结果太少，心有所属的玩家估计不会满意。诚意很差的东西......
 
 
------
+*****
 
 ####  鱼缸  
 ##### 72203#       发表于 2020-3-13 16:26
@@ -2312,7 +2312,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">塞了个哥伦布故意给女同志们喂屎
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72204#       发表于 2020-3-13 18:15
@@ -2321,7 +2321,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我准备吃苹果开刷了  结果满破礼装也见不到几个人挂。。这么惨的吗白情
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72205#       发表于 2020-3-14 22:46
@@ -2332,7 +2332,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  白清羽  
 ##### 72206#       发表于 2020-3-14 23:05
@@ -2341,7 +2341,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 跟解包说的一样up王哈桑了，准备捞捞戈尔贡
 
 
------
+*****
 
 ####  dante888  
 ##### 72207#       发表于 2020-3-14 23:42
@@ -2353,7 +2353,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 要等到20号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72208#       发表于 2020-3-14 23:58
@@ -2365,7 +2365,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 正好多等几天看看一单的价格会不会再降点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72209#       发表于 2020-3-15 00:04
@@ -2376,7 +2376,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 惊了，半夜开游戏，突然发现爷爷复刻了，然后随手拿昨天的呼符随手先抽了一发，打算清完体力再充一单，居然一发入魂直接彩光出爷爷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72210#       发表于 2020-3-15 01:07
@@ -2385,7 +2385,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 动画这个真的算造势么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72211#       发表于 2020-3-15 07:01
@@ -2394,7 +2394,7 @@ apocrypha没有复刻过啦，ZERO倒是18年9月复刻了
 冠位eater惊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72212#       发表于 2020-3-15 11:18
@@ -2407,7 +2407,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 王哈桑：我不是，我没有，我不会这招（指令卡都憋红了）<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72213#       发表于 2020-3-15 12:07
@@ -2421,7 +2421,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 不是没全断没半毁也要用嘴咬么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佛狗  
 ##### 72214#       发表于 2020-3-15 12:14
@@ -2430,7 +2430,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 王哈这几个红放叠起来三红还有点凶
 
 
------
+*****
 
 ####  廖化  
 ##### 72215#       发表于 2020-3-15 12:24
@@ -2442,7 +2442,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 ……动画简直黑出汁来，我这个葫芦娃扶墙大哭 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72216#       发表于 2020-3-15 17:22
@@ -2454,7 +2454,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 现在刚想起来...进商店点了几下并没有什么新的追加语音啊...是已经听不到了还是要在别的地方听
 
 
------
+*****
 
 ####  rooarr  
 ##### 72217#       发表于 2020-3-15 18:22
@@ -2463,7 +2463,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 怎么又歪了一个小恩，这游戏还能不能好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72218#       发表于 2020-3-15 19:51
@@ -2475,7 +2475,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新上一个5星是师匠好久没出过货了.歪都没机会歪 怎么办  好羡慕
 
 
------
+*****
 
 ####  rooarr  
 ##### 72219#       发表于 2020-3-15 20:11
@@ -2486,7 +2486,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 蓝绿修改器萌新不了解一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72220#       发表于 2020-3-15 20:12
@@ -2498,7 +2498,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的ipad里还真没有绿色的修改器（蓝的那个当然也不会用
 
 
------
+*****
 
 ####  白金口袋  
 ##### 72221#       发表于 2020-3-16 12:11
@@ -2509,7 +2509,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 早口怪文书爆笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72222#       发表于 2020-3-16 14:52
@@ -2518,7 +2518,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 茹西剧透下午开狩猎，准备刷刷骨头、羽毛和钉子
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72223#       发表于 2020-3-16 16:06
@@ -2533,7 +2533,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  v22325  
 ##### 72224#       发表于 2020-3-16 16:11
@@ -2552,7 +2552,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72225#       发表于 2020-3-17 17:29
@@ -2563,7 +2563,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72226#       发表于 2020-3-18 08:16
@@ -2572,7 +2572,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">解包大佬们开始拆公告信息以后这游戏的情报生放送顿时变得没啥意义了，接下来的活动安排又被透了
 
 
------
+*****
 
 ####  白清羽  
 ##### 72227#       发表于 2020-3-18 08:22
@@ -2584,7 +2584,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 生放送的意义不是提前看宝具和送石头吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yangun22  
 ##### 72228#       发表于 2020-3-18 08:52
@@ -2593,7 +2593,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 本来就是anime japan的内容，介绍介绍AP复刻，更新几个模型，加个新角，2.52开之前应该还会搞次生发送
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72229#       发表于 2020-3-18 12:16
@@ -2608,7 +2608,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 一般来说AJ上还会公布一下今年黄金周联动的标题
 
 
------
+*****
 
 ####  yangun22  
 ##### 72230#       发表于 2020-3-18 12:36
@@ -2623,7 +2623,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 前面几次联动复刻都是加了个新的，但是AP我觉得没啥能加了所以也不好说
 
 
------
+*****
 
 ####  khxooo  
 ##### 72231#       发表于 2020-3-19 00:54
@@ -2632,7 +2632,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 羽毛什么垃圾掉率<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72232#       发表于 2020-3-19 15:24
@@ -2641,7 +2641,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又解包了，杰克改模小莫灵衣，没了。没有任何新加的从者&amp;礼装（
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72233#       发表于 2020-3-19 15:28
@@ -2650,7 +2650,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 这舅舅的波纹也太他妈多了
 
 
------
+*****
 
 ####  khxooo  
 ##### 72234#       发表于 2020-3-19 15:29
@@ -2661,7 +2661,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 杰克终于改模了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72235#       发表于 2020-3-19 15:30
@@ -2670,7 +2670,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 到底是什么解包这么厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72236#       发表于 2020-3-19 15:32
@@ -2679,7 +2679,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舅舅还是被干掉了，最后的波纹就是4.8开252，2五星1四星
 
 
------
+*****
 
 ####  khxooo  
 ##### 72237#       发表于 2020-3-19 15:34
@@ -2688,7 +2688,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 就凭DW的技术力，相信很快就有新舅舅了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72238#       发表于 2020-3-19 15:35
@@ -2697,7 +2697,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 为什么现在没更新都能解包了？
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72239#       发表于 2020-3-19 15:45
@@ -2709,7 +2709,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以为是拆解了服务器内的公告，结果还是内鬼
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72240#       发表于 2020-3-19 15:45
@@ -2718,7 +2718,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 虚空捷豹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72241#       发表于 2020-3-19 15:45
@@ -2730,7 +2730,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">内鬼居然还能跳这么久 官方实属丢人
 
 
------
+*****
 
 ####  khxooo  
 ##### 72242#       发表于 2020-3-19 15:49
@@ -2739,7 +2739,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 两个舅舅还撕起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72243#       发表于 2020-3-19 15:54
@@ -2748,7 +2748,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 眼花把莫德雷德看成了德雷克，还以为船长2.5.1的灵衣落地了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 72244#       发表于 2020-3-19 16:10
@@ -2757,7 +2757,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 只有杰克改模比较有兴趣，呆毛居然就给个简易灵衣，擦
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72245#       发表于 2020-3-20 17:38
@@ -2768,7 +2768,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  白清羽  
 ##### 72246#       发表于 2020-3-20 18:27
@@ -2780,7 +2780,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 回头看看感觉整个三月就是各种歪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  reader  
 ##### 72247#       发表于 2020-3-20 22:25
@@ -2789,7 +2789,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 有用华为手机的大佬可以说一下更新10.0系统会影响fgo吗？
 
 
------
+*****
 
 ####  zechins  
 ##### 72248#       发表于 2020-3-22 11:59
@@ -2798,7 +2798,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">好久没玩了 看到群里转了张舅舅图说fa联动要复刻了 到时候会多一张小莫灵衣 又想捡起来香了 就是不知道消息可靠不
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72249#       发表于 2020-3-22 13:38
@@ -2810,7 +2810,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 没有官宣我们也只能看舅舅说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然可信度应该不低
 
 
------
+*****
 
 ####  白清羽  
 ##### 72250#       发表于 2020-3-22 15:15
@@ -2819,7 +2819,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 刚看生放送，今年1月以来足足有16个活动呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72251#       发表于 2020-3-22 15:59
@@ -2828,7 +2828,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 小王子这么快联动？怕不是销量不行用联动来提高人气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72252#       发表于 2020-3-22 15:59
@@ -2837,7 +2837,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 哈？竟然先联动星空那本小说？FSF呢？
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72253#       发表于 2020-3-22 15:59
@@ -2848,7 +2848,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白清羽  
 ##### 72254#       发表于 2020-3-22 16:04
@@ -2857,7 +2857,7 @@ FGO第七章动画组：战斗续行EX，指的是（四肢全断、肉体半毁
 玩家能想到的，排除<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zechins  
 ##### 72255#       发表于 2020-3-22 16:06
@@ -2877,7 +2877,7 @@ fsf动画化板上钉钉的事儿吧，肯定要等tv宣布，临近播出的时
 杰克这次改模还难得没搞cut in的大脸，好评<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  花枝鱿鱼面  
 ##### 72256#       发表于 2020-3-22 16:11
@@ -2892,7 +2892,7 @@ fsf动画化板上钉钉的事儿吧，肯定要等tv宣布，临近播出的时
 —— 来自 HUAWEI VRD-W10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 72257#       发表于 2020-3-22 16:11
@@ -2901,7 +2901,7 @@ fsf动画化板上钉钉的事儿吧，肯定要等tv宣布，临近播出的时
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">FR我记得第二卷都鸽了也能搞起联动来的吗
 
 
------
+*****
 
 ####  angelooo  
 ##### 72258#       发表于 2020-3-22 16:20
@@ -2910,7 +2910,7 @@ fsf动画化板上钉钉的事儿吧，肯定要等tv宣布，临近播出的时
 这联动真是太谜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  卡蓮  
 ##### 72259#       发表于 2020-3-22 16:24
@@ -2922,7 +2922,7 @@ fsf动画化板上钉钉的事儿吧，肯定要等tv宣布，临近播出的时
 另外千万不要让那批（）系列出来，钱包…钱包其实也撑得住就是
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72260#       发表于 2020-3-22 17:05
@@ -2943,7 +2943,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 [https://m.weibo.cn/detail/4485604903730447](https://m.weibo.cn/detail/4485604903730447)
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72261#       发表于 2020-3-22 18:14
@@ -2952,7 +2952,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天什么都没干把动画看完了。。然后默默打了个-2  就这居然还有那么多人吹 （特别b站的推荐里老是有吹动画的 见鬼了
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72262#       发表于 2020-3-22 22:14
@@ -2964,7 +2964,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 这都-2那隔壁舰B的咋办，-10吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72263#       发表于 2020-3-22 22:15
@@ -2976,7 +2976,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看都不想看.jpg
 
 
------
+*****
 
 ####  eilot  
 ##### 72264#       发表于 2020-3-23 10:21
@@ -2987,7 +2987,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 看錯了，沒留意年月份，只看到日子
 
 
------
+*****
 
 ####  eyeego  
 ##### 72265#       发表于 2020-3-23 10:32
@@ -2998,7 +2998,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 ？？？不是都说了25开？
 
 
------
+*****
 
 ####  白清羽  
 ##### 72266#       发表于 2020-3-23 19:42
@@ -3008,7 +3008,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 [https://ngabbs.com/read.php?tid=20949834](https://ngabbs.com/read.php?tid=20949834)
 
 
------
+*****
 
 ####  khxooo  
 ##### 72267#       发表于 2020-3-23 23:18
@@ -3017,7 +3017,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 草凯尼斯是4星，有点心动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72268#       发表于 2020-3-25 01:20
@@ -3026,7 +3026,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 看了看科普，小王子那里设定城市管理Ai形象是卡莲，那么送的活动从者或者卡池从者就是卡莲，刚好让卡莲正式登陆fgo，也让BB有个对比，或者两个加一起疯狂搞事。
 
 
------
+*****
 
 ####  D．Va  
 ##### 72269#       发表于 2020-3-25 03:58
@@ -3035,7 +3035,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 这改模的宝具结束那下真的僵硬，看平A能不能做好看点了
 
 
------
+*****
 
 ####  rollingusagi  
 ##### 72270#       发表于 2020-3-25 09:10
@@ -3047,7 +3047,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  卡蓮  
 ##### 72271#       发表于 2020-3-25 09:48
@@ -3059,7 +3059,7 @@ Fate requiem联动，真是鬼才，谁告诉我这书有几个从者？小王�
 那么多奇形怪状的从者，AI就别来参合了
 
 
------
+*****
 
 ####  zechins  
 ##### 72272#       发表于 2020-3-25 10:04
@@ -3073,7 +3073,7 @@ https://ngabbs.com/read.php?tid=20949834 ...</blockquote><blockquote>更新一�
 <img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">能不能不要出奇形怪状的从者了，不管是常驻歪还是福袋搞心态都贼气啊
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72273#       发表于 2020-3-25 12:19
@@ -3085,7 +3085,7 @@ https://ngabbs.com/read.php?tid=20949834 ...</blockquote><blockquote>更新一�
 不过实话说，这个异闻带不出一两个奇怪的完全机器人也不合理啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72274#       发表于 2020-3-25 17:06
@@ -3094,7 +3094,7 @@ https://ngabbs.com/read.php?tid=20949834 ...</blockquote><blockquote>更新一�
 我擦，居然这么多强化本
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72275#       发表于 2020-3-25 17:17
@@ -3103,7 +3103,7 @@ https://ngabbs.com/read.php?tid=20949834 ...</blockquote><blockquote>更新一�
 那么啥时候给大公开个宝具本<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kulanyee  
 ##### 72276#       发表于 2020-3-25 17:18
@@ -3112,7 +3112,7 @@ https://ngabbs.com/read.php?tid=20949834 ...</blockquote><blockquote>更新一�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恭喜小莫再次背刺他爹成功，坐回麻将团首席
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72277#       发表于 2020-3-25 17:19
@@ -3121,7 +3121,7 @@ https://ngabbs.com/read.php?tid=20949834 ...</blockquote><blockquote>更新一�
 四星没有单up啊，想抽阿塔
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72278#       发表于 2020-3-25 17:22
@@ -3133,7 +3133,7 @@ https://ngabbs.com/read.php?tid=20949834 ...</blockquote><blockquote>更新一�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开过了啊
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72279#       发表于 2020-3-25 17:23
@@ -3144,7 +3144,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72280#       发表于 2020-3-25 17:24
@@ -3153,7 +3153,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 才30…就大公这个底子,30不还是白给
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72281#       发表于 2020-3-25 17:25
@@ -3164,7 +3164,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 有吗,我怎么不知道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72282#       发表于 2020-3-25 17:26
@@ -3176,7 +3176,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你摸太久
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72283#       发表于 2020-3-25 17:29
@@ -3187,7 +3187,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 开了才跟正常人不开一样倍率也能叫宝具本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72284#       发表于 2020-3-25 17:31
@@ -3196,7 +3196,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 我不理解天草这个技能组都能有这么多强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 72285#       发表于 2020-3-25 17:37
@@ -3207,7 +3207,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72286#       发表于 2020-3-25 18:06
@@ -3216,7 +3216,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 草,qp又要开始大量溢出了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 72287#       发表于 2020-3-25 18:22
@@ -3225,7 +3225,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 杰克这就要没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72288#       发表于 2020-3-25 18:43
@@ -3234,7 +3234,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 我才想起把5宝姑姑换上来杰克就没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72289#       发表于 2020-3-25 18:52
@@ -3246,7 +3246,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72290#       发表于 2020-3-25 18:59
@@ -3255,7 +3255,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 淦，我吃了个晚饭回来杰克已经到了，阿维老师就抢到两场，11区的秃子们都不吃饭的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72291#       发表于 2020-3-25 19:26
@@ -3264,7 +3264,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 好久没刷，都憋坏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eyeego  
 ##### 72292#       发表于 2020-3-25 19:40
@@ -3273,7 +3273,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 算了下 大公带苍玉加花嫁 宝具好歹能打半管了 剩下再凹个卡 也是个高难能连射的好汉了 那么啥时候把当年傻逼砍掉的宝具倍率给加回来呢<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72293#       发表于 2020-3-25 20:09
@@ -3282,7 +3282,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 日服不是人均咸鱼吗，怎么两个小时三个柱子就没了
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72294#       发表于 2020-3-25 20:50
@@ -3294,7 +3294,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 人均咸鱼（指没有无限池和柱子的时候
 
 
------
+*****
 
 ####  dante888  
 ##### 72295#       发表于 2020-3-26 00:04
@@ -3305,7 +3305,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 看了下还是老材料啊，有这么饥渴么
 
 
------
+*****
 
 ####  khxooo  
 ##### 72296#       发表于 2020-3-26 00:19
@@ -3319,7 +3319,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 估计太久没有稍微大型的活动了，当然是爆发一下
 
 
------
+*****
 
 ####  alaya  
 ##### 72297#       发表于 2020-3-26 00:45
@@ -3328,7 +3328,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 天雷不是神代二爷吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  花枝鱿鱼面  
 ##### 72298#       发表于 2020-3-26 09:00
@@ -3339,7 +3339,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 —— 来自 HUAWEI VRD-W10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72299#       发表于 2020-3-26 09:24
@@ -3351,7 +3351,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 但是他无论是Fha的旧设定还是FP的新设定都挺正常的……
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72300#       发表于 2020-3-26 09:31
@@ -3360,7 +3360,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 刚才打莎翁的时候卡死了，点图标没反应，现在退出再进就卡死在进关卡跑狗上了...
 
 
------
+*****
 
 ####  白金口袋  
 ##### 72301#       发表于 2020-3-26 13:59
@@ -3369,7 +3369,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 昨天刷的太狠热情都被磨没了吗？今天的速度明显降下来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 72302#       发表于 2020-3-26 15:05
@@ -3378,7 +3378,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 塔猫这血量长度基本没怎么掉。。
 
 
------
+*****
 
 ####  eilot  
 ##### 72303#       发表于 2020-3-26 15:50
@@ -3387,7 +3387,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 人類惡居然可以在早上時發動，反而下午時無力?
 
 
------
+*****
 
 ####  khxooo  
 ##### 72304#       发表于 2020-3-26 17:10
@@ -3396,7 +3396,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 18石头2飞哥1皇女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72305#       发表于 2020-3-26 17:18
@@ -3408,7 +3408,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 欧，羡慕，谭我不豹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72306#       发表于 2020-3-26 17:28
@@ -3417,7 +3417,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 好像很久没有海豹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 72307#       发表于 2020-3-26 22:55
@@ -3426,7 +3426,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 惊了，这柱子还是中午那一条吗
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72308#       发表于 2020-3-27 00:31
@@ -3435,7 +3435,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 想抽个2宝天草，99连出了一个，然后接着两发11连接连歪了奶奶和女儿，不知道这算不算海豹呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72309#       发表于 2020-3-27 01:45
@@ -3446,7 +3446,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 奶奶是常驻的？
 
 
------
+*****
 
 ####  eyeego  
 ##### 72310#       发表于 2020-3-27 01:48
@@ -3455,7 +3455,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 唐突炸服？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fig3  
 ##### 72311#       发表于 2020-3-27 08:14
@@ -3464,7 +3464,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 问个问题，之前AFK了挺久剧情只推到1.5的地底世界，现在买了号重玩，看到出新剧情想去拿拿石头，这样直接看观感会很差吗，会被剧透吗
 
 
------
+*****
 
 ####  GuDaZi  
 ##### 72312#       发表于 2020-3-27 08:41
@@ -3475,7 +3475,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 没有太大影响，就1.53的武藏会在第二部登场，其他都没有
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72313#       发表于 2020-3-27 10:19
@@ -3487,7 +3487,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 是的，奶奶和假面骑士都是常驻的，骑阶现在和术阶并列成为5星常驻最多的职阶了。
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72314#       发表于 2020-3-27 10:34
@@ -3496,7 +3496,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 话说我ios日服突然不能氪金了什么情况，我明明用的是信用卡，至少小半年没用过礼品卡了，总不至于把我锁了吧。昨天也就半夜氪了一单，也不像以前一次氪了好十单才被锁。进氪金履历里看了下，昨晚氪的那单显示保留中，但我银行那边氪完立刻就显示扣款成功了啊。苹果这操作简直迷，是怕我抽天草上头吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72315#       发表于 2020-3-27 11:19
@@ -3507,7 +3507,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 然后杀阶还是没有常驻5星光炮，都不知道有什么执着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72316#       发表于 2020-3-27 11:33
@@ -3519,7 +3519,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 我去年先是用礼品卡被封，后来专门办了张jcb卡消费也被封，打了几次客服都说不能解封，今年打算换安卓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72317#       发表于 2020-3-27 13:55
@@ -3528,7 +3528,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 刚刚打电话给苹果客服反应了一下，然后转接个海外客服一顿操作就解锁了，接下来神奇的情况来了，我买了几个石头试了下没问题后挂了电话，然后想再冲一单时，发现又被锁了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eyeego  
 ##### 72318#       发表于 2020-3-28 02:03
@@ -3539,7 +3539,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 又透露了点消息 可能是五星罗马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72319#       发表于 2020-3-28 03:32
@@ -3550,7 +3550,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">官方真该行动了  这新解饱透的都差不多了（这还能叫解包？）。什么新材料 马修新衣服。。新从者。。新卫星。。。
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72320#       发表于 2020-3-28 07:49
@@ -3564,7 +3564,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72321#       发表于 2020-3-28 09:40
@@ -3573,7 +3573,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 内田姐弟还行，我还以为会上松田双子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72322#       发表于 2020-3-28 11:25
@@ -3582,7 +3582,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 高贵的男性限定五星**终于要来了吗
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72323#       发表于 2020-3-28 11:32
@@ -3602,7 +3602,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 给没看过的指下路：[https://bbs.nga.cn/read.php?tid=21019566](https://bbs.nga.cn/read.php?tid=21019566)
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72324#       发表于 2020-3-28 11:35
@@ -3614,7 +3614,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 （解包好像没看到空想树，盲猜他们俩接到异星神指示，趁着人神大战的时候把空想树挖了移植到到没树的2.6，整一波大活）
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72325#       发表于 2020-3-28 13:07
@@ -3626,7 +3626,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 希腊被罗马干掉，没问题（
 
 
------
+*****
 
 ####  eilot  
 ##### 72326#       发表于 2020-3-28 14:26
@@ -3639,7 +3639,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 學妹終於有強化了，SION你終於弄好了，是改了技1嗎
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72327#       发表于 2020-3-28 15:21
@@ -3648,7 +3648,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 卧槽凯撒有点猛啊，感觉宝具那个概率挺大的，我全中好几次
 
 
------
+*****
 
 ####  khxooo  
 ##### 72328#       发表于 2020-3-28 15:38
@@ -3662,7 +3662,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 作为异星神的使徒怎么可能这么快落地，估计最快也要2.7或者之后。
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72329#       发表于 2020-3-28 15:52
@@ -3680,7 +3680,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 主要是很在意这两个角色的动向...都是脑洞，见笑见笑<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72330#       发表于 2020-3-28 18:10
@@ -3692,7 +3692,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 如果五星神祖后缀真是这个，那冠位lancer可能就没跑了（berserk词源的贝奥武夫：那我呢？）
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72331#       发表于 2020-3-28 19:52
@@ -3707,7 +3707,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 毕竟按之前玩家的分析，狐狸不是使徒，那提早下场提早完蛋也合理。村正为了玩情怀也应该丢到第六章去<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eyeego  
 ##### 72332#       发表于 2020-3-28 23:13
@@ -3718,7 +3718,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 考虑到这章的剧情 ロムルス=ユーピテル吧
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72333#       发表于 2020-3-28 23:28
@@ -3727,7 +3727,7 @@ MMP，强化的三个一个没有<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗨 这252还没开始就已经和结束一样了。。这解饱伤害大啊（
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72334#       发表于 2020-3-28 23:30
@@ -3760,7 +3760,7 @@ PS：斯卡哈=斯卡蒂这名字看着贼别扭，直接叫斯卡蒂然后档�
 由此可见，这新角色大概率是樱井写的（毕竟1.2就是），2.5估计也是他主笔，所以樱井就是个精罗啊（一转攻势）
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72335#       发表于 2020-3-28 23:32
@@ -3774,7 +3774,7 @@ PS：斯卡哈=斯卡蒂这名字看着贼别扭，直接叫斯卡蒂然后档�
 我好想知道 马 建 这两个字为什么被和谐？
 
 
------
+*****
 
 ####  eyeego  
 ##### 72336#       发表于 2020-3-29 02:56
@@ -3783,7 +3783,7 @@ PS：斯卡哈=斯卡蒂这名字看着贼别扭，直接叫斯卡蒂然后档�
 选朱庇特纯粹只是我想看异闻带宙斯对罗马宙斯罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72337#       发表于 2020-3-29 07:53
@@ -3797,7 +3797,7 @@ PS：斯卡哈=斯卡蒂这名字看着贼别扭，直接叫斯卡蒂然后档�
 对型月作家的历史观还是别太期待，之前FEX里尼禄（罗马皇帝）还和查理曼（神圣罗马皇帝）认亲来着...
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72338#       发表于 2020-3-29 09:20
@@ -3806,7 +3806,7 @@ PS：斯卡哈=斯卡蒂这名字看着贼别扭，直接叫斯卡蒂然后档�
 这活动点数封顶怎么才200W，我商店还没怎么搬点数都快毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72339#       发表于 2020-3-29 16:06
@@ -3815,7 +3815,7 @@ PS：斯卡哈=斯卡蒂这名字看着贼别扭，直接叫斯卡蒂然后档�
 点数毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72340#       发表于 2020-3-29 16:18
@@ -3824,7 +3824,7 @@ PS：斯卡哈=斯卡蒂这名字看着贼别扭，直接叫斯卡蒂然后档�
 点数一半都没打到的咸鱼路过，完全不想刷
 
 
------
+*****
 
 ####  eilot  
 ##### 72341#       发表于 2020-3-29 17:44
@@ -3833,7 +3833,7 @@ PS：斯卡哈=斯卡蒂这名字看着贼别扭，直接叫斯卡蒂然后档�
 點數一早畢業了，也只是換完了金火銀火，黃藍紅棋子也只是換到2/3，早知後場人員就換文西禮裝來換錢
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72342#       发表于 2020-3-29 18:03
@@ -3844,7 +3844,7 @@ PS：斯卡哈=斯卡蒂这名字看着贼别扭，直接叫斯卡蒂然后档�
 能点310的都点了....剩下的都是些完全没有一点上场机会的
 
 
------
+*****
 
 ####  白清羽  
 ##### 72343#       发表于 2020-3-29 18:32
@@ -3853,7 +3853,7 @@ PS：斯卡哈=斯卡蒂这名字看着贼别扭，直接叫斯卡蒂然后档�
 商店全搬完的丑新路过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72344#       发表于 2020-3-29 19:50
@@ -3867,7 +3867,7 @@ QP也早就满了在考虑怎么花掉的路过
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人大佬满qp能理解 你为什么也能满qb
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72345#       发表于 2020-3-29 20:08
@@ -3879,7 +3879,7 @@ QP也早就满了在考虑怎么花掉的路过
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">因为我长草期也坚持每天都把体力清完啊...狗粮爆仓了不就只能打钱本了吗
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72346#       发表于 2020-3-29 20:11
@@ -3891,7 +3891,7 @@ QP也早就满了在考虑怎么花掉的路过
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长草你不刷点绿方块吗。。我都是打30ap的  金的满了就卖 留这也没用啊
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72347#       发表于 2020-3-29 20:22
@@ -3908,7 +3908,7 @@ QP也早就满了在考虑怎么花掉的路过
 现在还剩5000多绿方块完全不虚
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72348#       发表于 2020-3-29 20:37
@@ -3927,7 +3927,7 @@ QP也早就满了在考虑怎么花掉的路过
 顺便我是只刷30ap的。。其他本都不碰的。。懒得换任务。。懒.jpg
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72349#       发表于 2020-3-31 16:57
@@ -3938,7 +3938,7 @@ QP也早就满了在考虑怎么花掉的路过
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白清羽  
 ##### 72350#       发表于 2020-3-31 17:10
@@ -3947,7 +3947,7 @@ QP也早就满了在考虑怎么花掉的路过
 上线看新闻又看到封号公告了，这频率还挺高的
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72351#       发表于 2020-3-31 17:57
@@ -3958,7 +3958,7 @@ mooncell愚人节页面上线太早了点吧……被吓到了
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  natmk  
 ##### 72352#       发表于 2020-3-31 18:31
@@ -3967,7 +3967,7 @@ mooncell愚人节页面上线太早了点吧……被吓到了
 蘑菇怎么会把老婆出给你们抽 太假了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72353#       发表于 2020-3-31 19:36
@@ -3976,7 +3976,7 @@ mooncell愚人节页面上线太早了点吧……被吓到了
 月姬和魔法之夜连动太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 72354#       发表于 2020-4-1 00:34
@@ -3985,7 +3985,7 @@ mooncell愚人节页面上线太早了点吧……被吓到了
 新的愚人节小游戏声音播放有问题，是我下的包有问题还是就是这样的？
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72355#       发表于 2020-4-1 00:44
@@ -4000,7 +4000,7 @@ mooncell愚人节页面上线太早了点吧……被吓到了
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白清羽  
 ##### 72356#       发表于 2020-4-1 09:02
@@ -4009,7 +4009,7 @@ mooncell愚人节页面上线太早了点吧……被吓到了
 杨贵妃这个愚人节卡面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  D．Va  
 ##### 72357#       发表于 2020-4-1 09:53
@@ -4018,7 +4018,7 @@ mooncell愚人节页面上线太早了点吧……被吓到了
 玩到第8关了，叠最后的墙挨最毒的打，好玩是蛮好玩的，就是一直拿着手机有点累
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72358#       发表于 2020-4-1 11:50
@@ -4027,7 +4027,7 @@ mooncell愚人节页面上线太早了点吧……被吓到了
 不能下别人砌好的，昨晚打了几关就玩不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72359#       发表于 2020-4-1 18:08
@@ -4040,7 +4040,7 @@ https://fgopinball.fate-go.us/
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72360#       发表于 2020-4-1 18:16
@@ -4058,7 +4058,7 @@ https://fgopinball.fate-go.us/
 （手残，不停地死，竟然玩出了沼泽的感觉...）
 
 
------
+*****
 
 ####  白清羽  
 ##### 72361#       发表于 2020-4-1 22:03
@@ -4067,7 +4067,7 @@ https://fgopinball.fate-go.us/
 小莫的灵衣卡面有点好看啊，常驻等歪我要忍住
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72362#       发表于 2020-4-1 23:18
@@ -4076,7 +4076,7 @@ https://fgopinball.fate-go.us/
 这灵衣真不错
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72363#       发表于 2020-4-1 23:43
@@ -4085,7 +4085,7 @@ https://fgopinball.fate-go.us/
 莫崽还是这身好看,卡面算是近卫近期最高水平了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 72364#       发表于 2020-4-2 11:28
@@ -4094,7 +4094,7 @@ https://fgopinball.fate-go.us/
 不花绿方块的灵衣就是好文明 至今没换黑呆灵衣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72365#       发表于 2020-4-2 17:11
@@ -4103,7 +4103,7 @@ https://fgopinball.fate-go.us/
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2.5.2要来了
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72366#       发表于 2020-4-2 17:17
@@ -4114,7 +4114,7 @@ https://fgopinball.fate-go.us/
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72367#       发表于 2020-4-4 21:24
@@ -4125,7 +4125,7 @@ https://fgopinball.fate-go.us/
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 72368#       发表于 2020-4-5 23:15
@@ -4134,7 +4134,7 @@ https://fgopinball.fate-go.us/
 隔壁发现小莫卡面没了，难道太涩了要和谐？
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72369#       发表于 2020-4-6 00:07
@@ -4144,7 +4144,7 @@ https://fgopinball.fate-go.us/
 再说要和谐莫崽也轮不上号
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72370#       发表于 2020-4-6 11:38
@@ -4153,7 +4153,7 @@ https://fgopinball.fate-go.us/
 这数据更新居然回退了，昨晚没更新的签到号现在再登录是没有更新的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72371#       发表于 2020-4-6 17:59
@@ -4162,7 +4162,7 @@ https://fgopinball.fate-go.us/
 更新多了1个多g的本地数据，不知道会不会真解包佬拆出数据
 
 
------
+*****
 
 ####  炙热之狐  
 ##### 72372#       发表于 2020-4-6 19:22
@@ -4173,7 +4173,7 @@ https://fgopinball.fate-go.us/
 YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72373#       发表于 2020-4-6 19:23
@@ -4182,7 +4182,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所长怎么都解出来了。。
 
 
------
+*****
 
 ####  3436  
 ##### 72374#       发表于 2020-4-6 19:32
@@ -4193,7 +4193,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72375#       发表于 2020-4-6 19:38
@@ -4205,7 +4205,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白清羽  
 ##### 72376#       发表于 2020-4-6 19:44
@@ -4214,7 +4214,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 所长这个造型感觉很杂鱼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72377#       发表于 2020-4-6 19:44
@@ -4223,7 +4223,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 所长这是有机会入卡池了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72378#       发表于 2020-4-6 19:49
@@ -4232,7 +4232,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 射杀百头·罗马式是什么鬼
 
 
------
+*****
 
 ####  RUANHYC  
 ##### 72379#       发表于 2020-4-6 19:54
@@ -4241,7 +4241,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 海木桩:"连技能名都要拿我的宝具去用吗？"
 
 
------
+*****
 
 ####  xunit  
 ##### 72380#       发表于 2020-4-6 20:01
@@ -4250,7 +4250,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 海大力是真没牌面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72381#       发表于 2020-4-6 20:01
@@ -4259,7 +4259,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 草，突出一个你也是罗马
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 72382#       发表于 2020-4-6 20:01
@@ -4270,7 +4270,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 神祖这技能和布妈完美契合，太草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72383#       发表于 2020-4-6 20:21
@@ -4279,7 +4279,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 让你们全都罗马什么情况，神祖的宝具总不会特攻罗马吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72384#       发表于 2020-4-6 20:48
@@ -4290,7 +4290,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 所以上一年的高难就是实验吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，如果是这样的话高难复刻估计就是那新的模型做敌人了。
 
 
------
+*****
 
 ####  6030sylar  
 ##### 72385#       发表于 2020-4-6 21:45
@@ -4302,7 +4302,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 —— 来自 Realme RMX1851, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72386#       发表于 2020-4-6 22:36
@@ -4311,7 +4311,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 嗯？打了一天仁王2好像错过了不少东西？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kidoo  
 ##### 72387#       发表于 2020-4-6 22:40
@@ -4320,7 +4320,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 想抽宙斯
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72388#       发表于 2020-4-7 17:15
@@ -4329,7 +4329,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次是没有嘉宾的生放送了
 
 
------
+*****
 
 ####  白清羽  
 ##### 72389#       发表于 2020-4-7 17:23
@@ -4338,7 +4338,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 要看YLS的单口相声了吗
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72390#       发表于 2020-4-7 17:50
@@ -4350,7 +4350,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72391#       发表于 2020-4-7 17:51
@@ -4359,7 +4359,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 不要忘了金泽石仓之类的人<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  SAGA0Arcueid  
 ##### 72392#       发表于 2020-4-7 19:18
@@ -4374,7 +4374,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 搞得布妈成了专用拐
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72393#       发表于 2020-4-7 20:02
@@ -4383,7 +4383,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 狂娜万物特攻在前，后续红卡怎么玩都无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72394#       发表于 2020-4-7 20:23
@@ -4398,7 +4398,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 我感觉神祖的宝具副效果会是对罗马特防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72395#       发表于 2020-4-8 06:42
@@ -4407,7 +4407,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">特防也无所谓啊 反正有布妈照样特攻
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72396#       发表于 2020-4-8 19:16
@@ -4416,7 +4416,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 神祖看PV好像是年轻版帅哥，太好了，就等他的池子啦
 
 
------
+*****
 
 ####  ネロ  
 ##### 72397#       发表于 2020-4-8 19:17
@@ -4427,7 +4427,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 玛修也怕痛全点防御？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72398#       发表于 2020-4-8 19:18
@@ -4436,7 +4436,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢人 近日
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72399#       发表于 2020-4-8 19:18
@@ -4445,7 +4445,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 喂！今晚不开啊混蛋！
 
 
------
+*****
 
 ####  longrider  
 ##### 72400#       发表于 2020-4-8 19:18
@@ -4454,7 +4454,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 近日……散了散了
 
 
------
+*****
 
 ####  ネロ  
 ##### 72401#       发表于 2020-4-8 19:19
@@ -4463,7 +4463,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 草，苹果nmsl
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72402#       发表于 2020-4-8 19:19
@@ -4472,7 +4472,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 苹果飞妈
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72403#       发表于 2020-4-8 19:21
@@ -4481,7 +4481,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 据说日本因为疫情手游的审核都被推迟了？没必要吧，线上审核不行？
 
 
------
+*****
 
 ####  白清羽  
 ##### 72404#       发表于 2020-4-8 19:23
@@ -4490,7 +4490,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 卧槽苹果飞妈
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72405#       发表于 2020-4-8 19:23
@@ -4502,7 +4502,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 我看群里一人说柯南手游今天刚更新好APP，所以还是苹果飞妈（
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72406#       发表于 2020-4-8 19:26
@@ -4511,7 +4511,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 嗯？原来2.52生放是今天？
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72407#       发表于 2020-4-8 19:26
@@ -4522,7 +4522,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72408#       发表于 2020-4-8 19:26
@@ -4535,7 +4535,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 不过舅舅好像只说了三个新人吧，那二池也可能就一个，那个武士或者像2.5.2PV里和熊莉娅对刀的金发妞一样不出，或者是卫星，甚至...是村正（说笑的，装甲恶鬼村正我抽爆....其实第一眼那个红武士看着像恶魔战士里那个肚子长嘴的家伙...）
 
 
------
+*****
 
 ####  khxooo  
 ##### 72409#       发表于 2020-4-8 19:26
@@ -4544,7 +4544,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 飞妈吧苹果，每次都是i你<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72410#       发表于 2020-4-8 19:27
@@ -4555,7 +4555,7 @@ YLS到底在想什么<img src="https://static.saraba1st.com/image/smiley/face201
 FGO被针对了吗...岂可修，苹果飞马！
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72411#       发表于 2020-4-8 19:28
@@ -4564,7 +4564,7 @@ FGO被针对了吗...岂可修，苹果飞马！
 哈哈哈双子这个宝具动画笑死我了，这是哪个鬼才搞出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72412#       发表于 2020-4-8 19:30
@@ -4573,7 +4573,7 @@ FGO被针对了吗...岂可修，苹果飞马！
 pv最后那个是年轻版的神祖？感觉是和小太阳一样的帅哥啊
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 72413#       发表于 2020-4-8 19:31
@@ -4582,7 +4582,7 @@ pv最后那个是年轻版的神祖？感觉是和小太阳一样的帅哥啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我cm看得正起劲呢怎么又卡审核了
 
 
------
+*****
 
 ####  eden_hazard  
 ##### 72414#       发表于 2020-4-8 19:40
@@ -4591,7 +4591,7 @@ pv最后那个是年轻版的神祖？感觉是和小太阳一样的帅哥啊
 队长从去年活到了今年4月现在又能再活几天，简直是废狗苟命王，要是这几天加紧锻炼背部防御能挺过背刺苟到下一章就无敌了
 
 
------
+*****
 
 ####  angelooo  
 ##### 72415#       发表于 2020-4-8 19:43
@@ -4600,7 +4600,7 @@ pv最后那个是年轻版的神祖？感觉是和小太阳一样的帅哥啊
 苹果：舅舅，你妹想到还有我吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72416#       发表于 2020-4-8 19:44
@@ -4609,7 +4609,7 @@ pv最后那个是年轻版的神祖？感觉是和小太阳一样的帅哥啊
 十年果黑不请自来（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LOLITA  
 ##### 72417#       发表于 2020-4-8 19:46
@@ -4621,7 +4621,7 @@ pv最后那个是年轻版的神祖？感觉是和小太阳一样的帅哥啊
 比翼双飞嘛，机战梗
 
 
------
+*****
 
 ####  rxrx  
 ##### 72418#       发表于 2020-4-8 19:52
@@ -4630,7 +4630,7 @@ pv最后那个是年轻版的神祖？感觉是和小太阳一样的帅哥啊
 CERO不不开工，大家不用玩
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72419#       发表于 2020-4-8 19:57
@@ -4641,7 +4641,7 @@ CERO不不开工，大家不用玩
 做好了那叫借梗，做成这种水准的二人转就别提什么梗不梗的了，丢人<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72420#       发表于 2020-4-8 20:00
@@ -4650,7 +4650,7 @@ CERO不不开工，大家不用玩
 这么多樱井的角色，难道2.52是她主笔？
 
 
------
+*****
 
 ####  longrider  
 ##### 72421#       发表于 2020-4-8 20:02
@@ -4659,7 +4659,7 @@ CERO不不开工，大家不用玩
 双子宝具更像是Buddy Complex里的合体技比翼双基，不如OG里的皇家圆舞曲和Twin Bird Strike
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72422#       发表于 2020-4-8 20:03
@@ -4671,7 +4671,7 @@ CERO不不开工，大家不用玩
 所以251把人都清光了，挺稳的<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xunit  
 ##### 72423#       发表于 2020-4-8 20:06
@@ -4683,7 +4683,7 @@ CERO不不开工，大家不用玩
 也不知道是我记忆美化了还是怎么的，这双子宝具的演出我觉得还不如GBA上的OG2，更别说OGS、OGG和2OG了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72424#       发表于 2020-4-8 20:13
@@ -4692,7 +4692,7 @@ CERO不不开工，大家不用玩
 凯尼斯宝具我的第一印象是阿卡夏冲击，双子这演出还真不如gba的皇家芭蕾<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  3436  
 ##### 72425#       发表于 2020-4-8 20:15
@@ -4704,7 +4704,7 @@ CERO不不开工，大家不用玩
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  sadakawa  
 ##### 72426#       发表于 2020-4-8 20:26
@@ -4715,7 +4715,7 @@ CERO不不开工，大家不用玩
 我宁可出爱傲天也不想看到她啊啊啊 啊啊啊啊啊啊啊啊啊啊 啊啊！！！！！！！！
 
 
------
+*****
 
 ####  rooarr  
 ##### 72427#       发表于 2020-4-8 20:32
@@ -4724,7 +4724,7 @@ CERO不不开工，大家不用玩
 好像没什么惊喜？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  丹德里恩  
 ##### 72428#       发表于 2020-4-8 20:34
@@ -4733,7 +4733,7 @@ CERO不不开工，大家不用玩
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这动画不光比不上gba的皇家芭蕾，甚至连比翼双基的速度感都没有...
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72429#       发表于 2020-4-8 20:39
@@ -4745,7 +4745,7 @@ CERO不不开工，大家不用玩
 原来如此，果然机器人大战就是浪漫啊（表现形式可能和2.5.1的亚当魔偶差不多，打BOSS的时候换一套imba的衣服技能）
 
 
------
+*****
 
 ####  khxooo  
 ##### 72430#       发表于 2020-4-8 20:42
@@ -4756,7 +4756,7 @@ CERO不不开工，大家不用玩
 从PV的剪影这次我方的队友应该是：武藏、鬼舅、海伦娜三人组，**奶光、小莫、弗兰和金时。那么那个神秘Archer应该就是祖师爷了。
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72431#       发表于 2020-4-8 20:47
@@ -4765,7 +4765,7 @@ CERO不不开工，大家不用玩
 和老福对打的是215？
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72432#       发表于 2020-4-8 20:56
@@ -4777,7 +4777,7 @@ CERO不不开工，大家不用玩
 面部CUTIN倒是跟比翼双基一毛一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72433#       发表于 2020-4-8 20:58
@@ -4792,7 +4792,7 @@ CERO不不开工，大家不用玩
 双子我看画风像中原，中原是FP的画师，so...
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72434#       发表于 2020-4-8 21:00
@@ -4814,7 +4814,7 @@ CERO不不开工，大家不用玩
 （生了下樱井六学的草,,,,最后一段是针对日本的，有不妥我迅速删除....）
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72435#       发表于 2020-4-8 21:09
@@ -4823,7 +4823,7 @@ CERO不不开工，大家不用玩
 PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺好康的，新人物吗？
 
 
------
+*****
 
 ####  fantuanxiaoyi  
 ##### 72436#       发表于 2020-4-8 21:09
@@ -4835,7 +4835,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 宙斯啊。
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72437#       发表于 2020-4-8 21:16
@@ -4853,7 +4853,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 （然后宙斯附在某个人类妻子上实装...）
 
 
------
+*****
 
 ####  khxooo  
 ##### 72438#       发表于 2020-4-8 21:19
@@ -4871,7 +4871,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 神明不能实装的，阿周娜和羽蛇神不一样进卡池了。
 
 
------
+*****
 
 ####  Nathan-_-  
 ##### 72439#       发表于 2020-4-8 21:46
@@ -4882,7 +4882,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 怎么看出来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LOLITA  
 ##### 72440#       发表于 2020-4-8 21:49
@@ -4894,7 +4894,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 虽然动作僵硬可笑，但是至少一看就能想起来。
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72441#       发表于 2020-4-8 22:12
@@ -4906,7 +4906,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 看着像是个穿和服的
 
 
------
+*****
 
 ####  闽明  
 ##### 72442#       发表于 2020-4-8 22:24
@@ -4919,7 +4919,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 <img src="https://wx2.sinaimg.cn/large/77dc5410gy1gdmq1lvbovj20zk0k00to.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72443#       发表于 2020-4-8 23:11
@@ -4939,7 +4939,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 就不确定了，只能等2.5.2证实了。
 
 
------
+*****
 
 ####  rxrx  
 ##### 72444#       发表于 2020-4-8 23:42
@@ -4948,7 +4948,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 大家猜什么时候可以玩？
 
 
------
+*****
 
 ####  6x6z6w  
 ##### 72445#       发表于 2020-4-9 03:10
@@ -4960,7 +4960,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 其实应该是一辉的凤翼天翔吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结合凯尼斯在上一章的表现也的确很有小强风范
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72446#       发表于 2020-4-9 07:41
@@ -4981,7 +4981,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 当然多出点破格从者也不错，反正Fate系统的设定也稀烂了，大乱斗更热闹点也挺好
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72447#       发表于 2020-4-9 07:43
@@ -4990,7 +4990,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 我猜一下，4.11送苹果活动结束，到那时不能玩就说不过了吧......或者再生草送点啥？
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72448#       发表于 2020-4-9 10:10
@@ -5004,7 +5004,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 那两个细菌寄生和神性聚合不也是凭依凡人么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72449#       发表于 2020-4-9 10:50
@@ -5017,7 +5017,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 确实，羽蛇神说了之前是男人现在换女人了。史无前例，我估计纯粹神性也不会落地，那还玩个啥（或者说能玩的更多了，奥丁落地至少大神的睿智EX吧）
 
 
------
+*****
 
 ####  真红眼教授  
 ##### 72450#       发表于 2020-4-9 11:05
@@ -5029,7 +5029,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 不是凤凰裂波么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  闽明  
 ##### 72451#       发表于 2020-4-9 11:07
@@ -5041,7 +5041,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72452#       发表于 2020-4-9 11:18
@@ -5050,7 +5050,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">公告今天开
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72453#       发表于 2020-4-9 11:25
@@ -5062,7 +5062,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72454#       发表于 2020-4-9 11:43
@@ -5077,7 +5077,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 阴谋论而已，我只是说出来让自己能继续攒石头等不切实际的五星神祖...
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 72455#       发表于 2020-4-9 12:27
@@ -5086,7 +5086,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 安卓的更新客户端出了
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72456#       发表于 2020-4-9 12:52
@@ -5095,7 +5095,7 @@ PV9秒时和队长一起看树的那个背后有转轮的白毛是谁啊，挺�
 IOS也能更新啦
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72457#       发表于 2020-4-9 17:14
@@ -5104,7 +5104,7 @@ IOS也能更新啦
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这罗马。。是隔壁圣斗士里串来做兼职的吗
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72458#       发表于 2020-4-9 17:16
@@ -5113,7 +5113,7 @@ IOS也能更新啦
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">怎么肥似　５点了没人跳没人发贴　你游凉了吗
 
 
------
+*****
 
 ####  longrider  
 ##### 72459#       发表于 2020-4-9 17:17
@@ -5122,7 +5122,7 @@ IOS也能更新啦
 看解包图，双子的前三破卡面太摸了吧，和活动卡差不多
 
 
------
+*****
 
 ####  炙热之狐  
 ##### 72460#       发表于 2020-4-9 17:17
@@ -5133,7 +5133,7 @@ IOS也能更新啦
 再见了，队长
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72461#       发表于 2020-4-9 17:19
@@ -5142,7 +5142,7 @@ IOS也能更新啦
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不看了　该断网了。　后天见
 
 
------
+*****
 
 ####  angelooo  
 ##### 72462#       发表于 2020-4-9 17:22
@@ -5153,7 +5153,7 @@ IOS也能更新啦
 双子座一张五星卡卡面摸成这样真的没问题？真就画风能看，神祖这姿势和三星的一毛一样啊笑死我了看到神祖全身了，这腿？？？
 
 
------
+*****
 
 ####  炙热之狐  
 ##### 72463#       发表于 2020-4-9 17:24
@@ -5162,7 +5162,7 @@ IOS也能更新啦
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">所长这身衣服太像马戏团的了
 
 
------
+*****
 
 ####  zechins  
 ##### 72464#       发表于 2020-4-9 17:33
@@ -5171,7 +5171,7 @@ IOS也能更新啦
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">解包看到两个超可的大姐姐，不抽双子座了
 
 
------
+*****
 
 ####  rooarr  
 ##### 72465#       发表于 2020-4-9 17:41
@@ -5180,7 +5180,7 @@ IOS也能更新啦
 好像没什么大新闻，没劲<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72466#       发表于 2020-4-9 17:44
@@ -5190,7 +5190,7 @@ IOS也能更新啦
 隔壁大爷二爷的不吊打你的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  闽明  
 ##### 72467#       发表于 2020-4-9 17:44
@@ -5223,7 +5223,7 @@ IOS也能更新啦
 继续存石头呼符到周年<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eden_hazard  
 ##### 72468#       发表于 2020-4-9 17:46
@@ -5232,7 +5232,7 @@ IOS也能更新啦
 31个十连出了6个沸羊羊0五星，叶良树飞🐎
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72469#       发表于 2020-4-9 18:13
@@ -5241,7 +5241,7 @@ IOS也能更新啦
 凎，跟人讲话分神多抽了2个十一连，而且毛都没出<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eilot  
 ##### 72470#       发表于 2020-4-9 18:17
@@ -5250,7 +5250,7 @@ IOS也能更新啦
 期待學妹是否真是有強化
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72471#       发表于 2020-4-9 18:40
@@ -5259,7 +5259,7 @@ IOS也能更新啦
 55连4个沸羊羊1个内田骨科，第33连直接出了2个沸羊羊加双子。虽说我这回是冲着故事卡池限定的沸羊羊来的，但你好歹也矜持一点啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双子单体蓝剑还是常驻，果断抽一个走人。
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72472#       发表于 2020-4-9 18:48
@@ -5272,7 +5272,7 @@ IOS也能更新啦
 当然最关键的是盒子里珍藏了345天的夫妇终于能取出来喂给新卡了，不然我都不想抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72473#       发表于 2020-4-9 19:03
@@ -5284,7 +5284,7 @@ IOS也能更新啦
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  rooarr  
 ##### 72474#       发表于 2020-4-9 19:07
@@ -5293,7 +5293,7 @@ IOS也能更新啦
 一单试图豹跳失败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72475#       发表于 2020-4-9 19:50
@@ -5302,7 +5302,7 @@ IOS也能更新啦
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这主线 弱B的我碎了一个石头
 
 
------
+*****
 
 ####  khxooo  
 ##### 72476#       发表于 2020-4-9 21:03
@@ -5311,7 +5311,7 @@ IOS也能更新啦
 44连两宝凯尼斯，走了，MB叶良树硬是要武藏在场才能消Buff，简直恶心<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72477#       发表于 2020-4-9 21:19
@@ -5320,7 +5320,7 @@ IOS也能更新啦
 我真不想再在助战看到武藏了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fault  
 ##### 72478#       发表于 2020-4-9 22:28
@@ -5329,7 +5329,7 @@ IOS也能更新啦
 谁来解释一下海无力是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  6x6z6w  
 ##### 72479#       发表于 2020-4-9 22:33
@@ -5341,7 +5341,7 @@ IOS也能更新啦
 异闻带的B叔吗，好像是没有中九头蛇毒，最后也没被机神化，自然老死了
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72480#       发表于 2020-4-9 22:35
@@ -5352,7 +5352,7 @@ IOS也能更新啦
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  fault  
 ##### 72481#       发表于 2020-4-9 22:47
@@ -5364,7 +5364,7 @@ IOS也能更新啦
 我看nga那贴闹得那么欢还以为又出了什么奇怪剧情<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 72482#       发表于 2020-4-9 22:48
@@ -5373,7 +5373,7 @@ IOS也能更新啦
 喷了 前段时间抽小莫抽杰克抽爷爷怎么都不出 双子怎么一发就来了
 
 
------
+*****
 
 ####  eilot  
 ##### 72483#       发表于 2020-4-9 23:35
@@ -5388,7 +5388,7 @@ IOS也能更新啦
 麻煩技2/3也追加自己加防吧，...以前的技1實在弄得太強了
 
 
------
+*****
 
 ####  emiya001  
 ##### 72484#       发表于 2020-4-9 23:41
@@ -5400,7 +5400,7 @@ IOS也能更新啦
 海无力就是型月一直以来对海叔的迫害太过导致的海叔新外号，之前作品里出来一次当一次垫脚石，到了2.5.1连事迹都被冠位弓拿走了，本来以为这就是迫害的极致，结果2.5.2里出现的冠位**神祖技能里有个射杀百头 罗马式.......裂海王，诞生！现在fate吧已经在猜下一个冠位会拿走海叔的什么了，以及在奶最终章所有的冠位会合体成究极冠位无敌大力神海叔
 
 
------
+*****
 
 ####  fault  
 ##### 72485#       发表于 2020-4-9 23:56
@@ -5412,7 +5412,7 @@ IOS也能更新啦
 原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  emiya001  
 ##### 72486#       发表于 2020-4-10 00:45
@@ -5421,7 +5421,7 @@ IOS也能更新啦
 252的难度除了第七节和爱玩以外全在系统强行锁学妹前排和锁助战上，有时候甚至会两个一起来，让你六个位置直接没了两，不带换人礼装基本没法打，这两又硬的不行又没输出，还得想办法让他们死的整齐点别让海叔没法单挑
 
 
------
+*****
 
 ####  eilot  
 ##### 72487#       发表于 2020-4-10 01:09
@@ -5433,7 +5433,7 @@ IOS也能更新啦
 你鎖學妹都算，敵人不是無敵貫通就是必中，之後再來全職減傷，就算一早將技1加了3回合防禦無視而且4回合CD，但學妹一手藍卡組要你打紅卡是甚麼意思，你攻擊你又不見得好，一是將被動技加多一個紅卡強化吧
 
 
------
+*****
 
 ####  emiya001  
 ##### 72488#       发表于 2020-4-10 01:37
@@ -5445,7 +5445,7 @@ IOS也能更新啦
 打队长那一战的学妹才真是绝了，因为有根性队长开场宝具都炸不死，炸完的1000血因为有防御超强化就算开了嘲讽很大可能没法直接送掉，不用换人礼装直接把她换下去的话她可能靠着那1000血在场上苟三四个回合，我第一次这么想让女主角赶紧死
 
 
------
+*****
 
 ####  6x6z6w  
 ##### 72489#       发表于 2020-4-10 02:03
@@ -5460,7 +5460,7 @@ IOS也能更新啦
 外貌有野兽特征的应该都算兽科，小牛和所有玉藻都是
 
 
------
+*****
 
 ####  khxooo  
 ##### 72490#       发表于 2020-4-10 02:17
@@ -5471,7 +5471,7 @@ IOS也能更新啦
 是啊，很多时候如果不是锁助战早就打过去了，根本没有压力。
 
 
------
+*****
 
 ####  emiya001  
 ##### 72491#       发表于 2020-4-10 02:24
@@ -5483,7 +5483,7 @@ IOS也能更新啦
 刚打通了252，到了最后一战仍然派出老福+学妹组合来恶心人，这两又硬又没输出学妹还带复活，要不是武藏宝具的强化解除比较克沸羊羊估计又得翻车，我就想说这都252了助战还锁个70级的老福来恶心人有必要么
 
 
------
+*****
 
 ####  rxrx  
 ##### 72492#       发表于 2020-4-10 03:17
@@ -5492,7 +5492,7 @@ IOS也能更新啦
 黑**真是剧情杀+主角和马修的合力才能用的必杀技 
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 72493#       发表于 2020-4-10 03:59
@@ -5501,7 +5501,7 @@ IOS也能更新啦
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">强制上马修可以，技能组能不能给点靠谱的强化，252这波强化的是个锤子啊
 
 
------
+*****
 
 ####  eilot  
 ##### 72494#       发表于 2020-4-10 09:19
@@ -5515,7 +5515,7 @@ IOS也能更新啦
 技2/技3甚至有自殺成份，如果不能剛好給自己開寶具或者用來救其他輸出角，真是不能亂用，之前打齊格時都算，但那會想到開局的雜兵的大技剛好就是單體無敵貫通，而現在主線的BOSS寶具都先來一次強化解除，直接無言
 
 
------
+*****
 
 ####  白清羽  
 ##### 72495#       发表于 2020-4-10 09:19
@@ -5524,7 +5524,7 @@ IOS也能更新啦
 没想到那么快就交了三灵咒，这次252锁前排锁助战比251难好多，后面要碎石了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72496#       发表于 2020-4-10 11:37
@@ -5541,7 +5541,7 @@ IOS也能更新啦
 救了基尔队长的那个小孩，长得特别像SSSS古利特曼里那个流浪小怪兽....
 
 
------
+*****
 
 ####  khxooo  
 ##### 72497#       发表于 2020-4-10 13:09
@@ -5550,7 +5550,7 @@ IOS也能更新啦
 7章过了，撤退了1次就过了，没有用令咒，看看后面怎样吧。
 
 
------
+*****
 
 ####  rooarr  
 ##### 72498#       发表于 2020-4-10 14:13
@@ -5559,7 +5559,7 @@ IOS也能更新啦
 马修和武藏什么时候可以滚出我的队伍，这个主线打得真是不爽，两个助战锁得烦躁，把对角色的好感全败光了<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72499#       发表于 2020-4-10 14:22
@@ -5570,7 +5570,7 @@ IOS也能更新啦
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  exiaexa  
 ##### 72500#       发表于 2020-4-10 14:33
@@ -5589,7 +5589,7 @@ IOS也能更新啦
 最后这个自爆真的骂人了，153已经非常的玄幻了，你这个自爆已经莫名其妙到不知道想表现啥了，关个时空门这种事儿你设计让神祖发挥个什么权能不就完事儿了整这么一出是闹个啥<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72501#       发表于 2020-4-10 14:39
@@ -5600,7 +5600,7 @@ IOS也能更新啦
 现在对这俩货烦躁死了，本来能打的挺快的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72502#       发表于 2020-4-10 14:42
@@ -5613,7 +5613,7 @@ IOS也能更新啦
 托高桥小姐、第七章动画和屡次强制前排的福，我对玛修的好感已经掉到-199了
 
 
------
+*****
 
 ####  exiaexa  
 ##### 72503#       发表于 2020-4-10 15:33
@@ -5625,7 +5625,7 @@ IOS也能更新啦
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 72504#       发表于 2020-4-10 16:20
@@ -5643,7 +5643,7 @@ IOS也能更新啦
 都当了5次世界的破坏者了，觉悟连那俩本地人双子都不如，看着特膈应<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72505#       发表于 2020-4-10 16:26
@@ -5662,7 +5662,7 @@ IOS也能更新啦
 PS：神祖这个Y字身姿，以前看着像跳水，现在宝具里一摆，突然像极了圣帝的天翔十字凤......好感度+1
 
 
------
+*****
 
 ####  新吾  
 ##### 72506#       发表于 2020-4-10 16:28
@@ -5671,7 +5671,7 @@ PS：神祖这个Y字身姿，以前看着像跳水，现在宝具里一摆，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打到第八节，总觉得2.5章节的奇迹有点跳楼大甩卖啊，有事没事就来一个“偏移一点点就全灭”“没有它就策反失败”“它不出来就全灭”这样...是蘑菇为了压迫感而把剧情难度设置的太高导致的恶果吗
 
 
------
+*****
 
 ####  風卷豹  
 ##### 72507#       发表于 2020-4-10 16:30
@@ -5687,7 +5687,7 @@ PS：神祖这个Y字身姿，以前看着像跳水，现在宝具里一摆，�
 —— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72508#       发表于 2020-4-10 16:38
@@ -5700,7 +5700,7 @@ PS：神祖这个Y字身姿，以前看着像跳水，现在宝具里一摆，�
 我之所以特意提了一句第七章，就是因为第七章动画她的表现和给我的感觉就是你说的这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 72509#       发表于 2020-4-10 17:05
@@ -5709,7 +5709,7 @@ PS：神祖这个Y字身姿，以前看着像跳水，现在宝具里一摆，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这 怎么上来一个小兵 还说自己不是正式士兵就要武藏称赞才能锻炼比这边强  还搞的像什么宿敌战一样 感觉好寒碜啊
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72510#       发表于 2020-4-10 17:22
@@ -5718,7 +5718,7 @@ PS：神祖这个Y字身姿，以前看着像跳水，现在宝具里一摆，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么有更新。更新了啥？
 
 
------
+*****
 
 ####  饭太稀  
 ##### 72511#       发表于 2020-4-10 17:26
@@ -5733,7 +5733,7 @@ PS：神祖这个Y字身姿，以前看着像跳水，现在宝具里一摆，�
 普通特攻是50吧，叠两层接近叠三层超过，周回就只有一面能靠技能叠一层确实限制了
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72512#       发表于 2020-4-10 17:29
@@ -5748,7 +5748,7 @@ PS：神祖这个Y字身姿，以前看着像跳水，现在宝具里一摆，�
 mooncell上的数据，好像我理解错了，直接带100特攻（一般技能特攻是50，宝具100）。那特攻强度很高了，可惜平A没特攻，还是不如芭娜娜，职介也不如
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72513#       发表于 2020-4-10 18:49
@@ -5794,7 +5794,7 @@ mooncell上的数据，好像我理解错了，直接带100特攻（一般技能
 2020-4-10 18:49 上传
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72514#       发表于 2020-4-10 19:54
@@ -5806,7 +5806,7 @@ mooncell上的数据，好像我理解错了，直接带100特攻（一般技能
 还是弄错了，一般技能和宝具的特攻都是加50%（可OC），只是技能直接写加成的百分比，宝具写100+加成百分比。
 
 
------
+*****
 
 ####  auraria  
 ##### 72515#       发表于 2020-4-10 20:35
@@ -5814,7 +5814,7 @@ mooncell上的数据，好像我理解错了，直接带100特攻（一般技能
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72516#       发表于 2020-4-10 20:38
@@ -5831,7 +5831,7 @@ mooncell上的数据，好像我理解错了，直接带100特攻（一般技能
 对面有罗马buff，300*100%+20*N，N=罗马BUFF数量
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72517#       发表于 2020-4-10 20:38
@@ -5847,7 +5847,7 @@ mooncell上的数据，好像我理解错了，直接带100特攻（一般技能
 搜嘎，了解了，总的来说还是个很强的特攻性选手，但是受限于职介不太通用...
 
 
------
+*****
 
 ####  khxooo  
 ##### 72518#       发表于 2020-4-10 21:46
@@ -5858,7 +5858,7 @@ mooncell上的数据，好像我理解错了，直接带100特攻（一般技能
 狐狸打了4次才过，浪费了一条令咒，而且那次还没有过<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">。不过小恩真的是克制狐狸，靠眩晕撑过去了。
 
 
------
+*****
 
 ####  白清羽  
 ##### 72519#       发表于 2020-4-10 22:29
@@ -5867,7 +5867,7 @@ mooncell上的数据，好像我理解错了，直接带100特攻（一般技能
 狐狸为了让前排撑过三回合一起走撤退了两次，迦摩wcba一起进场就稳稳的了，这个血量又没弱体耐性真是被迦摩按在地上摩擦
 
 
------
+*****
 
 ####  高木なつめ  
 ##### 72520#       发表于 2020-4-10 22:57
@@ -5881,7 +5881,7 @@ mooncell上的数据，好像我理解错了，直接带100特攻（一般技能
 这不是理所当然的吗，玛修是加勒底一行人唯一一个实际上几乎没怎么在泛人类史生活过的成员。甚至她的诞生都是基于泛人类史的恶意，这样一个人现在在帮助你们夺回泛人类史，你还要求她要和其他的普通人类一样决绝吗
 
 
------
+*****
 
 ####  khxooo  
 ##### 72521#       发表于 2020-4-11 00:23
@@ -5890,7 +5890,7 @@ mooncell上的数据，好像我理解错了，直接带100特攻（一般技能
 MD狐狸竟然可以用迦摩单挑，浪费令咒了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  花枝鱿鱼面  
 ##### 72522#       发表于 2020-4-11 00:30
@@ -5901,7 +5901,7 @@ MD狐狸竟然可以用迦摩单挑，浪费令咒了<img src="https://static.sa
 —— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  新吾  
 ##### 72523#       发表于 2020-4-11 00:32
@@ -5910,7 +5910,7 @@ MD狐狸竟然可以用迦摩单挑，浪费令咒了<img src="https://static.sa
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈耶，这双子座也太low了吧，复读机兄控妹妹，小肠鸡肚嫉妒怪疯狗哥哥，叶良树哪来的底气给他（俩）做成五星卡的
 
 
------
+*****
 
 ####  eyeego  
 ##### 72524#       发表于 2020-4-11 01:26
@@ -5921,7 +5921,7 @@ MD狐狸竟然可以用迦摩单挑，浪费令咒了<img src="https://static.sa
 还有堪比活动卡的大家一起找不同卡面<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72525#       发表于 2020-4-11 02:06
@@ -5930,7 +5930,7 @@ MD狐狸竟然可以用迦摩单挑，浪费令咒了<img src="https://static.sa
 爱神过了，最后由安徒生3连带走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  希望之花  
 ##### 72526#       发表于 2020-4-11 03:12
@@ -5942,7 +5942,7 @@ MD狐狸竟然可以用迦摩单挑，浪费令咒了<img src="https://static.sa
 相当于两个2.5星卡合在一起
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72527#       发表于 2020-4-11 11:54
@@ -5969,7 +5969,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 最后....所长！你在干什么啊！所长！
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72528#       发表于 2020-4-11 12:11
@@ -5984,7 +5984,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 赛法卢要成长，这个异闻带一登陆就碰上的话还是有胜机的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72529#       发表于 2020-4-11 12:56
@@ -6000,7 +6000,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 突然想起贝里尔在不列颠到底干了什么我也没有看懂....说是杀了不列颠的妖精....呆毛的圣qiang也隔着异闻带都能追杀过来（话说还能跨异闻带放宝具...这挂也开的太大了）可最后还是让A狐把自己传送回不列颠异闻带...所以他到底有没有背叛自己的异闻带....还是说不列颠异闻带的王不是呆毛.....呆毛或者持有圣qiang的谁和妖精是抵抗势力？
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72530#       发表于 2020-4-11 13:12
@@ -6012,7 +6012,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 还没打到说这个的地方，不过外面一个大杀器带着污染体哗啦啦杀过来的话，这几个合力对抗起码大于等于抢过来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72531#       发表于 2020-4-11 13:21
@@ -6024,7 +6024,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 确实大于合力，因为奥利匹斯神本体是宇宙战舰，异闻带宙斯就是靠12舰合神（没错，就是11区传统的战舰合体变萝卜）把大王给怼回去了。而泛人类史根据extella里大王和小玉的回忆，众神是一个个排队送的，而大王的文明装甲和侵蚀的特性会逐渐对各种攻击产生抗性并吸收对面的能力，所以你懂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  阿姆罗二世  
 ##### 72532#       发表于 2020-4-11 13:43
@@ -6035,7 +6035,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72533#       发表于 2020-4-11 13:44
@@ -6044,7 +6044,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 最后打队长屈辱的祭出了狐贞梅<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ネロ  
 ##### 72534#       发表于 2020-4-11 14:33
@@ -6055,7 +6055,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 这声音……日高大人登月了吗！快让我抽阿芙洛狄忒啊，叶良树！<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  恤兵真綿  
 ##### 72535#       发表于 2020-4-11 15:33
@@ -6063,7 +6063,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  新吾  
 ##### 72536#       发表于 2020-4-11 15:39
@@ -6075,7 +6075,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 不列颠的王应该不是呆毛，2.3贝利尔好像说过他逃离那个异闻带是因为杀了妖精+脑天气的妖精王女太令他反感
 
 
------
+*****
 
 ####  新吾  
 ##### 72537#       发表于 2020-4-11 15:42
@@ -6084,7 +6084,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我发现你游是不是对“低概率”这个词有误解，黑皮平a低概率解强化结果三下攻击把我三个人的强化全都解了
 
 
------
+*****
 
 ####  rollingusagi  
 ##### 72538#       发表于 2020-4-11 15:49
@@ -6095,7 +6095,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  白清羽  
 ##### 72539#       发表于 2020-4-11 17:07
@@ -6107,7 +6107,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 神祖的立绘游戏里实际看到感觉也不是特别雷，模型也很棒的，不过这个黄金圣衣是不如圣斗士里的
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72540#       发表于 2020-4-11 18:40
@@ -6119,7 +6119,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 马修：是冈钉，我加了冈钉
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72541#       发表于 2020-4-11 19:52
@@ -6128,7 +6128,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 双子座章节表现一股子小物臭<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">考据也是地毯文学日站wiki复制黏贴，樱井这毒瘤到底什么时候能滚粗哦<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72542#       发表于 2020-4-11 19:57
@@ -6139,7 +6139,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72543#       发表于 2020-4-11 21:54
@@ -6151,7 +6151,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 72544#       发表于 2020-4-11 22:18
@@ -6162,7 +6162,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 宙斯那里3令咒了，看看队长那里如何把<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这章到现在的感想就是能不能把马修卖了，还有武藏，我现在对着国服的武藏都有卖卡的冲动。我CNM叶良树你既然这么喜欢锁助战，一是登场角色给个强力Buff，二是干脆将抽卡去除掉啊，老子用这么多石头抽这么多从者，你TM一上来就锁卡，那我抽卡有什么用？干脆全部用助战从者啊。我2章到现在为止一直都是吃苹果尽快通，剧情仔细看的，唯独是这章一直拖到现在，剧情甚至都快进了，整章玩的感受非常差，和2.5.1简直是一个天一个地。
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72545#       发表于 2020-4-11 22:53
@@ -6171,7 +6171,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 宙斯一遍过了，冠位从者就是冠位从者，谁说超人熊只能拿来秀的，一张红卡顶别人一个宝具，3t的无敌贯通和弱体无效，打主线高难这种乱七八糟机制一大堆的关卡简直不要太好用。宙斯最后一管血的时候礼装cd跟不上，双层宝具buff下直接顶着乌拉诺斯的抗性buff把宙斯2回合砍死了。最后一回合宙斯垂死挣扎还放了个回避，然而木大，两张红卡打了15w直接带走（这时宙斯还有一层防御抗性在）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72546#       发表于 2020-4-11 22:56
@@ -6183,7 +6183,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  suibiankk  
 ##### 72547#       发表于 2020-4-11 23:07
@@ -6192,7 +6192,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 爱玩和鱼藻是一个还是啥？有大佬说说吗？
 
 
------
+*****
 
 ####  khxooo  
 ##### 72548#       发表于 2020-4-11 23:38
@@ -6201,7 +6201,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 队长碎石了，放弃思考了，反正300多颗石头，我看是你队长厉害是我石头多<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72549#       发表于 2020-4-11 23:41
@@ -6213,7 +6213,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 所以隔壁在撕始皇帝和冠位熊，两者根本不是一个水平好不，看着吧，今年杂修祭绝对是冠位熊高光的。
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72550#       发表于 2020-4-11 23:41
@@ -6222,7 +6222,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 队长碎了2石，吃宝具回复hp太扯了，日服手上也没2030打暴击都难受，宙斯和最后压轴的凯尼斯倒是很轻松的车轮战过了，这章的难度还是恶心在强制锁人学妹卡前排..
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72551#       发表于 2020-4-11 23:46
@@ -6237,7 +6237,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72552#       发表于 2020-4-11 23:49
@@ -6251,7 +6251,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 日服骑单体就只有龙马和牛肉丸，好友想找个起源弹拉二都找不到= =这节压底上秦始皇应该比b叔好，想想石头攒着也是换绿方块加上最后两节也就懒得想战略xjbd了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ramiel  
 ##### 72553#       发表于 2020-4-12 00:07
@@ -6262,7 +6262,7 @@ A狐的真正身份是人类恶....也就是说和C狐没关系不是C狐的一�
 md老子打起来怎么跟打穆鲁似的
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72554#       发表于 2020-4-12 00:11
@@ -6274,7 +6274,7 @@ md老子打起来怎么跟打穆鲁似的
 所以我就奇怪难道异闻带的王和妖精还有圣qiang持有者是对立的....不知道贝利尔现在在不列颠异闻带到底是什么个立场
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72555#       发表于 2020-4-12 00:12
@@ -6289,7 +6289,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  ramiel  
 ##### 72556#       发表于 2020-4-12 00:38
@@ -6298,7 +6298,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 我看出来了，没有黑贞就没有人权
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72557#       发表于 2020-4-12 00:47
@@ -6310,7 +6310,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 人渣贝利尔没什么疑问肯定会死....佩佩的死旗才刚刚竖起来....戴维还不清楚是怎么个角色不过和佩佩的关系来看也不是什么大恶人
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72558#       发表于 2020-4-12 01:23
@@ -6322,7 +6322,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72559#       发表于 2020-4-12 01:42
@@ -6339,7 +6339,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">队长用双梅BB满血打死啊....又没无敌贯通苟过去就是了
 
 
------
+*****
 
 ####  eden_hazard  
 ##### 72560#       发表于 2020-4-12 03:24
@@ -6354,7 +6354,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 现在A组一个比一个白，压力全在贝先森身上了，他可千万要挺住黑到底，这年头纯粹的坏人不多了。
 
 
------
+*****
 
 ####  白金口袋  
 ##### 72561#       发表于 2020-4-12 03:44
@@ -6373,7 +6373,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 当然我这是在说废话，在游戏中寻找现实的话就只能上阿虚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 72562#       发表于 2020-4-12 05:12
@@ -6386,7 +6386,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 不过我最想吐槽的还是他们连冻结迦勒底都留了一手，A组的第一次会议给人的第一印象是A组策划了冻结迦勒底的计划（尤其是贝先森和戴比特的发言），然而冻结迦勒底是雷帝下令的，到场的人是皇女、麻婆（异星神使徒）、杀狐（独立势力，兽）、雷帝的杀戮猎兵。和A组其他人又是半毛钱关系都没有，卡多克锅你全背了吧反正你干的事也不冤
 
 
------
+*****
 
 ####  eden_hazard  
 ##### 72563#       发表于 2020-4-12 05:30
@@ -6397,7 +6397,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 反正这77亿人打完2.0就会原地满状态复活，然后等哪天要出3.0了多半还要再死一次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  112zero  
 ##### 72564#       发表于 2020-4-12 06:02
@@ -6406,7 +6406,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">锁助战不是樱井的锅么
 
 
------
+*****
 
 ####  exiaexa  
 ##### 72565#       发表于 2020-4-12 06:43
@@ -6419,7 +6419,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 而且卡多克这种性格不就是最完美的吃修正拳的类型嘛，整个a组就他一个从头到尾写着这个人是会被洗白根本不用猜嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 72566#       发表于 2020-4-12 06:49
@@ -6434,7 +6434,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 玩游戏可以，但别玩得有些最基本的三观也乱了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  auraria  
 ##### 72567#       发表于 2020-4-12 07:28
@@ -6442,7 +6442,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72568#       发表于 2020-4-12 07:53
@@ -6453,7 +6453,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白清羽  
 ##### 72569#       发表于 2020-4-12 08:02
@@ -6462,7 +6462,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 还真没想到会再挨一发圣**，上次的狮子王也是第六章，我猜这次要出冠位剑了，不知道是武藏亲灵衣归来还是YY中的全武装亚瑟王
 
 
------
+*****
 
 ####  白清羽  
 ##### 72570#       发表于 2020-4-12 08:16
@@ -6471,7 +6471,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 另外感觉252是不如251，251从开始就在酝酿小熊对月神那一箭，最后在众人前仆后继的牺牲下射出那一箭击坠月神的演出我是觉得真爽爆了，到252就是不停丢设定，感觉是要透露的信息太多了节奏非常赶，爽点都来自于在运营锁助战锁前排的恶意下击穿boss
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72571#       发表于 2020-4-12 09:59
@@ -6486,7 +6486,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">都被A狐嫌弃成这样的快乐杀人狂真不信能洗....更别说手上还有队长的血债
 
 
------
+*****
 
 ####  auraria  
 ##### 72572#       发表于 2020-4-12 10:38
@@ -6494,7 +6494,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  6x6z6w  
 ##### 72573#       发表于 2020-4-12 10:46
@@ -6506,7 +6506,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 爱玩之兽是那个碧池玉想变成的东西，现在属于变了一半的状态，真名因为和异星神py交易的关系不能随便说，所以可能不是玉藻前原本的金毛白玉九尾形态，而是别的什么东西
 
 
------
+*****
 
 ####  reekilynn  
 ##### 72574#       发表于 2020-4-12 10:59
@@ -6519,7 +6519,7 @@ md老子打起来怎么跟打穆鲁似的 ...</blockquote>
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72575#       发表于 2020-4-12 11:16
@@ -6540,7 +6540,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 医生先吃个瓜....还没钦定就肯定是盖提亚吧
 
 
------
+*****
 
 ####  quanlix  
 ##### 72576#       发表于 2020-4-12 11:28
@@ -6549,7 +6549,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 最想手撕的两个人，第一贝先生，第二道满
 
 
------
+*****
 
 ####  khxooo  
 ##### 72577#       发表于 2020-4-12 11:57
@@ -6558,7 +6558,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 112的free<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  suibiankk  
 ##### 72578#       发表于 2020-4-12 12:54
@@ -6570,7 +6570,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 这是鱼藻自己变的吗？
 
 
------
+*****
 
 ####  rollingusagi  
 ##### 72579#       发表于 2020-4-12 13:18
@@ -6581,7 +6581,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  khxooo  
 ##### 72580#       发表于 2020-4-12 16:41
@@ -6590,7 +6590,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 凯尼斯的语音能不能永远停留在4？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  影伴光生  
 ##### 72581#       发表于 2020-4-12 17:20
@@ -6608,7 +6608,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 另，万一蘑菇他们脑子一热把咕哒本尊砍了再造人偶塞一下也不是不会发生
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72582#       发表于 2020-4-12 17:21
@@ -6619,7 +6619,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 以及，这咕哒看来不是人？
 
 
------
+*****
 
 ####  影伴光生  
 ##### 72583#       发表于 2020-4-12 17:23
@@ -6633,7 +6633,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 雷夫还是洗过一下的。。。其他世界线的雷夫知道自己的命运全提前自裁了，就FGO世界线的雷夫惜命了一回被趁虚而入
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72584#       发表于 2020-4-12 17:29
@@ -6644,7 +6644,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这队长重新定义了低概率 虽然用贞政梅完封 但是政哥哥的宝具从来没留到过下回合 次次被驱散
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72585#       发表于 2020-4-12 17:33
@@ -6661,7 +6661,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">以及你们说的队长低概率是什么东西？为啥我一点印象都没？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72586#       发表于 2020-4-12 17:37
@@ -6677,7 +6677,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个低概率就是平砍驱散全部强化状态
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72587#       发表于 2020-4-12 17:45
@@ -6691,7 +6691,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">完全没印象，冠位弓打爆队长狗头
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72588#       发表于 2020-4-12 17:46
@@ -6703,7 +6703,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">欧羡慕
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72589#       发表于 2020-4-12 18:09
@@ -6715,7 +6715,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 第2部完结后本来就有个方案是主角换人，所以结合这一章，终章咕哒连发黑**挂掉甚至直接人间大炮打过去都不奇怪，顶多芙芙再救一次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  風卷豹  
 ##### 72590#       发表于 2020-4-12 23:50
@@ -6726,7 +6726,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 —— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72591#       发表于 2020-4-13 09:24
@@ -6735,7 +6735,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">锁助战难道不是为了为难新人吗 老咸鱼基本也无所谓 就是强制要用换人礼装
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72592#       发表于 2020-4-13 09:34
@@ -6750,7 +6750,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  白清羽  
 ##### 72593#       发表于 2020-4-13 09:47
@@ -6759,7 +6759,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 话说252开以前还以为会有武藏up的，结果现在都data lost了估计要再等等了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  卡蓮  
 ##### 72594#       发表于 2020-4-13 10:13
@@ -6770,7 +6770,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 道满太恶心了赶紧去死吧，每次看他颜艺就反胃
 
 
------
+*****
 
 ####  eyeego  
 ##### 72595#       发表于 2020-4-13 10:17
@@ -6781,7 +6781,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 就tm这摸鱼效率 再加上现在可以光明正大的合法摸鱼 今年图鉴能不能整回来都难说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  SAGA0Arcueid  
 ##### 72596#       发表于 2020-4-13 10:41
@@ -6796,7 +6796,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 你有陈宫啊~~
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72597#       发表于 2020-4-13 10:41
@@ -6805,7 +6805,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如猜猜2期up什么 总不能就一个神祖吧
 
 
------
+*****
 
 ####  khxooo  
 ##### 72598#       发表于 2020-4-13 10:46
@@ -6816,7 +6816,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 4星估计有爱迪生和海伦娜，5星肯定只有神祖，或者和祖师爷混合。其他估计和奥德修斯一样要以后再实装了。
 
 
------
+*****
 
 ####  SAGA0Arcueid  
 ##### 72599#       发表于 2020-4-13 10:53
@@ -6828,7 +6828,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 农神和美神都有没出现过的表情，队长更是模型都有了，这不出是不是太可惜了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72600#       发表于 2020-4-13 10:58
@@ -6840,7 +6840,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想什么呢 队长不可能的事情 农美都没有建模希望渺茫
 
 
------
+*****
 
 ####  jackyhuang  
 ##### 72601#       发表于 2020-4-13 11:28
@@ -6849,7 +6849,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 不要奶了，安生桑的生命值已经归零了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  miro112233  
 ##### 72602#       发表于 2020-4-13 11:44
@@ -6860,7 +6860,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 下周三22号或者下周五24号差不多就该开始FR联动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鱼缸  
 ##### 72603#       发表于 2020-4-13 12:21
@@ -6876,7 +6876,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 阿芙洛狄忒当个能连发的杀光炮 美哉
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72604#       发表于 2020-4-13 13:17
@@ -6890,7 +6890,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出是一定会出的啊 我意思是这星期的新卡池里出希望比较渺茫
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72605#       发表于 2020-4-13 14:15
@@ -6902,7 +6902,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 武藏+爱迪生
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72606#       发表于 2020-4-13 14:47
@@ -6913,7 +6913,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72607#       发表于 2020-4-13 14:58
@@ -6928,7 +6928,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  khxooo  
 ##### 72608#       发表于 2020-4-13 15:06
@@ -6937,7 +6937,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 其实有个说法我是很赞同的，就是今年是东京奥运，刚好今年无限池就以奥运为主题，落地这次2.5.2那群神。
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72609#       发表于 2020-4-13 15:10
@@ -6949,7 +6949,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明年请
 
 
------
+*****
 
 ####  Niu  
 ##### 72610#       发表于 2020-4-13 15:18
@@ -6969,7 +6969,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 然後論強度 UO之後檯面上更強的就剩愛玩狐搬出天照本體了
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 72611#       发表于 2020-4-13 16:02
@@ -6978,7 +6978,7 @@ A狐最多算是前2章为了各自利益合作了一下...这章不就露出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨晚终于通完剧情了，这B7不会真的是最终boss吧，不会吧不会吧不会吧
 
 
------
+*****
 
 ####  exiaexa  
 ##### 72612#       发表于 2020-4-13 16:20
@@ -6997,7 +6997,7 @@ B5B7对打那就是看所长和狐狸哪个先被立香攻略当二五仔了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72613#       发表于 2020-4-13 16:24
@@ -7012,7 +7012,7 @@ B5B7对打那就是看所长和狐狸哪个先被立香攻略当二五仔了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72614#       发表于 2020-4-13 16:33
@@ -7024,7 +7024,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72615#       发表于 2020-4-13 16:38
@@ -7033,7 +7033,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一口杀狐最终跳反 真最终boss是还未现身的
 
 
------
+*****
 
 ####  exiaexa  
 ##### 72616#       发表于 2020-4-13 16:39
@@ -7051,7 +7051,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72617#       发表于 2020-4-13 16:40
@@ -7060,7 +7060,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 2.5和2.6标题间的小黑点肯定是要安排个主线相关活动的吧，打完估计就会揭露2.6标题了，不知道活动内容会是武藏亲归来还是痛扁道满
 
 
------
+*****
 
 ####  khxooo  
 ##### 72618#       发表于 2020-4-13 16:51
@@ -7075,7 +7075,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 感觉狐狸第六章就要凉了，而且这几章好像一直有事没事就提及1万4千年前的事情，再来个游星也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72619#       发表于 2020-4-13 16:53
@@ -7084,7 +7084,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">B叔什么时候强化下顺便把巨英雄灵衣实装了啊 感觉B叔好惨啊 登场就是各种挨打 射杀百头都成神祖技能了可还行 
 
 
------
+*****
 
 ####  克瓦特罗大尉  
 ##### 72620#       发表于 2020-4-13 17:04
@@ -7095,7 +7095,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主线居然还投石了
 
 
------
+*****
 
 ####  白水潭的饿鬼  
 ##### 72621#       发表于 2020-4-13 20:07
@@ -7106,7 +7106,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 —— 来自 HMD Global Nokia 7 plus, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 72622#       发表于 2020-4-13 21:29
@@ -7115,7 +7115,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 最终绝战又是盾娘强制前排 行吧 反正最终战了这么想上就上吧 放了盾贞梅苟了40多t<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72623#       发表于 2020-4-14 02:06
@@ -7126,7 +7126,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 叶哥哥，咱们以后直接把包括主线活动在内的所有战斗都锁成只能用剧情登场角色和除了硬之外狗屁用处没有的那个谁好不好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  武の炽羽  
 ##### 72624#       发表于 2020-4-14 05:07
@@ -7139,7 +7139,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 我就想知道如果真的和大家奶的一样今年奥运主题无限池现在重新开发还来得及吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新吾  
 ##### 72625#       发表于 2020-4-14 08:47
@@ -7148,7 +7148,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 庆祝奥尔加成为异星神，你们说up脚后跟好不好啊(
 
 
------
+*****
 
 ####  Alice.Andvari  
 ##### 72626#       发表于 2020-4-14 09:55
@@ -7162,7 +7162,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">还自带盾和根性，就是要占你位置233
 
 
------
+*****
 
 ####  白清羽  
 ##### 72627#       发表于 2020-4-14 10:04
@@ -7171,7 +7171,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 看贴吧一个玩家用白贞和马修已经和农神大战1800个回合了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72628#       发表于 2020-4-14 10:56
@@ -7183,7 +7183,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 硬是把我给整乐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 72629#       发表于 2020-4-14 10:59
@@ -7197,7 +7197,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 没必要重新开发吧，奥运今年算预热，然后明年正式开就给他复刻一下，完美<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  贤娘萌娘  
 ##### 72630#       发表于 2020-4-14 11:02
@@ -7206,7 +7206,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 打完了，卡奥斯那段感觉挺突兀的，有没有这段都不妨碍前后的剧情，虽然前面提到过卡奥斯但是真把它拿出来给武藏一个出风头的机会，看上去就像是为了让武藏风光大葬所以搞出了卡奥斯，接下来的剧情让武藏作为冠位剑归来我都不意外。神祖还真就是冠位工具人，塑造比起之前三个少太多了
 
 
------
+*****
 
 ####  发财就手  
 ##### 72631#       发表于 2020-4-14 15:46
@@ -7217,7 +7217,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 等白纸化危机解决完后，功劳都由他来承担
 
 
------
+*****
 
 ####  LOLITA  
 ##### 72632#       发表于 2020-4-15 15:23
@@ -7226,7 +7226,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 到现在也没打新章，不出漂亮妹子给抽就没有玩的动力啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72633#       发表于 2020-4-15 16:25
@@ -7237,7 +7237,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么会这样呢
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72634#       发表于 2020-4-15 16:27
@@ -7252,7 +7252,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72635#       发表于 2020-4-15 16:36
@@ -7267,7 +7267,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我还有３石抽神祖池　会出吗　会吗　
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72636#       发表于 2020-4-15 16:42
@@ -7282,7 +7282,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72637#       发表于 2020-4-15 17:04
@@ -7291,7 +7291,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无事发生，神祖请等明天
 
 
------
+*****
 
 ####  白清羽  
 ##### 72638#       发表于 2020-4-15 17:23
@@ -7300,7 +7300,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 果然还是要等一周再开二池吗？还以为这次可能不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72639#       发表于 2020-4-15 17:25
@@ -7311,7 +7311,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 会的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72640#       发表于 2020-4-15 17:34
@@ -7322,7 +7322,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 欧，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72641#       发表于 2020-4-15 18:34
@@ -7333,7 +7333,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 欧，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  suibiankk  
 ##### 72642#       发表于 2020-4-15 18:54
@@ -7342,7 +7342,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 二期池就是神祖吗？
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72643#       发表于 2020-4-15 20:01
@@ -7354,7 +7354,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 萌新又豹了，爷的青春回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72644#       发表于 2020-4-15 21:38
@@ -7366,7 +7366,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新都还没抽呢 怎么就豹了
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72645#       发表于 2020-4-15 23:10
@@ -7378,7 +7378,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 大家都相信你会豹的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 72646#       发表于 2020-4-16 05:32
@@ -7387,7 +7387,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打宙斯随便前排神祖马修+个宝石项羽就试试水 结果打到最后一管血少一个宝具伤害 想着再打一把用个令咒  怎么打都打不过去了 
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72647#       发表于 2020-4-16 09:17
@@ -7398,7 +7398,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72648#       发表于 2020-4-16 09:26
@@ -7410,7 +7410,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不如直接掏出黑贞德 神祖就是个拖你后腿的 
 
 
------
+*****
 
 ####  sigma0716  
 ##### 72649#       发表于 2020-4-16 10:17
@@ -7419,7 +7419,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 打完252，队长交了一石，地球交了两石，剩余石头十连一个喜羊羊
 
 
------
+*****
 
 ####  khxooo  
 ##### 72650#       发表于 2020-4-16 10:31
@@ -7430,7 +7430,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 是11连，都忘记改回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72651#       发表于 2020-4-16 13:18
@@ -7441,7 +7441,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72652#       发表于 2020-4-16 17:05
@@ -7452,7 +7452,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后3石无事发生 输了
 
 
------
+*****
 
 ####  suibiankk  
 ##### 72653#       发表于 2020-4-16 17:06
@@ -7461,7 +7461,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 就没有大姐姐吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72654#       发表于 2020-4-16 17:07
@@ -7473,7 +7473,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不存在的   252里那2位建模都没有 想想就不可能有啊  要落地也要过阵子了
 
 
------
+*****
 
 ####  quanlix  
 ##### 72655#       发表于 2020-4-16 17:08
@@ -7488,7 +7488,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 而且还在变大
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72656#       发表于 2020-4-16 17:10
@@ -7502,7 +7502,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 草，真有你的啊小山<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72657#       发表于 2020-4-16 17:12
@@ -7511,7 +7511,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说现在畅销榜掉到哪了？  最近这是不是拉垮的有点严重？
 
 
------
+*****
 
 ####  風卷豹  
 ##### 72658#       发表于 2020-4-16 17:15
@@ -7522,7 +7522,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 —— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白清羽  
 ##### 72659#       发表于 2020-4-16 17:28
@@ -7531,7 +7531,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 神祖的满破卡面我觉得帅炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72660#       发表于 2020-4-16 17:30
@@ -7540,7 +7540,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉得丑爆。。。一股石像鬼杂兵既视感
 
 
------
+*****
 
 ####  sandro  
 ##### 72661#       发表于 2020-4-16 17:31
@@ -7549,7 +7549,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 卧槽，罗马的满破也太鸡巴帅了吧
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72662#       发表于 2020-4-16 17:42
@@ -7566,7 +7566,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  zpsw00000  
 ##### 72663#       发表于 2020-4-16 17:43
@@ -7575,7 +7575,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 这狼崽子卡面是既不神圣，也不罗马，还不帝国
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72664#       发表于 2020-4-16 17:47
@@ -7586,7 +7586,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72665#       发表于 2020-4-16 17:51
@@ -7595,7 +7595,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 帅吗…反正我是看得一点想法都没有<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72666#       发表于 2020-4-16 17:54
@@ -7610,7 +7610,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 超级羡慕
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72667#       发表于 2020-4-16 18:00
@@ -7619,7 +7619,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">果然没出 黑杯+1 B叔+1
 
 
------
+*****
 
 ####  eden_hazard  
 ##### 72668#       发表于 2020-4-16 18:09
@@ -7630,7 +7630,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72669#       发表于 2020-4-16 18:12
@@ -7639,7 +7639,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 30连一神祖一马老师一印度贞德
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72670#       发表于 2020-4-16 18:41
@@ -7648,7 +7648,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 330连3宝0歪，一般般吧。虽然强度够高，满破卡面也赞，又是置鲇配的，但毕竟是男人，又不像周黑鸭那么超神，想骗我抽满还是差那么点意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72671#       发表于 2020-4-16 18:47
@@ -7657,7 +7657,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">头两单两个，再两单没有，再一单2个，剩下一个等福袋了
 
 
------
+*****
 
 ####  colamitsuyo  
 ##### 72672#       发表于 2020-4-16 19:01
@@ -7667,7 +7667,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">刚回坑还没打到2.4，缺素材满破。好想快点喂杯子啊
 
 
------
+*****
 
 ####  rooarr  
 ##### 72673#       发表于 2020-4-16 19:09
@@ -7676,7 +7676,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 1单1宝，赚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  恤兵真綿  
 ##### 72674#       发表于 2020-4-16 19:19
@@ -7684,7 +7684,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  白清羽  
 ##### 72675#       发表于 2020-4-16 19:28
@@ -7693,7 +7693,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 孔明歪满宝了，我的神祖在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  D．Va  
 ##### 72676#       发表于 2020-4-16 19:34
@@ -7702,7 +7702,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 一单神祖+双子，满足了
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72677#       发表于 2020-4-16 19:44
@@ -7711,7 +7711,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 强度厨安心等狂娜补二宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  auraria  
 ##### 72678#       发表于 2020-4-16 19:54
@@ -7719,7 +7719,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72679#       发表于 2020-4-16 19:59
@@ -7730,7 +7730,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  炙热之狐  
 ##### 72680#       发表于 2020-4-16 20:05
@@ -7741,7 +7741,7 @@ a狐还要进卡池给人抽呢<img src="https://static.saraba1st.com/image/smil
 因为所长假想中适合统治地球的至高无上者的形容词就是Ultra
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72681#       发表于 2020-4-16 20:13
@@ -7762,7 +7762,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白清羽  
 ##### 72682#       发表于 2020-4-16 20:14
@@ -7777,7 +7777,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 之前就觉得那身黄金甲不如圣斗士的圣衣，满破一脱瞬间有那味了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Alice.Andvari  
 ##### 72683#       发表于 2020-4-16 20:19
@@ -7786,7 +7786,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新池惯例10连，出了
 
 
------
+*****
 
 ####  芭德薇  
 ##### 72684#       发表于 2020-4-16 20:47
@@ -7800,7 +7800,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 252明显可以看出两部分的割裂感吧，蘑菇应该是写的A组相关的那几段剧情。
 
 
------
+*****
 
 ####  exiaexa  
 ##### 72685#       发表于 2020-4-16 20:50
@@ -7820,7 +7820,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eyeego  
 ##### 72686#       发表于 2020-4-16 23:23
@@ -7829,7 +7829,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 你樱井先把盾娘那些反反复复骗稿费的无意义启动台词删光再来模仿一下低配蘑菇？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72687#       发表于 2020-4-17 00:24
@@ -7841,7 +7841,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  alaya  
 ##### 72688#       发表于 2020-4-17 01:20
@@ -7850,7 +7850,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 打起来打起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rollingusagi  
 ##### 72689#       发表于 2020-4-17 02:03
@@ -7861,7 +7861,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  v22325  
 ##### 72690#       发表于 2020-4-17 03:18
@@ -7872,7 +7872,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 打队长最后一管满血 剩一个马修 结果一个人把对面打死了 马修真的好硬啊这硬度 要不是开场有无敌贯通的宝具 我觉得能一个人打掉三条血
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 72691#       发表于 2020-4-17 04:14
@@ -7882,7 +7882,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 连我在内不止一人都表示这章除了队长part还能看其它都不行，结果现在实锤了就这部分是蘑菇写的
 
 
------
+*****
 
 ####  rooarr  
 ##### 72692#       发表于 2020-4-17 07:11
@@ -7891,7 +7891,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 昨晚清完free的石头又抽了一次10连居然豹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72693#       发表于 2020-4-17 08:41
@@ -7903,7 +7903,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
 
------
+*****
 
 ####  白清羽  
 ##### 72694#       发表于 2020-4-17 09:19
@@ -7912,7 +7912,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 孔明歪满宝，然后彩圈拿破仑，说出来让大家开心下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72695#       发表于 2020-4-17 11:26
@@ -7925,7 +7925,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  由比ヶ浜結衣  
 ##### 72696#       发表于 2020-4-17 17:39
@@ -7934,7 +7934,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 三发呼符，果然秘书挂呼姆怪有加成<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dante888  
 ##### 72697#       发表于 2020-4-17 17:56
@@ -7943,7 +7943,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 好久没来汇报了，1440石头4宝交盘，歪项羽皇女，可以休息一阵子了
 
 
------
+*****
 
 ####  eilot  
 ##### 72698#       发表于 2020-4-17 18:26
@@ -7952,7 +7952,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 90石，甚麼都沒有，回去儲石
 
 
------
+*****
 
 ####  铁神  
 ##### 72699#       发表于 2020-4-18 00:30
@@ -7961,7 +7961,7 @@ fate吧真心画美不看<img src="https://static.saraba1st.com/image/smiley/fac
 撸完神祖的面板我已经不认识罗马这俩字了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72700#       发表于 2020-4-18 15:50
@@ -7974,7 +7974,7 @@ http://tieba.baidu.com/p/6623151626
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 72701#       发表于 2020-4-18 18:08
@@ -7983,7 +7983,7 @@ http://tieba.baidu.com/p/6623151626
 卧槽神祖你知道病娇这词啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72702#       发表于 2020-4-18 22:53
@@ -8002,7 +8002,7 @@ http://tieba.baidu.com/p/6623151626
 （话说男武藏还出不出了...）
 
 
------
+*****
 
 ####  khxooo  
 ##### 72703#       发表于 2020-4-18 23:26
@@ -8013,7 +8013,7 @@ http://tieba.baidu.com/p/6623151626
 绿卡光炮，NP爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72704#       发表于 2020-4-18 23:30
@@ -8022,7 +8022,7 @@ http://tieba.baidu.com/p/6623151626
 我终于把2.5.1摸完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么战斗都这么菜的
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72705#       发表于 2020-4-19 00:55
@@ -8034,7 +8034,7 @@ http://tieba.baidu.com/p/6623151626
 因为难易度都扔到2.52去了
 
 
------
+*****
 
 ####  高木なつめ  
 ##### 72706#       发表于 2020-4-19 02:03
@@ -8043,7 +8043,7 @@ http://tieba.baidu.com/p/6623151626
 一单歪了四个金卡...放弃了放弃了
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72707#       发表于 2020-4-19 05:14
@@ -8052,7 +8052,7 @@ http://tieba.baidu.com/p/6623151626
 距离开2.52到今天为止都10天了....下个活动该有点苗头了吧...这样又一直长草下去不是办法啊
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72708#       发表于 2020-4-19 10:57
@@ -8067,7 +8067,7 @@ http://tieba.baidu.com/p/6623151626
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72709#       发表于 2020-4-19 11:04
@@ -8082,7 +8082,7 @@ http://tieba.baidu.com/p/6623151626
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72710#       发表于 2020-4-19 13:06
@@ -8091,7 +8091,7 @@ http://tieba.baidu.com/p/6623151626
 下个活动不是51的新联动吗...
 
 
------
+*****
 
 ####  rooarr  
 ##### 72711#       发表于 2020-4-19 14:09
@@ -8100,7 +8100,7 @@ http://tieba.baidu.com/p/6623151626
 这周三按惯例是要有活动预告，下周三开活动
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72712#       发表于 2020-4-19 14:13
@@ -8112,7 +8112,7 @@ http://tieba.baidu.com/p/6623151626
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你又要跳起来了吗
 
 
------
+*****
 
 ####  rooarr  
 ##### 72713#       发表于 2020-4-19 14:17
@@ -8123,7 +8123,7 @@ http://tieba.baidu.com/p/6623151626
 刚豹完，没石头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72714#       发表于 2020-4-19 20:37
@@ -8132,7 +8132,7 @@ http://tieba.baidu.com/p/6623151626
 草，弟媳这简直就是不要入坑废狗的大型现场教学
 
 
------
+*****
 
 ####  kyonkoism  
 ##### 72715#       发表于 2020-4-19 20:39
@@ -8150,7 +8150,7 @@ http://tieba.baidu.com/p/6623151626
 2020-4-19 20:40 上传
 
 
------
+*****
 
 ####  kidoo  
 ##### 72716#       发表于 2020-4-19 20:41
@@ -8159,7 +8159,7 @@ http://tieba.baidu.com/p/6623151626
 太惨了
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72717#       发表于 2020-4-19 20:43
@@ -8169,7 +8169,7 @@ http://tieba.baidu.com/p/6623151626
 [https://tieba.baidu.com/p/6609685450](https://tieba.baidu.com/p/6609685450)
 
 
------
+*****
 
 ####  風卷豹  
 ##### 72718#       发表于 2020-4-20 11:30
@@ -8178,7 +8178,7 @@ http://tieba.baidu.com/p/6623151626
 男武藏还是算了吧，村正顶着土狼脸用老头语气讲话已经够恶心了，不如直接做冠位女武藏的时候把男武藏的灵基混进去，性别又是其他
 
 
------
+*****
 
 ####  白清羽  
 ##### 72719#       发表于 2020-4-20 17:11
@@ -8187,7 +8187,7 @@ http://tieba.baidu.com/p/6623151626
 紧张刺激的强化猜谜活动要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  抹布味道好  
 ##### 72720#       发表于 2020-4-20 19:12
@@ -8196,7 +8196,7 @@ http://tieba.baidu.com/p/6623151626
 接下来是1900WDL？侦探小游戏第三弹？复刻all本能寺？
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72721#       发表于 2020-4-20 19:13
@@ -8208,7 +8208,7 @@ http://tieba.baidu.com/p/6623151626
 就到29日，感觉幕间比强化的可能性高得多<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  reekilynn  
 ##### 72722#       发表于 2020-4-20 22:48
@@ -8221,7 +8221,7 @@ http://tieba.baidu.com/p/6623151626
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  卡蓮  
 ##### 72723#       发表于 2020-4-21 09:32
@@ -8234,7 +8234,7 @@ http://tieba.baidu.com/p/6623151626
 然后黄金周联动活动
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72724#       发表于 2020-4-21 09:35
@@ -8243,7 +8243,7 @@ http://tieba.baidu.com/p/6623151626
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2000wdl送5星常驻自选吗  
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72725#       发表于 2020-4-21 09:50
@@ -8255,7 +8255,7 @@ http://tieba.baidu.com/p/6623151626
 想太多，最多几个限定四星变的能选了
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72726#       发表于 2020-4-21 09:57
@@ -8266,7 +8266,7 @@ http://tieba.baidu.com/p/6623151626
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  抹布味道好  
 ##### 72727#       发表于 2020-4-21 10:06
@@ -8283,7 +8283,7 @@ http://tieba.baidu.com/p/6623151626
 那肯定不是2000W了，时间间隔太短，先整个侦探活动吧，疫情当前也搞不起来密室对不对……
 
 
------
+*****
 
 ####  reekilynn  
 ##### 72728#       发表于 2020-4-21 10:09
@@ -8298,7 +8298,7 @@ http://tieba.baidu.com/p/6623151626
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72729#       发表于 2020-4-21 10:10
@@ -8310,7 +8310,7 @@ http://tieba.baidu.com/p/6623151626
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做萌新要有梦想
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72730#       发表于 2020-4-21 10:11
@@ -8329,7 +8329,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和礼装
 之前能hack的时候还是可以推测一些近期的问题的，别把原因全推给疫情，就算没疫情去年开始DW的产能就无限接近隔壁的垃圾鹰角了
 
 
------
+*****
 
 ####  抹布味道好  
 ##### 72731#       发表于 2020-4-21 10:21
@@ -8344,7 +8344,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和礼装
 也许会把桑巴大姐姐给逼出来呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eyeego  
 ##### 72732#       发表于 2020-4-21 10:40
@@ -8358,7 +8358,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 然后现在街机厅还开门么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72733#       发表于 2020-4-21 10:45
@@ -8367,7 +8367,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 草，你游最近这个鸟样搞得我都想卖号出坑了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72734#       发表于 2020-4-21 10:46
@@ -8376,7 +8376,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这游戏就不能新整个羁绊礼装槽 让角色可以同时带羁绊礼装和普通礼装么 不然辛苦刷出十绊后送个礼装仓库吃灰太傻屌了吧
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72735#       发表于 2020-4-21 10:49
@@ -8389,7 +8389,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  eyeego  
 ##### 72736#       发表于 2020-4-21 10:50
@@ -8400,7 +8400,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 羁绊礼装本来就是个 蛮傻逼的东西 也就某些对礼装位要求不严的拐偶尔会带上<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72737#       发表于 2020-4-21 10:59
@@ -8415,7 +8415,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有的效果感觉还可以 能额外装备上的话应该算是不错的强化
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72738#       发表于 2020-4-21 11:00
@@ -8427,7 +8427,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">所以按我说的设计个额外槽塞羁绊礼装多好 也不用多费事
 
 
------
+*****
 
 ####  eyeego  
 ##### 72739#       发表于 2020-4-21 11:09
@@ -8438,7 +8438,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 直接内置效果不就行了 都刷到羁绊10了就给个离婚证真的有够蠢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72740#       发表于 2020-4-21 11:20
@@ -8450,7 +8450,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">内置效果就不能看羁绊礼装的卡面和故事了啊 虽然不内置效果确实挺蠢的 还TMD不如前面几绊送的石头
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72741#       发表于 2020-4-21 11:52
@@ -8467,7 +8467,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 至于肺炎影响的话，长期预见也是对gacha类手游不利的啊，gacha类手游是依托于经济正常、每日通勤、消费主义这些条件才能起来的
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72742#       发表于 2020-4-21 12:41
@@ -8478,7 +8478,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 4p？？ 那天我没看直播 这么温暖人心的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72743#       发表于 2020-4-21 14:22
@@ -8491,7 +8491,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 弟媳抽得整个人都抽抽了，后面歪出唐长老和二世的时候都没力气叫了，能不温暖吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72744#       发表于 2020-4-21 19:51
@@ -8502,7 +8502,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  抹布味道好  
 ##### 72745#       发表于 2020-4-21 22:05
@@ -8517,7 +8517,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1-alpha
 
 
------
+*****
 
 ####  萨拉丁  
 ##### 72746#       发表于 2020-4-22 02:26
@@ -8532,7 +8532,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 还有拜托叶哥哥以后用用脑，不要再出得墨忒耳这种粪boss了，即便出类似的麻烦也不要给神经病的3charge了，我严重怀疑这玩意儿进行过系统的测试吗。
 
 
------
+*****
 
 ####  武の炽羽  
 ##### 72747#       发表于 2020-4-22 11:42
@@ -8541,7 +8541,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 不过说起来今年情人节前后也缺了一次强化任务，这几天如果能补上自然最好，不过DW最近这个产能加上要给新冠擦屁股，我看是悬了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72748#       发表于 2020-4-22 11:52
@@ -8556,7 +8556,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  厄神之息  
 ##### 72749#       发表于 2020-4-22 13:45
@@ -8568,7 +8568,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 有效果的羁绊礼装两只手就能数得过来了吧蓝拐，绿拐，乔老师，B叔，黑狗，还有谁的羁绊礼装是有带的价值的吗？倒不如革新下羁绊礼装效果，带羁绊礼装等于带个A杖，让该英雄某些级能产生新效果或者就像雪B乔老师那种给个不可解除的强力被动，否则现在羁绊礼装这东西真是太沙雕了，还不如3个石头呢。<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72750#       发表于 2020-4-22 14:18
@@ -8583,7 +8583,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72751#       发表于 2020-4-22 14:31
@@ -8594,7 +8594,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 常用的大概就4拐，武则天，b叔，我现在在肝弓南丁羁绊礼装，感觉也不错
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72752#       发表于 2020-4-22 14:35
@@ -8607,7 +8607,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有些简单粗暴的15%攻击加成也比没有的要强吧 毕竟菜B点的领导力点满都没这高呢 狂兰这种的30%宝威 还有像超人俄里翁的羁绊礼装每回合8个星星 对俄里翁来说是相当强力的强化吧 不过这种搞法肯定没戏就是了
 
 
------
+*****
 
 ####  厄神之息  
 ##### 72753#       发表于 2020-4-22 15:25
@@ -8619,7 +8619,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 南丁的礼装就属于看着很美好实际很鸡肋的那种，带南丁那肯定是高难，高难不配嘲讽英灵南丁被摸就是暴毙，她的生存压力绝对已经远大于那百分之20的回复了。不知道要怎么带，才能让她的礼装最大收益，盾梅南？乔迪南?
 
 
------
+*****
 
 ####  良臣没有重谢  
 ##### 72754#       发表于 2020-4-22 15:38
@@ -8630,7 +8630,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 说实话a杖还是少来点吧，是个英灵就得刷满绊那已经超出肝的范畴了，本来就是个添头纪念意义大于实际作用的。
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72755#       发表于 2020-4-22 16:11
@@ -8639,7 +8639,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然而本身没那A杖你难道都不带着扔后排蹭羁绊了么 有什么区别
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72756#       发表于 2020-4-22 17:04
@@ -8651,7 +8651,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72757#       发表于 2020-4-22 17:06
@@ -8660,7 +8660,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这公告意思是可能要长半个月的草吗
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72758#       发表于 2020-4-22 17:37
@@ -8672,7 +8672,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 想多了，参考去年，长三个月（
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72759#       发表于 2020-4-22 17:51
@@ -8684,7 +8684,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我只能求一个ap加倍的活动了。。体力不清难受  最好一把120轻松愉快 
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72760#       发表于 2020-4-22 17:52
@@ -8697,7 +8697,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72761#       发表于 2020-4-22 17:52
@@ -8712,7 +8712,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么能这么干呢
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72762#       发表于 2020-4-22 17:52
@@ -8721,7 +8721,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 去年凤鸣庄时期我刚入日服几个月好歹能清一下free和幕间，今年再来复刻长草就只能每日签到了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  風卷豹  
 ##### 72763#       发表于 2020-4-22 17:58
@@ -8732,7 +8732,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 —— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  rooarr  
 ##### 72764#       发表于 2020-4-22 18:07
@@ -8741,7 +8741,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 我昨天就没上线，这么搞下去要弃坑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eyeego  
 ##### 72765#       发表于 2020-4-22 18:19
@@ -8750,7 +8750,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 真就月球已无可战之兵了喽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白清羽  
 ##### 72766#       发表于 2020-4-22 19:07
@@ -8759,7 +8759,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 废狗真就连存货都没有的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72767#       发表于 2020-4-22 19:11
@@ -8768,7 +8768,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 可能DW社员已经快乐放假了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eyeego  
 ##### 72768#       发表于 2020-4-22 20:30
@@ -8779,7 +8779,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 存货么肯定有的啊 比如死活不肯复刻的18年圣诞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72769#       发表于 2020-4-22 21:41
@@ -8791,7 +8791,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 大奥、圣诞，二世薄随便开一个就能糊弄过去了，就是不开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  auraria  
 ##### 72770#       发表于 2020-4-22 22:41
@@ -8799,7 +8799,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  枪聆弹语  
 ##### 72771#       发表于 2020-4-22 23:34
@@ -8808,7 +8808,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你游的画师又开始发神经了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72772#       发表于 2020-4-22 23:46
@@ -8820,7 +8820,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">政哥哥的那位吗  如果是的话 惯犯了
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72773#       发表于 2020-4-23 00:17
@@ -8832,7 +8832,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 72774#       发表于 2020-4-23 00:44
@@ -8841,7 +8841,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 终于看完DC老师的抽卡了，只能说个惨字，什么时候这些重氪佬都被逼走FGO也准备凉吧。
 
 
------
+*****
 
 ####  有乐亭八云  
 ##### 72775#       发表于 2020-4-23 10:42
@@ -8850,7 +8850,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 叶良树之后自己抽卡体验真是实实在在的变差了。这游戏没剧情真的玩不动。
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72776#       发表于 2020-4-23 10:47
@@ -8865,7 +8865,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 2019年之前是会提前存三四个月的量的
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72777#       发表于 2020-4-23 14:43
@@ -8876,7 +8876,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  kulanyee  
 ##### 72778#       发表于 2020-4-24 14:43
@@ -8885,7 +8885,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">情愿长草也不出复刻活动是最骚的。归根到底还是躺着的日子过得太舒服了。
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72779#       发表于 2020-4-24 15:11
@@ -8897,7 +8897,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也可以学学啊鹰出签到活动 持续个半个月  你看这不是有活动了吗 不是长草哦
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72780#       发表于 2020-4-24 16:10
@@ -8908,7 +8908,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 躺着多舒服，搞什么签到活动，不是给自己添麻烦吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72781#       发表于 2020-4-24 16:15
@@ -8919,7 +8919,7 @@ HF就第一部上了个雪山樱，后面也就出出卡池和 ...</blockquote>
 Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 72782#       发表于 2020-4-24 17:08
@@ -8928,7 +8928,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 居然还有生放<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ネロ  
 ##### 72783#       发表于 2020-4-24 19:19
@@ -8939,7 +8939,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 怎么还有生放送的
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 72784#       发表于 2020-4-24 19:53
@@ -8953,7 +8953,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 不开新活动不更新，可以开复刻狩猎之类的东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72785#       发表于 2020-4-24 20:20
@@ -8967,7 +8967,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 19分钟傻屌石仓和金泽介绍周边和今后活动，1分钟叶哥哥谢罪，完（
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72786#       发表于 2020-4-24 20:33
@@ -8979,7 +8979,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 今后活动（指长草）
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72787#       发表于 2020-4-24 20:43
@@ -8991,7 +8991,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 不，我说的是三次元活动（
 
 
------
+*****
 
 ####  武の炽羽  
 ##### 72788#       发表于 2020-4-25 00:52
@@ -9000,7 +9000,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 直接搞个完整版2018圣诞妇科不就行了，本身2018圣诞无限池材料好，去年年底又莫名没妇科，想拖进度妇科这个不香吗？
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72789#       发表于 2020-4-25 10:29
@@ -9022,7 +9022,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 ...我不会产粮，只是想吐槽一下脑洞...毕竟原地复活真的很流畅...
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72790#       发表于 2020-4-25 10:51
@@ -9034,7 +9034,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">玩家能够想到的，舍弃
 
 
------
+*****
 
 ####  xpisces  
 ##### 72791#       发表于 2020-4-25 11:14
@@ -9043,7 +9043,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 只能说草台班子的项目管理就是屎一样，我玩的三四个日服游戏黄金周活动都如火如荼<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72792#       发表于 2020-4-25 11:16
@@ -9052,7 +9052,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天的直播有没有可能是告知接下来长草1-2个月呢
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72793#       发表于 2020-4-25 12:08
@@ -9061,7 +9061,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 签到的时候顺便看了眼，上次给你游课金还是大半年前的水武藏，再往前是快一年前的狂鸭和一年多前的夹膜帝王花，2.4开始甚至懒得清体力刷新材料，你游真是越来越省钱省力了，真的要感谢叶哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72794#       发表于 2020-4-25 12:15
@@ -9072,7 +9072,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 我的情况是都没有刷过2.3之后的新材料，只是送的都没人可以吃完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72795#       发表于 2020-4-25 13:22
@@ -9081,7 +9081,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 去年情人节是最后一次氪金抽卡..日服做个无氪党白嫖太开心啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zhc016  
 ##### 72796#       发表于 2020-4-25 16:39
@@ -9090,7 +9090,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 真萌新，赶在应援任务结束前过了251嫖到了石头，252这么难的话真的不想碰了，py码是266172434，有无dalao施舍个好友位<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72797#       发表于 2020-4-25 18:04
@@ -9099,7 +9099,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 ２０００ｗｄｌ了　　自选５星会有吗（不会
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72798#       发表于 2020-4-25 18:06
@@ -9111,7 +9111,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新加你了　ｉｄ　nunnally
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72799#       发表于 2020-4-25 18:16
@@ -9120,7 +9120,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武藏。。app图标是不是也改成武藏好点
 
 
------
+*****
 
 ####  angelooo  
 ##### 72800#       发表于 2020-4-25 18:16
@@ -9129,7 +9129,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 看了个直播前一秒奶狂那下一秒武藏出来连声woc我笑傻了，yls真是天才
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72801#       发表于 2020-4-25 18:22
@@ -9138,7 +9138,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 这投票的选项4是哪个智障想出来的？2.52这傻屌一样的锁助战，找大腿有屁用……
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72802#       发表于 2020-4-25 18:32
@@ -9147,7 +9147,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这纪念票怕不是又一张4星自选 都2000w了 5星自选给一个啊（
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72803#       发表于 2020-4-25 18:34
@@ -9156,7 +9156,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 神🐴，今天有生放啊，不是刚发了公告长草🐎
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72804#       发表于 2020-4-25 18:36
@@ -9168,7 +9168,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 2.52绝大部分难度在于关键战强制锁助战锁前排<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72805#       发表于 2020-4-25 18:37
@@ -9177,7 +9177,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一个个情报和本萌新都没关系 什么剧情本0ap  free初回减半  萌新早全通了 哭了  
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72806#       发表于 2020-4-25 18:38
@@ -9186,7 +9186,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 跑车服这故宫博物院联动池子笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72807#       发表于 2020-4-25 18:41
@@ -9196,7 +9196,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 神必<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72808#       发表于 2020-4-25 18:45
@@ -9205,7 +9205,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 自选5星 有没有 搞快点（
 
 
------
+*****
 
 ####  rooarr  
 ##### 72809#       发表于 2020-4-25 18:45
@@ -9214,7 +9214,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 自选5星
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72810#       发表于 2020-4-25 18:46
@@ -9223,7 +9223,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 什么 真的自选5星？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 72811#       发表于 2020-4-25 18:46
@@ -9236,7 +9236,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 艹，没剧情限定的？牛逼
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72812#       发表于 2020-4-25 18:47
@@ -9245,7 +9245,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 艹，这什么辣鸡范围
 
 
------
+*****
 
 ####  v22325  
 ##### 72813#       发表于 2020-4-25 18:47
@@ -9254,7 +9254,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 自选五星！？包括限定么？？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72814#       发表于 2020-4-25 18:47
@@ -9263,7 +9263,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">南丁我来了（
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72815#       发表于 2020-4-25 18:48
@@ -9278,7 +9278,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 不包括啊 
 
 
------
+*****
 
 ####  炙热之狐  
 ##### 72816#       发表于 2020-4-25 18:48
@@ -9287,7 +9287,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="http://tiebapic.baidu.com/forum/pic/item/c404ba81800a19d820a3ad6c24fa828ba71e4676.jpg" referrerpolicy="no-referrer">草，这么一看我常驻缺好多
 
 
------
+*****
 
 ####  ネロ  
 ##### 72817#       发表于 2020-4-25 18:48
@@ -9298,7 +9298,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 是去弥补血沉的欧罗巴，还是老实的孔明呢……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72818#       发表于 2020-4-25 18:49
@@ -9312,7 +9312,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 作为海豹统领你居然没有孔明？
 
 
------
+*****
 
 ####  v22325  
 ##### 72819#       发表于 2020-4-25 18:49
@@ -9321,7 +9321,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 常驻我都少好多... 要小莫杰克贞德三选一了
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72820#       发表于 2020-4-25 18:50
@@ -9335,7 +9335,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 准备脚后跟或者杰克宝具+1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72821#       发表于 2020-4-25 18:51
@@ -9344,7 +9344,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我突然犹豫了。。到底选南丁好呢还是刑部姬呢 
 
 
------
+*****
 
 ####  ネロ  
 ##### 72822#       发表于 2020-4-25 18:51
@@ -9358,7 +9358,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 失明快4年
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 72823#       发表于 2020-4-25 18:51
@@ -9367,7 +9367,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 这些个常驻毫无吸引力<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72824#       发表于 2020-4-25 18:52
@@ -9376,7 +9376,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 没有强化本吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KOBI  
 ##### 72825#       发表于 2020-4-25 18:52
@@ -9387,7 +9387,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 战力角度没啥想要的啊
 
 
------
+*****
 
 ####  zhc016  
 ##### 72826#       发表于 2020-4-25 18:52
@@ -9399,7 +9399,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 其实是国服转过来的，就是觉得这种强制锁队伍的机制太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72827#       发表于 2020-4-25 18:55
@@ -9408,7 +9408,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 想了一下好像还是项羽宝具+1比较好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  希望之花  
 ##### 72828#       发表于 2020-4-25 18:57
@@ -9417,7 +9417,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">陈宫爆弹队最后的拼图：孔明
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72829#       发表于 2020-4-25 18:57
@@ -9429,7 +9429,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你打什么本能用到项羽
 
 
------
+*****
 
 ####  yiraer  
 ##### 72830#       发表于 2020-4-25 18:58
@@ -9438,7 +9438,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 真就叶和华呗，说要有光就全员复明了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 72831#       发表于 2020-4-25 18:59
@@ -9450,7 +9450,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">之前歪了项羽的说一下 狂全体绿暴击自带无敌贯通两暴击伤害还是挺好用的 主要是一个泛用性高 打什么都能上场 到手练了才发现他的好
 
 
------
+*****
 
 ####  rooarr  
 ##### 72832#       发表于 2020-4-25 18:59
@@ -9461,7 +9461,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 其他也都用不上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 72833#       发表于 2020-4-25 18:59
@@ -9470,7 +9470,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 想了一下，选刑部姬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  日夜百服淫  
 ##### 72834#       发表于 2020-4-25 18:59
@@ -9479,7 +9479,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 我宣布:叶良树的母亲暂时返回地球表面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72835#       发表于 2020-4-25 19:01
@@ -9491,7 +9491,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我在思考要圆我南丁之梦还是刑部姬之梦
 
 
------
+*****
 
 ####  fantuanxiaoyi  
 ##### 72836#       发表于 2020-4-25 19:01
@@ -9500,7 +9500,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 5年了，三战布姐，战到了就换个大象，不然就换个光。
 
 
------
+*****
 
 ####  rooarr  
 ##### 72837#       发表于 2020-4-25 19:01
@@ -9511,7 +9511,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 这两个二选一肯定是不行姬啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eden_hazard  
 ##### 72838#       发表于 2020-4-25 19:02
@@ -9520,7 +9520,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 看着这25个想了半天想不出选谁，想要的都有了甚至没什么补宝需求，在开个图鉴放仓库还是拿第二个盘子之间迷茫了
 
 
------
+*****
 
 ####  zhc016  
 ##### 72839#       发表于 2020-4-25 19:02
@@ -9529,7 +9529,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 好，萌新存石等梅林了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72840#       发表于 2020-4-25 19:04
@@ -9541,7 +9541,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">放我这儿的话，这表里我要其他人全都五宝了我都不会去选不刑（
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72841#       发表于 2020-4-25 19:05
@@ -9553,7 +9553,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们萌新讲究的是收藏 欧羡慕讲究实用 不一样的！
 
 
------
+*****
 
 ####  Blackson  
 ##### 72842#       发表于 2020-4-25 19:06
@@ -9562,7 +9562,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 到第4年了才做了其它手游早就做的事,看来玩家要多多做事让FGO好好挨打下
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72843#       发表于 2020-4-25 19:07
@@ -9579,7 +9579,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 同理还有清少纳言，属于由内而外的烦……
 
 
------
+*****
 
 ####  白清羽  
 ##### 72844#       发表于 2020-4-25 19:08
@@ -9588,7 +9588,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 真叶和华<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，换贞德组苟命队或者换个拉二补充骑阶单体都挺好的
 
 
------
+*****
 
 ####  zechins  
 ##### 72845#       发表于 2020-4-25 19:09
@@ -9597,7 +9597,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">换saitom，周年之前不骂叶二了，听说这次川澄又提一嘴c呆毛卫星，攒石头攒石头
 
 
------
+*****
 
 ####  kyonkoism  
 ##### 72846#       发表于 2020-4-25 19:09
@@ -9612,7 +9612,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dante888  
 ##### 72847#       发表于 2020-4-25 19:14
@@ -9624,7 +9624,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 刚在神祖池子把项羽歪满，我估计选个杰克或者小莫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72848#       发表于 2020-4-25 19:14
@@ -9638,7 +9638,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新思考了下。选南丁算了 说不定哪年能用到
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72849#       发表于 2020-4-25 19:15
@@ -9647,7 +9647,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 我是开个图鉴呢还是给大王补最后一宝呢（
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72850#       发表于 2020-4-25 19:15
@@ -9659,7 +9659,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72851#       发表于 2020-4-25 19:18
@@ -9670,7 +9670,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  麻花疼  
 ##### 72852#       发表于 2020-4-25 19:19
@@ -9685,7 +9685,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 最次的也要给个限定四星自选啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  希仪  
 ##### 72853#       发表于 2020-4-25 19:21
@@ -9702,7 +9702,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 —— 来自 HUAWEI ALP-AL00, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72854#       发表于 2020-4-25 19:22
@@ -9711,7 +9711,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 日服理论上应该选个狐狸凑蓝卡队或者选个贞德搭配梅林苟命组合，不过这两国服都有了实在没动力选阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72855#       发表于 2020-4-25 19:25
@@ -9725,7 +9725,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 好像这次送的不能拿盘子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 72856#       发表于 2020-4-25 19:27
@@ -9734,7 +9734,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想还是选杰克 有弓贞就当自己有了吧 反正打不过去就扔令咒 
 
 
------
+*****
 
 ####  音无奏  
 ##### 72857#       发表于 2020-4-25 19:30
@@ -9743,7 +9743,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">狐狸南丁贞德选谁好，其他拐都有了，感觉选了某一个接下来的池子肯定都会喜加一
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72858#       发表于 2020-4-25 19:32
@@ -9757,7 +9757,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 另外2个甩**吧（
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72859#       发表于 2020-4-25 19:33
@@ -9766,7 +9766,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">选个孔明后四拐就缺梅林了
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72860#       发表于 2020-4-25 19:43
@@ -9775,7 +9775,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 想一想还是阿脚3宝吧
 
 
------
+*****
 
 ####  薛定谔的小猫  
 ##### 72861#       发表于 2020-4-25 19:55
@@ -9784,7 +9784,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 自选牛逼！虽然这些常驻基本都有了，整个白贞还是挺美的
 
 
------
+*****
 
 ####  漆黑之花  
 ##### 72862#       发表于 2020-4-25 19:58
@@ -9795,7 +9795,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 皇女、贞德、呆毛、小太阳都想要，不过还是会选狐狸吧
 
 
------
+*****
 
 ####  D．Va  
 ##### 72863#       发表于 2020-4-25 20:08
@@ -9804,7 +9804,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 原来还有这么多人拐都没齐，看来我还算好的，这次就选女儿了
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72864#       发表于 2020-4-25 20:11
@@ -9815,7 +9815,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 看了下只有船长能选....到现在还没5星骑光炮....周回术阶本时都是让魔总和霸王花上的
 
 
------
+*****
 
 ####  白清羽  
 ##### 72865#       发表于 2020-4-25 20:25
@@ -9824,7 +9824,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 看了下这次没有大浪费加倍？攒了好多礼装等着搓丸子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72866#       发表于 2020-4-25 20:27
@@ -9840,7 +9840,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 你想再看到5星请期待3000W，以及即便有也肯定是先加上剧情池欧证，限定请期待4000W
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72867#       发表于 2020-4-25 20:29
@@ -9849,7 +9849,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 2000dl就这？送点石头狗粮送个常驻五星就完事了？强化本呢？武藏252戏份这么足，又是隔了两年快的复刻，结果到现在还是无幕间无宝具本无技能本的三无？再看看这回日替这堆限定，强化过两次的闪闪和布姐先放一边，武藏，狗蛋和黑贞都是0强化，bba、弓凛和达芬奇只有一个宝具本，弓凛技能组好又刚强化先不论，其几个完全可以每人捣鼓一个技能或者宝具本，毕竟都是18年以前的限定了，强度也就那么回事儿了，再随便找几个3，4星凑凑数，一波强化本活动不就来了。反正你游整个强化任务估计也就是十来分钟的事情，真就懒到敷衍我们一下都不肯？再不济，你开一波减半装作敷衍我们也行啊？狗粮修炼本全日开放就应付一个礼拜？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72868#       发表于 2020-4-25 20:33
@@ -9861,7 +9861,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72869#       发表于 2020-4-25 20:35
@@ -9888,7 +9888,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 更新：发现小玉满配要吃161根骨头，本来就不够（大公888好多年了），这得刷到猴年马月，还是拉二吧，看着顺眼点...
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72870#       发表于 2020-4-25 20:35
@@ -9898,7 +9898,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 红有狂鸭绿有人🐎，再也不用抽新光炮了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  薛定谔的小猫  
 ##### 72871#       发表于 2020-4-25 20:37
@@ -9909,7 +9909,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 已经仓鼠了900石头等着狂那复刻补宝了，其他的我什么都不想抽<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  红丽  
 ##### 72872#       发表于 2020-4-25 20:41
@@ -9924,7 +9924,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 要不三藏吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  34789  
 ##### 72873#       发表于 2020-4-25 20:49
@@ -9933,7 +9933,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 噫，我复明了！
 
 
------
+*****
 
 ####  LOLITA  
 ##### 72874#       发表于 2020-4-25 20:56
@@ -9945,7 +9945,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 要么还是项羽吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eilot  
 ##### 72875#       发表于 2020-4-25 21:13
@@ -9957,7 +9957,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 石就留來拼金閃閃
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 72876#       发表于 2020-4-25 21:33
@@ -9966,7 +9966,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看了这表才发现我一个福袋党居然大多数常驻都有了，项羽走起
 
 
------
+*****
 
 ####  alaya  
 ##### 72877#       发表于 2020-4-25 21:38
@@ -9975,7 +9975,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 其实常驻还是差不少，但是都是男人或者不想要，换个奶奶算了
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72878#       发表于 2020-4-25 21:54
@@ -9984,7 +9984,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 看了下日服box发现手上单体**就一个扶不起来的上杉..问一下一宝小恩的表现现在如何？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ネロ  
 ##### 72879#       发表于 2020-4-25 22:00
@@ -9999,7 +9999,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 打神性和人类之敌时挺全面的
 
 
------
+*****
 
 ####  sosgame67  
 ##### 72880#       发表于 2020-4-25 22:02
@@ -10013,7 +10013,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 回忆252有几个boss上小恩还挺不错的..（不过我狐狸和宙斯是直接狼王绿卡队过了），未来的高难也说不准<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72881#       发表于 2020-4-25 22:29
@@ -10024,7 +10024,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 貌似好几年没出过全FREE本AP减半的活动了，主线倒是打到了十折，还是有点小气啊
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72882#       发表于 2020-4-25 23:24
@@ -10033,7 +10033,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">发现个问题 我怎么没看到在哪换棉被王的灵衣
 
 
------
+*****
 
 ####  rooarr  
 ##### 72883#       发表于 2020-4-25 23:42
@@ -10044,7 +10044,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 棉被有灵衣？
 
 
------
+*****
 
 ####  yangun22  
 ##### 72884#       发表于 2020-4-25 23:46
@@ -10053,7 +10053,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 还好大公还是宝具4，不然真变送金方块了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72885#       发表于 2020-4-25 23:47
@@ -10065,7 +10065,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有 那个简易  然后和那什么一起延期了 还没实装
 
 
------
+*****
 
 ####  rooarr  
 ##### 72886#       发表于 2020-4-25 23:49
@@ -10076,7 +10076,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 那不就是还没有<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  reekilynn  
 ##### 72887#       发表于 2020-4-26 01:16
@@ -10088,7 +10088,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  薛定谔的小猫  
 ##### 72888#       发表于 2020-4-26 01:35
@@ -10099,7 +10099,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 251附近出过2章free减半的活动吧，那波基本上把free清完了
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 72889#       发表于 2020-4-26 01:53
@@ -10114,7 +10114,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 印象里600WDL斯卡哈UP那时候有这个活动来着，2017年，后来就没印象了
 
 
------
+*****
 
 ####  鱼缸  
 ##### 72890#       发表于 2020-4-26 05:59
@@ -10123,7 +10123,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 换个盘子等新卡了
 
 
------
+*****
 
 ####  khxooo  
 ##### 72891#       发表于 2020-4-26 06:14
@@ -10132,7 +10132,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 又要住夏洛特了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72892#       发表于 2020-4-26 07:42
@@ -10143,7 +10143,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 送的卡没有盘子
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72893#       发表于 2020-4-26 07:44
@@ -10152,7 +10152,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">竟然还没实装 我还以为错过了之类的
 
 
------
+*****
 
 ####  卡蓮  
 ##### 72894#       发表于 2020-4-26 09:28
@@ -10161,7 +10161,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">发现常驻缺一大堆的就我一个？
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72895#       发表于 2020-4-26 09:29
@@ -10173,7 +10173,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我也缺一堆啊
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72896#       发表于 2020-4-26 10:10
@@ -10188,7 +10188,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  dante888  
 ##### 72897#       发表于 2020-4-26 10:55
@@ -10199,7 +10199,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 送五星有啥好不满的，除非你是全常驻都满宝这次盘子都拿不到的，其他情况送五星不比开强化本什么的强得多？强化本一直在开，何必又要放2000wdl呢，不稀罕送五星的先把自己的box亮出来看看啊
 
 
------
+*****
 
 ####  kulanyee  
 ##### 72898#       发表于 2020-4-26 11:30
@@ -10208,7 +10208,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">从未专门抽过常驻五星，第一部的给歪齐了，叶氏池子最高纪录3连歪。
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72899#       发表于 2020-4-26 12:16
@@ -10226,7 +10226,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 还有，戾气别那么重，动不动就亮bos，我的box确实听寒酸的，图鉴大概还有4，5个位置黑着，5宝的5星也不到30个，box比我豪华的多了去了，但是常驻5星还真没啥好稀罕的，3宝以下常驻也就一年都不见得用一次的拉二和刚出的奥德修斯双子了，然而后两个还不给换<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 72900#       发表于 2020-4-26 12:24
@@ -10239,7 +10239,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 强化本也能算活动？
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72901#       发表于 2020-4-26 12:26
@@ -10250,7 +10250,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  kulanyee  
 ##### 72902#       发表于 2020-4-26 12:43
@@ -10264,7 +10264,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这2000W DL正是黄金周活动鸽了才拿出来的啊
 
 
------
+*****
 
 ####  風卷豹  
 ##### 72903#       发表于 2020-4-26 13:29
@@ -10275,7 +10275,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 —— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  dante888  
 ##### 72904#       发表于 2020-4-26 13:30
@@ -10286,7 +10286,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 其实公告有写，五一会开复刻活动，我猜有可能会把鸽掉的圣诞复刻拿出来，无非就是开个复刻活动给联动拖拖时间
 
 
------
+*****
 
 ####  eilot  
 ##### 72905#       发表于 2020-4-26 14:28
@@ -10300,7 +10300,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 之前的Interludes 就是用聖誕阿提拉來冷飯，要來就只有聖誕南丁或羽蛇神?
 
 
------
+*****
 
 ####  khxooo  
 ##### 72906#       发表于 2020-4-26 14:53
@@ -10313,7 +10313,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 羽蛇神圣诞没有复刻过。上一年是直接新圣诞没有复刻。
 
 
------
+*****
 
 ####  贤娘萌娘  
 ##### 72907#       发表于 2020-4-26 15:03
@@ -10322,7 +10322,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 五星术单体光炮都没有，按理说应该换个三藏，光炮可以靠狂阶顶，但是也有点想把项羽接回来和虞姬团圆，还有1001我也挺喜欢的
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72908#       发表于 2020-4-26 15:25
@@ -10334,7 +10334,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 当时有个猜测是因为桑巴圣诞有尤卡坦的捏他所以大概留在2.7前面再复刻了
 
 
------
+*****
 
 ####  eyeego  
 ##### 72909#       发表于 2020-4-26 15:26
@@ -10343,7 +10343,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 按时间来讲应该是复刻大奥了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72910#       发表于 2020-4-26 15:28
@@ -10358,7 +10358,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 不过主线活动除了CCC和大奥以外没有其他例子了，仅此两个。可能那个黑点会是第三个
 
 
------
+*****
 
 ####  eilot  
 ##### 72911#       发表于 2020-4-26 16:07
@@ -10376,7 +10376,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 還有再懶的話，虚月館或鳴鳳荘...連戰鬥差不多都沒有，反正都是拖到聯動活動
 
 
------
+*****
 
 ####  khxooo  
 ##### 72912#       发表于 2020-4-26 16:26
@@ -10390,7 +10390,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 连续复刻圣诞有什么不可能，一个是尝试活动轻量复刻，刷本和池子都没有，只有主线给你。一个是活动的常规复刻，没有冲突阿。现在连自选5星都给你搞出来了，还有什么操作不可能？
 
 
------
+*****
 
 ####  rooarr  
 ##### 72913#       发表于 2020-4-26 16:31
@@ -10401,7 +10401,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 还不如复刻万圣龙娘呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eilot  
 ##### 72914#       发表于 2020-4-26 16:38
@@ -10417,7 +10417,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 萬聖系應該全留在INTERLUDES吧...
 
 
------
+*****
 
 ####  khxooo  
 ##### 72915#       发表于 2020-4-26 16:43
@@ -10430,7 +10430,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 因为按照正常情况下应该复刻的羽蛇神圣诞没有复刻，这一次是很好的机会补回来，日本那边是黄金周，出个无限池刷刷刷更好让日本那群宅有事做，而且刚好选了新五星，那么大的qp需求刚好来个无限池来填补缺口。
 
 
------
+*****
 
 ####  khxooo  
 ##### 72916#       发表于 2020-4-26 16:48
@@ -10443,7 +10443,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 当然这个只是猜测，叶良树复刻其他活动也不奇怪，我只是综合这么多考虑作出这样的猜测而已。
 
 
------
+*****
 
 ####  抹布味道好  
 ##### 72917#       发表于 2020-4-26 16:58
@@ -10457,7 +10457,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 按时间的话这会儿应该复刻guda4
 
 
------
+*****
 
 ####  武の炽羽  
 ##### 72918#       发表于 2020-4-27 12:32
@@ -10477,7 +10477,7 @@ Yls：为什么要搞这些福利。拿好第7天的呼符滚吧<img src="https:
 说真的去年叶鸽鸽没妇科圣诞本身就是不走寻常路了，当时也被骂得够呛，现在开个完整版妇科简直是win-win。
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72919#       发表于 2020-4-27 13:48
@@ -10496,7 +10496,7 @@ DW现在算不上小破社，员工数加起来是起家时候的十几倍了。
 你还记得那个桑巴羽蛇神宝具和活动中都暗示了带来外星菌种的希克苏伯陨石吗，那个可能是去年跳过的原因了
 
 
------
+*****
 
 ####  eilot  
 ##### 72920#       发表于 2020-4-28 22:40
@@ -10521,7 +10521,7 @@ DW现在算不上小破社，员工数加起来是起家时候的十几倍了。
 以前配佈的4星水著劍，再沒有任何BUFF的情況下可以一擊10萬以上，有黑杯再加其他BUFF應該能打下一條血條，而她本身有GUTS，可以用來硬吃寶具用，最理想是打了兩條血後就可以去死了...再懶一點3次令咒打3條血，其中一次有5次無敵時就隨便不停轉人來打，最後一條隨便打
 
 
------
+*****
 
 ####  khxooo  
 ##### 72921#       发表于 2020-4-28 23:22
@@ -10530,7 +10530,7 @@ DW现在算不上小破社，员工数加起来是起家时候的十几倍了。
 明天就能复明了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  武の炽羽  
 ##### 72922#       发表于 2020-4-29 05:28
@@ -10544,7 +10544,7 @@ DW现在算不上小破社，员工数加起来是起家时候的十几倍了。
 这个求详细<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72923#       发表于 2020-4-29 09:36
@@ -10573,7 +10573,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 第二制作部在2018年底（刚改组后）是招过人的，而且很搞的是，招的是“三代目”（叶的继承人），应募者寥寥。去年的社招就没怎么提到第二制作部了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72924#       发表于 2020-4-29 17:13
@@ -10582,7 +10582,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">换完了 那么问题来了 哪个free羁绊效率最高
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72925#       发表于 2020-4-29 17:34
@@ -10591,7 +10591,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">还要绊5才行....真是想方设法恶心你
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72926#       发表于 2020-4-29 17:38
@@ -10600,7 +10600,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">算了 我去刷新材料混羁绊。。 
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72927#       发表于 2020-4-29 17:39
@@ -10612,7 +10612,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才5 真要恶心你应该10才对
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72928#       发表于 2020-4-29 17:42
@@ -10621,7 +10621,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">维护了
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72929#       发表于 2020-4-29 17:42
@@ -10632,7 +10632,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  longrider  
 ##### 72930#       发表于 2020-4-29 17:43
@@ -10641,7 +10641,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 维护，不出意料<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72931#       发表于 2020-4-29 17:43
@@ -10650,7 +10650,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 突然维护<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 72932#       发表于 2020-4-29 17:43
@@ -10659,7 +10659,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">我刚嗑了个苹果
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72933#       发表于 2020-4-29 17:44
@@ -10668,7 +10668,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 炸了？
 
 
------
+*****
 
 ####  白清羽  
 ##### 72934#       发表于 2020-4-29 17:45
@@ -10677,7 +10677,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 正喂狗粮呢忽然维护了，是出了bug有人领了好几十个五星吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zhc016  
 ##### 72935#       发表于 2020-4-29 17:46
@@ -10686,7 +10686,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 被踢出来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ggyy0088  
 ##### 72936#       发表于 2020-4-29 17:47
@@ -10695,7 +10695,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 新五星两倍经验有bug，选狗粮的时候不算两倍，实际升级的时候又算两倍经验，差点被坑一波
 
 
------
+*****
 
 ####  LOLITA  
 ##### 72937#       发表于 2020-4-29 17:49
@@ -10704,7 +10704,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 趁着维护再纠结一波，项羽还是不刑<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72938#       发表于 2020-4-29 17:54
@@ -10716,7 +10716,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 有可比性吗？除了厨外无脑项羽<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 72939#       发表于 2020-4-29 17:59
@@ -10727,7 +10727,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 我都喂满了...
 
 
------
+*****
 
 ####  氤墨  
 ##### 72940#       发表于 2020-4-29 17:59
@@ -10736,7 +10736,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 项羽现在强度很不错么？ 单体术有伊莉雅感觉不太顺手，在想换项羽还是三藏
 
 
------
+*****
 
 ####  ggyy0088  
 ##### 72941#       发表于 2020-4-29 18:04
@@ -10747,7 +10747,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">等会儿看下溢出的狗粮有没有补偿吧
 
 
------
+*****
 
 ####  rooarr  
 ##### 72942#       发表于 2020-4-29 18:05
@@ -10758,7 +10758,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 1宝项羽体验很一般<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72943#       发表于 2020-4-29 18:12
@@ -10770,7 +10770,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">把1去掉换成5！
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72944#       发表于 2020-4-29 18:12
@@ -10782,7 +10782,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">真这么干的话就该等着被炎上然后出一波道歉公告再送一张限定5星自选票了（做梦
 
 
------
+*****
 
 ####  LOLITA  
 ##### 72945#       发表于 2020-4-29 18:24
@@ -10794,7 +10794,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 有啊。对我来说都没啥用。。。不然为啥纠结呢<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 72946#       发表于 2020-4-29 18:38
@@ -10803,7 +10803,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 咋肥事啊，咸鱼今天还没上去过呢，咋就维护了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72947#       发表于 2020-4-29 19:04
@@ -10815,7 +10815,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 项羽最起码可以周回打一炮，有用那么一点点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  miro112233  
 ##### 72948#       发表于 2020-4-29 19:29
@@ -10824,7 +10824,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 修双倍经验不显示的bug要修这么久吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72949#       发表于 2020-4-29 20:08
@@ -10835,7 +10835,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 9点居然是公布情况而不是开服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72950#       发表于 2020-4-29 20:30
@@ -10844,7 +10844,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我不在乎那点狗粮 能让我先进去选完角色么
 
 
------
+*****
 
 ####  eilot  
 ##### 72951#       发表于 2020-4-29 21:16
@@ -10853,7 +10853,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 選了小恩，升到4突，突然維護...
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72952#       发表于 2020-4-29 21:18
@@ -10862,7 +10862,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 维护完了这帮傻屌也不发公告……
 
 
------
+*****
 
 ####  khxooo  
 ##### 72953#       发表于 2020-4-29 21:37
@@ -10871,7 +10871,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 看了看，显示问题好像也没有解决，还是那样？
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72954#       发表于 2020-4-29 21:38
@@ -10883,7 +10883,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 “问题的原因太难找，我们放弃了，游戏先开了再说”
 
 
------
+*****
 
 ####  白清羽  
 ##### 72955#       发表于 2020-4-29 21:40
@@ -10892,7 +10892,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 喂到三破了才发现bug根本没修<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72956#       发表于 2020-4-29 21:41
@@ -10904,7 +10904,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 我只能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">了
 
 
------
+*****
 
 ####  suibiankk  
 ##### 72957#       发表于 2020-4-29 21:43
@@ -10913,7 +10913,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 所以双倍经验有还是木有？顺便问一下去哪刷羁绊快捷方便<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72958#       发表于 2020-4-29 21:46
@@ -10926,7 +10926,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过空刷有点亏 我选择去新地图刷新材料 好歹有点用
 
 
------
+*****
 
 ####  khxooo  
 ##### 72959#       发表于 2020-4-29 21:47
@@ -10938,7 +10938,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 双倍经验一直都有，就是显示有问题而已。纯刷羁绊去6章隐村/大神殿，隐村只有2面，速度很快大神殿羁绊最高。，不过我选择去夏洛特，反正要刷灰。
 
 
------
+*****
 
 ####  suibiankk  
 ##### 72960#       发表于 2020-4-29 21:48
@@ -10947,7 +10947,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 哦哦，谢谢2位
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72961#       发表于 2020-4-29 21:49
@@ -10956,7 +10956,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么你们都要刷灰，我仓库里还有500多没地方用……
 
 
------
+*****
 
 ####  rooarr  
 ##### 72962#       发表于 2020-4-29 22:08
@@ -10965,7 +10965,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 项羽喜+1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 72963#       发表于 2020-4-29 22:21
@@ -10974,7 +10974,7 @@ DW在2018年下半年改组的信息网上能直接查到吧
 ap效率不知道是哪，时间效率肯定是隐村
 
 
------
+*****
 
 ####  khxooo  
 ##### 72964#       发表于 2020-4-29 22:35
@@ -10983,7 +10983,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 孔明的羁绊果然和BBA一样在最高那一档<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72965#       发表于 2020-4-29 23:19
@@ -10992,7 +10992,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 缺小莫阿脚1001不邢大公项羽，六选一感觉哪个都不太想要<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 72966#       发表于 2020-4-29 23:27
@@ -11001,7 +11001,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 310了一只德日混血的明日象<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zhc016  
 ##### 72967#       发表于 2020-4-29 23:34
@@ -11010,7 +11010,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 孔老师刷羁绊好累，诶，萌新好像252还没打<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 72968#       发表于 2020-4-30 00:09
@@ -11019,7 +11019,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 刷完了，可以安心了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 72969#       发表于 2020-4-30 06:46
@@ -11028,7 +11028,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">送的石头果然没有灵魂 全是绿方块石头再次归零
 
 
------
+*****
 
 ####  薛定谔的小猫  
 ##### 72970#       发表于 2020-4-30 08:08
@@ -11037,7 +11037,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 作为本格仓鼠free石头终于突破1000了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72971#       发表于 2020-4-30 08:09
@@ -11049,7 +11049,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.35)
 
 
------
+*****
 
 ####  kulanyee  
 ##### 72972#       发表于 2020-4-30 08:42
@@ -11060,7 +11060,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 欧罗巴5级只要1万羁绊，石像神则需要4万<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zhc016  
 ##### 72973#       发表于 2020-4-30 09:06
@@ -11069,7 +11069,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 送的石头果然没有灵魂 全是绿方块石头再次归零<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">我的紫妈呀
 
 
------
+*****
 
 ####  v22325  
 ##### 72974#       发表于 2020-4-30 10:08
@@ -11078,7 +11078,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">攒了几百个石头 本来打算抽泳装兔女郎和莉莉丝 想想还是今天晚上抽黑贞 我就不信了 屡战屡败不至于吧
 
 
------
+*****
 
 ####  zechins  
 ##### 72975#       发表于 2020-4-30 10:23
@@ -11087,7 +11087,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 <img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">刷绊比我想象中费事儿…2倍exp加持下从0开始种火已经快90级了，绊才2格
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72976#       发表于 2020-4-30 10:32
@@ -11102,7 +11102,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.35)
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 72977#       发表于 2020-4-30 10:33
@@ -11114,7 +11114,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 种火本的羁绊获取效率不好吧
 
 
------
+*****
 
 ####  zechins  
 ##### 72978#       发表于 2020-4-30 10:37
@@ -11126,7 +11126,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 是的，一次就600多点，本来以为刷到90级应该多多少少能过半<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LOLITA  
 ##### 72979#       发表于 2020-4-30 17:02
@@ -11135,7 +11135,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 最后换了不刑，真是可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 72980#       发表于 2020-4-30 23:09
@@ -11144,7 +11144,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">80抽 1四星…………我喷了
 
 
------
+*****
 
 ####  rooarr  
 ##### 72981#       发表于 2020-4-30 23:11
@@ -11153,7 +11153,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 居然没海豹<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 72982#       发表于 2020-4-30 23:11
@@ -11162,7 +11162,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 懒人给大王补了五宝，萌新终于有满宝五星了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 72983#       发表于 2020-4-30 23:36
@@ -11174,7 +11174,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新想豹 但是没卡池能抽啊
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72984#       发表于 2020-4-30 23:36
@@ -11186,7 +11186,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">都说你flag立起来了……
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72985#       发表于 2020-5-1 00:21
@@ -11197,7 +11197,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 72986#       发表于 2020-5-1 00:26
@@ -11206,7 +11206,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 11单抽4张新年呆毛，只能硬着头皮抽满破了，那个女人也没来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 72987#       发表于 2020-5-1 00:54
@@ -11215,7 +11215,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 虽然有了超人熊以后基本没用过黑贞了，但是1宝看着扎眼还是打算抽一单看看能不能到2宝。结果5个呼符扔下去居然出货了，遵循真香定律又追了2发11连，居然又出了1个，不愧是迦勒底最好搞定的女人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sin.yugi  
 ##### 72988#       发表于 2020-5-1 02:45
@@ -11226,7 +11226,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 — from OnePlus GM1917, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
------
+*****
 
 ####  v22325  
 ##### 72989#       发表于 2020-5-1 05:50
@@ -11238,7 +11238,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">追那个女人第五年 每个池子都抽 加起来也不少了 阿贞她不爱我
 
 
------
+*****
 
 ####  扎比子  
 ##### 72990#       发表于 2020-5-1 08:07
@@ -11247,7 +11247,7 @@ ap效率不知道是哪，时间效率肯定是隐村
 不是是黄金周开复刻活动吗怎么一点信儿都没有，要不正好别开了我好安心打ff7re（）
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72991#       发表于 2020-5-1 10:17
@@ -11258,7 +11258,7 @@ dc被封了
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  阿提拉  
 ##### 72992#       发表于 2020-5-1 12:02
@@ -11269,7 +11269,7 @@ dc被封了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  khxooo  
 ##### 72993#       发表于 2020-5-1 16:49
@@ -11278,7 +11278,7 @@ dc被封了
 难道突然大量氪金被封了？
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 72994#       发表于 2020-5-1 17:12
@@ -11290,7 +11290,7 @@ dc被封了
 嗯？说的不是逼站被封吗？还是说和外野的那帖子不是一件事？
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 72995#       发表于 2020-5-1 17:54
@@ -11302,7 +11302,7 @@ dc被封了
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 72996#       发表于 2020-5-1 17:57
@@ -11313,7 +11313,7 @@ dc被封了
 草我还以为是fgo呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kulanyee  
 ##### 72997#       发表于 2020-5-1 18:00
@@ -11327,7 +11327,7 @@ dc被封了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黄金周最后一天发公告也算啊（
 
 
------
+*****
 
 ####  khxooo  
 ##### 72998#       发表于 2020-5-1 18:00
@@ -11336,7 +11336,7 @@ dc被封了
 5发11连黑贞到手，还是忍不住啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 72999#       发表于 2020-5-1 21:26
@@ -11345,7 +11345,7 @@ dc被封了
 给黑贞补个2宝出了2张宝石.....入坑4年终于咱也是有满破宝石的人了....泪流满面<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73000#       发表于 2020-5-1 21:29
@@ -11357,7 +11357,7 @@ dc被封了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熟悉的id 熟悉的豹跳  欧 超级羡慕（
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73001#       发表于 2020-5-1 21:34
@@ -11372,7 +11372,7 @@ dc被封了
 我看你就是想抬杠
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73002#       发表于 2020-5-1 21:36
@@ -11387,7 +11387,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 黑贞有什么用 宝石才是欧症（
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73003#       发表于 2020-5-1 21:38
@@ -11404,7 +11404,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 而黑贞……我当年50连3宝（
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73004#       发表于 2020-5-1 21:52
@@ -11421,7 +11421,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 还有那些老的礼装...绿樱..麒麟臂...黑杯...白杯...魔性菩萨什么的都没满破....真够不上被你的マブダチ喊豹跳
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73005#       发表于 2020-5-1 22:00
@@ -11436,7 +11436,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">揍他就好
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73006#       发表于 2020-5-1 22:14
@@ -11445,7 +11445,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">有一说一 每次金闪闪卡池萌新也都抽了  可至今没开图鉴 为什么会这样呢
 
 
------
+*****
 
 ####  rooarr  
 ##### 73007#       发表于 2020-5-1 22:43
@@ -11456,7 +11456,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 要先祈祷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73008#       发表于 2020-5-1 23:01
@@ -11468,7 +11468,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 阿闪觉得你不是萌新了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eilot  
 ##### 73009#       发表于 2020-5-1 23:14
@@ -11479,7 +11479,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 現在儲了120石準備星期2再拼多一次金閃閃池
 
 
------
+*****
 
 ####  khxooo  
 ##### 73010#       发表于 2020-5-2 01:41
@@ -11494,7 +11494,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 宝石翁才是你游人权卡，当然是你更豹好不<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73011#       发表于 2020-5-2 17:27
@@ -11505,7 +11505,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  exiaexa  
 ##### 73012#       发表于 2020-5-2 17:39
@@ -11523,7 +11523,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  虎克别音  
 ##### 73013#       发表于 2020-5-2 17:46
@@ -11532,7 +11532,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 运营的脑子还是不行，连续修bug，今天又要强制更新，ios甚至卡审核，但玩家缺的不是狗粮，是活动。这下ios卡审核，活动更加开不了。
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73014#       发表于 2020-5-2 17:52
@@ -11547,7 +11547,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73015#       发表于 2020-5-2 21:20
@@ -11556,7 +11556,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 趁着主线免费把252打完了，除了被初见杀了几次都轻松过了，现在主线怎么越来越简单了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  satanas  
 ##### 73016#       发表于 2020-5-3 01:35
@@ -11571,7 +11571,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 由于1001实在过于对策卡了 技能在xjbd时又有两个基本用不上 于是刚好形成了很白热化的纠结
 
 
------
+*****
 
 ####  johnkamsar  
 ##### 73017#       发表于 2020-5-3 09:51
@@ -11580,7 +11580,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">选了一个皇女当打手补box了，日服啥都没实在太惨了....
 
 
------
+*****
 
 ####  鱼缸  
 ##### 73018#       发表于 2020-5-3 10:42
@@ -11593,7 +11593,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 十宝拿破仑 黑贞达芬奇也都补完五宝了 还剩一个十连 舒服
 
 
------
+*****
 
 ####  阿姆罗二世  
 ##### 73019#       发表于 2020-5-3 11:09
@@ -11604,7 +11604,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  阿提拉  
 ##### 73020#       发表于 2020-5-3 11:16
@@ -11615,7 +11615,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73021#       发表于 2020-5-3 11:23
@@ -11624,7 +11624,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 果然远程办公的效率就是低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73022#       发表于 2020-5-3 11:33
@@ -11633,7 +11633,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 魔信这强化…………
 
 
------
+*****
 
 ####  rooarr  
 ##### 73023#       发表于 2020-5-3 12:09
@@ -11642,7 +11642,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 看来内部对于卡强度还是很有数的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 73024#       发表于 2020-5-3 12:38
@@ -11651,7 +11651,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">仇信都强化了 那么艾蕾和宇宙凛不来个宝具本么
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73025#       发表于 2020-5-3 12:50
@@ -11662,7 +11662,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  sosgame67  
 ##### 73026#       发表于 2020-5-3 13:05
@@ -11671,7 +11671,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 总司本体果然是完美无缺完全不需要强化啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 73027#       发表于 2020-5-3 13:05
@@ -11680,7 +11680,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 还以为是圣诞呢，打脸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 73028#       发表于 2020-5-3 14:14
@@ -11689,7 +11689,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然虚某人这波100%在yygq，但是法特吧想炎上又发现下不去嘴实在好笑了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73029#       发表于 2020-5-3 14:26
@@ -11698,7 +11698,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这强化的 萌新一个都没有  石头混不到了
 
 
------
+*****
 
 ####  qixinno2  
 ##### 73030#       发表于 2020-5-3 15:29
@@ -11707,7 +11707,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">竟然还有萌新没有的卡
 
 
------
+*****
 
 ####  薛定谔的小猫  
 ##### 73031#       发表于 2020-5-3 17:06
@@ -11718,7 +11718,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 宇宙凛那卡的正正好好的49怎么看都是故意的
 
 
------
+*****
 
 ####  eilot  
 ##### 73032#       发表于 2020-5-3 17:23
@@ -11727,7 +11727,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 復刻活動是上衫姊姊...
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73033#       发表于 2020-5-3 17:25
@@ -11736,7 +11736,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 草，怎么突然复刻了，这是不是那个每次进本都要先放一遍弱智语音的活动<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 73034#       发表于 2020-5-3 17:43
@@ -11745,7 +11745,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 魔总这强化是不是实锤唯一神和yls有仇23333，以及这活动终于舍得给石头了啊
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73035#       发表于 2020-5-3 17:44
@@ -11754,7 +11754,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 魔总的强化倍率悲剧了
 
 
------
+*****
 
 ####  khxooo  
 ##### 73036#       发表于 2020-5-3 17:54
@@ -11763,7 +11763,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 20?3次？<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73037#       发表于 2020-5-3 17:57
@@ -11772,7 +11772,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你们惊讶什么  不是意料之中吗
 
 
------
+*****
 
 ####  zhc016  
 ##### 73038#       发表于 2020-5-3 18:51
@@ -11783,7 +11783,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 噢，看到了，编辑了
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73039#       发表于 2020-5-3 18:55
@@ -11795,7 +11795,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这人在说什么怪话，你第一次打复刻？
 
 
------
+*****
 
 ####  eilot  
 ##### 73040#       发表于 2020-5-3 20:13
@@ -11804,7 +11804,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 不知道今次新角會否就是柴田你...每回合加防再疊加防，就好像仇信每回合再加攻(但每回合扣血也...)，不過玩家版本會改成如何...
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73041#       发表于 2020-5-3 20:29
@@ -11813,7 +11813,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 草，刚刚在仁王那边被柴田打出屎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后想起来这边也有柴田
 
 
------
+*****
 
 ####  sosgame67  
 ##### 73042#       发表于 2020-5-4 06:53
@@ -11822,7 +11822,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 柴田的模组还没做好么..去年就只有平a模型
 
 
------
+*****
 
 ####  khxooo  
 ##### 73043#       发表于 2020-5-4 09:45
@@ -11831,7 +11831,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 有钱在报纸登广告，没钱改善游戏体验，日常迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xpisces  
 ##### 73044#       发表于 2020-5-4 10:34
@@ -11840,7 +11840,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 社会现象·jpg
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73045#       发表于 2020-5-4 10:43
@@ -11849,7 +11849,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 骗进坑的韭菜已经没有糊弄的价值了，懂不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73046#       发表于 2020-5-4 11:30
@@ -11858,7 +11858,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 老玩家不如狗系列<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kulanyee  
 ##### 73047#       发表于 2020-5-4 12:34
@@ -11867,7 +11867,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">DC好像解禁了
 
 
------
+*****
 
 ####  風卷豹  
 ##### 73048#       发表于 2020-5-4 16:45
@@ -11878,7 +11878,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 —— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73049#       发表于 2020-5-4 19:35
@@ -11889,7 +11889,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 73050#       发表于 2020-5-4 19:47
@@ -11904,7 +11904,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 看今年还是用之前的模组也知道今年估计没戏了。
 
 
------
+*****
 
 ####  kulanyee  
 ##### 73051#       发表于 2020-5-5 17:12
@@ -11913,7 +11913,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 上一个送新四星的活动是11月28号的圣诞节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73052#       发表于 2020-5-5 18:00
@@ -11924,7 +11924,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73053#       发表于 2020-5-5 18:53
@@ -11936,7 +11936,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 上次王哈强化和1900W DL被拆出来的时候，假舅舅就说艾蕾基本不会得到强化了
 
 
------
+*****
 
 ####  eilot  
 ##### 73054#       发表于 2020-5-6 11:39
@@ -11947,7 +11947,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 第一層都算好，第2層如果不是自己連技，和上回合開技1後疊了一回合的再加攻，再沒有人有領袖這類全體加攻幫手，連3萬血都未必殺到
 
 
------
+*****
 
 ####  rooarr  
 ##### 73055#       发表于 2020-5-6 15:32
@@ -11956,7 +11956,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 5th.fate-go.jp这个网站我怎么打不开，开不开代理都是一片黑屏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gxliv  
 ##### 73056#       发表于 2020-5-6 16:06
@@ -11965,7 +11965,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 这网站用chrome开会黑屏，火狐没问题
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 73057#       发表于 2020-5-8 10:41
@@ -11974,7 +11974,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 不能让楼里两天没人说话，我终于有月球董卿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  reekilynn  
 ##### 73058#       发表于 2020-5-8 12:52
@@ -11986,7 +11986,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  rooarr  
 ##### 73059#       发表于 2020-5-8 13:05
@@ -11995,7 +11995,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 布妹连掉两个礼装<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73060#       发表于 2020-5-8 14:25
@@ -12014,7 +12014,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 喜欢的话可以抽，不喜欢的话pass也没关系吧……
 
 
------
+*****
 
 ####  khxooo  
 ##### 73061#       发表于 2020-5-8 15:28
@@ -12026,7 +12026,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 如果需要的话可以抽一下，毕竟50自冲加30缓冲，还有宝具本，但是我更喜欢日服的皇女，毕竟天赋的弱智非常影响伤害。
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73062#       发表于 2020-5-8 19:57
@@ -12035,7 +12035,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">萌新又把石头全砸了 无事发生 连个new都没 甚至连个活动理装都没出
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73063#       发表于 2020-5-8 20:28
@@ -12047,7 +12047,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 加怪数量的活动还是挺好用的，圣杯奇谭那种抱一个掉落加成的魔神冲田然后达芬奇尼托去刷杀狂本还算方便<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eilot  
 ##### 73064#       发表于 2020-5-9 01:14
@@ -12065,7 +12065,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 寶1打相克曜日雜兵或活動，只靠自己技1可以每隻都有7萬以上傷害，打同職都有3萬以上，比起2部角色還沒有技或寶具強化的藍卡光炮傷害好得多，皇女那寶具是打完才降防，就算本人技能有全隊強化，但打曜日或活動雜兵，打同職只得寶1，傷害未必去到2萬4，雜兵有機會不死...
 
 
------
+*****
 
 ####  kulanyee  
 ##### 73065#       发表于 2020-5-9 08:15
@@ -12077,7 +12077,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">文西这个称呼我第一时间反应就是罗家英
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 73066#       发表于 2020-5-10 04:02
@@ -12086,7 +12086,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">如果大碧池宝具前置是蓝魔方就能当伪70自充用了，而且buff种类不同伤害也会高一些，唯一屎玩的好啊
 
 
------
+*****
 
 ####  khxooo  
 ##### 73067#       发表于 2020-5-10 23:41
@@ -12095,7 +12095,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 找了个阿特拉斯婴儿的阿比和柴田大战20多个回合终于过去了，记错以为柴田的Buff可解，本想退出的，但是想试一下，就过去了。不过也是打到最后月神收人头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  武の炽羽  
 ##### 73068#       发表于 2020-5-13 10:22
@@ -12106,7 +12106,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 这个胖凯撒现在是真的顶，最后一面宝具buff全中顶着辣么多盾宝具打了130W+，都把我看傻了
 
 
------
+*****
 
 ####  阿提拉  
 ##### 73069#       发表于 2020-5-13 16:56
@@ -12115,7 +12115,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">双子设定文本抄袭专门出个公告来道歉，公开处刑
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73070#       发表于 2020-5-13 16:58
@@ -12128,7 +12128,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 [https://www.bilibili.com/video/BV1Yt411L7RL/](https://www.bilibili.com/video/BV1Yt411L7RL/)
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73071#       发表于 2020-5-13 17:56
@@ -12140,7 +12140,7 @@ LS那个50连抽到黑贞的你不说话.....入坑4年才有满破宝石的都�
 以往透明的这人靠这事终于刷了一波存在感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 73072#       发表于 2020-5-13 19:40
@@ -12154,7 +12154,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 我没有狗蛋<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sqd  
 ##### 73073#       发表于 2020-5-13 22:37
@@ -12163,7 +12163,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 恭喜你游喜提索尼点名通报业绩下滑<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">建议五周年把叶二换下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73074#       发表于 2020-5-13 23:19
@@ -12172,7 +12172,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 然后换人了下滑的更严重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73075#       发表于 2020-5-14 00:24
@@ -12181,7 +12181,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 5年了，可以死掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73076#       发表于 2020-5-14 00:30
@@ -12190,7 +12190,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 继续降，不要停<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  希望之花  
 ##### 73077#       发表于 2020-5-14 01:08
@@ -12199,7 +12199,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是自选五星的理由吗
 
 
------
+*****
 
 ####  kulanyee  
 ##### 73078#       发表于 2020-5-14 01:24
@@ -12208,7 +12208,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">每个新卡池都会有沉船的氪金佬弃坑，第五年才下滑仿佛是个奇迹，该赞美才是
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73079#       发表于 2020-5-14 08:50
@@ -12223,7 +12223,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 另，叶二第一年就顶不住想辞掉，所以2018年底DLW招募了三代目（然而招不到，该活动无疾而终了
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73080#       发表于 2020-5-14 08:56
@@ -12241,7 +12241,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 昨天那事儿不就是东出和森濑跳出来把保护两个字打在公屏上，然后疑似正主的人慢慢悠悠上线发一条吗；这事儿不追究真正执笔的人，让一个负责设定审核的人来背锅就离谱
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73081#       发表于 2020-5-14 10:25
@@ -12259,7 +12259,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 不过这事谁负责还真不好说，看了那些部分，就是类似于“关平和关定如何如何”的东西，只是用来掉书袋，不是要写的部分<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73082#       发表于 2020-5-14 10:29
@@ -12274,7 +12274,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 是，也不能直接扣到某人头上，具体还是要看FGOM了（虽然我觉得基本不会有意外……
 
 
------
+*****
 
 ####  fig3  
 ##### 73083#       发表于 2020-5-14 16:53
@@ -12283,7 +12283,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 主楼的群号怎么搜不到
 
 
------
+*****
 
 ####  阿提拉  
 ##### 73084#       发表于 2020-5-15 09:18
@@ -12295,7 +12295,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 早炸了吧大概
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 73085#       发表于 2020-5-15 13:32
@@ -12306,7 +12306,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 有的时候我还挺同情叶二的，项目大部分都在型月那但是出啥事都是他背锅（傻吧窝2那个预告看得我都张了），不过池子问题还是他把锅背好吧
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73086#       发表于 2020-5-15 14:18
@@ -12321,7 +12321,7 @@ https://www.bilibili.com/video/BV1Yt411 ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73087#       发表于 2020-5-15 14:24
@@ -12346,7 +12346,7 @@ game-i和app annie的第三方数据也能明确表现出：上半年因为弹�
 下半年被寄予厚望的蘑菇亲女儿太空伊斯塔，更是创下登顶4个小时以后惨遭荒野行动强势骑脸痛失日区畅销榜第一的窘境，剧情也因为踩王捧凛被王厨小炎上了一波
 
 
------
+*****
 
 ####  kulanyee  
 ##### 73088#       发表于 2020-5-15 14:45
@@ -12360,7 +12360,7 @@ game-i和app annie的第三方数据也能明确表现出：上半年因为弹�
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">自己做一把手，为什么不招人
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73089#       发表于 2020-5-15 14:51
@@ -12382,7 +12382,7 @@ DLW第二制作部（现FGO制作部）的部长是石仓正启（光头），�
 就改组后的动作以及DLW的招聘情况来看，他们是决定了第二制作部不进行扩招的，具体意味着什么我就不多加揣测了
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73090#       发表于 2020-5-15 14:52
@@ -12397,7 +12397,7 @@ DLW第二制作部（现FGO制作部）的部长是石仓正启（光头），�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  真红眼教授  
 ##### 73091#       发表于 2020-5-15 15:04
@@ -12408,7 +12408,7 @@ DLW第二制作部（现FGO制作部）的部长是石仓正启（光头），�
 当年盐川好歹也是庄司亲自请来的，等级不是一个概念
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 73092#       发表于 2020-5-15 20:07
@@ -12425,7 +12425,7 @@ DLW第二制作部（现FGO制作部）的部长是石仓正启（光头），�
 顺便问一下gami-i的分池流水能信吗，去年下半年的分池流水已经魔幻到不能用国日差异来解释了
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73093#       发表于 2020-5-16 00:30
@@ -12445,7 +12445,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 何况他这次大概是真的……
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73094#       发表于 2020-5-16 09:55
@@ -12457,7 +12457,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  exiaexa  
 ##### 73095#       发表于 2020-5-16 10:40
@@ -12467,7 +12467,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73096#       发表于 2020-5-16 11:02
@@ -12476,7 +12476,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 贴吧还有人盯着这楼的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73097#       发表于 2020-5-16 12:15
@@ -12485,7 +12485,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">震惊 贴把居然还有人关注这楼?
 
 
------
+*****
 
 ####  sqd  
 ##### 73098#       发表于 2020-5-16 12:19
@@ -12494,7 +12494,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有人盯着泥潭的手游区
 
 
------
+*****
 
 ####  阿提拉  
 ##### 73099#       发表于 2020-5-16 12:20
@@ -12505,7 +12505,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被贴吧挂了，丢人
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73100#       发表于 2020-5-16 12:27
@@ -12517,7 +12517,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 好吧我也盯着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73101#       发表于 2020-5-16 12:28
@@ -12529,7 +12529,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  阿提拉  
 ##### 73102#       发表于 2020-5-16 12:34
@@ -12538,7 +12538,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看贴吧不比看这专楼有用多了吗
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 73103#       发表于 2020-5-16 12:44
@@ -12547,7 +12547,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被挂的不是我还好还好
 
 
------
+*****
 
 ####  khxooo  
 ##### 73104#       发表于 2020-5-16 13:33
@@ -12556,7 +12556,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 这小破楼也有人挂，也是神奇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73105#       发表于 2020-5-16 13:46
@@ -12577,7 +12577,7 @@ game-i的估算比别的几家要离谱（的多），分池流水不能信，�
 SW2那个情况…我也没说是推特上吧？这群人厨战向的脑补可真是太熟练了，真当当时没人退坑呢
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73106#       发表于 2020-5-16 14:18
@@ -12586,7 +12586,7 @@ SW2那个情况…我也没说是推特上吧？这群人厨战向的脑补可�
 震惊！贴吧竟然还有人盯着这楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  希望之花  
 ##### 73107#       发表于 2020-5-16 17:59
@@ -12601,7 +12601,7 @@ https://tieba.baidu.com/p/6683937411
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点进去怎么404了
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73108#       发表于 2020-5-16 18:39
@@ -12612,7 +12612,7 @@ https://tieba.baidu.com/p/6683937411
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  eyeego  
 ##### 73109#       发表于 2020-5-16 19:00
@@ -12621,7 +12621,7 @@ https://tieba.baidu.com/p/6683937411
 炮打tm 我的一张大字报<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73110#       发表于 2020-5-17 00:00
@@ -12633,7 +12633,7 @@ https://tieba.baidu.com/p/6683937411
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73111#       发表于 2020-5-17 00:26
@@ -12642,7 +12642,7 @@ https://tieba.baidu.com/p/6683937411
 所以别说老虚摸鱼，随手找些资料就填上去也不是好事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  都谷捻柏  
 ##### 73112#       发表于 2020-5-17 00:32
@@ -12653,7 +12653,7 @@ https://tieba.baidu.com/p/6683937411
 —— 来自 HUAWEI NXT-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73113#       发表于 2020-5-17 12:50
@@ -12671,7 +12671,7 @@ https://tieba.baidu.com/p/6683937411
 另外人气角复刻大多也起不到收割作用，除非是第一次因为一些原因抽的人很少的那种
 
 
------
+*****
 
 ####  贤娘萌娘  
 ##### 73114#       发表于 2020-5-17 16:29
@@ -12680,7 +12680,7 @@ https://tieba.baidu.com/p/6683937411
 或许实装村正可破
 
 
------
+*****
 
 ####  404489039  
 ##### 73115#       发表于 2020-5-17 16:42
@@ -12691,7 +12691,7 @@ https://tieba.baidu.com/p/6683937411
 虽然借名人神话改编就已经是抄袭了
 
 
------
+*****
 
 ####  sqd  
 ##### 73116#       发表于 2020-5-17 17:11
@@ -12700,7 +12700,7 @@ https://tieba.baidu.com/p/6683937411
 没记错154星空写的吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">看这次FR联动怎么样
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73117#       发表于 2020-5-17 17:15
@@ -12709,7 +12709,7 @@ https://tieba.baidu.com/p/6683937411
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">25号有生放送 意思就是25号之前都可以摸了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73118#       发表于 2020-5-17 17:16
@@ -12718,7 +12718,7 @@ https://tieba.baidu.com/p/6683937411
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还开了个不刑和大象卡池  真的有人会抽吗 我很怀疑
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73119#       发表于 2020-5-17 17:17
@@ -12735,7 +12735,7 @@ https://tieba.baidu.com/p/6683937411
 参与浓度跟客座的虚渊都差不多了（虚渊是FZ一个大活动外加2.3主线了）
 
 
------
+*****
 
 ####  zechins  
 ##### 73120#       发表于 2020-5-17 17:17
@@ -12744,7 +12744,7 @@ https://tieba.baidu.com/p/6683937411
 25号生放，fr联动来了，印象里好久没送过4星从者了，不知道会不会送学妹alter呢<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73121#       发表于 2020-5-17 17:33
@@ -12753,7 +12753,7 @@ https://tieba.baidu.com/p/6683937411
 还有这么久，算起来是拖了一个月才摸出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73122#       发表于 2020-5-17 17:49
@@ -12762,7 +12762,7 @@ https://tieba.baidu.com/p/6683937411
 肥宅+不行？我佛了，这池子真的会有人抽？
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73123#       发表于 2020-5-17 17:51
@@ -12771,7 +12771,7 @@ https://tieba.baidu.com/p/6683937411
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">最讨厌的俩人的PU池，好嘢
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 73124#       发表于 2020-5-17 18:10
@@ -12780,7 +12780,7 @@ https://tieba.baidu.com/p/6683937411
 新卡池也太“就这”了吧，俩废五星，想捞个爱迪生还有童谣埋伏。搞不好是官方暗示我们管住手攒石头等联动...？小王子挺好一人物，希望别再整活了...
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73125#       发表于 2020-5-17 18:39
@@ -12789,7 +12789,7 @@ https://tieba.baidu.com/p/6683937411
 叶二：我真的不想干了，球球你们别氪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73126#       发表于 2020-5-17 19:35
@@ -12798,7 +12798,7 @@ https://tieba.baidu.com/p/6683937411
 每天启动，关闭，好文明<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新常态  
 ##### 73127#       发表于 2020-5-17 20:08
@@ -12809,7 +12809,7 @@ https://tieba.baidu.com/p/6683937411
 嗨，爱迪生等1.5剧情角色up抽黑狗的时候歪吧，本身水**比较玩具
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73128#       发表于 2020-5-17 20:16
@@ -12823,7 +12823,7 @@ https://tieba.baidu.com/p/6683937411
 卡池大概率是和本篇主线毫无关系的人物吧？比如鬼女红叶、朗基努斯啥的
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 73129#       发表于 2020-5-17 20:44
@@ -12840,7 +12840,7 @@ https://tieba.baidu.com/p/6683937411
 本来想说加拉哈德ALTER的，感觉会背刺2.6...
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73130#       发表于 2020-5-17 20:49
@@ -12854,7 +12854,7 @@ https://tieba.baidu.com/p/6683937411
 说透了吧，不就是那个什么机器来着。再出出退场了的人和卡莲就够了
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73131#       发表于 2020-5-17 20:50
@@ -12863,7 +12863,7 @@ https://tieba.baidu.com/p/6683937411
 我也没看过那书，不过瞄了眼wiki好像有大义经
 
 
------
+*****
 
 ####  武の炽羽  
 ##### 73132#       发表于 2020-5-17 22:03
@@ -12872,7 +12872,7 @@ https://tieba.baidu.com/p/6683937411
 这是到25号都可以每天只登录然后下线的节奏？我喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eden_hazard  
 ##### 73133#       发表于 2020-5-17 22:31
@@ -12883,7 +12883,7 @@ https://tieba.baidu.com/p/6683937411
 星期一开过活动吗？我估计25号生放宣布FR活动，至少要到27号才会开
 
 
------
+*****
 
 ####  sosgame67  
 ##### 73134#       发表于 2020-5-17 22:35
@@ -12892,7 +12892,7 @@ https://tieba.baidu.com/p/6683937411
 这是又长草一周？完美复刻去年鸣凤庄长草阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  花枝鱿鱼面  
 ##### 73135#       发表于 2020-5-17 22:48
@@ -12903,7 +12903,7 @@ https://tieba.baidu.com/p/6683937411
 —— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73136#       发表于 2020-5-17 23:30
@@ -12920,7 +12920,7 @@ https://tieba.baidu.com/p/6683937411
 基于这点红叶几乎是必出的。但是加成职阶不是每次都常规七阶都全，悬念在五星的class上
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73137#       发表于 2020-5-17 23:39
@@ -12932,7 +12932,7 @@ https://tieba.baidu.com/p/6683937411
 2016鬼岛和小贞德圣诞、2017CCC联动、2019白情，没记错的话有四个周一开的活动
 
 
------
+*****
 
 ####  風卷豹  
 ##### 73138#       发表于 2020-5-18 09:31
@@ -12941,7 +12941,7 @@ https://tieba.baidu.com/p/6683937411
 这加成从者和预热池着实鬼才设置，叶2对这联动吸引力和新从者强度设定如此自信？
 
 
------
+*****
 
 ####  kulanyee  
 ##### 73139#       发表于 2020-5-18 09:32
@@ -12950,7 +12950,7 @@ https://tieba.baidu.com/p/6683937411
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">20年平均一个月一个活动多点，复刻超过一半。开了一章主线，却有2个DL纪念活动。以主线算一个两周的活动来算，那么到25号为止差不多有6周时间没有活动只有卡池
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73140#       发表于 2020-5-18 10:01
@@ -12962,7 +12962,7 @@ https://tieba.baidu.com/p/6683937411
 毕竟是秋叶原啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73141#       发表于 2020-5-18 13:02
@@ -12974,7 +12974,7 @@ https://tieba.baidu.com/p/6683937411
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  武の炽羽  
 ##### 73142#       发表于 2020-5-18 14:26
@@ -12986,7 +12986,7 @@ https://tieba.baidu.com/p/6683937411
 名副其实的Fate/stay at home<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 73143#       发表于 2020-5-19 00:47
@@ -12995,7 +12995,7 @@ https://tieba.baidu.com/p/6683937411
 惯例11点钟清体力，竟然是今天的第一次登陆，越来越咸了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73144#       发表于 2020-5-20 16:57
@@ -13006,7 +13006,7 @@ https://tieba.baidu.com/p/6683937411
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  鱼缸  
 ##### 73145#       发表于 2020-5-21 15:43
@@ -13017,7 +13017,7 @@ https://tieba.baidu.com/p/6683937411
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">哇哦 都不一定会登场了 为什么还能挑出这两个货出来卖 都掉到80了好期待滑出100名 DW全员连坐 被索尼抓去关小黑屋掌掴到脑子清醒些
 
 
------
+*****
 
 ####  habita  
 ##### 73146#       发表于 2020-5-21 15:58
@@ -13026,7 +13026,7 @@ https://tieba.baidu.com/p/6683937411
 光把打工仔DW拉去小黑屋有卵用，有种把TM全关小黑屋，都0202年了还不知道拉跨关键在哪？
 
 
------
+*****
 
 ####  rooarr  
 ##### 73147#       发表于 2020-5-21 18:22
@@ -13035,7 +13035,7 @@ https://tieba.baidu.com/p/6683937411
 tm都不想继续玩了，sony也不能咋样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73148#       发表于 2020-5-21 18:23
@@ -13047,7 +13047,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我第1眼还以为你不想玩了
 
 
------
+*****
 
 ####  rooarr  
 ##### 73149#       发表于 2020-5-21 18:48
@@ -13058,7 +13058,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新吾  
 ##### 73150#       发表于 2020-5-22 11:55
@@ -13067,7 +13067,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 每天上线10秒都没有的游戏...或许也快凉凉了吧
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 73151#       发表于 2020-5-22 12:23
@@ -13076,7 +13076,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 有维护啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73152#       发表于 2020-5-22 12:29
@@ -13085,7 +13085,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 上线，关闭，一气呵成
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73153#       发表于 2020-5-22 14:20
@@ -13094,7 +13094,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么维护了。我要签到啊 
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73154#       发表于 2020-5-22 14:25
@@ -13106,7 +13106,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 来，金苹果一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不乖  
 ##### 73155#       发表于 2020-5-22 17:24
@@ -13117,7 +13117,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 —— 来自 HUAWEI BLN-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  eilot  
 ##### 73156#       发表于 2020-5-22 22:39
@@ -13131,7 +13131,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 這都要修一個下午?
 
 
------
+*****
 
 ####  eyeego  
 ##### 73157#       发表于 2020-5-23 00:42
@@ -13144,7 +13144,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 25号就是生放 活动前惯例维护偷摸塞点东西这也要大惊小怪的？
 
 
------
+*****
 
 ####  eilot  
 ##### 73158#       发表于 2020-5-23 00:57
@@ -13158,7 +13158,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 一是給5星種火吧...反正現在也有下期活動角色EXP 2倍機率...
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73159#       发表于 2020-5-24 22:58
@@ -13170,7 +13170,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 话说明天会直接开活动吗
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73160#       发表于 2020-5-24 23:01
@@ -13185,7 +13185,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 凉凉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73161#       发表于 2020-5-25 05:04
@@ -13200,7 +13200,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 看周常感觉有戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73162#       发表于 2020-5-25 17:52
@@ -13212,7 +13212,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">快了快了 等一个无事发生星期3/5在看
 
 
------
+*****
 
 ####  rooarr  
 ##### 73163#       发表于 2020-5-25 18:17
@@ -13221,7 +13221,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 怎么还没到重点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73164#       发表于 2020-5-25 18:25
@@ -13232,7 +13232,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 这还真是有点意外<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73165#       发表于 2020-5-25 18:29
@@ -13241,7 +13241,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 又是限定4星…
 
 
------
+*****
 
 ####  rooarr  
 ##### 73166#       发表于 2020-5-25 18:30
@@ -13250,7 +13250,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 小王子没救了，外星人光炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73167#       发表于 2020-5-25 18:31
@@ -13263,7 +13263,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 川澄都在吐槽这分明是背刺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73168#       发表于 2020-5-25 18:33
@@ -13272,7 +13272,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 马上配信，好文明<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  希望之花  
 ##### 73169#       发表于 2020-5-25 18:33
@@ -13281,7 +13281,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 是voyager啊 是voyager在冰冷的太空（卡池）里<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73170#       发表于 2020-5-25 18:34
@@ -13293,7 +13293,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 有事发生，直接开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 73171#       发表于 2020-5-25 18:38
@@ -13302,7 +13302,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 鬼女是4星太好了，送女主太好了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73172#       发表于 2020-5-25 18:42
@@ -13311,7 +13311,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 女主直接出卡，空境的待遇啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73173#       发表于 2020-5-25 18:47
@@ -13320,7 +13320,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 谁能跟我说说，为啥都把旅行者号叫小王子啊？没看过原作
 
 
------
+*****
 
 ####  eden_hazard  
 ##### 73174#       发表于 2020-5-25 18:48
@@ -13329,7 +13329,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 对卡池毫无欲望，随便抽点礼装好了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73175#       发表于 2020-5-25 18:52
@@ -13338,7 +13338,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外星人+光炮 是不是性能上已经死刑了
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73176#       发表于 2020-5-25 18:53
@@ -13350,7 +13350,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 万一是绿卡带黄金律和万物特攻呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73177#       发表于 2020-5-25 18:58
@@ -13362,7 +13362,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是已经确定红光炮了吗 
 
 
------
+*****
 
 ####  zechins  
 ##### 73178#       发表于 2020-5-25 18:59
@@ -13371,7 +13371,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">送的那个好可爱啊，为了生活我可以忍，但是看见侧乳就不行.jpg
 
 
------
+*****
 
 ####  khxooo  
 ##### 73179#       发表于 2020-5-25 18:59
@@ -13387,7 +13387,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 绿卡，赢了（？）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73180#       发表于 2020-5-25 19:05
@@ -13406,7 +13406,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然真是绿的
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73181#       发表于 2020-5-25 19:08
@@ -13418,7 +13418,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 这就豹了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73182#       发表于 2020-5-25 19:09
@@ -13430,7 +13430,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我上次出货已经是很久以前的事情了啊
 
 
------
+*****
 
 ####  hyuy  
 ##### 73183#       发表于 2020-5-25 19:12
@@ -13438,7 +13438,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 73184#       发表于 2020-5-25 19:14
@@ -13449,7 +13449,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 先来豹跳一波，第一发11连鬼女红叶加5星礼装，第二发旅行者加4星礼装，2发11连联动齐活儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73185#       发表于 2020-5-25 19:14
@@ -13458,7 +13458,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 技能组呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 73186#       发表于 2020-5-25 19:16
@@ -13467,7 +13467,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 3技能被暴击几率提升，会成为奇怪的拐？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73187#       发表于 2020-5-25 19:20
@@ -13479,7 +13479,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">16000血 11000攻  技能组还有必要看吗
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73188#       发表于 2020-5-25 19:22
@@ -13490,7 +13490,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后绿卡20%3回合 其他的和连发没什么关系就先无视了
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73189#       发表于 2020-5-25 19:23
@@ -13499,7 +13499,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 白嫖失败。fgo关闭，steam打开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73190#       发表于 2020-5-25 19:23
@@ -13508,7 +13508,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 55连一张鬼女一张尼托，撤了撤了对正太没兴趣
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73191#       发表于 2020-5-25 19:26
@@ -13523,7 +13523,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 太强了，50自充<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73192#       发表于 2020-5-25 19:27
@@ -13535,7 +13535,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强吗 还没人测试绿卡性能。。光看技能组和攻击力不触发特攻这伤害估计是没法看的级别
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73193#       发表于 2020-5-25 19:28
@@ -13548,7 +13548,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 你俩到底谁是5星<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  クー子  
 ##### 73194#       发表于 2020-5-25 19:29
@@ -13559,7 +13559,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73195#       发表于 2020-5-25 19:29
@@ -13570,7 +13570,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 不抽了
 
 
------
+*****
 
 ####  阿提拉  
 ##### 73196#       发表于 2020-5-25 19:30
@@ -13579,7 +13579,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 暴死，今晚不适合抽卡
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73197#       发表于 2020-5-25 19:32
@@ -13591,7 +13591,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 可以值班4绿魔方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 73198#       发表于 2020-5-25 19:33
@@ -13600,7 +13600,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 唯一神终于脑袋开窍了吗，50自充加宝具的20群冲，连发是没啥问题了，np再拉跨也冲得起来，20宝威加20绿放也算能看，纵使外国人拉跨，白值丢人，比不了伯爵，在绿卡环境下也是个不错的周回光炮了，毕竟伤害拉跨可以靠圣杯（肝）和宝具等级（氪）弥补，np回收拉跨才是真的难救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eden_hazard  
 ##### 73199#       发表于 2020-5-25 19:34
@@ -13613,7 +13613,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 20护符60石，1小王子1恐龙，然后礼装战果1四星3三星……
 
 
------
+*****
 
 ####  angelooo  
 ##### 73200#       发表于 2020-5-25 19:36
@@ -13622,7 +13622,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 这本质是个战姬绝唱的池子23333
 
 
------
+*****
 
 ####  rooarr  
 ##### 73201#       发表于 2020-5-25 19:38
@@ -13631,7 +13631,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 好了我豹了，1单2宝<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AincradWanderer  
 ##### 73202#       发表于 2020-5-25 19:40
@@ -13639,7 +13639,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73203#       发表于 2020-5-25 19:41
@@ -13651,7 +13651,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">欧 羡慕 萌新什么时候也能像大佬一样豹跳
 
 
------
+*****
 
 ####  rooarr  
 ##### 73204#       发表于 2020-5-25 19:44
@@ -13662,7 +13662,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 萌新你都没抽到1单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73205#       发表于 2020-5-25 19:49
@@ -13674,7 +13674,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 从上次5星出货开始算也有个3-4单了
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73206#       发表于 2020-5-25 19:49
@@ -13686,7 +13686,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 谢谢，有被晒到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73207#       发表于 2020-5-25 19:52
@@ -13695,7 +13695,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然外星人+光炮性能基本就是死刑啊 绿卡又如何.jpg
 
 
------
+*****
 
 ####  rooarr  
 ##### 73208#       发表于 2020-5-25 19:54
@@ -13706,7 +13706,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 联动的不都是爽完自己的活动就完事吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73209#       发表于 2020-5-25 19:55
@@ -13718,7 +13718,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚出解包的时候隔壁狂吹。什么和伯爵狂兰三足鼎立。。 然后有人发了个伤害统计。然后就没有然后了。。很真实
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73210#       发表于 2020-5-25 19:57
@@ -13727,7 +13727,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 真爱抽个5宝100级满芙不是也能凑合用嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73211#       发表于 2020-5-25 19:57
@@ -13738,7 +13738,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 想太多系列<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">联动怎么可能有高性能的卡
 
 
------
+*****
 
 ####  sosgame67  
 ##### 73212#       发表于 2020-5-25 20:00
@@ -13747,7 +13747,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 无宝具本白值硬伤怎么看都不可能连发啦..
 
 
------
+*****
 
 ####  eden_hazard  
 ##### 73213#       发表于 2020-5-25 20:05
@@ -13759,7 +13759,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 我在抽我不感兴趣的卡的时候运气一向很好，反观2.5上下加起来花了大概2500石抽到欧罗巴和双子各一宝
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73214#       发表于 2020-5-25 20:06
@@ -13771,7 +13771,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 “优秀的读心系统”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 73215#       发表于 2020-5-25 20:12
@@ -13782,7 +13782,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 对我来说旅行者有这强度已经算是惊喜了，这年头只要是个绿卡就已经高人一筹了，更何况是可以轻松三连的绿卡，旅行者就算下水道，也是wcba体系里的下水道（实际还不好说，毕竟有一堆基本没法三连的），再看看体系外，和外星人甚至ae那一堆下水道住民比起来，强度都高到天上去了好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73216#       发表于 2020-5-25 20:12
@@ -13794,7 +13794,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不 连发问题不大 就是伤害不能看
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 73217#       发表于 2020-5-25 20:13
@@ -13806,7 +13806,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 闭着眼各种花式连发，当然，打不死对面是个大问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sosgame67  
 ##### 73218#       发表于 2020-5-25 20:14
@@ -13818,7 +13818,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 看了下np率，有些微妙，不高宝基本没法看啊，不过日服又没满破宝石我还是安心自爆弓一面清场吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73219#       发表于 2020-5-25 20:16
@@ -13827,7 +13827,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 费那劲干嘛，要我说，直接三宝石冲了就跑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73220#       发表于 2020-5-25 20:20
@@ -13839,7 +13839,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 活动能不弄一堆乱七八糟的机制吗....咱就3T刷材料搬商店好不<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73221#       发表于 2020-5-25 20:23
@@ -13848,7 +13848,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 好友里的日本dalao看来都憋坏了啊，各种5宝探测器恐龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 73222#       发表于 2020-5-25 20:24
@@ -13857,7 +13857,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这人狼游戏谁写的……
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73223#       发表于 2020-5-25 20:32
@@ -13866,7 +13866,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 这活动又撒奇奇怪怪机制，麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73224#       发表于 2020-5-25 20:43
@@ -13875,7 +13875,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 活动期间2宝体验好到爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rxrx  
 ##### 73225#       发表于 2020-5-25 20:44
@@ -13884,7 +13884,7 @@ tm都不想继续玩了，sony也不能咋样啊</blockquote>
 NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73226#       发表于 2020-5-25 21:00
@@ -13896,7 +13896,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕（
 
 
------
+*****
 
 ####  khxooo  
 ##### 73227#       发表于 2020-5-25 21:00
@@ -13905,7 +13905,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 10呼符+150石头2宝正太加红叶，第一只正太还是呼符出的，但最想要的红叶到最后才出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73228#       发表于 2020-5-25 21:02
@@ -13914,7 +13914,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在隔壁看戏看呆了。。怎么都2020了还是“副手”这玩意
 
 
------
+*****
 
 ####  qixinno2  
 ##### 73229#       发表于 2020-5-25 21:38
@@ -13923,7 +13923,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 果然是随缘扔石菜鸡卡才会出货的样子 仅剩的三呼符30石一个红叶一个正太 我只是想要几个礼装而已
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73230#       发表于 2020-5-25 22:25
@@ -13935,7 +13935,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 啥副手
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73231#       发表于 2020-5-25 22:30
@@ -13952,7 +13952,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 话说鬼女居然是阳子姐姐  是第1个fate角色？
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 73232#       发表于 2020-5-25 22:33
@@ -13961,7 +13961,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">120石歪了个船长，今年至今为止国日服加起来up只抽到3个歪了11个
 
 
------
+*****
 
 ####  v22325  
 ##### 73233#       发表于 2020-5-25 22:46
@@ -13979,7 +13979,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 多抽了几发小王子也出了...
 
 
------
+*****
 
 ####  khxooo  
 ##### 73234#       发表于 2020-5-25 22:53
@@ -13988,7 +13988,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 弓凛能额外加NP，艾蕾却不能？什么狗屎设定啊？要这么迫害艾蕾吗？<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73235#       发表于 2020-5-25 23:35
@@ -13997,7 +13997,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">去Appmedia看了看 评论都在说剽窃 发生了什么 好久没关注fgo了
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73236#       发表于 2020-5-25 23:48
@@ -14009,7 +14009,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 双子那个抄袭？
 
 
------
+*****
 
 ####  感觉自己萌萌哒  
 ##### 73237#       发表于 2020-5-26 00:06
@@ -14020,7 +14020,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 samsung SM-G973W, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  holyblood  
 ##### 73238#       发表于 2020-5-26 03:26
@@ -14029,7 +14029,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 爆龙不是应该有羽毛的么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  蓮華  
 ##### 73239#       发表于 2020-5-26 07:59
@@ -14038,7 +14038,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 昨晚沉了，早上发的时候单抽出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真红眼教授  
 ##### 73240#       发表于 2020-5-26 08:09
@@ -14050,7 +14050,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 樱井光啊，快被锤烂了
 
 
------
+*****
 
 ####  jackyhuang  
 ##### 73241#       发表于 2020-5-26 09:00
@@ -14061,7 +14061,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 一群新手都玩不到这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 73242#       发表于 2020-5-26 10:05
@@ -14074,7 +14074,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 狼人是玛丽太明显了，莫扎特是狂信者背锅的。
 
 
------
+*****
 
 ####  佐塚間桐  
 ##### 73243#       发表于 2020-5-26 11:54
@@ -14083,7 +14083,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 卧槽真是日了狗，我准备了一阵子的恐龙梗别人先用了，真是publish or perish<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fujissw  
 ##### 73244#       发表于 2020-5-26 13:29
@@ -14095,7 +14095,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">战姬CV还差几个没登月的？
 
 
------
+*****
 
 ####  LrGsite  
 ##### 73245#       发表于 2020-5-26 13:46
@@ -14104,7 +14104,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这活动..还是提不起兴致上线啊，还可以继续a一阵子
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73246#       发表于 2020-5-26 14:21
@@ -14118,7 +14118,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 不如说伊斯塔多算了个R伊斯塔已经算赚到了
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73247#       发表于 2020-5-26 14:27
@@ -14137,7 +14137,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 另外太空伊斯塔和阿清现在能用证明了回收没上线可以换别的（例如前者不换人组队打杀狂，后者大部分时候都是二连的也无所谓了…），五宝满配的伤害不够看才是没救。当时那个3T宝威是菌皇拿刀架在唯一神脖子上逼宫出来的吧
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73248#       发表于 2020-5-26 14:40
@@ -14146,7 +14146,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 不愧是李依李特攻从者，那个女人疯了，抽满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 73249#       发表于 2020-5-26 14:52
@@ -14163,7 +14163,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 旅行者这卡吧，想去碰瓷伯爵狂兰仇凛这种天花板是想太多了，但是那几个冲腻了拿出来玩玩也是属于比较省心的，至少你问我是喜欢旅行者这种还是尻**这种，那肯定是旅行者用着舒服多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鱼缸  
 ##### 73250#       发表于 2020-5-26 16:15
@@ -14175,7 +14175,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 这母恐龙18年12月底第一卷里就出了的<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eilot  
 ##### 73251#       发表于 2020-5-26 17:03
@@ -14188,7 +14188,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 不過中了一隻正太，不過差一點就沒塵來突一階..
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73252#       发表于 2020-5-26 17:12
@@ -14197,7 +14197,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 啥时候有新的大姐姐小姐姐卡呀<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xunit  
 ##### 73253#       发表于 2020-5-26 17:13
@@ -14209,7 +14209,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 这只恐龙还不够大吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  蕾丝  
 ##### 73254#       发表于 2020-5-26 17:37
@@ -14220,7 +14220,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 HUAWEI HWI-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73255#       发表于 2020-5-26 17:41
@@ -14232,7 +14232,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 那倒是蛮大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73256#       发表于 2020-5-26 19:32
@@ -14243,7 +14243,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73257#       发表于 2020-5-26 22:41
@@ -14252,7 +14252,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 整理空间的时候看了一眼。。fgo居然9。1g。。。。。
 
 
------
+*****
 
 ####  rxrx  
 ##### 73258#       发表于 2020-5-26 23:28
@@ -14261,7 +14261,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 有人知道要如何干掉特殊关发牌的罗宾汉吗？
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73259#       发表于 2020-5-26 23:38
@@ -14273,7 +14273,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 是啊，贼大现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 73260#       发表于 2020-5-27 00:56
@@ -14285,7 +14285,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 试一试后面放一个单体**？
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73261#       发表于 2020-5-27 08:35
@@ -14298,7 +14298,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  v22325  
 ##### 73262#       发表于 2020-5-27 17:50
@@ -14307,7 +14307,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 今天这说两句打一场 似曾相识啊
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73263#       发表于 2020-5-27 18:27
@@ -14318,7 +14318,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 73264#       发表于 2020-5-27 19:15
@@ -14327,7 +14327,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 第一场输了...后来老实带单挑唯一指定阿特拉斯学院服
 
 
------
+*****
 
 ####  khxooo  
 ##### 73265#       发表于 2020-5-27 23:08
@@ -14336,7 +14336,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 3场连胜， 也就是夏洛特那场有点麻烦。
 
 
------
+*****
 
 ####  eilot  
 ##### 73266#       发表于 2020-5-27 23:53
@@ -14347,7 +14347,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 3連勝，小夏那場有點運氣，反正2次寶具都即死不到，
 
 
------
+*****
 
 ####  rxrx  
 ##### 73267#       发表于 2020-5-28 09:00
@@ -14364,7 +14364,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 不过F/R的主角是所有Fate作品主角中年纪最小，怪不得我方都视她为小妹妹，不介意她闹别扭
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 73268#       发表于 2020-5-28 11:16
@@ -14377,7 +14377,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 罗宾汉那里带战续服了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一看给我塞大英雄不只能带战续了......
 
 
------
+*****
 
 ####  炙热之狐  
 ##### 73269#       发表于 2020-5-28 14:23
@@ -14388,7 +14388,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 Xiaomi MI 5s Plus, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 73270#       发表于 2020-5-28 15:56
@@ -14399,7 +14399,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 这角色看得非常烦躁，跟她好好说小王子只是暂时入队没有抢你的，但是不听人说，一说就跑，no 下次见面又在骂咕哒抢走小王子，滚吧<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  風卷豹  
 ##### 73271#       发表于 2020-5-28 16:03
@@ -14411,7 +14411,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 剧情里立香自己都推测这妹子有很大可能是被人洗 脑（这个居然也是屏蔽词），到时解除**后认个错搞点反差萌就好了
 
 
------
+*****
 
 ####  khxooo  
 ##### 73272#       发表于 2020-5-28 18:21
@@ -14420,7 +14420,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 差最后一颗硬币了
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73273#       发表于 2020-5-28 19:06
@@ -14434,7 +14434,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 而且她那个诱蛾灯的比喻真的是清新脱俗，我读到的瞬间都爆笑出声了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  久井路路  
 ##### 73274#       发表于 2020-5-29 03:25
@@ -14449,7 +14449,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 为了填长草期特地拉才出了一卷的作品来联动，把原作里还未开示的爆点轻而易举揭开来，然后开幕在联动作品的主角脸上抹一把泥水。她不像士郎扎比切嗣，她这个角色的塑造才刚刚开始，结果就在FGO这个大舞台上留下了坏得不得了的第一印象，将来十有八九会被贬到齐格级的风评。有几十种方法可以表达和现在同样的情报、而不把她写得这么拉仇恨，但偏偏没有变成这样。真是万分遗憾。
 
 
------
+*****
 
 ####  reekilynn  
 ##### 73275#       发表于 2020-5-29 07:06
@@ -14465,7 +14465,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 我看fate吧倒是有一帮人觉得说的很有道理跟着疯狂批判咕哒，也不知道他们怎么想的。
 
 
------
+*****
 
 ####  久井路路  
 ##### 73276#       发表于 2020-5-29 07:22
@@ -14479,7 +14479,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 不过这反而更给路人眼里的绘理世拉仇恨（
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73277#       发表于 2020-5-29 08:05
@@ -14498,7 +14498,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 一书两吃，完美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 73278#       发表于 2020-5-29 08:46
@@ -14512,7 +14512,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 齐格还不至于，我看到不少地方基本还是表示因为是美少女所以没关系，脾气不好等来迦了可以好好tiao/jiao
 
 
------
+*****
 
 ####  久井路路  
 ##### 73279#       发表于 2020-5-29 09:02
@@ -14527,7 +14527,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 然后搬到FGO来突然变成不听人话的暴躁熊孩子，无端背了一堆仇恨，还要在同人里被**来泄愤。我现在都有点后悔买FR第一卷、喜欢上绘理世了（
 
 
------
+*****
 
 ####  贤娘萌娘  
 ##### 73280#       发表于 2020-5-29 10:08
@@ -14536,7 +14536,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 剧情里已经暗示了是有人抢先一步和绘理世说了迦勒底坏话啊，还有人猜这个人就是黑化加拉哈德不过我估计不会是他
 
 
------
+*****
 
 ####  真红眼教授  
 ##### 73281#       发表于 2020-5-29 10:15
@@ -14548,7 +14548,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 另外剧情看多了就知道这孩子本质不错，如果看了FR小说更是讨厌不起来
 
 
------
+*****
 
 ####  cowgp01  
 ##### 73282#       发表于 2020-5-29 12:33
@@ -14559,7 +14559,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 星空自己偷懒又交给别人写自然性格细节怎么方便怎么来啦，谁叫你又拖稿
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73283#       发表于 2020-5-29 12:35
@@ -14570,7 +14570,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73284#       发表于 2020-5-29 17:31
@@ -14581,7 +14581,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 未监修文本什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dante888  
 ##### 73285#       发表于 2020-5-29 17:40
@@ -14590,7 +14590,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 黑蛋糕啥时候落地，等着抽
 
 
------
+*****
 
 ####  阿提拉  
 ##### 73286#       发表于 2020-5-29 17:43
@@ -14602,7 +14602,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怕不就是个立绘，连灵衣都不给你
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73287#       发表于 2020-5-29 17:45
@@ -14615,7 +14615,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73288#       发表于 2020-5-29 17:46
@@ -14624,7 +14624,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 这90free本的小怪名字是放弃思考了吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73289#       发表于 2020-5-29 17:53
@@ -14636,7 +14636,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 爱神农神：排队呢，往后站<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真红眼教授  
 ##### 73290#       发表于 2020-5-29 19:07
@@ -14645,7 +14645,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 艹，今天替换了之前[未监修]的剧情，这都什么烂班子
 
 
------
+*****
 
 ####  GuDaZi  
 ##### 73291#       发表于 2020-5-29 19:39
@@ -14654,7 +14654,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 你们还记得黑船长和B叔吗？这两个模组都是现成的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 73292#       发表于 2020-5-29 20:29
@@ -14663,7 +14663,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 这个玛丽爱了，真爱了，废狗第一张金卡就是，初恋
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73293#       发表于 2020-5-29 20:35
@@ -14674,7 +14674,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73294#       发表于 2020-5-29 21:53
@@ -14686,7 +14686,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 还有都多久没看到过2面和3面是单一BOSS配置的free本了.....记得上一次好像还是前年圣诞节的黑呆
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73295#       发表于 2020-5-29 21:59
@@ -14698,7 +14698,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 可能是ARK玩多了杀太多牛龙人家不愿意来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cowgp01  
 ##### 73296#       发表于 2020-5-29 22:17
@@ -14710,7 +14710,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 最起码第一本根本没有说什么没有可以回去的地方，除非后面秋叶原炸了或者卡琳他们都死了，只不过是没有和她一样的人罢了
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73297#       发表于 2020-5-29 22:40
@@ -14724,7 +14724,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">玛丽的儿子也在这作品里登场了吧....还是造成绘理世ptsd的原因....不知道会不会有机会实装和玛丽成为第一对同时登场的母子（奶光和天杯这种没有血缘关系的不算
 
 
------
+*****
 
 ####  cowgp01  
 ##### 73298#       发表于 2020-5-29 22:46
@@ -14740,7 +14740,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 在我看来和小说根本不是一个人了，其实看到小说第一章大概也理解她是什么人了，中二屁孩才不会干公务也觉得自己是做错事挨上一顿打让对方消气也好。除非后面出现很大变故吧
 
 
------
+*****
 
 ####  rxrx  
 ##### 73299#       发表于 2020-5-29 23:50
@@ -14749,7 +14749,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 这次活动感觉就是主角在正宫和绘理世的小男友帮助小泡14岁小丫头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73300#       发表于 2020-5-29 23:55
@@ -14761,7 +14761,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73301#       发表于 2020-5-30 00:19
@@ -14770,7 +14770,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 淦，这最后一个free属实有病<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73302#       发表于 2020-5-30 00:28
@@ -14779,7 +14779,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我选择不刷 要刷其实也能刷就是要浪费一个位置给大英雄 
 
 
------
+*****
 
 ####  eilot  
 ##### 73303#       发表于 2020-5-30 02:40
@@ -14790,7 +14790,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 不要說要等復刻時故意打到第十場才能看到其他結果那麼麻煩...
 
 
------
+*****
 
 ####  v22325  
 ##### 73304#       发表于 2020-5-30 05:58
@@ -14804,7 +14804,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 之前有说等活动结束
 
 
------
+*****
 
 ####  麻花疼  
 ##### 73305#       发表于 2020-5-30 09:43
@@ -14816,7 +14816,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 这泥马万一死了还连发个球
 
 
------
+*****
 
 ####  eilot  
 ##### 73306#       发表于 2020-5-30 11:23
@@ -14825,7 +14825,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 曾曜日體半，先刷多些少種火
 
 
------
+*****
 
 ####  khxooo  
 ##### 73307#       发表于 2020-5-30 11:55
@@ -14834,7 +14834,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 掉礼装了，连伤害礼装都要掉真是SB设定<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 73308#       发表于 2020-5-30 12:31
@@ -14843,7 +14843,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">至今没掉礼装 还以为任务或主线会送
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73309#       发表于 2020-5-30 17:20
@@ -14852,7 +14852,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 等了一天最后的剧情就这。。。？，这么点内容有必要隔一天才放出来<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 73310#       发表于 2020-5-30 17:59
@@ -14861,7 +14861,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 拿宝具的其中一关，叫找出犯人，用狂兰全部突突突就过了，找犯人什么意义？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73311#       发表于 2020-5-30 18:21
@@ -14872,7 +14872,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 这**玩意是哪个zz想出来的
 
 
------
+*****
 
 ####  v22325  
 ##### 73312#       发表于 2020-5-30 18:28
@@ -14885,7 +14885,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 我前两天就在意这个 把地图全走完了 有三个刷图掉的123固定还是挺简单的 材料也送的不少
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73313#       发表于 2020-5-30 18:30
@@ -14898,7 +14898,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 73314#       发表于 2020-5-30 18:42
@@ -14911,7 +14911,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 我一开始还以为是罗宾汉那种只能打其中一个，打错了就给个Debuff，谁知道狂兰突突突就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73315#       发表于 2020-5-30 19:42
@@ -14923,7 +14923,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 目前喂了黑贞....艾蕾....莉莉丝....水B....下一个喂谁好呢
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73316#       发表于 2020-5-30 19:49
@@ -14932,7 +14932,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 草，看见11区有人说吴子明的临时加入和正式加入台词是不是搞反了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这活动绝对是远程办公弄出来的吧
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73317#       发表于 2020-5-30 20:19
@@ -14943,7 +14943,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 绘理世4回合一次全体宝具还带即死.....好不容易打掉了一条血第2条血有60多万...最后1条不知道还有多少血....暂时没有思路
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73318#       发表于 2020-5-30 20:22
@@ -14957,7 +14957,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">单体剑带好满破特攻礼装划令咒爆砍之类的（
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73319#       发表于 2020-5-30 20:25
@@ -14969,7 +14969,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有2个恶灵在怕是3划令咒也砍不掉啊
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73320#       发表于 2020-5-30 20:32
@@ -14984,7 +14984,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 探测器呗。二破太可爱了想。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73321#       发表于 2020-5-30 20:34
@@ -14996,7 +14996,7 @@ NND，根本就提不起兴趣<img src="https://static.saraba1st.com/image/smile
 no homo
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73322#       发表于 2020-5-30 20:36
@@ -15012,7 +15012,7 @@ no homo
 [https://tieba.baidu.com/p/6714788698](https://tieba.baidu.com/p/6714788698)
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73323#       发表于 2020-5-30 20:38
@@ -15024,7 +15024,7 @@ no homo</blockquote>
 既然能上船上城，为啥不让上探测器<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73324#       发表于 2020-5-30 20:41
@@ -15036,7 +15036,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">因为探测器是公的，而船和城是母的啊（
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73325#       发表于 2020-5-30 20:45
@@ -15049,7 +15049,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都没抽....今年要补的就有去年1000石沉船的迷之企鹅Λ和宇宙凛
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73326#       发表于 2020-5-30 21:05
@@ -15061,7 +15061,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">9石解决问题啊
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73327#       发表于 2020-5-30 21:08
@@ -15070,7 +15070,7 @@ no homo</blockquote>
 这活动打起来好麻烦啊，还得刷骰子走棋盘，最后那个90自由本好那啥<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73328#       发表于 2020-5-30 21:19
@@ -15082,7 +15082,7 @@ no homo</blockquote>
 以前以为1000石沉4星是传说，结果昨天我也经历了一回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73329#       发表于 2020-5-30 22:22
@@ -15094,7 +15094,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">ni gun a
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73330#       发表于 2020-5-30 22:23
@@ -15106,7 +15106,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">最气的还是不怎么想要的兔呆出了3个（还歪了个常驻5星
 
 
------
+*****
 
 ####  rxrx  
 ##### 73331#       发表于 2020-5-31 00:29
@@ -15115,7 +15115,7 @@ no homo</blockquote>
 这活动最后感觉是14岁丫头被小男友骗进火坑，然后对方拍拍屁股就闪人，丫头最后和好人老板相处愉快的故事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73332#       发表于 2020-5-31 03:06
@@ -15130,7 +15130,7 @@ no homo</blockquote>
 都4个了？是有用金方换？
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73333#       发表于 2020-5-31 13:05
@@ -15145,7 +15145,7 @@ no homo</blockquote>
 金方块要换每月的梦火哪有多的换别的东西<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73334#       发表于 2020-5-31 13:27
@@ -15160,7 +15160,7 @@ no homo</blockquote>
 不知不觉都这么多了么，去年下半年喂的时候还以为也就2个多一点的程度（没数过）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  薛定谔的小猫  
 ##### 73335#       发表于 2020-5-31 13:33
@@ -15171,7 +15171,7 @@ no homo</blockquote>
 好像剧情差评如潮，skip党一脸懵逼中<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73336#       发表于 2020-5-31 13:57
@@ -15182,7 +15182,7 @@ no homo</blockquote>
 第四个不知道该喂谁……
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73337#       发表于 2020-5-31 14:00
@@ -15196,7 +15196,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你为什么3个和我一样呢 欧 羡慕(恩?
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73338#       发表于 2020-5-31 14:13
@@ -15208,7 +15208,7 @@ no homo</blockquote>
 我正在思考要不要喂给某弓阶暴击壮汉
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73339#       发表于 2020-5-31 14:26
@@ -15223,7 +15223,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第5个准备喂喂紫衣bba 毕竟第1个5星纪念下
 
 
------
+*****
 
 ####  久井路路  
 ##### 73340#       发表于 2020-5-31 14:50
@@ -15238,7 +15238,7 @@ no homo</blockquote>
 我现在最后悔的事情就是当年买了FR1，正准备取消FR2的订单（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73341#       发表于 2020-5-31 14:57
@@ -15254,7 +15254,7 @@ no homo</blockquote>
 看来也是个强度党
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73342#       发表于 2020-5-31 15:08
@@ -15269,7 +15269,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这种加强战斗力的东西，自然都是给要站在前面打的人用啊
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73343#       发表于 2020-5-31 15:50
@@ -15283,7 +15283,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是看不起我光妈 
 
 
------
+*****
 
 ####  cowgp01  
 ##### 73344#       发表于 2020-5-31 16:16
@@ -15298,7 +15298,7 @@ no homo</blockquote>
 看到还有一种救回来的方法就是一转腐姬，这次联动的不是后传而是前传，不过还是有很多问题就是
 
 
------
+*****
 
 ####  sosgame67  
 ##### 73345#       发表于 2020-5-31 16:43
@@ -15309,7 +15309,7 @@ no homo</blockquote>
 这次活动从狼人杀章节开始就完全不能看了（不断修改规则以及全程跳脸怼你的莫扎特是什么鬼），最后全员集结冒出来的还是活动中完全没出场的英灵，气氛实在是微妙的不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73346#       发表于 2020-5-31 16:59
@@ -15318,7 +15318,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没看剧情 问下之前提前up的不邢和大象有出来过吗 （虽然下面写着不一定出场
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73347#       发表于 2020-5-31 18:32
@@ -15330,7 +15330,7 @@ no homo</blockquote>
 出是出了，但不知道同等标准为什么魔伊那几个没加成，可能作者是个萝莉控吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eilot  
 ##### 73348#       发表于 2020-5-31 18:48
@@ -15349,7 +15349,7 @@ no homo</blockquote>
 就是叫人刷刷刷嗎，真是當大家都是時間多的是瘋狂刷骰子嗎...
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73349#       发表于 2020-5-31 18:59
@@ -15364,7 +15364,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后的挑战要每个格子都走5边（4角落除外） 路过不行
 
 
------
+*****
 
 ####  eilot  
 ##### 73350#       发表于 2020-5-31 20:31
@@ -15378,7 +15378,7 @@ no homo</blockquote>
 如何知道那一個格子走了多少次....還要每個格子?想出來那個是ZZ嗎...
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73351#       发表于 2020-5-31 20:37
@@ -15394,7 +15394,7 @@ no homo</blockquote>
 ………………你在问蠢问题之前敢不敢先把游戏的公告给看一遍？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73352#       发表于 2020-5-31 21:00
@@ -15410,7 +15410,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">格子上面有5个黄点
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73353#       发表于 2020-5-31 21:33
@@ -15419,7 +15419,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">跑完了。低难也打了。。。材料都换光了我还要特意去刷走1 走2。。。不得不说这是玩过的最辣鸡的活动
 
 
------
+*****
 
 ####  khxooo  
 ##### 73354#       发表于 2020-5-31 21:33
@@ -15428,7 +15428,7 @@ no homo</blockquote>
 打完高难了，大富翁那里最烦的就是有两格是跳跃的，运气不好或者一不小心算错走到那里就前功尽废了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73355#       发表于 2020-5-31 21:35
@@ -15440,7 +15440,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后面基本就只用走1和走2了 其他很少用 123我都不敢用
 
 
------
+*****
 
 ####  khxooo  
 ##### 73356#       发表于 2020-5-31 21:39
@@ -15456,7 +15456,7 @@ no homo</blockquote>
 将高难捆绑这个大富翁简直是智障行为。
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73357#       发表于 2020-5-31 21:44
@@ -15471,7 +15471,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定设计这东西人还在感叹我怎么设计出了这么赞的东西
 
 
------
+*****
 
 ####  khxooo  
 ##### 73358#       发表于 2020-5-31 21:49
@@ -15483,7 +15483,7 @@ no homo</blockquote>
 看到日本那边的投票，5成人都认为这个联动简直无聊，以日本人的尿性都能有5成，基本上已经判这个活动死刑了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73359#       发表于 2020-5-31 21:56
@@ -15500,7 +15500,7 @@ no homo</blockquote>
 而且周回本还不是必出。。。我刷的有点火大（
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73360#       发表于 2020-5-31 21:57
@@ -15509,7 +15509,7 @@ no homo</blockquote>
 骰子全要刷的，我感觉这卡池是抽的越多越亏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鬼才策划
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73361#       发表于 2020-5-31 22:10
@@ -15518,7 +15518,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马上就要到每月豹跳的时候了  萌新这次无卡池能抽先告辞了
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73362#       发表于 2020-5-31 22:20
@@ -15530,7 +15530,7 @@ no homo</blockquote>
 那个，剧情的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73363#       发表于 2020-5-31 22:21
@@ -15542,7 +15542,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没疯
 
 
------
+*****
 
 ####  rooarr  
 ##### 73364#       发表于 2020-5-31 22:21
@@ -15553,7 +15553,7 @@ no homo</blockquote>
 跳个2宝不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73365#       发表于 2020-5-31 22:22
@@ -15565,7 +15565,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不香 看仓库开图鉴的要什么2宝
 
 
------
+*****
 
 ####  khxooo  
 ##### 73366#       发表于 2020-5-31 22:25
@@ -15577,7 +15577,7 @@ no homo</blockquote>
 黑狗/白枪/大姐姐/李大师不2宝吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73367#       发表于 2020-5-31 22:26
@@ -15589,7 +15589,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我黑狗一直是2宝的啊 另外2个有什么用.jpg
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73368#       发表于 2020-6-1 08:47
@@ -15604,7 +15604,7 @@ no homo</blockquote>
 比较搞的是当年第一个活动就被票过五成了（月神活动，奈须自己写的）
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73369#       发表于 2020-6-1 14:35
@@ -15613,7 +15613,7 @@ no homo</blockquote>
 我买了一堆骰子走完格子，沙雕<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73370#       发表于 2020-6-1 14:38
@@ -15622,7 +15622,7 @@ no homo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道我好友里谁那么猛..我现在每天上线都有6-7千友情
 
 
------
+*****
 
 ####  高木なつめ  
 ##### 73371#       发表于 2020-6-1 16:32
@@ -15638,7 +15638,7 @@ no homo</blockquote>
 fr版兽娘2
 
 
------
+*****
 
 ####  cowgp01  
 ##### 73372#       发表于 2020-6-1 16:43
@@ -15653,7 +15653,7 @@ fr版兽娘2的评价真是一点都不过 ...</blockquote>
 类似小王子一直穿越平行宇宙，攻略FR完美结局那样，这个英灵化的ELS就是失败档的ELS所以小王子才说有个归宿也好然后就去打下一个（小说本传的档了），这样能解释怎么ELS比第一卷的性格还活过去了，还有放弃了其实对她挺不错的卡琳小春朗哥千岁，还有ELS在小说里遇到路易17是岁数和小王子外表年龄差不多的时候应该已经过了几年应该没有那么执着
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73373#       发表于 2020-6-1 17:49
@@ -15666,7 +15666,7 @@ fr版兽娘2的评价真是一点都不过 ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  rooarr  
 ##### 73374#       发表于 2020-6-1 19:23
@@ -15675,7 +15675,7 @@ fr版兽娘2的评价真是一点都不过 ...</blockquote>
 fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73375#       发表于 2020-6-1 19:29
@@ -15684,7 +15684,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么都没人豹跳 你游凉的这么透彻了吗
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73376#       发表于 2020-6-1 19:32
@@ -15696,7 +15696,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 该跳的都跳完了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73377#       发表于 2020-6-1 19:33
@@ -15708,7 +15708,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么都这么欧的吗
 
 
------
+*****
 
 ####  風卷豹  
 ##### 73378#       发表于 2020-6-1 20:32
@@ -15718,7 +15718,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73379#       发表于 2020-6-1 21:17
@@ -15729,7 +15729,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 还有这个阴间bgm,真的是有病
 
 
------
+*****
 
 ####  高木なつめ  
 ##### 73380#       发表于 2020-6-1 22:18
@@ -15744,7 +15744,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 呼符+白嫖石3宝旅行者，怎么样
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73381#       发表于 2020-6-4 11:44
@@ -15757,7 +15757,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 而且嫖得最猛的好像是all，可我all是随便挂的天草啊…
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73382#       发表于 2020-6-4 12:07
@@ -15772,7 +15772,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73383#       发表于 2020-6-4 12:11
@@ -15786,7 +15786,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 害，我太幼稚了，还以为你游不甘现状不知道又从哪拉了一批猛新来入坑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  薛定谔的小猫  
 ##### 73384#       发表于 2020-6-4 12:13
@@ -15799,7 +15799,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 安啦，应该是机器人吧，本来活动期间有借normal组的就很少见了，最近我也是上线一堆normal all的支援点
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73385#       发表于 2020-6-4 14:38
@@ -15813,7 +15813,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也每天上线接近上万 好事 好事
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 73386#       发表于 2020-6-4 17:08
@@ -15822,7 +15822,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">提前充福袋看着正好攒了个十连就抽了，又双叒叕歪了
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73387#       发表于 2020-6-4 17:31
@@ -15831,7 +15831,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来该啥了，去年的泳装复刻？
 
 
------
+*****
 
 ####  風卷豹  
 ##### 73388#       发表于 2020-6-4 17:38
@@ -15845,7 +15845,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 我也是ALL被用的最多，可我ALL甚至带的是无NP礼装+单体，机器人会选这么没效率的人助战吗，太神奇了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73389#       发表于 2020-6-4 17:43
@@ -15858,7 +15858,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73390#       发表于 2020-6-4 20:23
@@ -15870,7 +15870,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 机器人都是一刀99999999999的，助战随便选
 
 
------
+*****
 
 ####  音无奏  
 ##### 73391#       发表于 2020-6-5 00:31
@@ -15879,7 +15879,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">吃了好多个苹果就是刷不出第五张倍卡，没想到第一次打不了高难是因为这个
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73392#       发表于 2020-6-5 10:15
@@ -15891,7 +15891,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  rooarr  
 ##### 73393#       发表于 2020-6-5 11:16
@@ -15900,7 +15900,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 这个高难不都是令咒洗地就完事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73394#       发表于 2020-6-5 11:27
@@ -15915,7 +15915,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  khxooo  
 ##### 73395#       发表于 2020-6-5 11:31
@@ -15924,7 +15924,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 这本不是有凯撒和CBA都能3t吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73396#       发表于 2020-6-5 11:59
@@ -15938,7 +15938,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 我还特地上3个倍卡英灵带倍卡礼装享受令咒满充能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eilot  
 ##### 73397#       发表于 2020-6-5 14:32
@@ -15947,7 +15947,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 高難度本出現太麻煩，寶5算了
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 73398#       发表于 2020-6-5 19:05
@@ -15956,7 +15956,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 这段时间IOS客户端更新好频繁啊，希望确实有优化吧，别和IOS11、12似的纯粹加内存...
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73399#       发表于 2020-6-5 19:40
@@ -15968,7 +15968,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 73400#       发表于 2020-6-5 20:21
@@ -15977,7 +15977,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">志度内这个传说的来源是假的也太草了，樱井莫名躺枪
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73401#       发表于 2020-6-5 20:52
@@ -15986,7 +15986,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 草…又更新了，神经病啊<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真红眼教授  
 ##### 73402#       发表于 2020-6-6 01:13
@@ -16000,7 +16000,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 假设那个推论是真的，也就是当地政府编了个神话还写进了本地史料里，这能怪谁嘛，而且也有快100年了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73403#       发表于 2020-6-6 16:45
@@ -16009,7 +16009,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 持续了那么久的每天万把友情。。今天。。。没了。。。 萌新落泪<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新吾  
 ##### 73404#       发表于 2020-6-7 00:32
@@ -16018,7 +16018,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 忘了有倍卡这玩意儿，三发令咒打到还剩40w血时翻车，想起有倍卡后式姐狐狸梅林轻松扫过，甚至还没满破倍卡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73405#       发表于 2020-6-8 12:23
@@ -16030,7 +16030,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  exalbion01  
 ##### 73406#       发表于 2020-6-8 12:32
@@ -16039,7 +16039,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 草，一个复刻直接把六月糊弄完了
 
 
------
+*****
 
 ####  rooarr  
 ##### 73407#       发表于 2020-6-8 12:38
@@ -16048,7 +16048,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 好好好，泳装莉莉丝抽起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 73408#       发表于 2020-6-8 12:52
@@ -16057,7 +16057,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 没看错？21天的活动？
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 73409#       发表于 2020-6-8 13:02
@@ -16068,7 +16068,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 话说回来，冲田小姐泳装又复刻了，然后本体变成海景房了，本来还以为没有新咕嗒咕嗒也会随便弄个dl池给冲田小姐安排下，这一下至少6月份是没戏了，冲田小姐是要挑战爷爷的记录了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 73410#       发表于 2020-6-8 13:04
@@ -16079,7 +16079,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 如果计算全部的话，好像藤乃才是真正的海景房吧。
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 73411#       发表于 2020-6-8 13:17
@@ -16093,7 +16093,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 5星的海景房又是另外一回事儿了，想复刻有的是借口，什么dl活动，周年，新年，京都动漫展等等等等，只是不知道为什么冲田小姐每次都精准地避开了可能复刻的机会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73412#       发表于 2020-6-8 14:14
@@ -16105,7 +16105,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 武藏那个由头就叫data lost纪念复刻吗
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73413#       发表于 2020-6-8 14:27
@@ -16118,7 +16118,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73414#       发表于 2020-6-8 15:04
@@ -16131,7 +16131,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 都有泳装了，还要啥自行车，我艾蕾有说过啥吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 73415#       发表于 2020-6-8 15:11
@@ -16143,7 +16143,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 反正本能寺复刻魔总已经来过强化本了，干脆趁着这波复刻，再给杀冲田安排一波强化/幕间本，把迫害进行到底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73416#       发表于 2020-6-8 15:12
@@ -16155,7 +16155,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 真就是个过气拐了
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73417#       发表于 2020-6-8 15:15
@@ -16170,7 +16170,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73418#       发表于 2020-6-8 15:21
@@ -16188,7 +16188,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 你楼我看也没多少人缺海景房的
 
 
------
+*****
 
 ####  v22325  
 ##### 73419#       发表于 2020-6-8 15:24
@@ -16197,7 +16197,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 说老实话因为不想专门抽男人梅林我就刚出的时候丢了个十连...要用都是借
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73420#       发表于 2020-6-8 15:27
@@ -16210,7 +16210,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73421#       发表于 2020-6-8 15:33
@@ -16225,7 +16225,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73422#       发表于 2020-6-8 15:42
@@ -16238,7 +16238,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 憋拿兔子不当白枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73423#       发表于 2020-6-8 15:59
@@ -16247,7 +16247,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么突然梅林？ 是因为课金量越来越低了吗
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73424#       发表于 2020-6-8 16:08
@@ -16262,7 +16262,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  khxooo  
 ##### 73425#       发表于 2020-6-8 16:20
@@ -16273,7 +16273,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 萌新沉迷pcr都忘记了上一年的卡池是怎样了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73426#       发表于 2020-6-8 16:24
@@ -16288,7 +16288,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看我像会记得去年卡池的人吗
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 73427#       发表于 2020-6-8 16:59
@@ -16297,7 +16297,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 啊这，武藏2.5.2刚死没多久，图册都Data Lost了，这边就上泳装骗氪，是不是消费死者啊2333
 
 
------
+*****
 
 ####  風卷豹  
 ##### 73428#       发表于 2020-6-8 17:11
@@ -16313,7 +16313,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 水冲田居然复刻那么快，石头保不住了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73429#       发表于 2020-6-8 18:14
@@ -16326,7 +16326,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73430#       发表于 2020-6-8 18:47
@@ -16340,7 +16340,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 欧 羡慕死人了（
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73431#       发表于 2020-6-8 18:55
@@ -16355,7 +16355,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  白金口袋  
 ##### 73432#       发表于 2020-6-8 18:56
@@ -16367,7 +16367,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 你在说什么啊，从者九成以上都是死者不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73433#       发表于 2020-6-8 18:56
@@ -16382,7 +16382,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我等着2期豹个兔子王  出了再爆啊
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 73434#       发表于 2020-6-8 19:11
@@ -16400,7 +16400,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 （就好像第一部时间神殿的同时泳装活动正在复刻，你这边打老盖，马修直接没了，转过头进活动副本人家玩水呢...）
 
 
------
+*****
 
 ####  DARKGRAY  
 ##### 73435#       发表于 2020-6-8 19:36
@@ -16409,7 +16409,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 其实2000W活动里出武藏就知道没打算先解决这个问题再给抽啦<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73436#       发表于 2020-6-8 20:29
@@ -16418,7 +16418,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 突然不长草有点不适应<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eilot  
 ##### 73437#       发表于 2020-6-9 14:55
@@ -16427,7 +16427,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 還以為會先來一次幕間或種火關兩星期後才出復刻
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73438#       发表于 2020-6-9 17:05
@@ -16439,7 +16439,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妇科和长草有什么区别
 
 
------
+*****
 
 ####  Ty_cc  
 ##### 73439#       发表于 2020-6-9 18:23
@@ -16451,7 +16451,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 那还是要肝活动才能拿那几个金方块的
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73440#       发表于 2020-6-9 18:41
@@ -16463,7 +16463,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 我打了一会，腻了，不打了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73441#       发表于 2020-6-9 18:44
@@ -16475,7 +16475,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">体力用光就下线的看着你 不要慌
 
 
------
+*****
 
 ####  suibiankk  
 ##### 73442#       发表于 2020-6-9 18:51
@@ -16487,7 +16487,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 每日登录才是好文明啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  闽明  
 ##### 73443#       发表于 2020-6-9 21:03
@@ -16498,7 +16498,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 去年周年给的币到现在都没用完<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73444#       发表于 2020-6-9 21:20
@@ -16512,7 +16512,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">7个莉莉丝才出1只兔子的看着你……
 
 
------
+*****
 
 ####  闽明  
 ##### 73445#       发表于 2020-6-9 21:26
@@ -16524,7 +16524,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">迫真读心游戏
 
 
------
+*****
 
 ####  khxooo  
 ##### 73446#       发表于 2020-6-9 21:41
@@ -16533,7 +16533,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 莉莉丝和兔子王都只有1宝，不过没石头补宝<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exalbion01  
 ##### 73447#       发表于 2020-6-9 23:38
@@ -16545,7 +16545,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 我去年想要ramda，结果是冲田满宝兔子王1之后才来
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73448#       发表于 2020-6-10 13:20
@@ -16554,7 +16554,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 东蛋取消了，不出意料
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73449#       发表于 2020-6-10 14:10
@@ -16565,7 +16565,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73450#       发表于 2020-6-11 09:04
@@ -16576,7 +16576,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 73451#       发表于 2020-6-11 09:24
@@ -16591,7 +16591,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73452#       发表于 2020-6-12 21:36
@@ -16600,7 +16600,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 领了登陆的30石直接丢卡池里5藏二宝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 73453#       发表于 2020-6-12 22:25
@@ -16609,7 +16609,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 去年泳装一期的战绩是6武藏5弓邢4卡米拉，为了抽个5宝弓邢打地铺抽了个盘子<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73454#       发表于 2020-6-12 22:37
@@ -16618,7 +16618,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜报 友情机器人好像有复活了 今天上线拿了13000友情
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 73455#       发表于 2020-6-13 00:38
@@ -16627,7 +16627,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 淦，这就是传说中的墨菲定律吗，卡米拉单up池抽了7个呼符，又出了一个水武藏，武藏7宝了，卡米拉还是4宝<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">不抽了不抽了，等水冲田池子再补个宝具就拉倒了。
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73456#       发表于 2020-6-13 11:36
@@ -16638,7 +16638,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 73457#       发表于 2020-6-14 17:44
@@ -16647,7 +16647,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 这他妈精神病吧211的本
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73458#       发表于 2020-6-14 18:06
@@ -16659,7 +16659,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">运气好点会变212哦 开心不开心
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73459#       发表于 2020-6-14 18:52
@@ -16668,7 +16668,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这新本还只有一个小鬼 刷这个怕不是任务都做不完
 
 
------
+*****
 
 ####  v22325  
 ##### 73460#       发表于 2020-6-14 19:40
@@ -16677,7 +16677,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 一次两百万 我刷刷钱 不用3t也就5 6 回合嘛
 
 
------
+*****
 
 ####  薛定谔的小猫  
 ##### 73461#       发表于 2020-6-14 19:50
@@ -16686,7 +16686,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 跟上次一样了，大英雄拉单体，大不了带换人，150np强冲
 
 
------
+*****
 
 ####  rooarr  
 ##### 73462#       发表于 2020-6-14 20:19
@@ -16695,7 +16695,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 你们怎么这么快，我还在刷任务6<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73463#       发表于 2020-6-14 20:40
@@ -16707,7 +16707,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷是能刷的 也就换个大英雄 不换人 用紫衣枪bba 只不过如果没卡的话第3波的小怪要平砍
 
 
------
+*****
 
 ####  新吾  
 ##### 73464#       发表于 2020-6-14 20:51
@@ -16716,7 +16716,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">去年3只兔子王1个莉莉丝0个冲田，兔子王除了qp本看脸第三面外几乎没有任何用场，今年看情况氪半单吧...
 
 
------
+*****
 
 ####  v22325  
 ##### 73465#       发表于 2020-6-15 19:28
@@ -16725,7 +16725,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">应该等拉姆达单up再抽的 一个冲田一个茨木
 
 
------
+*****
 
 ####  rooarr  
 ##### 73466#       发表于 2020-6-15 19:37
@@ -16736,7 +16736,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 我特地等单up，现在抽划不来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73467#       发表于 2020-6-15 19:51
@@ -16748,7 +16748,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是豹跳预告吗
 
 
------
+*****
 
 ####  rooarr  
 ##### 73468#       发表于 2020-6-15 19:53
@@ -16759,7 +16759,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 氪金的事情，怎么能叫豹呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v22325  
 ##### 73469#       发表于 2020-6-16 08:10
@@ -16770,7 +16770,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 冲田三技的减防不是写看做强化效果么？一技的解除防御强化怎么解除不了...是bug还是我理解错了？
 
 
------
+*****
 
 ####  卡蓮  
 ##### 73470#       发表于 2020-6-16 09:29
@@ -16782,7 +16782,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 不设置成防御强化不就行了（
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73471#       发表于 2020-6-16 10:12
@@ -16797,7 +16797,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 这个去年实装的时候日本几个攻略版上已经吐槽过了，不过没啥用，DLW没打算改的样子
 
 
------
+*****
 
 ####  v22325  
 ##### 73472#       发表于 2020-6-16 10:17
@@ -16809,7 +16809,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦是这样 好谜  我还以为是パッションリップ一样是设计好让玩家自免自解的 
 
 
------
+*****
 
 ####  阿提拉  
 ##### 73473#       发表于 2020-6-16 17:35
@@ -16818,7 +16818,7 @@ fgo和赛马比赛的这个联动是什么鬼<img src="https://static.saraba1st.
 yls太傻逼了，这新本124是个什么鬼配置
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73474#       发表于 2020-6-16 17:55
@@ -16830,7 +16830,7 @@ yls太傻逼了，这新本124是个什么鬼配置</blockquote>
 我先吐为敬。。。太傻逼了
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 73475#       发表于 2020-6-16 18:05
@@ -16841,7 +16841,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 —— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  白夜羽  
 ##### 73476#       发表于 2020-6-16 18:15
@@ -16850,7 +16850,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 怎么又更新了，真的神经病啊
 
 
------
+*****
 
 ####  rooarr  
 ##### 73477#       发表于 2020-6-16 18:19
@@ -16859,7 +16859,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 往好处想，这是要实装扫荡的节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73478#       发表于 2020-6-16 18:41
@@ -16871,7 +16871,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实4t还是挺轻松的。不过要上3个满羁绊的。。我选择告辞 我还是刷上一级的
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73479#       发表于 2020-6-16 23:24
@@ -16880,7 +16880,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 300多石头才出了2个莉莉丝...还歪了个不要的兔子...算上去年的沉船真是亏到姥姥家了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 73480#       发表于 2020-6-16 23:34
@@ -16889,7 +16889,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 一单成功把剩下3宝莉莉丝补齐，兔子王也正好一张没溢出<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73481#       发表于 2020-6-16 23:34
@@ -16901,7 +16901,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 简直欧羡慕到姥姥家了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73482#       发表于 2020-6-17 00:00
@@ -16913,7 +16913,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看看你LS的那个豹豹再看看你说的....咱要砸烂这个萌新的狗头
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73483#       发表于 2020-6-17 00:02
@@ -16925,7 +16925,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都欧都羡慕 萌新36石丢下去只出了2张3星活动礼装
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 73484#       发表于 2020-6-17 00:24
@@ -16934,7 +16934,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 这个新本的配置真是开幕雷击啊，运营这是在限制绿卡冲浪，准备强抬红蓝卡的节奏？百花齐放也是好事，前提是别搞三面怪，两面怪我就能接受了...
 
 
------
+*****
 
 ####  rooarr  
 ##### 73485#       发表于 2020-6-17 01:06
@@ -16943,7 +16943,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 不抽了，这什么鬼卡池啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73486#       发表于 2020-6-17 01:10
@@ -16956,7 +16956,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种124 什么颜色都不行
 
 
------
+*****
 
 ####  森兰丸  
 ##### 73487#       发表于 2020-6-17 02:23
@@ -16970,7 +16970,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 技能都是10级.....自己开1和2技能....结果打弓本只能回94NP?
 
 
------
+*****
 
 ####  闽明  
 ##### 73488#       发表于 2020-6-17 08:23
@@ -16983,7 +16983,7 @@ yls：我不是针对绿卡，在座的诸位都是乐色<img src="https://stati
 留了15颗有偿石头等周年福袋了
 
 
------
+*****
 
 ####  katun  
 ##### 73489#       发表于 2020-6-17 09:05
@@ -17002,7 +17002,7 @@ T2：换人CBA或者孔明，充满
 T3：莉莉丝3技能充满
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73490#       发表于 2020-6-17 09:15
@@ -17025,7 +17025,7 @@ T3：莉莉丝3技能充满
 队友直接对拉姆达充能可以解决一回合的NP问题，拉姆达自身的三技能吸收到的队友NP可以解决另一回合
 
 
------
+*****
 
 ####  exiaexa  
 ##### 73491#       发表于 2020-6-17 11:36
@@ -17043,7 +17043,7 @@ T3：莉莉丝3技能充满
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 73492#       发表于 2020-6-17 13:13
@@ -17052,7 +17052,7 @@ T3：莉莉丝3技能充满
 街机的福利好这么多的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然送一次福袋10连
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73493#       发表于 2020-6-17 13:36
@@ -17061,7 +17061,7 @@ T3：莉莉丝3技能充满
 还是S1讨论环境舒服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  reekilynn  
 ##### 73494#       发表于 2020-6-17 13:37
@@ -17074,7 +17074,7 @@ nga且不论，贴吧几个fate相关的已经不能看了吧
 —— 来自 OnePlus GM1917, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 73495#       发表于 2020-6-17 13:57
@@ -17085,7 +17085,7 @@ nga且不论，贴吧几个fate相关的已经不能看了吧
 因为s1人少啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  jacatay  
 ##### 73496#       发表于 2020-6-17 14:18
@@ -17096,7 +17096,7 @@ nga且不论，贴吧几个fate相关的已经不能看了吧
 反正好久没抽到新人  不缺东西
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 73497#       发表于 2020-6-17 14:58
@@ -17108,7 +17108,7 @@ nga且不论，贴吧几个fate相关的已经不能看了吧
 街机抽卡还是要钱的啊
 
 
------
+*****
 
 ####  LOLITA  
 ##### 73498#       发表于 2020-6-17 22:25
@@ -17123,7 +17123,7 @@ nga且不论，贴吧几个fate相关的已经不能看了吧
 客观的说，几个相关贴吧再怎么不能看也比NGA专区强多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 73499#       发表于 2020-6-17 22:34
@@ -17132,7 +17132,7 @@ nga且不论，贴吧几个fate相关的已经不能看了吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧不就一个吗
 
 
------
+*****
 
 ####  wolegequaaa  
 ##### 73500#       发表于 2020-6-17 23:47

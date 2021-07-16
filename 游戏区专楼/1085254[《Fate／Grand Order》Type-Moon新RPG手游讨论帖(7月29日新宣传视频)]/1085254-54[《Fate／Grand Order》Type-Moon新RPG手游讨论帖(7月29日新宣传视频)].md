@@ -1,6 +1,6 @@
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79496#       发表于 2021-6-30 18:00
@@ -12,7 +12,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 79497#       发表于 2021-6-30 18:04
@@ -26,7 +26,7 @@ yls这是吃错药了吗</blockquote>
 哪里可以一开到底啊，不还是要10个10个抽？
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79498#       发表于 2021-6-30 18:17
@@ -35,7 +35,7 @@ yls这是吃错药了吗</blockquote>
 90+刷起来还行，前两面让暴击猩猩们揍就是了，3T没啥问题
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79499#       发表于 2021-6-30 18:29
@@ -47,7 +47,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你骗人  今天的6加成（换人） 很轻松啊
 
 
------
+*****
 
 ####  都谷捻柏  
 ##### 79500#       发表于 2021-6-30 18:29
@@ -63,7 +63,7 @@ yls这是吃错药了吗</blockquote>
 
 
 
------
+*****
 
 ####  rooarr  
 ##### 79501#       发表于 2021-6-30 18:57
@@ -75,7 +75,7 @@ yls这是吃错药了吗</blockquote>
 换人不就输了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这个本确实没什么好刷的，不值得
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79502#       发表于 2021-6-30 18:59
@@ -84,7 +84,7 @@ yls这是吃错药了吗</blockquote>
 翻页
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79503#       发表于 2021-6-30 18:59
@@ -93,7 +93,7 @@ yls这是吃错药了吗</blockquote>
 再翻页
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79504#       发表于 2021-6-30 19:09
@@ -106,7 +106,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79505#       发表于 2021-6-30 19:19
@@ -118,7 +118,7 @@ yls这是吃错药了吗</blockquote>
 不是一直都是这样吗，后面还会换本
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79506#       发表于 2021-6-30 19:22
@@ -130,7 +130,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是圣诞
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79507#       发表于 2021-6-30 19:23
@@ -144,7 +144,7 @@ yls这是吃错药了吗</blockquote>
 
                                                 
 
------
+*****
 
 ####  khxooo  
 ##### 79508#       发表于 2021-6-30 20:48
@@ -153,7 +153,7 @@ yls这是吃错药了吗</blockquote>
 只有90+才是纯加成礼装掉落还行，太阴险了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stefanie张  
 ##### 79509#       发表于 2021-6-30 21:20
@@ -164,7 +164,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79510#       发表于 2021-6-30 22:39
@@ -173,7 +173,7 @@ yls这是吃错药了吗</blockquote>
 掉了个礼装，113有点难，4加成打得了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79511#       发表于 2021-6-30 22:53
@@ -196,7 +196,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6加成稳定3t  就是要换人
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79512#       发表于 2021-6-30 23:04
@@ -205,7 +205,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本月船票出凯尼斯了，大胜利
 
 
------
+*****
 
 ####  khxooo  
 ##### 79513#       发表于 2021-6-30 23:07
@@ -214,7 +214,7 @@ yls这是吃错药了吗</blockquote>
 金钻头，算是可以。
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79514#       发表于 2021-6-30 23:16
@@ -223,7 +223,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10护符挑战尼禄无事发生 这合理吗 萌新只是想要个new而已
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79515#       发表于 2021-6-30 23:24
@@ -235,7 +235,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 79516#       发表于 2021-7-1 00:30
@@ -248,7 +248,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  白金口袋  
 ##### 79517#       发表于 2021-7-1 03:33
@@ -257,7 +257,7 @@ yls这是吃错药了吗</blockquote>
 金钻头new了，尼禄祭宣告结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79518#       发表于 2021-7-1 04:08
@@ -268,7 +268,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79519#       发表于 2021-7-1 08:09
@@ -280,7 +280,7 @@ yls这是吃错药了吗</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  森兰丸  
 ##### 79520#       发表于 2021-7-1 08:30
@@ -289,7 +289,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">才发现UP C尼禄了.....只剩下一共6抽....最后1抽竟然出了......了却了一大怨念
 
 
------
+*****
 
 ####  areklose  
 ##### 79521#       发表于 2021-7-1 08:59
@@ -298,7 +298,7 @@ yls这是吃错药了吗</blockquote>
 鹤小姐挺好用，20星也不是那么难凑，还能第一面打打暴击
 
 
------
+*****
 
 ####  areklose  
 ##### 79522#       发表于 2021-7-1 08:59
@@ -307,7 +307,7 @@ yls这是吃错药了吗</blockquote>
 鹤小姐挺好用，20星也不是那么难凑，还能第一面打打暴击
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79523#       发表于 2021-7-1 09:30
@@ -316,7 +316,7 @@ yls这是吃错药了吗</blockquote>
 鹤+摩根就行，摩根6级3出10个，鹤小姐带个宇宙凛出10刚好
 
 
------
+*****
 
 ####  areklose  
 ##### 79524#       发表于 2021-7-1 09:33
@@ -328,7 +328,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">不需要那么麻烦，有自充出星的蓝单体，一抓一大把，不需要特意配合灵衣特性
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79525#       发表于 2021-7-1 09:37
@@ -342,7 +342,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79526#       发表于 2021-7-1 09:38
@@ -351,7 +351,7 @@ yls这是吃错药了吗</blockquote>
 简单举一下例子。剑兰30自充20星，还有集星暴击。或者泳装北斋。
 
 
------
+*****
 
 ####  areklose  
 ##### 79527#       发表于 2021-7-1 09:49
@@ -367,7 +367,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不用看发牌员脸色吗
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79528#       发表于 2021-7-1 10:05
@@ -384,7 +384,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  白金口袋  
 ##### 79529#       发表于 2021-7-1 11:13
@@ -395,7 +395,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79530#       发表于 2021-7-1 11:35
@@ -408,7 +408,7 @@ yls这是吃错药了吗</blockquote>
 
 
 
------
+*****
 
 ####  khxooo  
 ##### 79531#       发表于 2021-7-1 11:36
@@ -417,7 +417,7 @@ yls这是吃错药了吗</blockquote>
 现在才30池，有点咸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79532#       发表于 2021-7-1 11:37
@@ -432,7 +432,7 @@ yls这是吃错药了吗</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79533#       发表于 2021-7-1 12:12
@@ -446,7 +446,7 @@ yls这是吃错药了吗</blockquote>
 
                                                 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79534#       发表于 2021-7-1 12:39
@@ -461,7 +461,7 @@ yls这是吃错药了吗</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  johnkamsar  
 ##### 79535#       发表于 2021-7-1 13:02
@@ -472,7 +472,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  exiaexa  
 ##### 79536#       发表于 2021-7-1 16:01
@@ -487,7 +487,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79537#       发表于 2021-7-1 16:04
@@ -499,7 +499,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面小怪不算的话 有没有倍卡武师傅不都是1回合
 
 
------
+*****
 
 ####  khxooo  
 ##### 79538#       发表于 2021-7-1 16:44
@@ -510,7 +510,7 @@ yls这是吃错药了吗</blockquote>
 我用你的武师傅翻过一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79539#       发表于 2021-7-1 16:52
@@ -522,7 +522,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开场直接秒了 怎么翻啊 没翻车点啊
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79540#       发表于 2021-7-1 17:53
@@ -531,7 +531,7 @@ yls这是吃错药了吗</blockquote>
 果不其然,bx顶着血铠把飞哥杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 79541#       发表于 2021-7-1 18:09
@@ -540,7 +540,7 @@ yls这是吃错药了吗</blockquote>
 用黑A直接一枪搞掂<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79542#       发表于 2021-7-1 18:24
@@ -549,7 +549,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用小黑带拉妮礼装把飞哥打死了
 
 
------
+*****
 
 ####  johnkamsar  
 ##### 79543#       发表于 2021-7-1 20:28
@@ -560,7 +560,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">难点其实就是小怪....
 
 
------
+*****
 
 ####  khxooo  
 ##### 79544#       发表于 2021-7-1 21:22
@@ -571,7 +571,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 79545#       发表于 2021-7-2 16:24
@@ -580,7 +580,7 @@ yls这是吃错药了吗</blockquote>
 都好勤奋 我目前才3池不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 79546#       发表于 2021-7-2 16:37
@@ -592,7 +592,7 @@ yls这是吃错药了吗</blockquote>
 我也是，才1500个花瓣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  消失的兰斯  
 ##### 79547#       发表于 2021-7-2 16:53
@@ -601,7 +601,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">自然回体3池不到，明明QP不到1e了
 
 
------
+*****
 
 ####  森兰丸  
 ##### 79548#       发表于 2021-7-2 19:21
@@ -615,7 +615,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  里村紅葉  
 ##### 79549#       发表于 2021-7-2 19:48
@@ -630,7 +630,7 @@ yls这是吃错药了吗</blockquote>
 一年才一次的活动，再说也不会有什么人因为这个弃坑<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  smdzh2  
 ##### 79550#       发表于 2021-7-2 19:54
@@ -644,7 +644,7 @@ yls这是吃错药了吗</blockquote>
 说明抱怨的玩家和无限池之间的羁绊还不够<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 79551#       发表于 2021-7-2 20:05
@@ -658,7 +658,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  里村紅葉  
 ##### 79552#       发表于 2021-7-2 20:44
@@ -670,7 +670,7 @@ yls这是吃错药了吗</blockquote>
 你游真的还有新玩家吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 79553#       发表于 2021-7-2 20:49
@@ -682,7 +682,7 @@ yls这是吃错药了吗</blockquote>
 隔壁不是一堆“自称”新人的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 79554#       发表于 2021-7-2 20:53
@@ -696,7 +696,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79555#       发表于 2021-7-2 21:38
@@ -705,7 +705,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咸鱼刚刚15箱，一张礼装都没掉
 
 
------
+*****
 
 ####  khxooo  
 ##### 79556#       发表于 2021-7-2 21:40
@@ -716,7 +716,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79557#       发表于 2021-7-2 22:40
@@ -725,7 +725,7 @@ yls这是吃错药了吗</blockquote>
 这英雄王丢人啊..直虎顶着宝具down2枪戳死。。
 
 
------
+*****
 
 ####  AbigailWilliams  
 ##### 79558#       发表于 2021-7-2 23:19
@@ -734,7 +734,7 @@ yls这是吃错药了吗</blockquote>
 别说新人了，老玩家感觉不少也就一口气吊着了，反正2.0完结后型月在fgo上干什么我都不怎么想奉陪了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79559#       发表于 2021-7-2 23:22
@@ -748,7 +748,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  白夜羽  
 ##### 79560#       发表于 2021-7-3 00:42
@@ -759,7 +759,7 @@ yls这是吃错药了吗</blockquote>
 
                                                  
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79561#       发表于 2021-7-3 12:53
@@ -768,7 +768,7 @@ yls这是吃错药了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">20箱0礼装，幸好留着当年的礼装，不然我就死了
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79562#       发表于 2021-7-3 12:55
@@ -778,7 +778,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79563#       发表于 2021-7-3 14:22
@@ -787,7 +787,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 翻页
 
 
------
+*****
 
 ####  khxooo  
 ##### 79564#       发表于 2021-7-3 14:36
@@ -796,7 +796,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 60池七张，可能是看我第一次打所以掉落这么好吧。
 
 
------
+*****
 
 ####  areklose  
 ##### 79565#       发表于 2021-7-3 14:47
@@ -807,7 +807,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79566#       发表于 2021-7-3 18:00
@@ -816,7 +816,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 果然到现在还是打不过原版的全力斗技，算了不浪费时间了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，前面没问题，就是杀了C妈后太硬了，打不动。而且拉二还会加防。
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79567#       发表于 2021-7-3 18:15
@@ -828,7 +828,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">村正宝具无视防御，打起来就是切菜
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79568#       发表于 2021-7-3 18:18
@@ -840,7 +840,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不对劲　武师傅直接冲掉了啊
 
 
------
+*****
 
 ####  khxooo  
 ##### 79569#       发表于 2021-7-3 18:19
@@ -852,7 +852,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 单C呆能冲掉吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79570#       发表于 2021-7-3 18:20
@@ -864,7 +864,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就触及我的知识盲区了。。不知道
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 79571#       发表于 2021-7-3 18:24
@@ -878,7 +878,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79572#       发表于 2021-7-3 18:34
@@ -890,7 +890,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 多谢提供思路，过了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  上坂莲华  
 ##### 79573#       发表于 2021-7-3 19:04
@@ -899,7 +899,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 1宝宇宙凛试了几把过了，加防可以带个满破宝石卷福开宝具，打不死尼禄可以后排放个带倍卡的**挑
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79574#       发表于 2021-7-3 19:12
@@ -910,7 +910,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 
                                                  
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79575#       发表于 2021-7-3 19:22
@@ -921,7 +921,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 顺序错了，先杀尼禄，c妈10次战续杀气来也很简单的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 79576#       发表于 2021-7-3 19:26
@@ -932,7 +932,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 之前用仇凛轰过去了，第一面全杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79577#       发表于 2021-7-3 19:29
@@ -943,7 +943,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 我仇凛轰完最后剩尼禄发现轰不动了，就上单体一个一个打的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79578#       发表于 2021-7-3 19:34
@@ -952,7 +952,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们是没用倍卡吗？　为啥会打不动　萌新的武师傅还是１宝的啊
 
 
------
+*****
 
 ####  khxooo  
 ##### 79579#       发表于 2021-7-3 19:38
@@ -963,7 +963,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 现在国服正在Up老福，我是不是要抽个来打这个高难<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79580#       发表于 2021-7-3 19:43
@@ -974,7 +974,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 一宝武藏冲第一面都回不满啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79581#       发表于 2021-7-3 19:54
@@ -996,7 +996,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 2021-7-3 19:53 上传
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79582#       发表于 2021-7-3 19:55
@@ -1008,7 +1008,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不需要 我二宝仇凛六回合打完了 而且前两回合纯粹是因为没看板娘等弓南丁下场
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79583#       发表于 2021-7-3 19:58
@@ -1020,7 +1020,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去录个像玩玩　　等ｂ站审核
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79584#       发表于 2021-7-3 20:11
@@ -1029,7 +1029,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 村正脚打，宝具无视防御，老板高难后排放了个藤乃出来补刀（好不容易抽到的海景房，怎么能不拿出来用用）。
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79585#       发表于 2021-7-3 20:29
@@ -1045,7 +1045,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 79586#       发表于 2021-7-3 20:49
@@ -1057,7 +1057,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 3宝摩根用了2发令咒3T过了
 
 
------
+*****
 
 ####  areklose  
 ##### 79587#       发表于 2021-7-3 21:13
@@ -1069,7 +1069,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 完全没必要
 
 
------
+*****
 
 ####  areklose  
 ##### 79588#       发表于 2021-7-3 21:14
@@ -1078,7 +1078,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高难完全没必要抽卡来打。就算打不过那零头奖励不配。更不用说现在除非真萌新。高难思考一下也不难
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79589#       发表于 2021-7-3 21:18
@@ -1088,7 +1088,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79590#       发表于 2021-7-3 21:19
@@ -1099,7 +1099,7 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 
                                                  
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79591#       发表于 2021-7-3 21:20
@@ -1113,7 +1113,7 @@ https://www.bilibili.com/video/BV1H64y1b7Bs/
 艹，破案了，你的是羁绊c呆<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79592#       发表于 2021-7-3 21:33
@@ -1122,7 +1122,7 @@ https://www.bilibili.com/video/BV1H64y1b7Bs/
 翻页
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79593#       发表于 2021-7-3 21:33
@@ -1131,7 +1131,7 @@ https://www.bilibili.com/video/BV1H64y1b7Bs/
 再翻
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79594#       发表于 2021-7-3 21:34
@@ -1145,7 +1145,7 @@ https://www.bilibili.com/video/BV1H64y1b7Bs/
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79595#       发表于 2021-7-3 22:27
@@ -1154,7 +1154,7 @@ https://www.bilibili.com/video/BV1H64y1b7Bs/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">C呆太强了。今天直接把之前攒着所有高难全打了。整理一下，明天换本之前应该能100池子
 
 
------
+*****
 
 ####  khxooo  
 ##### 79596#       发表于 2021-7-3 23:01
@@ -1169,7 +1169,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79597#       发表于 2021-7-4 10:26
@@ -1182,7 +1182,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79598#       发表于 2021-7-4 12:15
@@ -1195,7 +1195,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79599#       发表于 2021-7-4 15:07
@@ -1204,7 +1204,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 突然想起 现在是不是除了我大ipad外其他全部完美适配了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79600#       发表于 2021-7-4 15:09
@@ -1216,7 +1216,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 你说屏幕？我其实很想吐槽。为啥公告还是不能全屏
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79601#       发表于 2021-7-4 15:09
@@ -1228,7 +1228,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是平时的界面啊  你看我的录像和截图上下2条那么大的“蓝边”
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79602#       发表于 2021-7-4 15:11
@@ -1240,7 +1240,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 似乎索尼家手机由于屏幕太长，依然没法全屏（
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79603#       发表于 2021-7-4 15:12
@@ -1252,7 +1252,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来我不是唯一吃鳖的 那我就放心了（
 
 
------
+*****
 
 ####  areklose  
 ##### 79604#       发表于 2021-7-4 15:20
@@ -1263,7 +1263,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79605#       发表于 2021-7-4 17:15
@@ -1272,7 +1272,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 金钻头差一宝就满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79606#       发表于 2021-7-4 17:18
@@ -1283,7 +1283,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 
                                                  
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79607#       发表于 2021-7-4 17:32
@@ -1294,7 +1294,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 摩根+黄金圣斗士+孔明，倒是可以不换人打6加成3T
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79608#       发表于 2021-7-4 17:53
@@ -1303,7 +1303,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 倒是可以宝具3t，但是二三面伤害都差一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 79609#       发表于 2021-7-4 18:10
@@ -1312,7 +1312,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 这个本体现了摩根的能力，一个50自充还能出星集星打暴击的狂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KOBI  
 ##### 79610#       发表于 2021-7-4 18:18
@@ -1321,7 +1321,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">宝具等级。。不足啊，摩根跟弗栗多都只有1宝伤害总是差一点。。
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79611#       发表于 2021-7-4 18:31
@@ -1330,7 +1330,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 萌新1宝摩根带倍卡礼装假装6加成3t<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79612#       发表于 2021-7-4 18:35
@@ -1342,7 +1342,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79613#       发表于 2021-7-4 18:41
@@ -1356,7 +1356,7 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放弃6加成 lls带宝石 用脚快乐3t5加成周回啊
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79614#       发表于 2021-7-4 18:50
@@ -1371,7 +1371,7 @@ lls满了不用
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79615#       发表于 2021-7-4 18:56
@@ -1387,7 +1387,7 @@ lls满了不用
 
                                                  
 
------
+*****
 
 ####  exiaexa  
 ##### 79616#       发表于 2021-7-4 19:59
@@ -1402,7 +1402,7 @@ lls满了不用
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79617#       发表于 2021-7-4 20:00
@@ -1418,7 +1418,7 @@ lls满了不用
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">当然是继续用到死啊，我CBA和狛爵都是15绊才下班的
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79618#       发表于 2021-7-4 20:28
@@ -1427,7 +1427,7 @@ lls满了不用
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键是梦火不是有很多吗 
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79619#       发表于 2021-7-4 20:31
@@ -1436,7 +1436,7 @@ lls满了不用
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有摩根 LLS一宝 五加成都做不到的我打出了GG
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79620#       发表于 2021-7-4 20:33
@@ -1453,7 +1453,7 @@ lls满了不用
 
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79621#       发表于 2021-7-4 20:38
@@ -1465,7 +1465,7 @@ lls满了不用
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以的  换人塞个狐狸（
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79622#       发表于 2021-7-4 21:01
@@ -1474,7 +1474,7 @@ lls满了不用
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">搞了个换人五加成 还行勉强能用
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79623#       发表于 2021-7-4 21:09
@@ -1485,7 +1485,7 @@ lls满了不用
 
                                                 
 
------
+*****
 
 ####  newfaceryo  
 ##### 79624#       发表于 2021-7-4 21:36
@@ -1507,7 +1507,7 @@ lls满了不用
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79625#       发表于 2021-7-4 22:51
@@ -1518,7 +1518,7 @@ lls满了不用
 
                                                  
 
------
+*****
 
 ####  白金口袋  
 ##### 79626#       发表于 2021-7-5 03:34
@@ -1534,7 +1534,7 @@ lls满了不用
 
                                                  
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 79627#       发表于 2021-7-5 09:30
@@ -1543,7 +1543,7 @@ lls满了不用
 没摩根lls 节奏榜上抄了个大英雄孔明槑福利多换人6加成 1宝90级也能3T 就是大英雄需要杯子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79628#       发表于 2021-7-5 09:38
@@ -1554,7 +1554,7 @@ lls满了不用
 
                                                  
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 79629#       发表于 2021-7-5 11:31
@@ -1565,7 +1565,7 @@ lls满了不用
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79630#       发表于 2021-7-5 12:01
@@ -1574,7 +1574,7 @@ lls满了不用
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天怎么有维护 完了 体力都没清 血亏1个苹果
 
 
------
+*****
 
 ####  areklose  
 ##### 79631#       发表于 2021-7-5 12:05
@@ -1583,7 +1583,7 @@ lls满了不用
 竟然有维护，刚吃苹果啊
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79632#       发表于 2021-7-5 12:10
@@ -1592,7 +1592,7 @@ lls满了不用
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">胡扯一下尼禄祭二期卡池 2.6下半预热活动 新强化本
 
 
------
+*****
 
 ####  khxooo  
 ##### 79633#       发表于 2021-7-5 12:12
@@ -1603,7 +1603,7 @@ lls满了不用
 大胆点，狂那宝具本加复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79634#       发表于 2021-7-5 12:13
@@ -1612,7 +1612,7 @@ lls满了不用
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想太多 都写这临时维护
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79635#       发表于 2021-7-5 12:17
@@ -1626,7 +1626,7 @@ lls满了不用
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79636#       发表于 2021-7-5 12:52
@@ -1635,7 +1635,7 @@ lls满了不用
 大胆点，氪金半价
 
 
------
+*****
 
 ####  khxooo  
 ##### 79637#       发表于 2021-7-5 12:55
@@ -1646,7 +1646,7 @@ lls满了不用
 这个真的太大胆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  selfcest  
 ##### 79638#       发表于 2021-7-5 13:23
@@ -1660,7 +1660,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79639#       发表于 2021-7-5 17:18
@@ -1669,7 +1669,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">才五个石头
 
 
------
+*****
 
 ####  khxooo  
 ##### 79640#       发表于 2021-7-5 17:49
@@ -1685,7 +1685,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
                                                  
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79641#       发表于 2021-7-5 21:12
@@ -1694,7 +1694,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">40箱只掉了1张礼装…………
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 79642#       发表于 2021-7-5 21:21
@@ -1703,7 +1703,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 看来是4年前掉的太狠，我这期把商店换出来就可以+12了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79643#       发表于 2021-7-5 21:23
@@ -1717,7 +1717,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79644#       发表于 2021-7-5 23:09
@@ -1728,7 +1728,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79645#       发表于 2021-7-5 23:38
@@ -1741,7 +1741,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79646#       发表于 2021-7-6 00:58
@@ -1752,7 +1752,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79647#       发表于 2021-7-6 08:19
@@ -1763,7 +1763,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
                                                  
 
------
+*****
 
 ####  dante888  
 ##### 79648#       发表于 2021-7-6 15:34
@@ -1772,7 +1772,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 有神祖的可以挂下，打暴击真挺爽的
 
 
------
+*****
 
 ####  areklose  
 ##### 79649#       发表于 2021-7-6 15:45
@@ -1790,7 +1790,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79650#       发表于 2021-7-6 16:52
@@ -1801,7 +1801,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
                                                  
 
------
+*****
 
 ####  qixinno2  
 ##### 79651#       发表于 2021-7-6 17:32
@@ -1813,7 +1813,7 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的 完克 打完血都不带掉的
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79652#       发表于 2021-7-6 17:57
@@ -1827,7 +1827,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79653#       发表于 2021-7-6 17:58
@@ -1836,7 +1836,7 @@ C呆打阿拉什根本就是降维打击艹
 翻页
 
 
------
+*****
 
 ####  khxooo  
 ##### 79654#       发表于 2021-7-6 18:19
@@ -1845,7 +1845,7 @@ C呆打阿拉什根本就是降维打击艹
 达芬奇感觉还是可以打一下，后天老王那个真的不想打了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79655#       发表于 2021-7-6 18:22
@@ -1857,7 +1857,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 王师傅不是脚打的吗 以前开荒就jio了现在都知道机制了还能难到哪去
 
 
------
+*****
 
 ####  areklose  
 ##### 79656#       发表于 2021-7-6 18:40
@@ -1866,7 +1866,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得复刻的高难应该没难度，看新追加的难度本了
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79657#       发表于 2021-7-6 18:49
@@ -1875,7 +1875,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正日服没打过 国服那阵抽卡一个五星没出弃坑了大半年这活动给鸽了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79658#       发表于 2021-7-6 18:58
@@ -1886,7 +1886,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79659#       发表于 2021-7-6 19:38
@@ -1900,7 +1900,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  rooarr  
 ##### 79660#       发表于 2021-7-7 12:15
@@ -1912,7 +1912,7 @@ C呆打阿拉什根本就是降维打击艹
 萌新打什么都是脚打，习惯就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79661#       发表于 2021-7-7 12:30
@@ -1926,7 +1926,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  rooarr  
 ##### 79662#       发表于 2021-7-7 13:22
@@ -1945,7 +1945,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79663#       发表于 2021-7-7 13:33
@@ -1962,7 +1962,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79664#       发表于 2021-7-7 15:42
@@ -1971,7 +1971,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我发现我现在刷无限池的目的不是池数，而是希望凑个+12。。
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79665#       发表于 2021-7-7 15:43
@@ -1983,7 +1983,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79666#       发表于 2021-7-7 17:10
@@ -1992,7 +1992,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又发石了 凑了个10连丢下去 然后无事发生
 
 
------
+*****
 
 ####  areklose  
 ##### 79667#       发表于 2021-7-7 17:15
@@ -2003,7 +2003,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79668#       发表于 2021-7-7 17:31
@@ -2014,7 +2014,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  vacuumsword  
 ##### 79669#       发表于 2021-7-7 18:33
@@ -2023,7 +2023,7 @@ C呆打阿拉什根本就是降维打击艹
 楼里有人最近（6/15之后）拿Google礼品卡充过么？之前外野有人说现在GPS不在日本就不行了。
 
 
------
+*****
 
 ####  areklose  
 ##### 79670#       发表于 2021-7-7 19:07
@@ -2035,7 +2035,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看你这样一说，买了日区的礼品卡充进去了。不过不是直接氪FGO，是直接充进去谷歌账号。毫无问题。我觉得不至于查GPS吧。。
 
 
------
+*****
 
 ####  areklose  
 ##### 79671#       发表于 2021-7-7 19:23
@@ -2056,7 +2056,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  缘一  
 ##### 79672#       发表于 2021-7-7 22:16
@@ -2065,7 +2065,7 @@ C呆打阿拉什根本就是降维打击艹
 感叹，今天遇到一个主玩网游，手游只玩fgo，被动画第七章骗进来的妹子，和我大吹特吹fgo氪金真便宜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来动画真的能吸到新人，和现在的妹子真有钱……
 
 
------
+*****
 
 ####  AbigailWilliams  
 ##### 79673#       发表于 2021-7-7 22:18
@@ -2074,7 +2074,7 @@ C呆打阿拉什根本就是降维打击艹
 对于家里真有矿的，二次元手游都便宜<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">反过来说觉得二次元手游贵的，万万不要接触国内的某些游戏领域<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那是真的一分钱一分货
 
 
------
+*****
 
 ####  rooarr  
 ##### 79674#       发表于 2021-7-7 22:29
@@ -2083,7 +2083,7 @@ C呆打阿拉什根本就是降维打击艹
 跟网游这种环境比，fgo当然便宜啊，网游经常一套时装就要500块<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79675#       发表于 2021-7-7 22:45
@@ -2095,7 +2095,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怕不是在玩dnf。玩ff14/wow/激战2啊。。花不了多少钱。。（rmt另算
 
 
------
+*****
 
 ####  areklose  
 ##### 79676#       发表于 2021-7-7 22:47
@@ -2104,7 +2104,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第七章拍成这个吊样子也能吸引人吗
 
 
------
+*****
 
 ####  rooarr  
 ##### 79677#       发表于 2021-7-7 22:47
@@ -2115,7 +2115,7 @@ C呆打阿拉什根本就是降维打击艹
 并没有，我只是简单描述只玩了3个月古剑ol的经历<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 79678#       发表于 2021-7-7 23:01
@@ -2127,7 +2127,7 @@ C呆打阿拉什根本就是降维打击艹
 昨天刚充过5000，一点问题都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79679#       发表于 2021-7-7 23:10
@@ -2139,7 +2139,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这都老了吗 萌新超过1年的就这3个游戏
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79680#       发表于 2021-7-7 23:12
@@ -2150,7 +2150,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  白金口袋  
 ##### 79681#       发表于 2021-7-8 04:56
@@ -2162,7 +2162,7 @@ C呆打阿拉什根本就是降维打击艹
 对的，全服玩家就差那7个鳞粉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  缘一  
 ##### 79682#       发表于 2021-7-8 10:33
@@ -2174,7 +2174,7 @@ C呆打阿拉什根本就是降维打击艹
 妹子喜欢闪闪恩奇都和艾蕾（全部抽了满宝），我只喜欢ubw的凛，结果妹子根本没补ubw，尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79683#       发表于 2021-7-8 11:04
@@ -2186,7 +2186,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你5000是指5000RMB吗
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 79684#       发表于 2021-7-8 11:13
@@ -2198,7 +2198,7 @@ C呆打阿拉什根本就是降维打击艹
 立本股沟什么时候支持软妹币付款了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 79685#       发表于 2021-7-8 11:14
@@ -2209,7 +2209,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79686#       发表于 2021-7-8 11:53
@@ -2223,7 +2223,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  里村紅葉  
 ##### 79687#       发表于 2021-7-8 13:13
@@ -2237,7 +2237,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  exiaexa  
 ##### 79688#       发表于 2021-7-8 17:11
@@ -2249,7 +2249,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79689#       发表于 2021-7-8 17:11
@@ -2265,7 +2265,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说用村正可以直接杀了大碧池然后用脚过 晚饭后我去试试
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79690#       发表于 2021-7-8 17:14
@@ -2280,7 +2280,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79691#       发表于 2021-7-8 17:22
@@ -2293,7 +2293,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79692#       发表于 2021-7-8 17:24
@@ -2305,7 +2305,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？ 本来就可以啊  我是说村正可以无视亡语
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79693#       发表于 2021-7-8 17:25
@@ -2328,7 +2328,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结论是真的可以 不过我要翻了  可能要sl一下 不然一刀一个小朋友
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79694#       发表于 2021-7-8 17:29
@@ -2343,7 +2343,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79695#       发表于 2021-7-8 17:30
@@ -2359,7 +2359,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你在说什么  我这不是没有sl已经打成这样了 前面死人我都没管 
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79696#       发表于 2021-7-8 17:35
@@ -2368,7 +2368,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完了 直接拉了个令咒 村正爆杀大碧池
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79697#       发表于 2021-7-8 17:35
@@ -2384,7 +2384,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79698#       发表于 2021-7-8 17:36
@@ -2399,7 +2399,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我根本看不懂你在说什么  你还准备周回这本？
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79699#       发表于 2021-7-8 17:56
@@ -2413,7 +2413,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79700#       发表于 2021-7-8 18:04
@@ -2431,7 +2431,7 @@ C呆打阿拉什根本就是降维打击艹
 意思大概就是7个小怪的时候开始3连光炮 我懒得试了你可以试试
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 79701#       发表于 2021-7-8 18:11
@@ -2442,7 +2442,7 @@ C呆打阿拉什根本就是降维打击艹
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79702#       发表于 2021-7-8 18:14
@@ -2451,7 +2451,7 @@ C呆打阿拉什根本就是降维打击艹
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说政哥哥呢 怎么最近都是卑弥呼  政哥哥这是亡了吗
 
 
------
+*****
 
 ####  khxooo  
 ##### 79703#       发表于 2021-7-8 18:15
@@ -2464,7 +2464,7 @@ C呆打阿拉什根本就是降维打击艹
 
                                                  
 
------
+*****
 
 ####  exiaexa  
 ##### 79704#       发表于 2021-7-8 19:06
@@ -2485,7 +2485,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79705#       发表于 2021-7-8 19:07
@@ -2500,7 +2500,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79706#       发表于 2021-7-8 19:25
@@ -2509,7 +2509,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没想到去年抽着玩出的卑弥呼这么好使
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79707#       发表于 2021-7-8 19:45
@@ -2518,7 +2518,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 想不到啊想不到，当年全游戏最难的几个本之一的达芬奇本如今最速5T都几乎不用sl的，村正5t一把过，轻松写意，出了1t要凑一下发牌（要求极低，村正任意2张卡只要不是都是红的就行，或者1张蓝卡），破条卖拐，然后换人服加剩下3拐强冲，5发宝具收工。顺便一提，我的村正是90级3宝的，这剧本要求相当亲民来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79708#       发表于 2021-7-8 19:47
@@ -2534,7 +2534,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 村正的宝具是无视防御的，只要你能宝具连发，达芬奇的最后的晚餐和没有一样，小怪的亡语是一次性的，那拐耗掉就行（你脸黑发了5张村正的牌当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
 
------
+*****
 
 ####  khxooo  
 ##### 79709#       发表于 2021-7-8 19:56
@@ -2543,7 +2543,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 找到了个莉莉丝的5T，国服可以学<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79710#       发表于 2021-7-8 20:01
@@ -2567,7 +2567,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79711#       发表于 2021-7-8 20:27
@@ -2579,7 +2579,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我还真脸黑发了5张村正的牌
 
 
------
+*****
 
 ####  khxooo  
 ##### 79712#       发表于 2021-7-8 20:28
@@ -2591,7 +2591,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 红A3人过了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79713#       发表于 2021-7-8 20:38
@@ -2600,7 +2600,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 翻页
 
 
------
+*****
 
 ####  khxooo  
 ##### 79714#       发表于 2021-7-8 20:41
@@ -2611,7 +2611,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 建议赶紧抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79715#       发表于 2021-7-8 20:42
@@ -2622,7 +2622,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 
                                                 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79716#       发表于 2021-7-8 20:47
@@ -2634,7 +2634,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">天启没有来，不抽
 
 
------
+*****
 
 ####  areklose  
 ##### 79717#       发表于 2021-7-8 20:52
@@ -2643,7 +2643,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这本慢慢打又没啥难度，C呆真是把高难的难度完全下降几个级别。肃正无敌让所有无敌贯穿的敌人都变成笑话
 
 
------
+*****
 
 ####  khxooo  
 ##### 79718#       发表于 2021-7-8 21:03
@@ -2657,7 +2657,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 
                                                  
 
------
+*****
 
 ####  exiaexa  
 ##### 79719#       发表于 2021-7-8 22:01
@@ -2674,7 +2674,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新吾  
 ##### 79720#       发表于 2021-7-8 22:06
@@ -2683,7 +2683,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 啥时候更新新章来着，上次打开这游戏还是半个月前打剧情了
 
 
------
+*****
 
 ####  areklose  
 ##### 79721#       发表于 2021-7-8 22:08
@@ -2697,7 +2697,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 
                                                  
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79722#       发表于 2021-7-9 09:14
@@ -2712,7 +2712,7 @@ MMO带团的时候被沙雕团友逼疯了好几次
 这个都不用抄啊，我6点逛油管看视频，瞄一眼发现首页有个5t的，瞄了下阵容就顺便把自己的也给打了，根本不用sl，就是宝具 充能 宝具 充能就完事了，老本机制都知道了，实际上就和个要换人的周回本差不多，就是第一回合要手打一些np而已，后面np都是溢出的，和那种打起来要按剧本走的最速本完全不一样啊。你把孔明换司马懿，花嫁换豆爸，兰陵王换安徒生也差不多。
 
 
------
+*****
 
 ####  sin.yugi  
 ##### 79723#       发表于 2021-7-9 09:17
@@ -2730,7 +2730,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79724#       发表于 2021-7-9 11:10
@@ -2739,7 +2739,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天就是大家最不喜欢的王哈了  现在即死耐性有好多 不会也有新套路吧
 
 
------
+*****
 
 ####  khxooo  
 ##### 79725#       发表于 2021-7-9 11:10
@@ -2750,7 +2750,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79726#       发表于 2021-7-9 13:04
@@ -2761,7 +2761,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 
                                                  
 
------
+*****
 
 ####  exiaexa  
 ##### 79727#       发表于 2021-7-9 13:26
@@ -2778,7 +2778,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79728#       发表于 2021-7-9 13:30
@@ -2789,7 +2789,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 
                                                  
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79729#       发表于 2021-7-9 16:11
@@ -2810,7 +2810,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 79730#       发表于 2021-7-9 17:04
@@ -2823,7 +2823,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 我擦防不了....C呆开了大后被王哈一刀带走了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79731#       发表于 2021-7-9 17:06
@@ -2832,7 +2832,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 最新最in的鬼灯，囧
 
 
------
+*****
 
 ####  khxooo  
 ##### 79732#       发表于 2021-7-9 17:13
@@ -2841,7 +2841,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 又是一个对我说是垃圾的材料<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79733#       发表于 2021-7-9 17:15
@@ -2850,7 +2850,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 是的这玩意要吃的只有3个五星，而且有2个是我不抽到男人。所以完全没用
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79734#       发表于 2021-7-9 17:21
@@ -2859,7 +2859,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 王哈太简单了 政哥哥+cba+一个充电宝根本死不掉 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79735#       发表于 2021-7-9 17:35
@@ -2874,7 +2874,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79736#       发表于 2021-7-9 17:50
@@ -2890,7 +2890,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你用cba啊 完克王哈 宝具直接无效+miss　突出一个白给
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79737#       发表于 2021-7-9 17:55
@@ -2899,7 +2899,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没有皇帝 谁来个无脑阵容
 
 
------
+*****
 
 ####  khxooo  
 ##### 79738#       发表于 2021-7-9 18:03
@@ -2908,7 +2908,7 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 只能放弃一个加成，上倍卡了。
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 79739#       发表于 2021-7-9 18:25
@@ -2922,7 +2922,7 @@ BBC呆CBA过了，BB的卡打点回血加防的纹章能更稳一点
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79740#       发表于 2021-7-9 19:00
@@ -2936,7 +2936,7 @@ BBC呆CBA过了，BB的卡打点回血加防的纹章能更稳一点
 
 
 
------
+*****
 
 ####  シャル  
 ##### 79741#       发表于 2021-7-9 19:05
@@ -2953,7 +2953,7 @@ BBC呆CBA过了，BB的卡打点回血加防的纹章能更稳一点
 硬生生耗死王哈
 
 
------
+*****
 
 ####  シャル  
 ##### 79742#       发表于 2021-7-9 19:10
@@ -2965,7 +2965,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 简直是为三拐定制
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 79743#       发表于 2021-7-9 19:27
@@ -2976,7 +2976,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 79744#       发表于 2021-7-9 19:42
@@ -2985,7 +2985,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 36回合，用卑弥呼CBA梅林过的，其实到后面有点撑不住的，还来了个红卡回避，不过刚好发到有无敌贯通的红卡，直接宝具加英雄做成带走了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79745#       发表于 2021-7-9 19:44
@@ -2994,7 +2994,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下　奇格也可以６加成（换人）　　陈ｓｉｒ再见了
 
 
------
+*****
 
 ####  areklose  
 ##### 79746#       发表于 2021-7-9 19:47
@@ -3003,7 +3003,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看一下作业，竟然用道满
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79747#       发表于 2021-7-9 19:50
@@ -3015,7 +3015,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79748#       发表于 2021-7-9 19:54
@@ -3024,7 +3024,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次阴间本3次3T都有我大摩根的位置。50自充的狂真是为所欲为。看来这次要加班够14天，；连C呆我都放了5天假期
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79749#       发表于 2021-7-9 19:56
@@ -3041,7 +3041,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79750#       发表于 2021-7-9 19:59
@@ -3050,7 +3050,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 我有点后悔没把王姐抽满了，实测下来50冲狂光炮阴间能力就是强啊，先给5个圣杯顶一顶吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">道满倒是一落地就肉眼可见的强，要不是太屑我就抽满了，不过道满主要打副手，宝具等级倒也没那么要紧。
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79751#       发表于 2021-7-9 20:03
@@ -3062,7 +3062,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  シャル  
 ##### 79752#       发表于 2021-7-9 20:12
@@ -3071,7 +3071,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 尼托王姐术呆呆稳定3T<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79753#       发表于 2021-7-9 20:16
@@ -3085,7 +3085,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目测不会怎么样　只是一个选择　不是唯一选择
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79754#       发表于 2021-7-9 20:29
@@ -3094,7 +3094,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁真是陈宫大本营啊　　这本用齐哥＋３藏稳定６加成３ｔ的　隔壁还死命想着用陈宫　笑死了
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79755#       发表于 2021-7-9 20:32
@@ -3106,7 +3106,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79756#       发表于 2021-7-9 20:33
@@ -3120,7 +3120,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是　　陈宫真的无法替代用用也就算了　可这本齐哥吊打陈宫啊　
 
 
------
+*****
 
 ####  areklose  
 ##### 79757#       发表于 2021-7-9 20:36
@@ -3129,7 +3129,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">+12了礼装毕业
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79758#       发表于 2021-7-9 20:36
@@ -3144,7 +3144,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79759#       发表于 2021-7-9 20:37
@@ -3158,7 +3158,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这角度　无懈可击　是我错了
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79760#       发表于 2021-7-9 21:00
@@ -3169,7 +3169,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 
                                                 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79761#       发表于 2021-7-9 22:53
@@ -3180,7 +3180,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 没有三藏的话就得用陈宫了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 79762#       发表于 2021-7-9 23:25
@@ -3189,7 +3189,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 我的c呆就第一阶段用了，后面都是下班状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  الطائر  
 ##### 79763#       发表于 2021-7-9 23:33
@@ -3210,7 +3210,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 
                                                  
 
------
+*****
 
 ####  壳壳牛  
 ##### 79764#       发表于 2021-7-10 00:33
@@ -3222,7 +3222,7 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 
                                                  
 
------
+*****
 
 ####  sin.yugi  
 ##### 79765#       发表于 2021-7-10 04:55
@@ -3233,7 +3233,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79766#       发表于 2021-7-10 08:33
@@ -3242,7 +3242,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 我是懒得换人了，是直接孔明摩根道满，摩根能吃到孔明一个爆，道满一个爆，只要第二面发牌不针对就行。当然最好是换个姑姑打第二面，毕竟起码汽水红卡宝具至少能避免一下发牌悲剧
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79767#       发表于 2021-7-10 08:51
@@ -3253,7 +3253,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79768#       发表于 2021-7-10 10:10
@@ -3264,7 +3264,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79769#       发表于 2021-7-10 11:29
@@ -3275,7 +3275,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79770#       发表于 2021-7-10 17:12
@@ -3286,7 +3286,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79771#       发表于 2021-7-10 17:24
@@ -3295,7 +3295,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一口气把所有护符全砸了  无 事 发 生
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 79772#       发表于 2021-7-10 17:43
@@ -3306,7 +3306,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  khxooo  
 ##### 79773#       发表于 2021-7-10 18:14
@@ -3315,7 +3315,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 用萌新的武藏车过去了，这个根本对不起LVEX吧，比全力斗技简单多了。
 
 
------
+*****
 
 ####  areklose  
 ##### 79774#       发表于 2021-7-10 18:16
@@ -3324,7 +3324,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始展望下半部了。菌哥哥距离批斗大会还剩下4天了。不对，先明天批判4P
 
 
------
+*****
 
 ####  シャル  
 ##### 79775#       发表于 2021-7-10 18:25
@@ -3346,7 +3346,7 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 EX的Encore这也叫超高难？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79776#       发表于 2021-7-10 18:26
@@ -3358,7 +3358,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚知道明天只有30和手游 没意思
 
 
------
+*****
 
 ####  KOBI  
 ##### 79777#       发表于 2021-7-10 18:31
@@ -3369,7 +3369,7 @@ EX的Encore这也叫超高难？
 就多加那么点血还标超绝难度这不是注定要被各种羞辱吗
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79778#       发表于 2021-7-10 18:34
@@ -3384,7 +3384,7 @@ EX的Encore这也叫超高难？
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79779#       发表于 2021-7-10 18:36
@@ -3399,7 +3399,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必须念 把3a完结了在死啊
 
 
------
+*****
 
 ####  森兰丸  
 ##### 79780#       发表于 2021-7-10 18:47
@@ -3408,7 +3408,7 @@ EX的Encore这也叫超高难？
 摩根梅林C呆阵容硬是顶着一开始的红卡耐性和宝具耐性轰过去了.......这边还一个人也没死<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  シャル  
 ##### 79781#       发表于 2021-7-10 19:17
@@ -3423,7 +3423,7 @@ EX的Encore这也叫超高难？
 
                                                 
 
------
+*****
 
 ####  exiaexa  
 ##### 79782#       发表于 2021-7-10 20:20
@@ -3434,7 +3434,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79783#       发表于 2021-7-10 20:21
@@ -3450,7 +3450,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">血多了  但是火力溢出所以等于没区别
 
 
------
+*****
 
 ####  areklose  
 ##### 79784#       发表于 2021-7-10 20:22
@@ -3465,7 +3465,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">信不信明天来个惊喜，圣诞节新OG堂堂发售。
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79785#       发表于 2021-7-10 20:26
@@ -3479,7 +3479,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79786#       发表于 2021-7-10 20:50
@@ -3494,7 +3494,7 @@ EX的Encore这也叫超高难？
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79787#       发表于 2021-7-10 20:52
@@ -3509,7 +3509,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不大 我喜就行了
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 79788#       发表于 2021-7-10 20:54
@@ -3521,7 +3521,7 @@ EX的Encore这也叫超高难？
 不是电阻原地复活很难解释这波烟雾弹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79789#       发表于 2021-7-10 20:58
@@ -3533,7 +3533,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">看到这相泽舞还不是Z系列嘛。她还配过啥。奶一下OG不过分吧
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79790#       发表于 2021-7-10 21:10
@@ -3544,7 +3544,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然变成机战可还成 可以奶个高清重置D J或者W么
 
 
------
+*****
 
 ####  eyeego  
 ##### 79791#       发表于 2021-7-10 21:17
@@ -3555,7 +3555,7 @@ EX的Encore这也叫超高难？
 别想那么多 相泽舞跟组长一直在主持那个几乎没什么人听的og广播 类似于机战多年的老朋友而已<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79792#       发表于 2021-7-10 21:19
@@ -3568,7 +3568,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79793#       发表于 2021-7-10 21:20
@@ -3583,7 +3583,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  newfaceryo  
 ##### 79794#       发表于 2021-7-11 00:53
@@ -3596,7 +3596,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  白金口袋  
 ##### 79795#       发表于 2021-7-11 15:04
@@ -3607,7 +3607,7 @@ EX的Encore这也叫超高难？
 后几个本有没有村正根本俩游戏，当然没有村正也能打过，然而借个好友的5宝村正一砍到底简直轻松+愉快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79796#       发表于 2021-7-11 15:10
@@ -3624,7 +3624,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79797#       发表于 2021-7-11 15:41
@@ -3635,7 +3635,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  都谷捻柏  
 ##### 79798#       发表于 2021-7-11 18:11
@@ -3651,7 +3651,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  exiaexa  
 ##### 79799#       发表于 2021-7-11 18:49
@@ -3669,7 +3669,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79800#       发表于 2021-7-11 19:46
@@ -3687,7 +3687,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79801#       发表于 2021-7-12 16:37
@@ -3696,7 +3696,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4p已经可以斩了  现在就等着公审菌哥哥  留给菌哥哥的时间不多了
 
 
------
+*****
 
 ####  areklose  
 ##### 79802#       发表于 2021-7-13 08:21
@@ -3705,7 +3705,7 @@ EX的Encore这也叫超高难？
 再打25箱就摸了。这次应该能屯2500个狗粮
 
 
------
+*****
 
 ####  areklose  
 ##### 79803#       发表于 2021-7-13 08:24
@@ -3714,7 +3714,7 @@ EX的Encore这也叫超高难？
 翻页
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79804#       发表于 2021-7-13 08:48
@@ -3728,7 +3728,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79805#       发表于 2021-7-13 09:34
@@ -3737,7 +3737,7 @@ EX的Encore这也叫超高难？
 196，然后刷的灰全吃完了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 79806#       发表于 2021-7-13 09:40
@@ -3748,7 +3748,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  qixinno2  
 ##### 79807#       发表于 2021-7-13 11:05
@@ -3759,7 +3759,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79808#       发表于 2021-7-13 19:23
@@ -3781,7 +3781,7 @@ EX的Encore这也叫超高难？
 2021-7-13 19:23 上传
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79809#       发表于 2021-7-13 19:26
@@ -3793,7 +3793,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">惊了 萌新你肿么回事 竟然比我还咸
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79810#       发表于 2021-7-13 19:27
@@ -3805,7 +3805,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没刷头啊 狗量爆了钱满了 素材又不缺 
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79811#       发表于 2021-7-13 19:28
@@ -3817,7 +3817,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕 我还一大堆没满级的低星角色 甚至杀阶银棋子都没了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79812#       发表于 2021-7-13 19:33
@@ -3829,7 +3829,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏无限池还要手动处理狗粮 每次还只能10发一抽 我是一点点刷的动力都没
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79813#       发表于 2021-7-13 19:42
@@ -3841,7 +3841,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至今不出一键抽光池子是真的弱智 还有抽完了要手动重置其实也挺傻逼的
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79814#       发表于 2021-7-13 19:46
@@ -3853,7 +3853,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新玩的其他几个游戏无限池都是一键一池 狗粮这种东西也是自动叠加的 体验不知道要好几百倍
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79815#       发表于 2021-7-13 19:52
@@ -3865,7 +3865,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钱太好赚了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79816#       发表于 2021-7-13 20:01
@@ -3877,7 +3877,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实主要是因为我在挂机刷爱吉儿(
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79817#       发表于 2021-7-13 20:19
@@ -3891,7 +3891,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  rooarr  
 ##### 79818#       发表于 2021-7-14 00:41
@@ -3902,7 +3902,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  exiaexa  
 ##### 79819#       发表于 2021-7-14 00:50
@@ -3915,7 +3915,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zore  
 ##### 79820#       发表于 2021-7-14 02:07
@@ -3926,7 +3926,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 79821#       发表于 2021-7-14 07:50
@@ -3945,7 +3945,7 @@ EX的Encore这也叫超高难？
 2021-7-14 07:49 上传
 
 
------
+*****
 
 ####  areklose  
 ##### 79822#       发表于 2021-7-14 07:52
@@ -3954,7 +3954,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">要开始腾位置放狗粮了，痛苦面具
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 79823#       发表于 2021-7-14 08:25
@@ -3967,7 +3967,7 @@ EX的Encore这也叫超高难？
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  areklose  
 ##### 79824#       发表于 2021-7-14 08:37
@@ -3976,7 +3976,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚该公审菌哥哥了。今晚会UP啥帮助我消耗一下我的狗粮
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79825#       发表于 2021-7-14 08:45
@@ -3991,7 +3991,7 @@ EX的Encore这也叫超高难？
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79826#       发表于 2021-7-14 08:54
@@ -4000,7 +4000,7 @@ EX的Encore这也叫超高难？
 本来就打算刷100池，刷着刷着120了，y1s1，阴间本虽然组队麻烦了，但刷起来提神多了，不像以前经常刷着刷着睡着了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 79827#       发表于 2021-7-14 08:56
@@ -4013,7 +4013,7 @@ EX的Encore这也叫超高难？
 
                                                  
 
------
+*****
 
 ####  里村紅葉  
 ##### 79828#       发表于 2021-7-14 09:18
@@ -4026,7 +4026,7 @@ EX的Encore这也叫超高难？
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  areklose  
 ##### 79829#       发表于 2021-7-14 09:22
@@ -4041,7 +4041,7 @@ EX的Encore这也叫超高难？
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我仓库现在都没狗粮。今晚稳了
 
 
------
+*****
 
 ####  khxooo  
 ##### 79830#       发表于 2021-7-14 09:30
@@ -4056,7 +4056,7 @@ EX的Encore这也叫超高难？
 
 
 
------
+*****
 
 ####  yzj134100  
 ##### 79831#       发表于 2021-7-14 09:47
@@ -4067,7 +4067,7 @@ EX的Encore这也叫超高难？
 用了下还没点满的摩根去打高难，手感意外地好<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79832#       发表于 2021-7-14 10:07
@@ -4079,7 +4079,7 @@ EX的Encore这也叫超高难？
 up什么不是很明显了吗 妖精王啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79833#       发表于 2021-7-14 10:10
@@ -4088,7 +4088,7 @@ up什么不是很明显了吗 妖精王啊<img src="https://static.saraba1st.com
 翻页
 
 
------
+*****
 
 ####  areklose  
 ##### 79834#       发表于 2021-7-14 10:15
@@ -4100,7 +4100,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是萝兰吗
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79835#       发表于 2021-7-14 10:29
@@ -4117,7 +4117,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
                                                 
 
------
+*****
 
 ####  khxooo  
 ##### 79836#       发表于 2021-7-14 10:37
@@ -4130,7 +4130,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 我只希望是限定，这样永远都没机会抽到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79837#       发表于 2021-7-14 11:04
@@ -4141,7 +4141,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79838#       发表于 2021-7-14 11:47
@@ -4152,7 +4152,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 那么我抽，就是这么真实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KOBI  
 ##### 79839#       发表于 2021-7-14 11:55
@@ -4161,7 +4161,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">奥博龙这如果不是超特殊性能的话里面得真是瓦叔两套立绘才行吧。。。
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 79840#       发表于 2021-7-14 12:10
@@ -4174,7 +4174,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 然后为了找人 开新图 一路披荆斩棘 顺便听听奥博隆的妖精豆知识 走到最后因为被贝利尔截胡还不一定救的到
 
 
------
+*****
 
 ####  sin.yugi  
 ##### 79841#       发表于 2021-7-14 12:26
@@ -4193,7 +4193,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 2021-7-14 12:25 上传
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79842#       发表于 2021-7-14 12:58
@@ -4207,7 +4207,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79843#       发表于 2021-7-14 13:51
@@ -4220,7 +4220,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
                                                  
 
------
+*****
 
 ####  光影mk2  
 ##### 79844#       发表于 2021-7-14 17:19
@@ -4229,7 +4229,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 先做几个剧情预言，看能不能奶中
 
 
------
+*****
 
 ####  光影mk2  
 ##### 79845#       发表于 2021-7-14 17:20
@@ -4240,7 +4240,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
                                                  
 
------
+*****
 
 ####  zore  
 ##### 79846#       发表于 2021-7-14 17:32
@@ -4251,7 +4251,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 还是宝具动画
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79847#       发表于 2021-7-14 17:52
@@ -4265,7 +4265,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6点才开始呢
 
 
------
+*****
 
 ####  rooarr  
 ##### 79848#       发表于 2021-7-14 18:19
@@ -4276,7 +4276,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
                                                  
 
------
+*****
 
 ####  rooarr  
 ##### 79849#       发表于 2021-7-14 18:39
@@ -4285,7 +4285,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 今年周年庆全是线上的活动，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79850#       发表于 2021-7-14 18:40
@@ -4297,7 +4297,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是标准操作吗    也就最后一天值得看看（
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79851#       发表于 2021-7-14 18:43
@@ -4306,7 +4306,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阶位认定试验可还行  
 
 
------
+*****
 
 ####  rooarr  
 ##### 79852#       发表于 2021-7-14 18:45
@@ -4315,7 +4315,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 这考试的题目有点难啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79853#       发表于 2021-7-14 18:47
@@ -4327,7 +4327,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 你难道真扫 了？
 
 
------
+*****
 
 ####  rooarr  
 ##### 79854#       发表于 2021-7-14 18:47
@@ -4339,7 +4339,7 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 那是必然啊， 各种细节问题，我这种skip党铁定没戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79855#       发表于 2021-7-14 18:49
@@ -4362,7 +4362,7 @@ QQ图片20210714184927.png
 <img src="https://img.saraba1st.com/forum/202107/14/184945d14of7s1plw2unp7.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79856#       发表于 2021-7-14 18:50
@@ -4371,7 +4371,7 @@ QQ图片20210714184927.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了 终于要来了
 
 
------
+*****
 
 ####  areklose  
 ##### 79857#       发表于 2021-7-14 18:51
@@ -4380,7 +4380,7 @@ QQ图片20210714184927.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了
 
 
------
+*****
 
 ####  khxooo  
 ##### 79858#       发表于 2021-7-14 18:52
@@ -4389,7 +4389,7 @@ QQ图片20210714184927.png
 周年有华哥，难道萝兰是华哥配的？如果不是华哥那么估计就是新从者了。
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79859#       发表于 2021-7-14 18:55
@@ -4401,7 +4401,7 @@ QQ图片20210714184927.png
 奥菲莉娅死的冤啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 79860#       发表于 2021-7-14 18:58
@@ -4415,7 +4415,7 @@ QQ图片20210714184927.png
 
 
 
------
+*****
 
 ####  areklose  
 ##### 79861#       发表于 2021-7-14 19:07
@@ -4424,7 +4424,7 @@ QQ图片20210714184927.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cao，真会拖时间
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 79862#       发表于 2021-7-14 19:07
@@ -4433,7 +4433,7 @@ QQ图片20210714184927.png
 新月姬格斗的副标题是type-lumina。lumina意为流明，是光通量单位。（猎天使魔女里那个流明贤者不会也是这个单词吧...）其实感觉就是玩luna=moon的梗...
 
 
------
+*****
 
 ####  areklose  
 ##### 79863#       发表于 2021-7-14 19:08
@@ -4442,7 +4442,7 @@ QQ图片20210714184927.png
 翻页
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79864#       发表于 2021-7-14 19:09
@@ -4451,7 +4451,7 @@ QQ图片20210714184927.png
 来了 他来了  然后并没有来（
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79865#       发表于 2021-7-14 19:13
@@ -4460,7 +4460,7 @@ QQ图片20210714184927.png
 来了。这次真的来了（
 
 
------
+*****
 
 ####  areklose  
 ##### 79866#       发表于 2021-7-14 19:15
@@ -4469,7 +4469,7 @@ QQ图片20210714184927.png
 四星，舅舅死
 
 
------
+*****
 
 ####  areklose  
 ##### 79867#       发表于 2021-7-14 19:15
@@ -4478,7 +4478,7 @@ QQ图片20210714184927.png
 四星，舅舅死
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79868#       发表于 2021-7-14 19:15
@@ -4488,7 +4488,7 @@ QQ图片20210714184927.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79869#       发表于 2021-7-14 19:15
@@ -4497,7 +4497,7 @@ QQ图片20210714184927.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舅舅上半也没全对啊 基本属于乱奶的吧
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79870#       发表于 2021-7-14 19:15
@@ -4506,7 +4506,7 @@ QQ图片20210714184927.png
 帕西瓦尔的声优是松风雅也？抽爆抽爆<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zore  
 ##### 79871#       发表于 2021-7-14 19:15
@@ -4515,7 +4515,7 @@ QQ图片20210714184927.png
 这帕西瓦尔好帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 79872#       发表于 2021-7-14 19:16
@@ -4524,7 +4524,7 @@ QQ图片20210714184927.png
 兰斯洛特还是对了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79873#       发表于 2021-7-14 19:16
@@ -4533,7 +4533,7 @@ QQ图片20210714184927.png
 萝兰五星，拆包是对的
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79874#       发表于 2021-7-14 19:16
@@ -4545,7 +4545,7 @@ QQ图片20210714184927.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不全中怎么能叫舅舅呢
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79875#       发表于 2021-7-14 19:17
@@ -4554,7 +4554,7 @@ QQ图片20210714184927.png
 loli兰斯洛特这宝具好简陋啊  梦回开服
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79876#       发表于 2021-7-14 19:17
@@ -4563,7 +4563,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服
 草  真的是双宝具
 
 
------
+*****
 
 ####  rooarr  
 ##### 79877#       发表于 2021-7-14 19:17
@@ -4572,7 +4572,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服
 居然是可光炮的宝具，新特性啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79878#       发表于 2021-7-14 19:17
@@ -4584,7 +4584,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zore  
 ##### 79879#       发表于 2021-7-14 19:17
@@ -4593,7 +4593,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单体全体宝具切换终于来了
 
 
------
+*****
 
 ####  areklose  
 ##### 79880#       发表于 2021-7-14 19:18
@@ -4602,7 +4602,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服
 单体宝具变全体宝具
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79881#       发表于 2021-7-14 19:18
@@ -4611,7 +4611,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服
 卧槽，战场变身，单体变全体，怪不得是限定5星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 79882#       发表于 2021-7-14 19:18
@@ -4620,7 +4620,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服
 单体和光炮切换，那么以后都能奶了。
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79883#       发表于 2021-7-14 19:19
@@ -4632,7 +4632,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79884#       发表于 2021-7-14 19:19
@@ -4641,7 +4641,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我错了  你一点都不简陋 
 
 
------
+*****
 
 ####  rooarr  
 ##### 79885#       发表于 2021-7-14 19:19
@@ -4653,7 +4653,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 光炮这个动画很精致，萌新应该没意见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79886#       发表于 2021-7-14 19:19
@@ -4662,7 +4662,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 完了，loli变大龙，哪个男人可以拒绝真红眼黑龙呢，抽爆抽爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79887#       发表于 2021-7-14 19:20
@@ -4671,7 +4671,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抽爆阿，本来不想抽的
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79888#       发表于 2021-7-14 19:20
@@ -4684,7 +4684,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zore  
 ##### 79889#       发表于 2021-7-14 19:21
@@ -4693,7 +4693,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小裁缝呢
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 79890#       发表于 2021-7-14 19:22
@@ -4704,7 +4704,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 
                                                 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79891#       发表于 2021-7-14 19:22
@@ -4713,7 +4713,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 这CM的蓝呆上身是什么鬼（
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79892#       发表于 2021-7-14 19:23
@@ -4725,7 +4725,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要怕 还有2期池
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79893#       发表于 2021-7-14 19:24
@@ -4734,7 +4734,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 那么宝具是什么颜色的？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79894#       发表于 2021-7-14 19:24
@@ -4749,7 +4749,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一是周年纪念从者呢（ 新红拐
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79895#       发表于 2021-7-14 19:25
@@ -4767,7 +4767,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 79896#       发表于 2021-7-14 19:26
@@ -4785,7 +4785,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 帕西瓦尔这卡面你说三星我也信了，不愧是小作坊的人际关系
 
 
------
+*****
 
 ####  zore  
 ##### 79897#       发表于 2021-7-14 19:26
@@ -4794,7 +4794,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 不是还有杀玉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">杀阶当拐行不行
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79898#       发表于 2021-7-14 19:27
@@ -4803,7 +4803,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 艹，又要搞时限解放吗？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79899#       发表于 2021-7-14 19:28
@@ -4815,7 +4815,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 我直播都关了 最后的最后还来这恶心人的玩意?
 
 
------
+*****
 
 ####  areklose  
 ##### 79900#       发表于 2021-7-14 19:29
@@ -4824,7 +4824,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">本来这简陋无比的宝具动画，基本没吊用的单体我是拒绝抽的。但是这双宝具
 
 
------
+*****
 
 ####  超阳电子炮  
 ##### 79901#       发表于 2021-7-14 19:33
@@ -4833,7 +4833,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 双宝具啊草生
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 79902#       发表于 2021-7-14 19:33
@@ -4842,7 +4842,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 30连妖兰出了，帕西瓦尔没看见<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 79903#       发表于 2021-7-14 19:33
@@ -4851,7 +4851,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 光速沉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79904#       发表于 2021-7-14 19:35
@@ -4875,7 +4875,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 2021-7-14 19:35 上传
 
 
------
+*****
 
 ####  cckuku  
 ##### 79905#       发表于 2021-7-14 19:36
@@ -4886,7 +4886,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 好多大流士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79906#       发表于 2021-7-14 19:36
@@ -4900,7 +4900,7 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 NEW 不亏
 
 
------
+*****
 
 ####  千叶铁矢  
 ##### 79907#       发表于 2021-7-14 19:36
@@ -4909,7 +4909,7 @@ NEW 不亏
 蓝转红还行
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79908#       发表于 2021-7-14 19:38
@@ -4921,7 +4921,7 @@ NEW 不亏
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79909#       发表于 2021-7-14 19:38
@@ -4933,7 +4933,7 @@ NEW 不亏
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看到有人说时限解放啊 咋回事
 
 
------
+*****
 
 ####  rooarr  
 ##### 79910#       发表于 2021-7-14 19:39
@@ -4947,7 +4947,7 @@ NEW 不亏
 你不是之前才说没有月神吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79911#       发表于 2021-7-14 19:39
@@ -4959,7 +4959,7 @@ NEW 不亏
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是我并不想要啊 误会了啊
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79912#       发表于 2021-7-14 19:41
@@ -4968,7 +4968,7 @@ NEW 不亏
 十几张票子+22连，俩都抽到了，撤！
 
 
------
+*****
 
 ####  areklose  
 ##### 79913#       发表于 2021-7-14 19:42
@@ -4977,7 +4977,7 @@ NEW 不亏
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽完了，50抽。两个各一宝，该抽无限池子喂上去
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79914#       发表于 2021-7-14 19:42
@@ -4993,7 +4993,7 @@ NEW 不亏
 那不只能是时限了吗……
 
 
------
+*****
 
 ####  cckuku  
 ##### 79915#       发表于 2021-7-14 19:44
@@ -5002,7 +5002,7 @@ NEW 不亏
 隔壁看到说是100自充，起飞？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79916#       发表于 2021-7-14 19:45
@@ -5011,7 +5011,7 @@ NEW 不亏
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然还是毛都没出
 
 
------
+*****
 
 ####  eyeego  
 ##### 79917#       发表于 2021-7-14 19:45
@@ -5020,7 +5020,7 @@ NEW 不亏
 100自充 宝具还带前置黄金率 这本体np率要残疾成啥样？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rooarr  
 ##### 79918#       发表于 2021-7-14 19:45
@@ -5029,7 +5029,7 @@ NEW 不亏
 福袋见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zore  
 ##### 79919#       发表于 2021-7-14 19:47
@@ -5038,7 +5038,7 @@ NEW 不亏
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">草 芬恩
 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 79920#       发表于 2021-7-14 19:49
@@ -5051,7 +5051,7 @@ NEW 不亏
 
 
 
------
+*****
 
 ####  areklose  
 ##### 79921#       发表于 2021-7-14 19:50
@@ -5060,7 +5060,7 @@ NEW 不亏
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是100+30自充
 
 
------
+*****
 
 ####  khxooo  
 ##### 79922#       发表于 2021-7-14 19:51
@@ -5072,7 +5072,7 @@ NEW 不亏
 NP率可不残啊，剧情给你用，NP率个人感觉和杨贵妃差不多。
 
 
------
+*****
 
 ####  AbigailWilliams  
 ##### 79923#       发表于 2021-7-14 19:51
@@ -5081,7 +5081,7 @@ NP率可不残啊，剧情给你用，NP率个人感觉和杨贵妃差不多。
 其实是100+30啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79924#       发表于 2021-7-14 19:52
@@ -5098,7 +5098,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79925#       发表于 2021-7-14 19:53
@@ -5110,7 +5110,7 @@ NMD这2.6卡池就有毒
 明明130自充<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79926#       发表于 2021-7-14 20:01
@@ -5119,7 +5119,7 @@ NMD这2.6卡池就有毒
 喷了，剧情送1亿QP
 
 
------
+*****
 
 ####  zakki  
 ##### 79927#       发表于 2021-7-14 20:01
@@ -5128,7 +5128,7 @@ NMD这2.6卡池就有毒
 竟然是kosmos的画师吗
 
 
------
+*****
 
 ####  areklose  
 ##### 79928#       发表于 2021-7-14 20:02
@@ -5137,7 +5137,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">看到这自充我又抽了150发。算是200抽2个人2宝。。。就这样把
 
 
------
+*****
 
 ####  zakki  
 ##### 79929#       发表于 2021-7-14 20:03
@@ -5146,7 +5146,7 @@ NMD这2.6卡池就有毒
 时限解放啥意思？今天还看不到完整剧情？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79930#       发表于 2021-7-14 20:06
@@ -5161,7 +5161,7 @@ NMD这2.6卡池就有毒
 应该。。。没把？
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79931#       发表于 2021-7-14 20:08
@@ -5176,7 +5176,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79932#       发表于 2021-7-14 20:10
@@ -5190,7 +5190,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上面不是写着吗 3破这技能变成宝威up
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79933#       发表于 2021-7-14 20:13
@@ -5214,7 +5214,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79934#       发表于 2021-7-14 20:15
@@ -5226,7 +5226,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你有没有看生放阿。点3技能不就变3形态吗。
 
 
------
+*****
 
 ####  zakki  
 ##### 79935#       发表于 2021-7-14 20:16
@@ -5237,7 +5237,7 @@ NMD这2.6卡池就有毒
 奥伯龙70它冲？20群冲+50单冲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79936#       发表于 2021-7-14 20:17
@@ -5250,7 +5250,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79937#       发表于 2021-7-14 20:18
@@ -5259,7 +5259,7 @@ NMD这2.6卡池就有毒
 奥伯伦1技能全体宝威全体20充能，二技能50他充，三技能不会是红魔放吧
 
 
------
+*****
 
 ####  zakki  
 ##### 79938#       发表于 2021-7-14 20:20
@@ -5270,7 +5270,7 @@ NMD这2.6卡池就有毒
 红拐成了，不过和c呆比好像也没什么优势
 
 
------
+*****
 
 ####  areklose  
 ##### 79939#       发表于 2021-7-14 20:20
@@ -5279,7 +5279,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过秩序特攻
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79940#       发表于 2021-7-14 20:20
@@ -5291,7 +5291,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那解包不是绿宝具吗 而且是攻击向的。。 这还来红魔放？
 
 
------
+*****
 
 ####  areklose  
 ##### 79941#       发表于 2021-7-14 20:23
@@ -5303,7 +5303,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">自己绿魔放，其他2人红魔放行不行
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79942#       发表于 2021-7-14 20:24
@@ -5315,7 +5315,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如全体红蓝绿一起放了
 
 
------
+*****
 
 ####  areklose  
 ##### 79943#       发表于 2021-7-14 20:25
@@ -5327,7 +5327,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样不就变成蓝卡插件吗
 
 
------
+*****
 
 ####  sosgame67  
 ##### 79944#       发表于 2021-7-14 20:25
@@ -5336,7 +5336,7 @@ NMD这2.6卡池就有毒
 十连一宝，跑路等泳装和周年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zakki  
 ##### 79945#       发表于 2021-7-14 20:33
@@ -5347,7 +5347,7 @@ NMD这2.6卡池就有毒
 是红宝具，只不过用绿色字体写的
 
 
------
+*****
 
 ####  exiaexa  
 ##### 79946#       发表于 2021-7-14 20:42
@@ -5366,7 +5366,7 @@ NMD这2.6卡池就有毒
 
                                                 
 
------
+*****
 
 ####  sandro  
 ##### 79947#       发表于 2021-7-14 20:50
@@ -5375,7 +5375,7 @@ NMD这2.6卡池就有毒
 长江太可爱了吧
 
 
------
+*****
 
 ####  areklose  
 ##### 79948#       发表于 2021-7-14 20:56
@@ -5384,7 +5384,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道奥伯伦3技能是变职介？
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79949#       发表于 2021-7-14 21:03
@@ -5396,7 +5396,7 @@ NMD这2.6卡池就有毒
 什么 还有这种操作？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 79950#       发表于 2021-7-14 21:11
@@ -5407,7 +5407,7 @@ NMD这2.6卡池就有毒
 
 
 
------
+*****
 
 ####  areklose  
 ##### 79951#       发表于 2021-7-14 21:13
@@ -5419,7 +5419,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多聊。作为连发枪他比不上莉莉丝的。至于妖兰高额自充有另外的上班场合
 
 
------
+*****
 
 ####  areklose  
 ##### 79952#       发表于 2021-7-14 21:14
@@ -5428,7 +5428,7 @@ NMD这2.6卡池就有毒
 翻页
 
 
------
+*****
 
 ####  areklose  
 ##### 79953#       发表于 2021-7-14 21:14
@@ -5439,7 +5439,7 @@ NMD这2.6卡池就有毒
 
                                                 
 
------
+*****
 
 ####  Jamaisvu  
 ##### 79954#       发表于 2021-7-14 21:34
@@ -5454,7 +5454,7 @@ NMD这2.6卡池就有毒
 （我没抽到，云的...）
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79955#       发表于 2021-7-14 21:35
@@ -5463,7 +5463,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我宣布2.6对我来说就是渣渣 根本抽不到五星
 
 
------
+*****
 
 ####  zakki  
 ##### 79956#       发表于 2021-7-14 21:41
@@ -5472,7 +5472,7 @@ NMD这2.6卡池就有毒
 还要分上下？25节以后的剧情8月4号开？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zore  
 ##### 79957#       发表于 2021-7-14 21:43
@@ -5481,7 +5481,7 @@ NMD这2.6卡池就有毒
 坐下 一般操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zakki  
 ##### 79958#       发表于 2021-7-14 21:46
@@ -5492,7 +5492,7 @@ NMD这2.6卡池就有毒
 这不是纯恶心人啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 79959#       发表于 2021-7-14 21:47
@@ -5501,7 +5501,7 @@ NMD这2.6卡池就有毒
 淦，为了抽松风配的帕西瓦尔抽了460连（我整个人都冈妈化了），前面250发就出了一个帕叔，0五星，460发下来妖兰3宝帕叔6宝，真是非得不行啊。不过往好的想，这节奏和我复刻去年泳装700发解决3个卡池出了13个五星之前那波非洲2月游好像差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79960#       发表于 2021-7-14 21:56
@@ -5513,7 +5513,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">8。4就离谱了  dw我的废物
 
 
------
+*****
 
 ####  zakki  
 ##### 79961#       发表于 2021-7-14 21:58
@@ -5529,7 +5529,7 @@ NMD这2.6卡池就有毒
 <img src="https://p.sda1.dev/2/77b47b1f23c2b8ed9da4acecc75025e7/564d020075410a23.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  areklose  
 ##### 79962#       发表于 2021-7-14 22:06
@@ -5538,7 +5538,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥伯龙能不能不要那么强，我想抽泳装阿
 
 
------
+*****
 
 ####  zakki  
 ##### 79963#       发表于 2021-7-14 22:13
@@ -5547,7 +5547,7 @@ NMD这2.6卡池就有毒
 奥伯龙这宝具本质还是拐，给睡眠加无敌防止被打醒，相当于群晕
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79964#       发表于 2021-7-14 22:34
@@ -5564,7 +5564,7 @@ NMD这2.6卡池就有毒
 如果没有。dw可真是废物中的废物
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79965#       发表于 2021-7-14 22:39
@@ -5575,7 +5575,7 @@ NMD这2.6卡池就有毒
 那谁真要成周年从者了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zakki  
 ##### 79966#       发表于 2021-7-14 22:42
@@ -5588,7 +5588,7 @@ NMD这2.6卡池就有毒
 70它冲的红拐，百分百周年从者了
 
 
------
+*****
 
 ####  qixinno2  
 ##### 79967#       发表于 2021-7-14 22:50
@@ -5597,7 +5597,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽 这也太废物了吧 真就分上中下
 
 
------
+*****
 
 ####  rzxa  
 ##### 79968#       发表于 2021-7-14 22:55
@@ -5610,7 +5610,7 @@ NMD这2.6卡池就有毒
 舅舅说的人物真名都是正确的，还少了个谭林，奥贝龙未确认
 
 
------
+*****
 
 ####  khxooo  
 ##### 79969#       发表于 2021-7-14 23:14
@@ -5619,7 +5619,7 @@ NMD这2.6卡池就有毒
 10连，没有读入，连续按了跳过，然后突然跳出个萝兰出来<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">，老子将所有狗粮卖了草<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79970#       发表于 2021-7-14 23:22
@@ -5634,7 +5634,7 @@ NMD这2.6卡池就有毒
 
                                                  
 
------
+*****
 
 ####  zakki  
 ##### 79971#       发表于 2021-7-15 00:00
@@ -5645,7 +5645,7 @@ NMD这2.6卡池就有毒
 
                                                  
 
------
+*****
 
 ####  白金口袋  
 ##### 79972#       发表于 2021-7-15 00:47
@@ -5657,7 +5657,7 @@ NMD这2.6卡池就有毒
 穿越时间奶对了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 79973#       发表于 2021-7-15 01:22
@@ -5678,7 +5678,7 @@ NMD这2.6卡池就有毒
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 79974#       发表于 2021-7-15 01:47
@@ -5692,7 +5692,7 @@ NMD这2.6卡池就有毒
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 79975#       发表于 2021-7-15 04:59
@@ -5703,7 +5703,7 @@ NMD这2.6卡池就有毒
 
                                                  
 
------
+*****
 
 ####  シャル  
 ##### 79976#       发表于 2021-7-15 07:28
@@ -5718,7 +5718,7 @@ NMD这2.6卡池就有毒
 随机的
 
 
------
+*****
 
 ####  シャル  
 ##### 79977#       发表于 2021-7-15 07:32
@@ -5756,7 +5756,7 @@ NMD这2.6卡池就有毒
 <img src="https://img.saraba1st.com/forum/202107/15/073151wevgg2sninsi8pod.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  風卷豹  
 ##### 79978#       发表于 2021-7-15 09:10
@@ -5765,7 +5765,7 @@ NMD这2.6卡池就有毒
 现在的小钟只够喂妖兰1个10技能..72*3的消耗到底是哪个勾八设计师想的
 
 
------
+*****
 
 ####  khxooo  
 ##### 79979#       发表于 2021-7-15 09:12
@@ -5778,7 +5778,7 @@ NMD这2.6卡池就有毒
 
                                                  
 
------
+*****
 
 ####  風卷豹  
 ##### 79980#       发表于 2021-7-15 09:44
@@ -5794,7 +5794,7 @@ NMD这2.6卡池就有毒
 
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79981#       发表于 2021-7-15 09:49
@@ -5809,7 +5809,7 @@ NMD这2.6卡池就有毒
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  khxooo  
 ##### 79982#       发表于 2021-7-15 09:51
@@ -5822,7 +5822,7 @@ NMD这2.6卡池就有毒
 是的，这个是最傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 79983#       发表于 2021-7-15 10:08
@@ -5836,7 +5836,7 @@ NMD这2.6卡池就有毒
 对，所以重点还是没开free本，只要开了管他要多少，毕竟大家苹果多到发霉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79984#       发表于 2021-7-15 10:09
@@ -5850,7 +5850,7 @@ NMD这2.6卡池就有毒
 
                                                 
 
------
+*****
 
 ####  yzj134100  
 ##### 79985#       发表于 2021-7-15 10:50
@@ -5859,7 +5859,7 @@ NMD这2.6卡池就有毒
 护肤all in 只抽到两个帕西  下个活动再见
 
 
------
+*****
 
 ####  巴裘拉  
 ##### 79986#       发表于 2021-7-15 11:21
@@ -5868,7 +5868,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">4单下去一个up角色都没出，我天崩
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 79987#       发表于 2021-7-15 11:25
@@ -5885,7 +5885,7 @@ NMD这2.6卡池就有毒
 
                                                  
 
------
+*****
 
 ####  zakki  
 ##### 79988#       发表于 2021-7-15 11:57
@@ -5894,7 +5894,7 @@ NMD这2.6卡池就有毒
 石尽，不抱希望出妖兰了，希望周年送的石头能让我出红拐
 
 
------
+*****
 
 ####  シャル  
 ##### 79989#       发表于 2021-7-15 12:06
@@ -5906,7 +5906,7 @@ NMD这2.6卡池就有毒
 这次卡池有毒，80连才一个尼托和兰斯，连4星都歪不出来
 
 
------
+*****
 
 ####  シャル  
 ##### 79990#       发表于 2021-7-15 12:10
@@ -5937,7 +5937,7 @@ NMD这2.6卡池就有毒
 <img src="https://img.saraba1st.com/forum/202107/15/120909v7vtm11gbzfh6h87.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 79991#       发表于 2021-7-15 12:48
@@ -5946,7 +5946,7 @@ NMD这2.6卡池就有毒
 不开free简直弱智操作，都分三次开了为什么不像1.0开始那时候边打边开free？
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 79992#       发表于 2021-7-15 12:51
@@ -5963,7 +5963,7 @@ NMD这2.6卡池就有毒
 老外黑客那边都在说free早就做好了就是拖着不实装而已
 
 
------
+*****
 
 ####  UNISONIA  
 ##### 79993#       发表于 2021-7-15 12:57
@@ -5978,7 +5978,7 @@ NMD这2.6卡池就有毒
 第一部后期六七两章不根据进度开free就是奈须要求盐川改的
 
 
------
+*****
 
 ####  zore  
 ##### 79994#       发表于 2021-7-15 13:02
@@ -5989,7 +5989,7 @@ NMD这2.6卡池就有毒
 神经病啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 79995#       发表于 2021-7-15 13:05
@@ -6002,7 +6002,7 @@ NMD这2.6卡池就有毒
 谁是废物就不谈了..都是废物就完了
 
 
------
+*****
 
 ####  巴莱-银河漂流  
 ##### 79996#       发表于 2021-7-15 13:10
@@ -6011,7 +6011,7 @@ NMD这2.6卡池就有毒
 麻里佳登月了哎
 
 
------
+*****
 
 ####  巴莱-银河漂流  
 ##### 79997#       发表于 2021-7-15 13:11
@@ -6020,7 +6020,7 @@ NMD这2.6卡池就有毒
 话说茄子这个冰冻挂机刷时长到底算不算活了2000多岁（
 
 
------
+*****
 
 ####  angelooo  
 ##### 79998#       发表于 2021-7-15 13:13
@@ -6036,7 +6036,7 @@ NMD这2.6卡池就有毒
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 79999#       发表于 2021-7-15 13:34
@@ -6045,7 +6045,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在就等着看8.4再来一个9月见了
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 80000#       发表于 2021-7-15 13:47
@@ -6054,7 +6054,7 @@ NMD这2.6卡池就有毒
 现在最慌的其实不是妖兰素材不够，反正目前用得到100充的地方还不多，8级也还能用。就怕二池奥伯龙出来也要吃铜素材，就现在这个充能量，妥妥已经是孔明级的大拐了，要是不能第一时间310怕不是要被删好友了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80001#       发表于 2021-7-15 13:54
@@ -6063,7 +6063,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孔明级的大拐有什么用?   平时阴间本都那么抵制换人服 这还不是得躺仓库
 
 
------
+*****
 
 ####  シャル  
 ##### 80002#       发表于 2021-7-15 14:31
@@ -6075,7 +6075,7 @@ NMD这2.6卡池就有毒
 太可恶了
 
 
------
+*****
 
 ####  qixinno2  
 ##### 80003#       发表于 2021-7-15 14:33
@@ -6084,7 +6084,7 @@ NMD这2.6卡池就有毒
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没石头又抽不到的我估计到时候就该被大佬们拔毛了
 
 
------
+*****
 
 ####  シャル  
 ##### 80004#       发表于 2021-7-15 14:42
@@ -6097,7 +6097,7 @@ NMD这2.6卡池就有毒
 多好啊，省的缺材料了
 
 
------
+*****
 
 ####  AbigailWilliams  
 ##### 80005#       发表于 2021-7-15 14:47
@@ -6106,7 +6106,7 @@ NMD这2.6卡池就有毒
 dw真缺产能也不至于free放不出来，要喷下达这卡free决策的傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 80006#       发表于 2021-7-15 15:03
@@ -6115,7 +6115,7 @@ dw真缺产能也不至于free放不出来，要喷下达这卡free决策的傻�
 是啊，肯定是蘑菇这傻逼要求的，free要做估计就是怪物的配置和模型上，现在怪物的模型都出来了，能用多少工作量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，卡着玩家很高兴吗啊？
 
 
------
+*****
 
 ####  シャル  
 ##### 80007#       发表于 2021-7-15 15:28
@@ -6127,7 +6127,7 @@ dw真缺产能也不至于free放不出来，要喷下达这卡free决策的傻�
 卡素材是傻逼
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80008#       发表于 2021-7-15 15:39
@@ -6136,7 +6136,7 @@ dw真缺产能也不至于free放不出来，要喷下达这卡free决策的傻�
 艹 怎么每战都要重新编队。。。梦回爬塔<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 80009#       发表于 2021-7-15 15:41
@@ -6153,7 +6153,7 @@ dw真缺产能也不至于free放不出来，要喷下达这卡free决策的傻�
 我方全體(含候補)的〔梅林〕強化賦予成功率下降【副作用】：20%如果真的是红拐，简直是对梅林的双重迫害（你也配当红拐）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80010#       发表于 2021-7-15 16:10
@@ -6164,7 +6164,7 @@ dw真缺产能也不至于free放不出来，要喷下达这卡free决策的傻�
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 80011#       发表于 2021-7-15 16:57
@@ -6176,7 +6176,7 @@ dw真缺产能也不至于free放不出来，要喷下达这卡free决策的傻�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熟悉的id 居然不是豹跳 这合理吗
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 80012#       发表于 2021-7-15 17:17
@@ -6189,7 +6189,7 @@ material9下月发售
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 80013#       发表于 2021-7-15 17:18
@@ -6203,7 +6203,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  白金口袋  
 ##### 80014#       发表于 2021-7-15 17:34
@@ -6221,7 +6221,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 80015#       发表于 2021-7-15 18:47
@@ -6232,7 +6232,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  angelooo  
 ##### 80016#       发表于 2021-7-15 20:56
@@ -6241,7 +6241,7 @@ material9下月发售
 云了下目前透露的剧情有段对我来说是天雷，蘑菇你行不行23333
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80017#       发表于 2021-7-15 21:52
@@ -6253,7 +6253,7 @@ material9下月发售
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">萌新又记忆错乱了.....每次开新主线剧情非洲人在专楼里不都是讨论剧情的么
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80018#       发表于 2021-7-15 23:10
@@ -6264,7 +6264,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  久井路路  
 ##### 80019#       发表于 2021-7-16 01:00
@@ -6281,7 +6281,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 80020#       发表于 2021-7-16 02:07
@@ -6295,7 +6295,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  zore  
 ##### 80021#       发表于 2021-7-16 02:45
@@ -6306,7 +6306,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 80022#       发表于 2021-7-16 05:56
@@ -6317,7 +6317,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  cckuku  
 ##### 80023#       发表于 2021-7-16 10:36
@@ -6330,7 +6330,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  yzj134100  
 ##### 80024#       发表于 2021-7-16 13:32
@@ -6343,7 +6343,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  白金口袋  
 ##### 80025#       发表于 2021-7-16 15:44
@@ -6360,7 +6360,7 @@ material9下月发售
 总觉得是不是因为术傻周年放出来救火结果后面池子都乱套了，本来应该是2.6前半池子术傻后半池子摩根，再往后萝兰这样的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  シャル  
 ##### 80026#       发表于 2021-7-16 16:01
@@ -6376,7 +6376,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 80027#       发表于 2021-7-16 17:20

@@ -1,6 +1,6 @@
 
 
------
+*****
 
 ####  矢量路比  
 ##### 1#       楼主       发表于 2021-6-16 20:18
@@ -122,7 +122,7 @@
 我个人觉得可能性确实不高，大家看看图一乐就行了。
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 2#       发表于 2021-6-16 20:26
@@ -131,7 +131,7 @@
 看着像狂粉制作人碰瓷
 
 
------
+*****
 
 ####  byisme001  
 ##### 3#       发表于 2021-6-16 20:29
@@ -140,7 +140,7 @@
 确实，mgsv刚公布的时候宣传片只用了医院那段也只用了幻痛这个名，没有提mgs的事，还虚构了一个moby dick工作室
 
 
------
+*****
 
 ####  byisme001  
 ##### 4#       发表于 2021-6-16 20:31
@@ -152,7 +152,7 @@
 【「合金装备V幻痛」 2012-2015 预告全收集 英日双语-哔哩哔哩】https://b23.tv/16m1Da
 
 
------
+*****
 
 ####  unkindleash  
 ##### 5#       发表于 2021-6-16 20:57
@@ -163,7 +163,7 @@
 这个名字翻译成中文难道是“莫逼J8”…这还是个武汉骂人方言
 
 
------
+*****
 
 ####  Lynn冰翎  
 ##### 6#       发表于 2021-6-16 21:02
@@ -174,7 +174,7 @@
 我的天哪……这东西翻译过来是白鲸。
 
 
------
+*****
 
 ####  矢量路比  
 ##### 7#         楼主| 发表于 2021-6-16 21:13
@@ -186,7 +186,7 @@
 《白鲸记》，幻痛里也有很多和这本书有联系的要素
 
 
------
+*****
 
 ####  雪菜碧池  
 ##### 8#       发表于 2021-6-16 21:19
@@ -195,7 +195,7 @@
 MGSV PT那两年确实被小岛玩蒙了，但这个可能真的没关系
 
 
------
+*****
 
 ####  otaku21126  
 ##### 9#       发表于 2021-6-16 21:33
@@ -204,7 +204,7 @@ MGSV PT那两年确实被小岛玩蒙了，但这个可能真的没关系
 小岛干出什么故弄玄虚的事都有可能
 
 
------
+*****
 
 ####  陈玉礼  
 ##### 10#       发表于 2021-6-16 21:39
@@ -213,7 +213,7 @@ MGSV PT那两年确实被小岛玩蒙了，但这个可能真的没关系
 莫比迪克是梅尔维尔《白鲸》里那头白鲸，《白鲸》也可以说是幻痛故事的原点
 
 
------
+*****
 
 ####  斯库鲁多  
 ##### 11#       发表于 2021-6-16 22:23
@@ -222,7 +222,7 @@ MGSV PT那两年确实被小岛玩蒙了，但这个可能真的没关系
 刚出来时就有这种猜测了吧
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 12#       发表于 2021-6-16 22:31
@@ -232,7 +232,7 @@ first letter S, last letter L
 SHILL
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 13#       发表于 2021-6-16 22:33
@@ -244,7 +244,7 @@ SHILL
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">moby dick是一本书 叫白鲸记
 
 
------
+*****
 
 ####  弹簧电光  
 ##### 14#       发表于 2021-6-16 23:19
@@ -256,7 +256,7 @@ SHILL
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还真有武汉话内味
 
 
------
+*****
 
 ####  Cranberries  
 ##### 15#       发表于 2021-6-16 23:49
@@ -267,7 +267,7 @@ SHILL
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  凶手  
 ##### 16#       发表于 2021-6-17 02:45
@@ -278,7 +278,7 @@ SHILL
 笑死我了要不是这帖子都想不起 moby这个捂汗话了XD
 
 
------
+*****
 
 ####  frosta  
 ##### 17#       发表于 2021-6-17 08:17
@@ -287,7 +287,7 @@ SHILL
 主要这片水平太烂了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  陈玉礼  
 ##### 18#       发表于 2021-6-17 08:21
@@ -296,7 +296,7 @@ SHILL
 就目前这个片的水平我只能理解为蓄意碰瓷，虽然画面看着确实可以
 
 
------
+*****
 
 ####  Guildenstern  
 ##### 19#       发表于 2021-6-17 08:22
@@ -305,7 +305,7 @@ SHILL
 可能性很小，但因为小岛，所以也不为零。这人老喜欢整幺蛾子。
 
 
------
+*****
 
 ####  unkindleash  
 ##### 20#       发表于 2021-6-17 11:03
@@ -317,7 +317,7 @@ SHILL
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">嗐，是我大老粗，孤陋寡闻了
 
 
------
+*****
 
 ####  unkindleash  
 ##### 21#       发表于 2021-6-17 11:05
@@ -329,7 +329,7 @@ moby dick是一本书 叫白鲸记</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">啊这....读书少的恶果哈哈
 
 
------
+*****
 
 ####  unkindleash  
 ##### 22#       发表于 2021-6-17 11:06
@@ -341,7 +341,7 @@ moby dick是一本书 叫白鲸记</blockquote>
 对着名字读出来，就成了这个意思<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Vladimeow  
 ##### 23#       发表于 2021-6-17 11:43
@@ -350,7 +350,7 @@ moby dick是一本书 叫白鲸记</blockquote>
 想太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  资本剑客  
 ##### 24#       发表于 2021-6-17 11:49
@@ -359,7 +359,7 @@ moby dick是一本书 叫白鲸记</blockquote>
 虽然可能性不大，但也说不定
 
 
------
+*****
 
 ####  ybfelix  
 ##### 25#       发表于 2021-6-17 12:21
@@ -368,7 +368,7 @@ moby dick是一本书 叫白鲸记</blockquote>
 所以当年那个Moby Dick整活有什么意义吗，回忆起来似乎没几个人真的当回事啊
 
 
------
+*****
 
 ####  陈玉礼  
 ##### 26#       发表于 2021-6-17 12:25
@@ -379,7 +379,7 @@ moby dick是一本书 叫白鲸记</blockquote>
 最大的意义是宣传fox引擎，当时用fox渲染了一段制作人采访影像然后说这是实拍的（当然是缠着绷带
 
 
------
+*****
 
 ####  ykyin09  
 ##### 27#       发表于 2021-6-17 12:28
@@ -389,7 +389,7 @@ moby dick是一本书 叫白鲸记</blockquote>
 冒险小虎队是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
------
+*****
 
 ####  Rinne70  
 ##### 28#       发表于 2021-6-17 13:26
@@ -400,7 +400,7 @@ moby dick是一本书 叫白鲸记</blockquote>
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 29#       发表于 2021-6-17 13:39
@@ -412,7 +412,7 @@ moby dick是一本书 叫白鲸记</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么居然是渲染的？我以为真的是实拍，不是说还有头套么！！！
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 30#       发表于 2021-6-18 04:52
@@ -427,7 +427,7 @@ moby dick是一本书 叫白鲸记</blockquote>
 
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 31#       发表于 2021-6-18 04:58
@@ -437,7 +437,7 @@ Geoff Keighley称与Hasan谈过，请大家持续关注，未来会公布更多�
 [https://twitter.com/geoffkeighley/status/1405597236759646210?s=20](https://twitter.com/geoffkeighley/status/1405597236759646210?s=20)
 
 
------
+*****
 
 ####  asion617  
 ##### 32#       发表于 2021-6-18 07:26
@@ -452,7 +452,7 @@ https://translate.google.com/?sl=ja&amp;tl=tr&amp;text=Hideo&amp;op=translate
 之前那些分析我觉得像是岛学家嗯蹭，这个有点意思了
 
 
------
+*****
 
 ####  cloudian  
 ##### 33#       发表于 2021-6-18 07:59
@@ -463,7 +463,7 @@ https://translate.google.com/?sl=ja&amp;tl=tr&amp;text=Hideo&amp;op=translate
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  frosta  
 ##### 34#       发表于 2021-6-18 08:05
@@ -480,7 +480,7 @@ https://translate.google.com/?sl=ja&amp;tl=tr&amp;text=Hideo&amp;op=translate
 岛哥哥就拿这么个烂片整活么
 
 
------
+*****
 
 ####  冰箱研会长  
 ##### 35#       发表于 2021-6-18 08:15
@@ -494,7 +494,7 @@ https://translate.google.com/?sl=ja&amp;tl=tr&amp;text=Hideo&amp;op=translate
 <img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">可能这也是忽悠的一环.
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 36#       发表于 2021-6-18 08:18
@@ -539,7 +539,7 @@ https://translate.google.com/?sl=ja&amp;tl=tr&amp;text=Hideo&amp;op=translate
 17. BLUE BOX发推说自己跟小岛和寂静岭无关，Moby Dick在12年也说自己和MGS无关
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 37#       发表于 2021-6-18 08:38
@@ -658,7 +658,7 @@ BLUE BOX游戏工作室
 // BLUE的含义可以从[3年前的官网](https://web.archive.org/web/20181102112902/https://www.blueboxgamestudios.com/)找到，是Best Level User Experience。但是BOX呢？
 
 
------
+*****
 
 ####  asion617  
 ##### 38#       发表于 2021-6-18 08:42
@@ -667,7 +667,7 @@ BLUE BOX游戏工作室
 不过预计今年年内出是不是开发时间有点紧张？满打满算从19年中开始到现在也才两年，可能又是个原爆点那样的付费试玩版？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  电磁炮233  
 ##### 39#       发表于 2021-6-18 08:44
@@ -680,7 +680,7 @@ BLUE BOX游戏工作室
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 40#       发表于 2021-6-18 08:46
@@ -689,7 +689,7 @@ BLUE BOX游戏工作室
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">they ve played us like a damn fiddle！
 
 
------
+*****
 
 ####  operatbig  
 ##### 41#       发表于 2021-6-18 08:49
@@ -698,7 +698,7 @@ BLUE BOX游戏工作室
 业界著名冤大头
 
 
------
+*****
 
 ####  acropolis  
 ##### 42#       发表于 2021-6-18 09:12
@@ -707,7 +707,7 @@ BLUE BOX游戏工作室
 这推怎么看都不是岛哥的风格
 
 
------
+*****
 
 ####  哈罗  
 ##### 43#       发表于 2021-6-18 09:21
@@ -716,7 +716,7 @@ BLUE BOX游戏工作室
 一个不知名的工作室凭什么这么跳，小体量游戏一般都是ps5+pc，这游戏独占ps5就不对劲，推的热度也不对劲，越来越像壳了
 
 
------
+*****
 
 ####  765PRO  
 ##### 44#       发表于 2021-6-18 09:37
@@ -733,7 +733,7 @@ BLUE BOX游戏工作室
 小岛整活可能还是很高的
 
 
------
+*****
 
 ####  小泉花陽  
 ##### 45#       发表于 2021-6-18 09:58
@@ -742,7 +742,7 @@ BLUE BOX游戏工作室
 感觉应该就是小岛整活了，期待一下
 
 
------
+*****
 
 ####  UmarIbnLaAhad  
 ##### 46#       发表于 2021-6-18 10:13
@@ -751,7 +751,7 @@ BLUE BOX游戏工作室
 <img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">又要pt小鬼满地爬了吗
 
 
------
+*****
 
 ####  Marsoy  
 ##### 47#       发表于 2021-6-18 10:16
@@ -760,7 +760,7 @@ BLUE BOX游戏工作室
 看了预告片，只能说绝无可能
 
 
------
+*****
 
 ####  矢量路比  
 ##### 48#         楼主| 发表于 2021-6-18 10:31
@@ -795,7 +795,7 @@ BLUE BOX游戏工作室
 
                                                 
 
------
+*****
 
 ####  阿布都督  
 ##### 49#       发表于 2021-6-18 10:58
@@ -804,7 +804,7 @@ BLUE BOX游戏工作室
 看了你们这堆分析，又去看了看这工作室发的推，我只想说岛哥哥真能整活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  陈玉礼  
 ##### 50#       发表于 2021-6-18 11:05
@@ -813,7 +813,7 @@ BLUE BOX游戏工作室
 谨慎不看好，不然同样的招数玩三次就没啥意思了
 
 
------
+*****
 
 ####  Sontag  
 ##### 51#       发表于 2021-6-18 11:07
@@ -822,7 +822,7 @@ BLUE BOX游戏工作室
 感觉还是岛粉厂商碰瓷的概率大些
 
 
------
+*****
 
 ####  Eadric  
 ##### 52#       发表于 2021-6-18 11:18
@@ -833,7 +833,7 @@ BLUE BOX游戏工作室
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  765PRO  
 ##### 53#       发表于 2021-6-18 11:31
@@ -844,7 +844,7 @@ BLUE BOX游戏工作室
 确实不是同一个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 54#       发表于 2021-6-18 11:39
@@ -861,7 +861,7 @@ BLUE BOX游戏工作室
 
                                                  
 
------
+*****
 
 ####  Eadric  
 ##### 55#       发表于 2021-6-18 11:43
@@ -880,7 +880,7 @@ BLUE BOX游戏工作室
 太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  沁雅畅慧  
 ##### 56#       发表于 2021-6-18 11:49
@@ -889,7 +889,7 @@ BLUE BOX游戏工作室
 如果是嗯蹭，那这大哥应该多少有点门路，毕竟都能在ps blog发文……
 
 
------
+*****
 
 ####  jajajzz  
 ##### 57#       发表于 2021-6-18 11:52
@@ -900,7 +900,7 @@ BLUE BOX游戏工作室
 不得不说如果这乌龙了，这游戏基本是别想卖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 58#       发表于 2021-6-18 12:09
@@ -916,7 +916,7 @@ Geoff说他收到了Hasan寄来的一些图，一会发
 大的要来了
 
 
------
+*****
 
 ####  矢量路比  
 ##### 59#         楼主| 发表于 2021-6-18 12:19
@@ -928,7 +928,7 @@ Geoff说他收到了Hasan寄来的一些图，一会发
 这个其实正常的，PS Blog 上的文章大部分都是由开发商员工名义发布，即便是第三方
 
 
------
+*****
 
 ####  矢量路比  
 ##### 60#         楼主| 发表于 2021-6-18 12:22
@@ -965,7 +965,7 @@ Hasan Kahraman 在 App Store 上上架了很多应用，其中大部分都是垃
 
 
 
------
+*****
 
 ####  haruhiismer  
 ##### 61#       发表于 2021-6-18 12:34
@@ -974,7 +974,7 @@ Hasan Kahraman 在 App Store 上上架了很多应用，其中大部分都是垃
 岛粉迷惑行为<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  真实之影  
 ##### 62#       发表于 2021-6-18 12:39
@@ -985,7 +985,7 @@ Hasan Kahraman 在 App Store 上上架了很多应用，其中大部分都是垃
 就是说不定还真是寂静岭新作？我记得灵媒那个制作组想做来着的？
 
 
------
+*****
 
 ####  Cranberries  
 ##### 63#       发表于 2021-6-18 12:40
@@ -997,7 +997,7 @@ Hasan Kahraman 在 App Store 上上架了很多应用，其中大部分都是垃
 <img src="https://p.sda1.dev/2/2846ef9456ade79195c594bbe0bffcc4/IMG_CMP_169732616.jpeg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Senbascira  
 ##### 64#       发表于 2021-6-18 12:41
@@ -1012,7 +1012,7 @@ https://www.reddit.com/r/TheBlueBoxConspiracy/
 很务实，有可能
 
 
------
+*****
 
 ####  哈罗  
 ##### 65#       发表于 2021-6-18 12:42
@@ -1021,7 +1021,7 @@ https://www.reddit.com/r/TheBlueBoxConspiracy/
 era盖了快2000楼了，推的热度也不是一般工作室能比的，不管真的假的这波营销血赚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  D-JoeII  
 ##### 66#       发表于 2021-6-18 12:57
@@ -1032,7 +1032,7 @@ era盖了快2000楼了，推的热度也不是一般工作室能比的，不管�
 再整活也不會整出千萬遊戲出來
 
 
------
+*****
 
 ####  晨曦之下  
 ##### 67#       发表于 2021-6-18 13:02
@@ -1044,7 +1044,7 @@ era盖了快2000楼了，推的热度也不是一般工作室能比的，不管�
 至少现在很多人知道了
 
 
------
+*****
 
 ####  D-JoeII  
 ##### 68#       发表于 2021-6-18 13:10
@@ -1058,7 +1058,7 @@ era盖了快2000楼了，推的热度也不是一般工作室能比的，不管�
 你這句除非小島製作人是假的,這工作室去碰瓷小島才成立啊,不然像死亡擱淺那樣正常公佈都很夠熱度了
 
 
------
+*****
 
 ####  byisme001  
 ##### 69#       发表于 2021-6-18 13:11
@@ -1071,7 +1071,7 @@ era盖了快2000楼了，推的热度也不是一般工作室能比的，不管�
 
                                                 
 
------
+*****
 
 ####  D-JoeII  
 ##### 70#       发表于 2021-6-18 13:17
@@ -1085,7 +1085,7 @@ era盖了快2000楼了，推的热度也不是一般工作室能比的，不管�
 當然如果小島這次改用UE不用Decima了,那可能也想再這麼整活一次
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 71#       发表于 2021-6-18 13:19
@@ -1103,7 +1103,7 @@ BLUE = 2 - 12 - 21 - 5
 差点就信了
 
 
------
+*****
 
 ####  Eadric  
 ##### 72#       发表于 2021-6-18 13:25
@@ -1118,7 +1118,7 @@ BLUE = 2 - 12 - 21 - 5</blockquote>
 字 母 表 论 证<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cranberries  
 ##### 73#       发表于 2021-6-18 13:29
@@ -1133,7 +1133,7 @@ BLUE = 2 - 12 - 21 - 5</blockquote>
 不过这个数字论证太艹了。
 
 
------
+*****
 
 ####  DeerRua  
 ##### 74#       发表于 2021-6-18 13:35
@@ -1142,7 +1142,7 @@ BLUE = 2 - 12 - 21 - 5</blockquote>
 想起了PT发布时的7780s，我有理由相信小岛喜欢搞这套
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 75#       发表于 2021-6-18 13:36
@@ -1154,7 +1154,7 @@ BLUE = 2 - 12 - 21 - 5</blockquote>
 跟幻痛pv的open your eyes风格接近
 
 
------
+*****
 
 ####  byisme001  
 ##### 76#       发表于 2021-6-18 13:36
@@ -1169,7 +1169,7 @@ BLUE = 2 - 12 - 21 - 5
 114514呢
 
 
------
+*****
 
 ####  DeerRua  
 ##### 77#       发表于 2021-6-18 13:48
@@ -1178,7 +1178,7 @@ BLUE = 2 - 12 - 21 - 5
 又有人发现Abandoned的teaser用的bgm很像寂静岭2的原声the tunnel beckons
 
 
------
+*****
 
 ####  那由  
 ##### 78#       发表于 2021-6-18 13:57
@@ -1195,7 +1195,7 @@ Q.E.D.
 
                                                  
 
------
+*****
 
 ####  zzy516232108  
 ##### 79#       发表于 2021-6-18 14:03
@@ -1211,7 +1211,7 @@ Q.E.D.
 最终成品垃圾，必然会被这波流量反噬吧。
 
 
------
+*****
 
 ####  axl133  
 ##### 80#       发表于 2021-6-18 14:05
@@ -1220,7 +1220,7 @@ Q.E.D.
 这楼爬完我整个人已经是岛学的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DeerRua  
 ##### 81#       发表于 2021-6-18 14:08
@@ -1252,7 +1252,7 @@ Q.E.D.
 <img src="https://img.saraba1st.com/forum/202106/18/140743dxrssn6kxp4kdo89.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 82#       发表于 2021-6-18 14:11
@@ -1264,7 +1264,7 @@ Q.E.D.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，笑死我了
 
 
------
+*****
 
 ####  电磁炮233  
 ##### 83#       发表于 2021-6-18 14:34
@@ -1275,7 +1275,7 @@ Q.E.D.
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  acejoe  
 ##### 84#       发表于 2021-6-18 14:40
@@ -1286,7 +1286,7 @@ Q.E.D.
 
                                                  
 
------
+*****
 
 ####  asion617  
 ##### 85#       发表于 2021-6-18 14:54
@@ -1301,7 +1301,7 @@ Q.E.D.
 Q.E.D
 
 
------
+*****
 
 ####  新八  
 ##### 86#       发表于 2021-6-18 14:58
@@ -1310,7 +1310,7 @@ Q.E.D
 一波看下来，这活也整的太好了，期待后续 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  医生狼多  
 ##### 87#       发表于 2021-6-18 15:02
@@ -1319,7 +1319,7 @@ Q.E.D
 太草了，准备看戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rainsheep  
 ##### 88#       发表于 2021-6-18 15:19
@@ -1328,7 +1328,7 @@ Q.E.D
 这要最后不是可太有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Eadric  
 ##### 89#       发表于 2021-6-18 15:34
@@ -1339,7 +1339,7 @@ Q.E.D
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  泉美  
 ##### 90#       发表于 2021-6-18 15:41
@@ -1350,7 +1350,7 @@ Q.E.D
 
                                                  
 
------
+*****
 
 ####  403page  
 ##### 91#       发表于 2021-6-18 17:38
@@ -1361,7 +1361,7 @@ Q.E.D
 
                                                  
 
------
+*****
 
 ####  日日日日日野  
 ##### 92#       发表于 2021-6-18 19:43
@@ -1378,7 +1378,7 @@ PS.希望成品不是第一人称
 
                                                  
 
------
+*****
 
 ####  Eadric  
 ##### 93#       发表于 2021-6-18 20:04
@@ -1410,7 +1410,7 @@ konami发的推
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  电磁炮233  
 ##### 94#       发表于 2021-6-18 20:07
@@ -1419,7 +1419,7 @@ konami发的推
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">好起来了，konami努努力把IP都卖出去吧
 
 
------
+*****
 
 ####  平井姨夫  
 ##### 95#       发表于 2021-6-18 20:21
@@ -1428,7 +1428,7 @@ konami发的推
 如果只是模仿犯，会被岛迷彻底反噬吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kuker53  
 ##### 96#       发表于 2021-6-18 20:46
@@ -1439,7 +1439,7 @@ konami发的推
 
                                                  
 
------
+*****
 
 ####  acejoe  
 ##### 97#       发表于 2021-6-18 21:58
@@ -1448,7 +1448,7 @@ konami发的推
 要是整活的是科那米……想想就有劲。
 
 
------
+*****
 
 ####  Cranberries  
 ##### 98#       发表于 2021-6-18 22:01
@@ -1459,7 +1459,7 @@ https://sys.4channel.org/derefer?url=https%3A%2F%2Fstreamable.com%2F4cpktw
 真假自行辨别。
 
 
------
+*****
 
 ####  Eadric  
 ##### 99#       发表于 2021-6-18 22:04
@@ -1484,7 +1484,7 @@ https://sys.4channel.org/derefer?url=https%3A%2F%2Fstreamable.com%2F4cpk ...</bl
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  walfeds  
 ##### 100#       发表于 2021-6-18 22:09
@@ -1497,7 +1497,7 @@ https://sys.4channel.org/derefer?url=https%3A%2F%2Fstreamable.com%2F4cpk ...</bl
 
                                                  
 
------
+*****
 
 ####  Cranberries  
 ##### 101#       发表于 2021-6-18 22:16
@@ -1510,7 +1510,7 @@ reddit有人找到出处了。
 Never trust 4chan
 
 
------
+*****
 
 ####  Eadric  
 ##### 102#       发表于 2021-6-18 22:17
@@ -1525,7 +1525,7 @@ Never trust 4chan ...</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  acejoe  
 ##### 103#       发表于 2021-6-18 22:53
@@ -1538,7 +1538,7 @@ Never trust 4chan ...</blockquote>
 出处是啥？
 
 
------
+*****
 
 ####  diketuiduoLI  
 ##### 104#       发表于 2021-6-18 22:54
@@ -1567,7 +1567,7 @@ Never trust 4chan ...</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  acejoe  
 ##### 105#       发表于 2021-6-18 22:56
@@ -1578,7 +1578,7 @@ Never trust 4chan ...</blockquote>
 
                                                  
 
------
+*****
 
 ####  Cranberries  
 ##### 106#       发表于 2021-6-18 23:01
@@ -1590,7 +1590,7 @@ https://youtu.be/hqsQY-QXI2U
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cranberries  
 ##### 107#       发表于 2021-6-18 23:01
@@ -1599,7 +1599,7 @@ https://youtu.be/hqsQY-QXI2U
 风怒
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 108#       发表于 2021-6-18 23:02
@@ -1617,7 +1617,7 @@ Geoff在resetera上又说话了，说一会把Hasan寄来的图发推特
 和八年前是不是有点像
 
 
------
+*****
 
 ####  tuiskusuomaa  
 ##### 109#       发表于 2021-6-18 23:04
@@ -1626,7 +1626,7 @@ Geoff在resetera上又说话了，说一会把Hasan寄来的图发推特
 大的要来了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Eadric  
 ##### 110#       发表于 2021-6-18 23:08
@@ -1635,7 +1635,7 @@ Geoff在resetera上又说话了，说一会把Hasan寄来的图发推特
 Geoff绝逼啥都知道吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  尘落樱飞  
 ##### 111#       发表于 2021-6-18 23:09
@@ -1644,7 +1644,7 @@ Geoff绝逼啥都知道吧<img src="https://static.saraba1st.com/image/smiley/fa
 大的？
 
 
------
+*****
 
 ####  新八  
 ##### 112#       发表于 2021-6-18 23:09
@@ -1653,7 +1653,7 @@ Geoff绝逼啥都知道吧<img src="https://static.saraba1st.com/image/smiley/fa
 我真的有点怀疑是模仿犯了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  北卡厨王  
 ##### 113#       发表于 2021-6-18 23:11
@@ -1662,7 +1662,7 @@ Geoff绝逼啥都知道吧<img src="https://static.saraba1st.com/image/smiley/fa
 越来越像拿到寂静岭ip的团队自己整活了。
 
 
------
+*****
 
 ####  平井姨夫  
 ##### 114#       发表于 2021-6-18 23:45
@@ -1671,7 +1671,7 @@ Geoff绝逼啥都知道吧<img src="https://static.saraba1st.com/image/smiley/fa
 模仿犯的话真的会被骂死
 
 
------
+*****
 
 ####  JoelBirch  
 ##### 115#       发表于 2021-6-18 23:46
@@ -1682,7 +1682,7 @@ Geoff绝逼啥都知道吧<img src="https://static.saraba1st.com/image/smiley/fa
 寂静岭新作真是这两年最恶心的系列传闻了，搞到现在内心已经毫无波澜，不管是官方还是模仿犯我都感觉这群人真的好无聊啊，真的做得来游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  血狂毘沙门  
 ##### 116#       发表于 2021-6-19 00:03
@@ -1694,7 +1694,7 @@ Geoff绝逼啥都知道吧<img src="https://static.saraba1st.com/image/smiley/fa
 就怕做出来的游戏没整的活好玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  矢量路比  
 ##### 117#         楼主| 发表于 2021-6-19 00:04
@@ -1827,7 +1827,7 @@ Blue Box 曾经公布过一款叫做《Rewind》的游戏，最开始他们为�
 查看全部评分
 
 
------
+*****
 
 ####  popchong  
 ##### 118#       发表于 2021-6-19 00:13
@@ -1838,7 +1838,7 @@ Blue Box 曾经公布过一款叫做《Rewind》的游戏，最开始他们为�
 
                                                  
 
------
+*****
 
 ####  Cranberries  
 ##### 119#       发表于 2021-6-19 00:16
@@ -1850,7 +1850,7 @@ DS不就很多人觉得整活比游戏好玩，游戏不好玩，
 但这和论坛讨论有什么关系?都来论坛了，不就是互联网参与感?
 
 
------
+*****
 
 ####  哈罗  
 ##### 120#       发表于 2021-6-19 00:20
@@ -1861,7 +1861,7 @@ DS不就很多人觉得整活比游戏好玩，游戏不好玩，
 
 
 
------
+*****
 
 ####  战狼PTSD  
 ##### 121#       发表于 2021-6-19 00:27
@@ -1870,7 +1870,7 @@ DS不就很多人觉得整活比游戏好玩，游戏不好玩，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多得了，能不能学老贼务实点啊，放消息就直接告诉你快来了
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 122#       发表于 2021-6-19 00:56
@@ -1889,7 +1889,7 @@ SH是Silent Hill大家都知道，可是SHLSS是什么呢
 
                                                 
 
------
+*****
 
 ####  Eadric  
 ##### 123#       发表于 2021-6-19 02:08
@@ -1904,7 +1904,7 @@ silent hill long sleeve shirt<img src="https://static.saraba1st.com/image/smiley
 
                                                  
 
------
+*****
 
 ####  Heero_Z  
 ##### 124#       发表于 2021-6-19 02:23
@@ -1917,7 +1917,7 @@ silent hill long sleeve shirt<img src="https://static.saraba1st.com/image/smiley
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 125#       发表于 2021-6-19 04:28
@@ -1928,7 +1928,7 @@ silent hill long sleeve shirt<img src="https://static.saraba1st.com/image/smiley
 可能睡了（指10pm的荷兰人）（指5am的日本人）
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 126#       发表于 2021-6-19 05:39
@@ -1946,7 +1946,7 @@ Geoff Keighley、PlayStation、Konami，演员都到齐了
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 127#       发表于 2021-6-19 08:36
@@ -1968,7 +1968,7 @@ Those who were amongst the first ones to guess it, will receive a DM shortly!
 B.L.U.E的谜底过于普通，以至于全场震惊
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 128#       发表于 2021-6-19 08:44
@@ -1985,7 +1985,7 @@ GameSpot的自由撰稿人Mark Ⴟ Delaney说他刚和真正的Hasan通话。Aba
 Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o34hn8/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o34hn8/)
 
 
------
+*****
 
 ####  DTCPSS  
 ##### 129#       发表于 2021-6-19 08:57
@@ -1997,7 +1997,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 掷地有声，温馨感人。
 
 
------
+*****
 
 ####  Eadric  
 ##### 130#       发表于 2021-6-19 09:24
@@ -2013,7 +2013,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 2021-6-19 09:24 上传
 
 
------
+*****
 
 ####  rak1  
 ##### 131#       发表于 2021-6-19 09:27
@@ -2024,7 +2024,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 
                                                  
 
------
+*****
 
 ####  すぴぱら  
 ##### 132#       发表于 2021-6-19 10:31
@@ -2035,7 +2035,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也有可能是epic投了钱
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 133#       发表于 2021-6-19 10:36
@@ -2050,7 +2050,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我记得还看过外网一套视频 说DS就是MGS0，看完不得不感叹岛学nb
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 134#       发表于 2021-6-19 10:37
@@ -2060,7 +2060,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">越来越感觉是这个bluebox巨魔跟风了
 
 
------
+*****
 
 ####  C男  
 ##### 135#       发表于 2021-6-19 10:50
@@ -2069,7 +2069,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 游戏不会做，就会整活，做什么游戏公司，做策划公司不好吗？
 
 
------
+*****
 
 ####  九十九忍  
 ##### 136#       发表于 2021-6-19 11:18
@@ -2080,7 +2080,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 
                                                  
 
------
+*****
 
 ####  diketuiduoLI  
 ##### 137#       发表于 2021-6-19 11:40
@@ -2101,7 +2101,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Eadric  
 ##### 138#       发表于 2021-6-19 11:42
@@ -2115,7 +2115,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 
                                                  
 
------
+*****
 
 ####  矩形冰块  
 ##### 139#       发表于 2021-6-19 13:04
@@ -2126,7 +2126,7 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 140#       发表于 2021-6-19 13:14
@@ -2144,7 +2144,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 
                                                  
 
------
+*****
 
 ####  DeerRua  
 ##### 141#       发表于 2021-6-19 14:18
@@ -2163,7 +2163,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 最新消息，历史性的一刻，小岛秀夫推特重新关注了konami
 
 
------
+*****
 
 ####  sad6504  
 ##### 142#       发表于 2021-6-19 14:19
@@ -2172,7 +2172,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 卧槽，大的要来了！
 
 
------
+*****
 
 ####  平井姨夫  
 ##### 143#       发表于 2021-6-19 14:20
@@ -2181,7 +2181,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 卧槽
 
 
------
+*****
 
 ####  电磁炮233  
 ##### 144#       发表于 2021-6-19 14:20
@@ -2190,7 +2190,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">实锤了
 
 
------
+*****
 
 ####  DeerRua  
 ##### 145#       发表于 2021-6-19 14:21
@@ -2209,7 +2209,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 随即，konami官方推特回fo了小岛秀夫
 
 
------
+*****
 
 ####  kuker53  
 ##### 146#       发表于 2021-6-19 14:22
@@ -2218,7 +2218,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 ？
 
 
------
+*****
 
 ####  罐头卡  
 ##### 147#       发表于 2021-6-19 14:24
@@ -2230,7 +2230,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 看到这楼之前我一直觉得是个什么神秘模仿犯<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DTCPSS  
 ##### 148#       发表于 2021-6-19 14:24
@@ -2239,7 +2239,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 大的要来了！
 
 
------
+*****
 
 ####  泡桐  
 ##### 149#       发表于 2021-6-19 14:25
@@ -2248,7 +2248,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">大的要来了吗！
 
 
------
+*****
 
 ####  Bzesii  
 ##### 150#       发表于 2021-6-19 14:27
@@ -2259,7 +2259,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 
 
 
------
+*****
 
 ####  天南星  
 ##### 151#       发表于 2021-6-19 14:28
@@ -2268,7 +2268,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 都到这一步了，最后可千万别是耍人玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 152#       发表于 2021-6-19 14:32
@@ -2279,7 +2279,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 -
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 153#       发表于 2021-6-19 14:36
@@ -2288,7 +2288,7 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 konami europe也fo了小岛
 
 
------
+*****
 
 ####  ky怪  
 ##### 154#       发表于 2021-6-19 14:37
@@ -2297,7 +2297,7 @@ konami europe也fo了小岛
 阿这
 
 
------
+*****
 
 ####  哈罗  
 ##### 155#       发表于 2021-6-19 14:38
@@ -2306,7 +2306,7 @@ konami europe也fo了小岛
 艹，真相是什么已经不重要了，这过程太好玩了
 
 
------
+*****
 
 ####  曼陀罗肥  
 ##### 156#       发表于 2021-6-19 14:38
@@ -2315,7 +2315,7 @@ konami europe也fo了小岛
 ohhhhhhhh
 
 
------
+*****
 
 ####  UmarIbnLaAhad  
 ##### 157#       发表于 2021-6-19 14:39
@@ -2324,7 +2324,7 @@ ohhhhhhhh
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">…现在只希望做的对味点，别一股岛臭味了
 
 
------
+*****
 
 ####  斯库鲁多  
 ##### 158#       发表于 2021-6-19 14:40
@@ -2333,7 +2333,7 @@ ohhhhhhhh
 出大问题
 
 
------
+*****
 
 ####  diketuiduoLI  
 ##### 159#       发表于 2021-6-19 14:41
@@ -2352,7 +2352,7 @@ ohhhhhhhh
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  那由  
 ##### 160#       发表于 2021-6-19 14:42
@@ -2361,7 +2361,7 @@ ohhhhhhhh
 573我希望你这回真的能做个人
 
 
------
+*****
 
 ####  acropolis  
 ##### 161#       发表于 2021-6-19 14:43
@@ -2370,7 +2370,7 @@ ohhhhhhhh
 泪目了
 
 
------
+*****
 
 ####  acejoe  
 ##### 162#       发表于 2021-6-19 14:45
@@ -2379,7 +2379,7 @@ ohhhhhhhh
 ？？？？？？？？？？？？？？？？？？？？？？？？？
 
 
------
+*****
 
 ####  萨尤克  
 ##### 163#       发表于 2021-6-19 14:45
@@ -2388,7 +2388,7 @@ ohhhhhhhh
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">真来了啊
 
 
------
+*****
 
 ####  真实之影  
 ##### 164#       发表于 2021-6-19 14:46
@@ -2397,7 +2397,7 @@ ohhhhhhhh
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的是大的要来了啊
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 165#       发表于 2021-6-19 14:46
@@ -2406,7 +2406,7 @@ ohhhhhhhh
 不过，小岛究竟什么时候开始fo konami，也无法证明了
 
 
------
+*****
 
 ####  kuker53  
 ##### 166#       发表于 2021-6-19 14:48
@@ -2415,7 +2415,7 @@ ohhhhhhhh
 我记得年初反正我看过小岛和konami的推特关注，绝对都没有，最早也就这几个月的事
 
 
------
+*****
 
 ####  Kobayashi  
 ##### 167#       发表于 2021-6-19 14:49
@@ -2424,7 +2424,7 @@ ohhhhhhhh
 妈呀，大的要来了！！<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Kojimaru  
 ##### 168#       发表于 2021-6-19 14:50
@@ -2435,7 +2435,7 @@ ohhhhhhhh
 
                                                 
 
------
+*****
 
 ####  Eadric  
 ##### 169#       发表于 2021-6-19 15:22
@@ -2446,7 +2446,7 @@ ohhhhhhhh
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  406129465  
 ##### 170#       发表于 2021-6-19 15:23
@@ -2455,7 +2455,7 @@ ohhhhhhhh
 大的真的要来了吗
 
 
------
+*****
 
 ####  小泉花陽  
 ##### 171#       发表于 2021-6-19 15:23
@@ -2464,7 +2464,7 @@ ohhhhhhhh
 要等到22号demo上架吗<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  walfeds  
 ##### 172#       发表于 2021-6-19 15:27
@@ -2473,7 +2473,7 @@ ohhhhhhhh
 小岛桑，konami永远是你的家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  当光停止  
 ##### 173#       发表于 2021-6-19 15:29
@@ -2482,7 +2482,7 @@ ohhhhhhhh
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到pt demo重新上架。
 
 
------
+*****
 
 ####  allenz3  
 ##### 174#       发表于 2021-6-19 15:30
@@ -2493,7 +2493,7 @@ a9有人说他们互fo很久了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  FanKiE  
 ##### 175#       发表于 2021-6-19 15:43
@@ -2504,7 +2504,7 @@ a9有人说他们互fo很久了
 最好能是真的，别让大家在最后一刻失望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 176#       发表于 2021-6-19 15:43
@@ -2521,7 +2521,7 @@ a9有人说他们互fo很久了
 
                                                  
 
------
+*****
 
 ####  hshiki  
 ##### 177#       发表于 2021-6-19 16:20
@@ -2530,7 +2530,7 @@ a9有人说他们互fo很久了
 是否该增建岛哥哥病栋了
 
 
------
+*****
 
 ####  ranapocket  
 ##### 178#       发表于 2021-6-19 16:24
@@ -2541,7 +2541,7 @@ a9有人说他们互fo很久了
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  edenpenn  
 ##### 179#       发表于 2021-6-19 16:27
@@ -2552,7 +2552,7 @@ a9有人说他们互fo很久了
 玩家一发病，小岛就发笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  tepk  
 ##### 180#       发表于 2021-6-19 16:32
@@ -2563,7 +2563,7 @@ a9有人说他们互fo很久了
 
 
 
------
+*****
 
 ####  日日日日日野  
 ##### 181#       发表于 2021-6-19 16:40
@@ -2574,7 +2574,7 @@ a9有人说他们互fo很久了
 这种事情我只能说，如果不是最近fo 的，或者说不是最近显露出来的，那么第一天阴谋论出现的时候就会有人看了，不要低估粉丝的行动力
 
 
------
+*****
 
 ####  Dgnic_  
 ##### 182#       发表于 2021-6-19 16:45
@@ -2583,7 +2583,7 @@ a9有人说他们互fo很久了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一切都到位，也是时候了
 
 
------
+*****
 
 ####  Cranberries  
 ##### 183#       发表于 2021-6-19 16:58
@@ -2598,7 +2598,7 @@ a9有人说他们互fo很久了
 
                                                 
 
------
+*****
 
 ####  陈玉礼  
 ##### 184#       发表于 2021-6-19 17:29
@@ -2607,7 +2607,7 @@ a9有人说他们互fo很久了
 22号出demo 预热一周刚好索尼直面会（疑似）<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Eadric  
 ##### 185#       发表于 2021-6-19 17:44
@@ -2618,7 +2618,7 @@ a9有人说他们互fo很久了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Narrative  
 ##### 186#       发表于 2021-6-19 18:01
@@ -2629,7 +2629,7 @@ a9有人说他们互fo很久了
 
                                                  
 
------
+*****
 
 ####  zzy516232108  
 ##### 187#       发表于 2021-6-19 18:14
@@ -2638,7 +2638,7 @@ a9有人说他们互fo很久了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐了
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 188#       发表于 2021-6-19 18:14
@@ -2647,7 +2647,7 @@ a9有人说他们互fo很久了
 风怒
 
 
------
+*****
 
 ####  矢量路比  
 ##### 189#         楼主| 发表于 2021-6-19 18:35
@@ -2676,7 +2676,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 4/27/15
 
 
------
+*****
 
 ####  kletka  
 ##### 190#       发表于 2021-6-19 18:38
@@ -2685,7 +2685,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 所以什么时候重新开放pt的下载呢
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 191#       发表于 2021-6-19 18:39
@@ -2694,7 +2694,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 27, the magical number
 
 
------
+*****
 
 ####  zeroed  
 ##### 192#       发表于 2021-6-19 18:40
@@ -2721,7 +2721,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 <img src="https://i.4cdn.org/v/1624084119099.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  enye  
 ##### 193#       发表于 2021-6-19 18:46
@@ -2730,7 +2730,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 数字论证艹
 
 
------
+*****
 
 ####  cloudian  
 ##### 194#       发表于 2021-6-19 18:54
@@ -2743,7 +2743,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 
                                                  
 
------
+*****
 
 ####  maiyunfei  
 ##### 195#       发表于 2021-6-19 19:04
@@ -2754,7 +2754,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  矢量路比  
 ##### 196#         楼主| 发表于 2021-6-19 19:05
@@ -2765,7 +2765,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 有可能是 geoff 一直在向上滚，经常遇到有人这么截图，目的是盖住上面不想被人看到的内容
 
 
------
+*****
 
 ####  406129465  
 ##### 197#       发表于 2021-6-19 19:07
@@ -2776,7 +2776,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  hshiki  
 ##### 198#       发表于 2021-6-19 19:09
@@ -2785,7 +2785,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 开始了！开始了！MGS0又要来了！
 
 
------
+*****
 
 ####  芷雅居  
 ##### 199#       发表于 2021-6-19 19:17
@@ -2794,7 +2794,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 我发病了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  clover293  
 ##### 200#       发表于 2021-6-19 19:18
@@ -2803,7 +2803,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 魔幻现实主义大作
 
 
------
+*****
 
 ####  Eadric  
 ##### 201#       发表于 2021-6-19 19:22
@@ -2814,7 +2814,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  walfeds  
 ##### 202#       发表于 2021-6-19 19:22
@@ -2823,7 +2823,7 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再论证下去hasan就是野兽先辈了
 
 
------
+*****
 
 ####  KOS_MO  
 ##### 203#       发表于 2021-6-19 19:28
@@ -2834,7 +2834,7 @@ tell me lies, tell me sweet sweet little lies<img src="https://static.saraba1st.
 
                                                  
 
------
+*****
 
 ####  clover293  
 ##### 204#       发表于 2021-6-19 20:23
@@ -2843,7 +2843,7 @@ tell me lies, tell me sweet sweet little lies<img src="https://static.saraba1st.
 blue box game studio这个名字确实很有意思啊，索尼不是一直蓝色么，而且这个logo也确实太像现在索尼用的那个PS studio的logo了
 
 
------
+*****
 
 ####  DTCPSS  
 ##### 205#       发表于 2021-6-19 20:24
@@ -2858,7 +2858,7 @@ https://www.nicovideo.jp/watch/sm18908143
 
                                                  
 
------
+*****
 
 ####  Eadric  
 ##### 206#       发表于 2021-6-19 22:02
@@ -2879,7 +2879,7 @@ https://www.nicovideo.jp/watch/sm18908143
 
                                                  
 
------
+*****
 
 ####  acejoe  
 ##### 207#       发表于 2021-6-19 22:10
@@ -2888,7 +2888,7 @@ https://www.nicovideo.jp/watch/sm18908143
 我希望都是假的，我想看大乐子！
 
 
------
+*****
 
 ####  kuker53  
 ##### 208#       发表于 2021-6-19 22:26
@@ -2900,7 +2900,7 @@ https://www.nicovideo.jp/watch/sm18908143
 什么意思，我用我浅薄的英文水平如果没看错的话这人说他们也不知道？
 
 
------
+*****
 
 ####  新八  
 ##### 209#       发表于 2021-6-19 22:29
@@ -2912,7 +2912,7 @@ https://www.nicovideo.jp/watch/sm18908143
 楼里面有一个小岛跟索尼收购了他们项目的猜测，如果是这种情况的话就说得通了
 
 
------
+*****
 
 ####  rp1993  
 ##### 210#       发表于 2021-6-19 22:31
@@ -2923,7 +2923,7 @@ https://www.nicovideo.jp/watch/sm18908143
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 211#       发表于 2021-6-20 01:43
@@ -2935,7 +2935,7 @@ https://www.nicovideo.jp/watch/sm18908143
 
                                                  
 
------
+*****
 
 ####  哈罗  
 ##### 212#       发表于 2021-6-20 02:55
@@ -2956,7 +2956,7 @@ https://www.nicovideo.jp/watch/sm18908143
 
                                                  
 
------
+*****
 
 ####  Cloudfarron  
 ##### 213#       发表于 2021-6-20 03:24
@@ -2976,7 +2976,7 @@ https://www.nicovideo.jp/watch/sm18908143
 这个算是石锤了吗？
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 214#       发表于 2021-6-20 03:24
@@ -2987,7 +2987,7 @@ https://www.nicovideo.jp/watch/sm18908143
 煽风点火的来了
 
 
------
+*****
 
 ####  20002000  
 ##### 215#       发表于 2021-6-20 03:43
@@ -3000,7 +3000,7 @@ https://www.nicovideo.jp/watch/sm18908143
 
                                                  
 
------
+*****
 
 ####  死体旅行  
 ##### 216#       发表于 2021-6-20 04:31
@@ -3009,7 +3009,7 @@ https://www.nicovideo.jp/watch/sm18908143
 大半夜的这个消息真是让人异常兴奋啊
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 217#       发表于 2021-6-20 04:31
@@ -3018,7 +3018,7 @@ https://www.nicovideo.jp/watch/sm18908143
 <img src="https://p.sda1.dev/2/ded43375584e3a3129460aef95b5a415/xEUF3DN.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 218#       发表于 2021-6-20 04:35
@@ -3031,7 +3031,7 @@ https://www.nicovideo.jp/watch/sm18908143
 Hasan在instagram上关注了荒野大镖客2为亚瑟配音的Roger Clark。Abandoned公布三天后的4月10日，Roger立即发了推：“不知道各位怎么看Abandoned这个游戏”。
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 219#       发表于 2021-6-20 05:24
@@ -3041,7 +3041,7 @@ Hasan在instagram上关注了荒野大镖客2为亚瑟配音的Roger Clark。Aba
 Box<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 220#       发表于 2021-6-20 05:29
@@ -3059,7 +3059,7 @@ Box<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referre
 真伪自辨
 
 
------
+*****
 
 ####  Flechette  
 ##### 221#       发表于 2021-6-20 05:53
@@ -3070,7 +3070,7 @@ Box<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referre
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 222#       发表于 2021-6-20 06:11
@@ -3084,7 +3084,7 @@ https://www.reddit.com/r/TheBlueBo ...</blockquote>
 每个私信这个账号的人都收到了差不多但是略有区别的回复，“敬请期待🤫”
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 223#       发表于 2021-6-20 06:44
@@ -3103,7 +3103,7 @@ Geoff推特直播七点开始开始
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 224#       发表于 2021-6-20 07:03
@@ -3115,7 +3115,7 @@ s开头l结尾的新作标题是sigil（圣印），寂静岭教徒崇拜的纹�
 今天konami shop展出的新图是三角头；Blue重新排列成Beul，在荷兰语是“executioner”处刑人的意思
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 225#       发表于 2021-6-20 07:18
@@ -3125,7 +3125,7 @@ s开头l结尾的新作标题是sigil（圣印），寂静岭教徒崇拜的纹�
 blue box起床了。他表示Geoff、Roger Clark等人关注的hasan instagram账号是假号<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  棺材叔叔  
 ##### 226#       发表于 2021-6-20 08:14
@@ -3134,7 +3134,7 @@ blue box起床了。他表示Geoff、Roger Clark等人关注的hasan instagram�
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">如果真是岛哥哥，这整活手艺可真是太强了
 
 
------
+*****
 
 ####  西兹少爷  
 ##### 227#       发表于 2021-6-20 08:20
@@ -3146,7 +3146,7 @@ blue box起床了。他表示Geoff、Roger Clark等人关注的hasan instagram�
 日本游戏界营销共有一石，岛哥哥独得八斗。
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 228#       发表于 2021-6-20 08:20
@@ -3163,7 +3163,7 @@ blue box起床了。他表示Geoff、Roger Clark等人关注的hasan instagram�
 Blue Box重申，目前展示过的东西并不包含真正的游戏
 
 
------
+*****
 
 ####  恰是戒戒  
 ##### 229#       发表于 2021-6-20 08:44
@@ -3172,7 +3172,7 @@ Blue Box重申，目前展示过的东西并不包含真正的游戏
 新的柏青哥罢了
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 230#       发表于 2021-6-20 09:15
@@ -3183,7 +3183,7 @@ Blue Box重申，目前展示过的东西并不包含真正的游戏
 206楼截图账号主人发屏幕录像自证清白。Hasan自称不知道Abandoned是不是Silent Hills
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 231#       发表于 2021-6-20 09:17
@@ -3195,7 +3195,7 @@ Blue Box重申，目前展示过的东西并不包含真正的游戏
 kept me waiting草，这不是小岛说不过去了呀……
 
 
------
+*****
 
 ####  当光停止  
 ##### 232#       发表于 2021-6-20 09:25
@@ -3206,7 +3206,7 @@ kept me waiting草，这不是小岛说不过去了呀……
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">时隔这么多年难道我要重燃对科乐美的期望了吗？
 
 
------
+*****
 
 ####  冰箱研会长  
 ##### 233#       发表于 2021-6-20 09:30
@@ -3215,7 +3215,7 @@ kept me waiting草，这不是小岛说不过去了呀……
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  悟空救我  
 ##### 234#       发表于 2021-6-20 09:45
@@ -3229,7 +3229,7 @@ blue box起床了。他表示Geoff、Roger ...</blockquote>
 刚起床，怕不是日本时区
 
 
------
+*****
 
 ####  Eadric  
 ##### 235#       发表于 2021-6-20 09:45
@@ -3242,7 +3242,7 @@ kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face201
 
                                                  
 
------
+*****
 
 ####  JoelBirch  
 ##### 236#       发表于 2021-6-20 10:26
@@ -3251,7 +3251,7 @@ kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face201
 真的被可乐妹整怕了，就算这样也不敢有任何非分之想，努力把自己的期待压到没有<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Junakr  
 ##### 237#       发表于 2021-6-20 10:43
@@ -3262,7 +3262,7 @@ kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face201
 口技马 &gt; 我就知道！
 
 
------
+*****
 
 ####  edenpenn  
 ##### 238#       发表于 2021-6-20 10:48
@@ -3273,7 +3273,7 @@ kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face201
 山中老人口鸡马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kuker53  
 ##### 239#       发表于 2021-6-20 10:51
@@ -3282,7 +3282,7 @@ kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face201
 有点怀疑是真的，要是整活搞这么大不出来辟谣那不得让人喷啊
 
 
------
+*****
 
 ####  平井姨夫  
 ##### 240#       发表于 2021-6-20 10:54
@@ -3293,7 +3293,7 @@ kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
------
+*****
 
 ####  矢量路比  
 ##### 241#         楼主| 发表于 2021-6-20 10:58
@@ -3315,7 +3315,7 @@ kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face201
 不管是谁在管理这个账号，他最好是认真的……
 
 
------
+*****
 
 ####  中二小旋风  
 ##### 242#       发表于 2021-6-20 10:59
@@ -3324,7 +3324,7 @@ kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face201
 到底怎样，所以岛哥哥出山的可能大吗
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 243#       发表于 2021-6-20 10:59
@@ -3337,7 +3337,7 @@ kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face201
 instagram的konami shop官方账号将两条评论置顶<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hshiki  
 ##### 244#       发表于 2021-6-20 11:00
@@ -3346,7 +3346,7 @@ instagram的konami shop官方账号将两条评论置顶<img src="https://static
 兴奋起来，岛哥哥要回来了
 
 
------
+*****
 
 ####  冰箱研会长  
 ##### 245#       发表于 2021-6-20 11:02
@@ -3357,7 +3357,7 @@ instagram的konami shop官方账号将两条评论置顶<img src="https://static
 我不信现在还有能这么白日梦一样的事情发生!
 
 
------
+*****
 
 ####  不得小于三字  
 ##### 246#       发表于 2021-6-20 11:06
@@ -3366,7 +3366,7 @@ instagram的konami shop官方账号将两条评论置顶<img src="https://static
 要是耍猴该如何收场？
 
 
------
+*****
 
 ####  隆江猪脚饭  
 ##### 247#       发表于 2021-6-20 11:10
@@ -3377,7 +3377,7 @@ instagram的konami shop官方账号将两条评论置顶<img src="https://static
 
                                                 
 
------
+*****
 
 ####  言嘉  
 ##### 248#       发表于 2021-6-20 11:19
@@ -3386,7 +3386,7 @@ instagram的konami shop官方账号将两条评论置顶<img src="https://static
 2021年了，可乐妹亲妈或将临时诞生？
 
 
------
+*****
 
 ####  本间日阳  
 ##### 249#       发表于 2021-6-20 11:41
@@ -3401,7 +3401,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
                                                  
 
------
+*****
 
 ####  曼陀罗肥  
 ##### 250#       发表于 2021-6-20 12:18
@@ -3413,7 +3413,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 他们到底在搞什么操作<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  thez  
 ##### 251#       发表于 2021-6-20 12:25
@@ -3424,7 +3424,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 —— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 252#       发表于 2021-6-20 12:32
@@ -3433,7 +3433,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 究竟是有人要写检讨了，还是计划通<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  walfeds  
 ##### 253#       发表于 2021-6-20 13:04
@@ -3444,7 +3444,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 —— 来自 blackshark SKW-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
------
+*****
 
 ####  allenz3  
 ##### 254#       发表于 2021-6-20 13:11
@@ -3455,7 +3455,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
                                                  
 
------
+*****
 
 ####  后藤P  
 ##### 255#       发表于 2021-6-20 13:18
@@ -3464,7 +3464,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 搞这么大基本就是真的了，谁担得起这种巨魔的backlash
 
 
------
+*****
 
 ####  Junakr  
 ##### 256#       发表于 2021-6-20 13:19
@@ -3489,7 +3489,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 闲的没事整了个烂梗，懒得配字了，希望岛哥哥不要让我们失望<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">。
 
 
------
+*****
 
 ####  tillnight  
 ##### 257#       发表于 2021-6-20 13:22
@@ -3501,7 +3501,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 前面还有人说这种炒作没意义，就寂静岭这种百万级别的IP，真公布了也没多大的hype哪怕是PT精神续作也就这点热度，现在外网可是一副人均玩过寂静岭的假象。虽然是老把戏，但正常宣发绝没有这种效果。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cloudfarron  
 ##### 258#       发表于 2021-6-20 13:25
@@ -3513,7 +3513,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 但是这个工作室15年就成立了啊，steam也有他们的前作（评价很烂），难道sony花了几年的时间来布局这个？
 
 
------
+*****
 
 ####  shyso  
 ##### 259#       发表于 2021-6-20 13:29
@@ -3525,7 +3525,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 前面不是有分析了，这工作室也是做了模仿pt的项目之后才被看中买下来的
 
 
------
+*****
 
 ####  言嘉  
 ##### 260#       发表于 2021-6-20 13:53
@@ -3534,7 +3534,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议国内某些人搞营销时学学小岛哥哥，别TM整天碰瓷恶心人了
 
 
------
+*****
 
 ####  Litccc  
 ##### 261#       发表于 2021-6-20 13:54
@@ -3545,7 +3545,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
                                                  
 
------
+*****
 
 ####  gingawang  
 ##### 262#       发表于 2021-6-20 14:26
@@ -3554,7 +3554,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 silent hills 柏青哥 ps5独占版
 
 
------
+*****
 
 ####  clover293  
 ##### 263#       发表于 2021-6-20 14:58
@@ -3565,7 +3565,7 @@ silent hills 柏青哥 ps5独占版
 如果是真的的话，其实没必要布局，发现有这个工作室去买个壳就行，花不了几个钱。对这工作室来说，本来也不出名，换个名字又不是不能继续干。
 
 
------
+*****
 
 ####  920619lqy  
 ##### 264#       发表于 2021-6-20 15:01
@@ -3578,7 +3578,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
                                                  
 
------
+*****
 
 ####  kuker53  
 ##### 265#       发表于 2021-6-20 16:24
@@ -3587,7 +3587,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 这工作室官网和土鳖主页不得不让人觉得这是一个空壳，至少得传一个预告片上去吧
 
 
------
+*****
 
 ####  言嘉  
 ##### 266#       发表于 2021-6-20 16:39
@@ -3601,7 +3601,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
                                                  
 
------
+*****
 
 ####  芷雅居  
 ##### 267#       发表于 2021-6-20 17:19
@@ -3613,7 +3613,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 我觉得还是mobydick和pt是真的在整活<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kuker53  
 ##### 268#       发表于 2021-6-20 17:29
@@ -3622,7 +3622,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 话说他说的22号是美国时间还是荷兰时间，突然想到这个问题
 
 
------
+*****
 
 ####  Rapids  
 ##### 269#       发表于 2021-6-20 17:44
@@ -3636,7 +3636,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
                                                  
 
------
+*****
 
 ####  九十九忍  
 ##### 270#       发表于 2021-6-20 18:56
@@ -3647,7 +3647,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
                                                  
 
------
+*****
 
 ####  棺材叔叔  
 ##### 271#       发表于 2021-6-20 19:31
@@ -3660,7 +3660,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
                                                  
 
------
+*****
 
 ####  Eadric  
 ##### 272#       发表于 2021-6-20 20:28
@@ -3681,7 +3681,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  すぴぱら  
 ##### 273#       发表于 2021-6-20 20:29
@@ -3693,7 +3693,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 有没有可能是索尼/小岛看中了他们的剧本创意，直接买下来
 
 
------
+*****
 
 ####  kuker53  
 ##### 274#       发表于 2021-6-20 20:33
@@ -3705,7 +3705,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 这nm要是没猫腻我是不信的
 
 
------
+*****
 
 ####  Rivercat  
 ##### 275#       发表于 2021-6-20 20:35
@@ -3714,7 +3714,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 太能整活了。
 
 
------
+*****
 
 ####  acejoe  
 ##### 276#       发表于 2021-6-20 20:47
@@ -3725,7 +3725,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 小岛首次导演cg电影，寂静岭电影化！
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 277#       发表于 2021-6-20 20:48
@@ -3734,7 +3734,7 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 blue balls games
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 278#       发表于 2021-6-20 20:49
@@ -3743,7 +3743,7 @@ blue balls games
 耍起来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  战狼PTSD  
 ##### 279#       发表于 2021-6-20 20:51
@@ -3752,7 +3752,7 @@ blue balls games
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他娘的，耍猴呢！
 
 
------
+*****
 
 ####  哈罗  
 ##### 280#       发表于 2021-6-20 20:52
@@ -3761,7 +3761,7 @@ blue balls games
 感觉被耍了，赶紧止损
 
 
------
+*****
 
 ####  若菜  
 ##### 281#       发表于 2021-6-20 20:53
@@ -3778,7 +3778,7 @@ blue balls games
 
                                                  
 
------
+*****
 
 ####  医生狼多  
 ##### 282#       发表于 2021-6-20 22:14
@@ -3787,7 +3787,7 @@ blue balls games
 不是22号耍没内味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Marsoy  
 ##### 283#       发表于 2021-6-20 22:46
@@ -3796,7 +3796,7 @@ blue balls games
 现在是什么情况了，怎么说被耍了
 
 
------
+*****
 
 ####  kuker53  
 ##### 284#       发表于 2021-6-20 22:49
@@ -3810,7 +3810,7 @@ blue balls games
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 285#       发表于 2021-6-20 23:04
@@ -3820,7 +3820,7 @@ blue balls games
 ？
 
 
------
+*****
 
 ####  clover293  
 ##### 286#       发表于 2021-6-20 23:19
@@ -3829,7 +3829,7 @@ blue balls games
 散了散了散了，大型社会实验现场
 
 
------
+*****
 
 ####  hshiki  
 ##### 287#       发表于 2021-6-20 23:22
@@ -3838,7 +3838,7 @@ blue balls games
 事情不会这么简单！
 
 
------
+*****
 
 ####  言嘉  
 ##### 288#       发表于 2021-6-20 23:27
@@ -3853,7 +3853,7 @@ blue balls games
 先fuck可乐妹再说
 
 
------
+*****
 
 ####  泉美  
 ##### 289#       发表于 2021-6-20 23:31
@@ -3862,7 +3862,7 @@ blue balls games
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">懂了，是共时性！
 
 
------
+*****
 
 ####  哈罗  
 ##### 290#       发表于 2021-6-20 23:32
@@ -3874,7 +3874,7 @@ blue balls games
 看错编辑，感觉声明反而更假
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 291#       发表于 2021-6-20 23:36
@@ -3886,7 +3886,7 @@ blue balls games
 Mark采访完就是咬定fake，也不算新闻
 
 
------
+*****
 
 ####  曼陀罗肥  
 ##### 292#       发表于 2021-6-20 23:42
@@ -3897,7 +3897,7 @@ no silent hill game in production with blue box
 那是在with somebody？
 
 
------
+*****
 
 ####  UmarIbnLaAhad  
 ##### 293#       发表于 2021-6-20 23:51
@@ -3906,7 +3906,7 @@ no silent hill game in production with blue box
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">觉得这么耍猴好玩是吧
 
 
------
+*****
 
 ####  Eadric  
 ##### 294#       发表于 2021-6-20 23:55
@@ -3919,7 +3919,7 @@ no silent hill game in production with blue box
 
                                                  
 
------
+*****
 
 ####  flywupeng  
 ##### 295#       发表于 2021-6-21 01:16
@@ -3930,7 +3930,7 @@ no silent hill game in production with blue box
 
                                                  
 
------
+*****
 
 ####  halogta  
 ##### 296#       发表于 2021-6-21 01:39
@@ -3943,7 +3943,7 @@ no silent hill game in production with blue box
 <img src="https://i.postimg.cc/YSm23Cmn/60cf7accf00d9.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 297#       发表于 2021-6-21 01:45
@@ -3956,7 +3956,7 @@ no silent hill game in production with blue box
 PT中反复出现的数字204863，换算成HEX是蓝色
 
 
------
+*****
 
 ####  后藤P  
 ##### 298#       发表于 2021-6-21 02:02
@@ -3965,7 +3965,7 @@ PT中反复出现的数字204863，换算成HEX是蓝色
 subreddit现状：反转之转中转之最后一转之再来一转
 
 
------
+*****
 
 ####  曼陀罗肥  
 ##### 299#       发表于 2021-6-21 02:03
@@ -3989,7 +3989,7 @@ subreddit现状：反转之转中转之最后一转之再来一转
 
                                                  
 
------
+*****
 
 ####  曼陀罗肥  
 ##### 300#       发表于 2021-6-21 02:21
@@ -4015,7 +4015,7 @@ subreddit现状：反转之转中转之最后一转之再来一转
 
 
 
------
+*****
 
 ####  Flechette  
 ##### 301#       发表于 2021-6-21 02:29
@@ -4026,7 +4026,7 @@ subreddit现状：反转之转中转之最后一转之再来一转
 岛哥哥也不出来澄清一下，甚至两天没更新推特
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 302#       发表于 2021-6-21 02:58
@@ -4036,7 +4036,7 @@ subreddit现状：反转之转中转之最后一转之再来一转
 oooohhhhhhhhh
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 303#       发表于 2021-6-21 03:02
@@ -4048,7 +4048,7 @@ liar liar<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" r
 
                                                 
 
------
+*****
 
 ####  日日日日日野  
 ##### 304#       发表于 2021-6-21 03:34
@@ -4061,7 +4061,7 @@ liar liar<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" r
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 305#       发表于 2021-6-21 06:45
@@ -4079,7 +4079,7 @@ SHLSS = Silent Hill Limited Series Skateboard<img src="https://static.saraba1st.
 to celebrate什么！
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 306#       发表于 2021-6-21 06:59
@@ -4090,7 +4090,7 @@ to celebrate什么！
 
                                                  
 
------
+*****
 
 ####  zzy516232108  
 ##### 307#       发表于 2021-6-21 07:59
@@ -4101,7 +4101,7 @@ to celebrate什么！
 
                                                  
 
------
+*****
 
 ####  1096beam  
 ##### 308#       发表于 2021-6-21 08:30
@@ -4110,7 +4110,7 @@ to celebrate什么！
 不得不怀疑可乐妹顺势落井下石
 
 
------
+*****
 
 ####  芷雅居  
 ##### 309#       发表于 2021-6-21 08:32
@@ -4119,7 +4119,7 @@ to celebrate什么！
 只能说意料之中吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死体旅行  
 ##### 310#       发表于 2021-6-21 08:41
@@ -4130,7 +4130,7 @@ to celebrate什么！
 —— 来自 Google Pixel 3, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  Kaiyan  
 ##### 311#       发表于 2021-6-21 08:46
@@ -4139,7 +4139,7 @@ to celebrate什么！
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">散了喏
 
 
------
+*****
 
 ####  ggssoo  
 ##### 312#       发表于 2021-6-21 08:49
@@ -4148,7 +4148,7 @@ to celebrate什么！
 滑板图不错哈哈哈
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 313#       发表于 2021-6-21 08:49
@@ -4157,7 +4157,7 @@ to celebrate什么！
 <img src="https://p.sda1.dev/2/7fdf2b35bf27ea2efeb52b9615c2fa92/res _2_.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  当光停止  
 ##### 314#       发表于 2021-6-21 08:52
@@ -4166,7 +4166,7 @@ to celebrate什么！
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然对科乐美没有期待是好事。
 
 
------
+*****
 
 ####  edenpenn  
 ##### 315#       发表于 2021-6-21 08:53
@@ -4180,7 +4180,7 @@ to celebrate什么！
 —— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 316#       发表于 2021-6-21 09:02
@@ -4197,7 +4197,7 @@ to celebrate什么！
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 317#       发表于 2021-6-21 10:48
@@ -4216,7 +4216,7 @@ to celebrate什么！
 it's who?
 
 
------
+*****
 
 ####  FateAlter  
 ##### 318#       发表于 2021-6-21 11:01
@@ -4227,7 +4227,7 @@ it's who?
 我其实有点奇怪啊，寂静岭真有那么多粉丝吗。。。仔细一看怎么楼主是Kenny
 
 
------
+*****
 
 ####  言嘉  
 ##### 319#       发表于 2021-6-21 11:03
@@ -4236,7 +4236,7 @@ it's who?
 可乐妹死了
 
 
------
+*****
 
 ####  医生狼多  
 ##### 320#       发表于 2021-6-21 11:03
@@ -4247,7 +4247,7 @@ it's who?
 这个问题就跟微博上零为什么有那么多每次nd都出来喊的粉丝一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FateAlter  
 ##### 321#       发表于 2021-6-21 11:08
@@ -4259,7 +4259,7 @@ it's who?
 零我感觉是因为现在大家都色得露骨了，看到美少女迈不开腿，而且零5还真复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">“濡鸦之巫女这游戏可吓人了，吓得我裤子都掉了”。寂静岭我想了半天感觉粉丝这么狂热和小岛秀夫关系比较大吧。。。
 
 
------
+*****
 
 ####  小泉花陽  
 ##### 322#       发表于 2021-6-21 11:16
@@ -4271,7 +4271,7 @@ it's who?
 PS2时代零和寂静岭在国内的影响力不用怀疑吧，当初也是国内游戏杂志力推的，在国内主机游戏圈也是仅次于生化危机的恐怖游戏了，可惜当年都是玩5元碟的根本没法对销量产生影响
 
 
------
+*****
 
 ####  棺材叔叔  
 ##### 323#       发表于 2021-6-21 11:25
@@ -4282,7 +4282,7 @@ PS2时代零和寂静岭在国内的影响力不用怀疑吧，当初也是国�
 —— 来自 Meizu 16th Plus, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  DTCPSS  
 ##### 324#       发表于 2021-6-21 11:38
@@ -4291,7 +4291,7 @@ PS2时代零和寂静岭在国内的影响力不用怀疑吧，当初也是国�
 Abandoned 不可能翻车，我要吹岛哥哥 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  泡桐  
 ##### 325#       发表于 2021-6-21 11:49
@@ -4300,7 +4300,7 @@ Abandoned 不可能翻车，我要吹岛哥哥 <img src="https://static.saraba1s
 to celebrate？to celebrate啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  C男  
 ##### 326#       发表于 2021-6-21 12:02
@@ -4313,7 +4313,7 @@ PS2时代零和寂静岭在国内的影响力不用怀疑吧，当初也是国�
 
                                                  
 
------
+*****
 
 ####  你又开始了？  
 ##### 327#       发表于 2021-6-21 13:12
@@ -4339,7 +4339,7 @@ PS2时代零和寂静岭在国内的影响力不用怀疑吧，当初也是国�
 
                                                  
 
------
+*****
 
 ####  acropolis  
 ##### 328#       发表于 2021-6-21 17:18
@@ -4352,7 +4352,7 @@ They Played Us Like A Damn Fiddle!
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 329#       发表于 2021-6-22 04:27
@@ -4370,7 +4370,7 @@ Blue Box Game Studio：我们想最后澄清一次传言。我们是由真实存
 show hand！
 
 
------
+*****
 
 ####  littlezoo  
 ##### 330#       发表于 2021-6-22 05:45
@@ -4381,7 +4381,7 @@ show hand！
 
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 331#       发表于 2021-6-22 05:56
@@ -4547,7 +4547,7 @@ Blue Box一口气回了一大堆评论，节选了一部分。
 
                                                 
 
------
+*****
 
 ####  luoyianwu  
 ##### 332#       发表于 2021-6-22 07:22
@@ -4558,7 +4558,7 @@ Blue Box一口气回了一大堆评论，节选了一部分。
 Bloomberg采访Hasan：尽管玩家怀疑Hasan就是小岛秀夫，一切证据似乎指向他真的是个不知名独立游戏制作人。但是，在今天一小时的采访后，我的疑问没有减少，反而增加了
 
 
------
+*****
 
 ####  FanKiE  
 ##### 333#       发表于 2021-6-22 07:24
@@ -4568,7 +4568,7 @@ Bloomberg采访Hasan：尽管玩家怀疑Hasan就是小岛秀夫，一切证据�
 如果质量一般的话<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 334#       发表于 2021-6-22 07:28
@@ -4578,7 +4578,7 @@ Bloomberg采访Hasan：尽管玩家怀疑Hasan就是小岛秀夫，一切证据�
 否则小心推特被冲烂。
 
 
------
+*****
 
 ####  D-JoeII  
 ##### 335#       发表于 2021-6-22 07:29
@@ -4598,7 +4598,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox game. I 
 可能小島把Google扔了的那個項目跟微軟合作繼續制作,同時也當了新SH監製之類
 
 
------
+*****
 
 ####  哈罗  
 ##### 336#       发表于 2021-6-22 07:46
@@ -4607,7 +4607,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox game. I 
 hasan声称的合作工作室，索尼，konami都对采访要求没有回应，有完没完233
 
 
------
+*****
 
 ####  kuhailz  
 ##### 337#       发表于 2021-6-22 07:56
@@ -4618,7 +4618,7 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 
                                                  
 
------
+*****
 
 ####  死体旅行  
 ##### 338#       发表于 2021-6-22 08:22
@@ -4627,7 +4627,7 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 25号能看到一个结局吗，还是新的猜谜环节
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 339#       发表于 2021-6-22 08:53
@@ -4641,7 +4641,7 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 出现了，#TeamReal最艰难的一天
 
 
------
+*****
 
 ####  陈玉礼  
 ##### 340#       发表于 2021-6-22 08:56
@@ -4650,7 +4650,7 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 真好意思说自己当初没提示寂静岭啊，**者必自焚，等着吧
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 341#       发表于 2021-6-22 09:02
@@ -4665,7 +4665,7 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 为什么！
 
 
------
+*****
 
 ####  电磁炮233  
 ##### 342#       发表于 2021-6-22 09:04
@@ -4676,7 +4676,7 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  vacuumsword  
 ##### 343#       发表于 2021-6-22 09:08
@@ -4685,7 +4685,7 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 别是超吊的CG吧……
 
 
------
+*****
 
 ####  Gandalf  
 ##### 344#       发表于 2021-6-22 09:11
@@ -4694,7 +4694,7 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 这乐子简直没完没了
 
 
------
+*****
 
 ####  陈玉礼  
 ##### 345#       发表于 2021-6-22 09:14
@@ -4703,7 +4703,7 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 点赞其实真没啥，作为推特运营专员一天到晚盯着几个关键账号是非常正常的，或许小岛组的想法是这个点赞代表着认同人家呢
 
 
------
+*****
 
 ####  xiongsuper  
 ##### 346#       发表于 2021-6-22 09:17
@@ -4714,7 +4714,7 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 347#       发表于 2021-6-22 10:15
@@ -4727,7 +4727,7 @@ r/TheBlueBoxConspiracy/和resetera不约而同关版锁帖了，原因是Hasan�
 究竟真是这样，还是The Patriot的阴谋呢，我们暂且休息一下，周五拭目以待
 
 
------
+*****
 
 ####  DeerRua  
 ##### 348#       发表于 2021-6-22 10:31
@@ -4736,7 +4736,7 @@ r/TheBlueBoxConspiracy/和resetera不约而同关版锁帖了，原因是Hasan�
 突然想起了液体山猫，感觉Team Real越来越倾向于玩家的自我催眠了
 
 
------
+*****
 
 ####  ssd  
 ##### 349#       发表于 2021-6-22 10:35
@@ -4747,7 +4747,7 @@ r/TheBlueBoxConspiracy/和resetera不约而同关版锁帖了，原因是Hasan�
 
                                                  
 
------
+*****
 
 ####  若菜  
 ##### 350#       发表于 2021-6-22 11:00
@@ -4756,7 +4756,7 @@ r/TheBlueBoxConspiracy/和resetera不约而同关版锁帖了，原因是Hasan�
 这营销太恶心了吧......
 
 
------
+*****
 
 ####  shyso  
 ##### 351#       发表于 2021-6-22 11:29
@@ -4777,7 +4777,7 @@ r/TheBlueBoxConspiracy/和resetera不约而同关版锁帖了，原因是Hasan�
 不过如果三天后拿出的东西没法令大多数人满意……，那就真的是作死了，说什么都没用，没有实力背书的营销，真就是纯作死
 
 
------
+*****
 
 ####  サリシノハラ  
 ##### 352#       发表于 2021-6-22 11:42
@@ -4792,7 +4792,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox ga ...</
 原生云游戏？感觉有点难受了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cranberries  
 ##### 353#       发表于 2021-6-22 11:45
@@ -4810,7 +4810,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox ga ...</
 
                                                  
 
------
+*****
 
 ####  C男  
 ##### 354#       发表于 2021-6-22 12:50
@@ -4821,7 +4821,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox ga ...</
 
                                                  
 
------
+*****
 
 ####  zzy516232108  
 ##### 355#       发表于 2021-6-22 16:11
@@ -4835,7 +4835,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox ga ...</
 虽然我觉得如果真是假的，这种巨魔营销活该被喷……
 
 
------
+*****
 
 ####  rak1  
 ##### 356#       发表于 2021-6-22 16:15
@@ -4844,7 +4844,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox ga ...</
 没搞懂，这一连串操作到底是该厂商有意为之还是岛粉自嗨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  芷雅居  
 ##### 357#       发表于 2021-6-22 16:18
@@ -4853,7 +4853,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox ga ...</
 小岛从头到尾都没发声吧，之前pt和mobydick、死亡搁浅整活全都是在e3展台上，感觉这玩意儿完全是被某些激进粉丝带节奏了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  电磁炮233  
 ##### 358#       发表于 2021-6-22 16:20
@@ -4862,7 +4862,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox ga ...</
 但是今年索尼不上E3啊，很难说的啦
 
 
------
+*****
 
 ####  陈玉礼  
 ##### 359#       发表于 2021-6-22 16:21
@@ -4871,7 +4871,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox ga ...</
 这事的关键点还是那个首字母S，尾字母L的推文，这不是有意引导你往寂静岭想我是不信的
 
 
------
+*****
 
 ####  ky怪  
 ##### 360#       发表于 2021-6-22 16:51
@@ -4882,7 +4882,7 @@ Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox ga ...</
 
 
 
------
+*****
 
 ####  kuker53  
 ##### 361#       发表于 2021-6-22 16:57
@@ -4893,7 +4893,7 @@ konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最�
 
                                                 
 
------
+*****
 
 ####  yamato gun  
 ##### 362#       发表于 2021-6-22 17:42
@@ -4904,7 +4904,7 @@ konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最�
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 363#       发表于 2021-6-22 23:05
@@ -4940,7 +4940,7 @@ Nuare和Dekogon拒绝对此事评论。
 Hasan是住在荷兰的土耳其人，但自称自己的土耳其语还不如谷歌翻译标准
 
 
------
+*****
 
 ####  walfeds  
 ##### 364#       发表于 2021-6-22 23:10
@@ -4955,7 +4955,7 @@ Hasan是住在荷兰的土耳其人，但自称自己的土耳其语还不如谷
 不说假药，昨天看到1那个访谈提的外包也觉得挺离谱的
 
 
------
+*****
 
 ####  kuker53  
 ##### 365#       发表于 2021-6-22 23:13
@@ -4964,7 +4964,7 @@ Hasan是住在荷兰的土耳其人，但自称自己的土耳其语还不如谷
 成本250K？250K？是翻译错误吗租个办公室这钱就出去了吧
 
 
------
+*****
 
 ####  哈罗  
 ##### 366#       发表于 2021-6-22 23:21
@@ -4978,7 +4978,7 @@ Hasan是住在荷兰的土耳其人，但自称自己的土耳其语还不如谷
 抠评语属于发病了，就跟27一样，日常中那么多事，瞎几把联系总有对上的
 
 
------
+*****
 
 ####  Rivercat  
 ##### 367#       发表于 2021-6-22 23:34
@@ -4989,7 +4989,7 @@ Hasan是住在荷兰的土耳其人，但自称自己的土耳其语还不如谷
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 368#       发表于 2021-6-23 04:59
@@ -5002,7 +5002,7 @@ Blue Box与nuare互动
 
                                                  
 
------
+*****
 
 ####  eyesradar  
 ##### 369#       发表于 2021-6-23 05:51
@@ -5013,7 +5013,7 @@ TeamReal let’s go!
 
                                                  
 
------
+*****
 
 ####  saevey  
 ##### 370#       发表于 2021-6-23 06:20
@@ -5024,7 +5024,7 @@ TeamReal let’s go!
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 371#       发表于 2021-6-23 07:10
@@ -5033,7 +5033,7 @@ TeamReal let’s go!
 <img src="https://p.sda1.dev/2/26313c2411619527b6ae7c26f4651116/abondoned.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  哈罗  
 ##### 372#       发表于 2021-6-23 07:25
@@ -5044,7 +5044,7 @@ TeamReal let’s go!
 
                                                  
 
------
+*****
 
 ####  新八  
 ##### 373#       发表于 2021-6-23 08:32
@@ -5053,7 +5053,7 @@ TeamReal let’s go!
 250K？？？ps5独占？？？
 
 
------
+*****
 
 ####  hshiki  
 ##### 374#       发表于 2021-6-23 08:34
@@ -5064,7 +5064,7 @@ TeamReal let’s go!
 
                                                  
 
------
+*****
 
 ####  mye  
 ##### 375#       发表于 2021-6-23 09:19
@@ -5075,7 +5075,7 @@ konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最�
 最近不是有杀鸡联动吗 八成庆祝这个
 
 
------
+*****
 
 ####  Marsoy  
 ##### 376#       发表于 2021-6-23 09:31
@@ -5084,7 +5084,7 @@ konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最�
 25号快到吧，我有点顶不住了，不管是真是假，这个过程实在是太漫长了
 
 
------
+*****
 
 ####  UmarIbnLaAhad  
 ##### 377#       发表于 2021-6-23 09:34
@@ -5097,7 +5097,7 @@ konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最�
 
                                                  
 
------
+*****
 
 ####  JoelBirch  
 ##### 378#       发表于 2021-6-23 12:04
@@ -5106,7 +5106,7 @@ konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最�
 只能说，笑了
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 379#       发表于 2021-6-23 12:17
@@ -5116,7 +5116,7 @@ konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最�
 或者mgs2二十周年
 
 
------
+*****
 
 ####  jockeyjoestar  
 ##### 380#       发表于 2021-6-23 12:21
@@ -5127,7 +5127,7 @@ konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最�
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 381#       发表于 2021-6-24 00:29
@@ -5147,7 +5147,7 @@ reddit的r/TheBlueBoxConspiracy重开了。
 不知道今天会有什么新乐子呢
 
 
------
+*****
 
 ####  asion617  
 ##### 382#       发表于 2021-6-24 00:52
@@ -5158,7 +5158,7 @@ reddit的r/TheBlueBoxConspiracy重开了。
 
                                                  
 
------
+*****
 
 ####  战狼PTSD  
 ##### 383#       发表于 2021-6-24 01:13
@@ -5174,7 +5174,7 @@ reddit的r/TheBlueBoxConspiracy重开了。
 
                                                  
 
------
+*****
 
 ####  千本blur  
 ##### 384#       发表于 2021-6-24 03:27
@@ -5185,7 +5185,7 @@ reddit的r/TheBlueBoxConspiracy重开了。
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 385#       发表于 2021-6-24 05:21
@@ -5202,7 +5202,7 @@ Blue Box发布Nuare Studio创办人Leo Enin录制的一分钟视频。Leo称it�
 
                                                  
 
------
+*****
 
 ####  kuker53  
 ##### 386#       发表于 2021-6-24 05:54
@@ -5211,7 +5211,7 @@ Blue Box发布Nuare Studio创办人Leo Enin录制的一分钟视频。Leo称it�
 要不杀了我吧，太折磨人了
 
 
------
+*****
 
 ####  xiongsuper  
 ##### 387#       发表于 2021-6-24 06:33
@@ -5222,7 +5222,7 @@ Blue Box发布Nuare Studio创办人Leo Enin录制的一分钟视频。Leo称it�
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 388#       发表于 2021-6-24 06:52
@@ -5235,7 +5235,7 @@ Blue Box发布Nuare Studio创办人Leo Enin录制的一分钟视频。Leo称it�
 坛友跟4chan撞梗草
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 389#       发表于 2021-6-24 06:56
@@ -5252,7 +5252,7 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 
                                                  
 
------
+*****
 
 ####  陈玉礼  
 ##### 390#       发表于 2021-6-24 08:30
@@ -5263,7 +5263,7 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 
 
 
------
+*****
 
 ####  矢量路比  
 ##### 391#         楼主| 发表于 2021-6-24 09:10
@@ -5272,7 +5272,7 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 不要啊不要啊
 
 
------
+*****
 
 ####  日日日日日野  
 ##### 392#       发表于 2021-6-24 09:24
@@ -5285,7 +5285,7 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 这大哥的手势不就是麦子叔的手势……
 
 
------
+*****
 
 ####  小泉花陽  
 ##### 393#       发表于 2021-6-24 09:30
@@ -5296,7 +5296,7 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 
                                                 
 
------
+*****
 
 ####  Cranberries  
 ##### 394#       发表于 2021-6-24 12:05
@@ -5308,7 +5308,7 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 
                                                  
 
------
+*****
 
 ####  斯库鲁多  
 ##### 395#       发表于 2021-6-24 12:58
@@ -5326,7 +5326,7 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 2021-6-24 12:57 上传
 
 
------
+*****
 
 ####  SergeGlenn  
 ##### 396#       发表于 2021-6-24 13:03
@@ -5335,7 +5335,7 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 最早的传闻就是一个软重启，一个章节制，Bloober做的话应该是章节制那个
 
 
------
+*****
 
 ####  后藤P  
 ##### 397#       发表于 2021-6-24 13:12
@@ -5346,7 +5346,7 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 
                                                  
 
------
+*****
 
 ####  byisme001  
 ##### 398#       发表于 2021-6-25 00:11
@@ -5355,7 +5355,7 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 demo什么时候上
 
 
------
+*****
 
 ####  Junakr  
 ##### 399#       发表于 2021-6-25 00:32
@@ -5371,7 +5371,7 @@ demo什么时候上
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 400#       发表于 2021-6-25 01:29
@@ -5396,7 +5396,7 @@ demo什么时候上
 
                                                  
 
------
+*****
 
 ####  kuker53  
 ##### 401#       发表于 2021-6-25 01:57
@@ -5407,7 +5407,7 @@ demo什么时候上
 
                                                  
 
------
+*****
 
 ####  zpfnb  
 ##### 402#       发表于 2021-6-25 09:07
@@ -5416,7 +5416,7 @@ demo什么时候上
 大的什么时候来？
 
 
------
+*****
 
 ####  gingawang  
 ##### 403#       发表于 2021-6-25 09:31
@@ -5425,7 +5425,7 @@ demo什么时候上
 这种说来不来的现象在医学上叫什么，射O困难症吗
 
 
------
+*****
 
 ####  kurosophie  
 ##### 404#       发表于 2021-6-25 09:33
@@ -5434,7 +5434,7 @@ demo什么时候上
 几点大结局
 
 
------
+*****
 
 ####  平贺才人  
 ##### 405#       发表于 2021-6-25 09:36
@@ -5445,7 +5445,7 @@ demo什么时候上
 
                                                  
 
------
+*****
 
 ####  日日日日日野  
 ##### 406#       发表于 2021-6-25 10:43
@@ -5456,7 +5456,7 @@ demo什么时候上
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 407#       发表于 2021-6-25 11:07
@@ -5468,7 +5468,7 @@ demo什么时候上
 其实荷兰已经周五了
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 408#       发表于 2021-6-25 11:11
@@ -5486,7 +5486,7 @@ demo什么时候上
 <img src="https://p.sda1.dev/2/3a436ad52f097621c465ebb7152e91e0/download _2_.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  火鸡味锅巴  
 ##### 409#       发表于 2021-6-25 11:17
@@ -5497,7 +5497,7 @@ demo什么时候上
 
                                                  
 
------
+*****
 
 ####  hoarwhite  
 ##### 410#       发表于 2021-6-25 12:18
@@ -5506,7 +5506,7 @@ demo什么时候上
 不至于不至于 ，假定今年宣布 ，三年后发售，急啥。我盲猜就一碰瓷的
 
 
------
+*****
 
 ####  Eadric  
 ##### 411#       发表于 2021-6-25 12:25
@@ -5519,7 +5519,7 @@ demo什么时候上
 
                                                  
 
------
+*****
 
 ####  gingawang  
 ##### 412#       发表于 2021-6-25 16:33
@@ -5528,7 +5528,7 @@ demo什么时候上
 这种营销会再非核心圈子掀起什么波澜吗？
 
 
------
+*****
 
 ####  acejoe  
 ##### 413#       发表于 2021-6-25 16:43
@@ -5541,7 +5541,7 @@ demo什么时候上
 
                                                  
 
------
+*****
 
 ####  ranapocket  
 ##### 414#       发表于 2021-6-25 16:58
@@ -5552,7 +5552,7 @@ demo什么时候上
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  gingawang  
 ##### 415#       发表于 2021-6-25 17:06
@@ -5563,7 +5563,7 @@ demo什么时候上
 
                                                  
 
------
+*****
 
 ####  zzy516232108  
 ##### 416#       发表于 2021-6-25 18:27
@@ -5574,7 +5574,7 @@ demo什么时候上
 
                                                  
 
------
+*****
 
 ####  医生狼多  
 ##### 417#       发表于 2021-6-25 18:49
@@ -5583,7 +5583,7 @@ demo什么时候上
 他们周五到几点？
 
 
------
+*****
 
 ####  斯库鲁多  
 ##### 418#       发表于 2021-6-25 18:52
@@ -5592,7 +5592,7 @@ demo什么时候上
 还有半天时间<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ssd  
 ##### 419#       发表于 2021-6-25 18:54
@@ -5601,7 +5601,7 @@ demo什么时候上
 更快点
 
 
------
+*****
 
 ####  武井咲  
 ##### 420#       发表于 2021-6-25 19:19
@@ -5614,7 +5614,7 @@ demo什么时候上
 
 
 
------
+*****
 
 ####  Eadric  
 ##### 421#       发表于 2021-6-25 19:29
@@ -5625,7 +5625,7 @@ demo什么时候上
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  日日日日日野  
 ##### 422#       发表于 2021-6-25 19:31
@@ -5647,7 +5647,7 @@ QQ图片20210625193113.png
 <img src="https://img.saraba1st.com/forum/202106/25/193126ptagrpb6i2c886hg.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kuker53  
 ##### 423#       发表于 2021-6-25 19:34
@@ -5661,7 +5661,7 @@ QQ图片20210625193113.png
 
                                                 
 
------
+*****
 
 ####  miraclePTSD  
 ##### 424#       发表于 2021-6-25 21:03
@@ -5670,7 +5670,7 @@ QQ图片20210625193113.png
 蹲一个
 
 
------
+*****
 
 ####  kuker53  
 ##### 425#       发表于 2021-6-25 21:13
@@ -5679,7 +5679,7 @@ QQ图片20210625193113.png
 还没消息，翻出去看了眼倒是让人扒出来第一个预告片是40美元买的场景素材，好家伙不说别的这么搞有什么意义啊
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 426#       发表于 2021-6-25 22:03
@@ -5690,7 +5690,7 @@ QQ图片20210625193113.png
 继续煎熬的一天
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 427#       发表于 2021-6-25 22:03
@@ -5703,7 +5703,7 @@ APP延期到八月
 解散！
 
 
------
+*****
 
 ####  kuker53  
 ##### 428#       发表于 2021-6-25 22:05
@@ -5712,7 +5712,7 @@ APP延期到八月
 牛逼，历史性的耍猴，从来没见过
 
 
------
+*****
 
 ####  DeerRua  
 ##### 429#       发表于 2021-6-25 22:06
@@ -5721,7 +5721,7 @@ APP延期到八月
 我忍不住要嘴臭了
 
 
------
+*****
 
 ####  日日日日日野  
 ##### 430#       发表于 2021-6-25 22:06
@@ -5730,7 +5730,7 @@ APP延期到八月
 现在这种状况，除了营销，我已经无法相信别的可能了，如果是自己做游戏，这样讲不通的。
 
 
------
+*****
 
 ####  makar0601  
 ##### 431#       发表于 2021-6-25 22:08
@@ -5739,7 +5739,7 @@ APP延期到八月
 大的不来了
 
 
------
+*****
 
 ####  rainsheep  
 ##### 432#       发表于 2021-6-25 22:09
@@ -5748,7 +5748,7 @@ APP延期到八月
 就是单纯的碰瓷吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  火鸡味锅巴  
 ##### 433#       发表于 2021-6-25 22:13
@@ -5757,7 +5757,7 @@ APP延期到八月
 这种故弄玄虚的感觉，一定是岛哥哥！八月一定是草莓味的！
 
 
------
+*****
 
 ####  永远是多远  
 ##### 434#       发表于 2021-6-25 22:13
@@ -5766,7 +5766,7 @@ APP延期到八月
 耍人不是这么耍的！
 
 
------
+*****
 
 ####  火鸡味锅巴  
 ##### 435#       发表于 2021-6-25 22:15
@@ -5781,7 +5781,7 @@ APP延期到八月
 他说了solid game experience！一定是mgs+寂静岭！
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 436#       发表于 2021-6-25 22:20
@@ -5794,7 +5794,7 @@ they played us like a damn fiddle！
 现在就算是小岛秀夫出来说我就是哈桑，我也不能原谅他了
 
 
------
+*****
 
 ####  后藤P  
 ##### 437#       发表于 2021-6-25 22:25
@@ -5803,7 +5803,7 @@ they played us like a damn fiddle！
 笑了，真的是烂活啊
 
 
------
+*****
 
 ####  斯库鲁多  
 ##### 438#       发表于 2021-6-25 22:28
@@ -5812,7 +5812,7 @@ they played us like a damn fiddle！
 服了
 
 
------
+*****
 
 ####  泉美  
 ##### 439#       发表于 2021-6-25 22:31
@@ -5821,7 +5821,7 @@ they played us like a damn fiddle！
 绝了，没见这么把自己往绝路上赶的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  415452356  
 ##### 440#       发表于 2021-6-25 22:32
@@ -5830,7 +5830,7 @@ they played us like a damn fiddle！
   还好最近都在玩新作没有盯着这个传闻看，不过讲道理如果真的有料索尼今天就应该惯例凌晨5点直播了吧。
 
 
------
+*****
 
 ####  日日日日日野  
 ##### 441#       发表于 2021-6-25 22:32
@@ -5839,7 +5839,7 @@ they played us like a damn fiddle！
 不过有意思的是，那个他们说是假账号的倒数完之后。立马发了延期推特，真的是太巧了啊（
 
 
------
+*****
 
 ####  x1034  
 ##### 442#       发表于 2021-6-25 22:33
@@ -5848,7 +5848,7 @@ they played us like a damn fiddle！
 油管上已经有人开始扒皮了。推荐night mind的最新视频
 
 
------
+*****
 
 ####  nage560  
 ##### 443#       发表于 2021-6-25 22:38
@@ -5857,7 +5857,7 @@ they played us like a damn fiddle！
 笑了，哪怕你是野炊那样的神作，这么耍猴也去死呗，当然现在很多玩家都跪惯了，再耍几次猴也会继续跪舔吧，都是惯出来的。
 
 
------
+*****
 
 ####  战狼PTSD  
 ##### 444#       发表于 2021-6-25 22:40
@@ -5866,7 +5866,7 @@ they played us like a damn fiddle！
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让你们喜欢找乐子
 
 
------
+*****
 
 ####  yamato gun  
 ##### 445#       发表于 2021-6-25 22:41
@@ -5877,7 +5877,7 @@ they played us like a damn fiddle！
 
                                                  
 
------
+*****
 
 ####  日日日日日野  
 ##### 446#       发表于 2021-6-25 22:45
@@ -5886,7 +5886,7 @@ they played us like a damn fiddle！
 那个所谓的假直播还在播，然后一直在放摩斯密码，跟之前一个所谓的BBGLEAK的推特的做法如出一辙，当然那个已经不存在的推特更直球讲是小岛的寂静岭了。
 
 
------
+*****
 
 ####  lunaticfear  
 ##### 447#       发表于 2021-6-25 22:56
@@ -5897,7 +5897,7 @@ they played us like a damn fiddle！
 笑了，一群小丑，小岛现在要公布新游戏的话肯定是找个万众瞩目的场合来满足他的虚荣心，哪里还会搞这么一套
 
 
------
+*****
 
 ####  北卡厨王  
 ##### 448#       发表于 2021-6-25 22:58
@@ -5906,7 +5906,7 @@ they played us like a damn fiddle！
 推上的老哥真宽容啊，我还以为这个延期的推要被冲烂了
 
 
------
+*****
 
 ####  Cranberries  
 ##### 449#       发表于 2021-6-25 23:03
@@ -5917,7 +5917,7 @@ they played us like a damn fiddle！
 大家只想要个结果，至于你是不是并不重要。
 
 
------
+*****
 
 ####  哈罗  
 ##### 450#       发表于 2021-6-25 23:05
@@ -5928,7 +5928,7 @@ jaaon总结了一下感觉有道理，就是个小瘪三想搞花样撩热度，
 
 
 
------
+*****
 
 ####  maiyunfei  
 ##### 451#       发表于 2021-6-25 23:11
@@ -5939,7 +5939,7 @@ jaaon总结了一下感觉有道理，就是个小瘪三想搞花样撩热度，
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 452#       发表于 2021-6-25 23:13
@@ -5948,7 +5948,7 @@ jaaon总结了一下感觉有道理，就是个小瘪三想搞花样撩热度，
 去推特看了眼 居然没被冲烂，现在玩家真宽容啊……
 
 
------
+*****
 
 ####  日日日日日野  
 ##### 453#       发表于 2021-6-25 23:13
@@ -5962,7 +5962,7 @@ jaaon总结了一下感觉有道理，就是个小瘪三想搞花样撩热度，
 
                                                 
 
------
+*****
 
 ####  北卡厨王  
 ##### 454#       发表于 2021-6-26 00:32
@@ -5988,7 +5988,7 @@ jaaon总结了一下感觉有道理，就是个小瘪三想搞花样撩热度，
 结合之前延期又延期的实时，可以认为Bluebox炒作游戏，结果骑虎难下，想延期一次降降温。但是延期几天根本不够，真的发布估计又要被冲烂，所以再延期几个月降温。
 
 
------
+*****
 
 ####  日日日日日野  
 ##### 455#       发表于 2021-6-26 00:55
@@ -6007,7 +6007,7 @@ jaaon总结了一下感觉有道理，就是个小瘪三想搞花样撩热度，
 
                                                  
 
------
+*****
 
 ####  saevey  
 ##### 456#       发表于 2021-6-26 03:13
@@ -6018,7 +6018,7 @@ jaaon总结了一下感觉有道理，就是个小瘪三想搞花样撩热度，
 
                                                  
 
------
+*****
 
 ####  SergeGlenn  
 ##### 457#       发表于 2021-6-26 06:23
@@ -6029,7 +6029,7 @@ jaaon总结了一下感觉有道理，就是个小瘪三想搞花样撩热度，
 
                                                  
 
------
+*****
 
 ####  zzy516232108  
 ##### 458#       发表于 2021-6-26 09:21
@@ -6042,7 +6042,7 @@ youtube上那个所谓的假账号搞了个摩尔斯电码，翻译过来是 end
 survive=mgsurvive？
 
 
------
+*****
 
 ####  hshiki  
 ##### 459#       发表于 2021-6-26 09:28
@@ -6053,7 +6053,7 @@ survive=mgsurvive？
 
                                                  
 
------
+*****
 
 ####  矢量路比  
 ##### 460#         楼主| 发表于 2021-6-26 09:32
@@ -6065,7 +6065,7 @@ survive=mgsurvive？
 其实当时很多人最大的疑点就是，索尼为什么要和这种没实绩又看不出什么特别之处的小团队扯上关系……
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 461#       发表于 2021-6-26 09:37
@@ -6090,7 +6090,7 @@ survive=mgsurvive？
 只能说一周以前我还以为有概率是寂静岭新作，还有点高兴
 
 
------
+*****
 
 ####  luoyianwu  
 ##### 462#       发表于 2021-6-26 09:43
@@ -6099,7 +6099,7 @@ survive=mgsurvive？
 这场事件中有很多常理无法解释的扯蛋巧合，建议不要完全死心，死一点点就好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  小泉花陽  
 ##### 463#       发表于 2021-6-26 10:06
@@ -6110,7 +6110,7 @@ survive=mgsurvive？
 
                                                  
 
------
+*****
 
 ####  九十九忍  
 ##### 464#       发表于 2021-6-26 10:30
@@ -6119,7 +6119,7 @@ survive=mgsurvive？
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">直接等结果不要关注进度就是了，闲的，就当小岛在做了
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 465#       发表于 2021-6-26 10:39
@@ -6133,7 +6133,7 @@ survive=mgsurvive？
 
                                                  
 
------
+*****
 
 ####  gingawang  
 ##### 466#       发表于 2021-6-26 17:54
@@ -6144,7 +6144,7 @@ survive=mgsurvive？
 7月发布会的传闻从哪里来的？
 
 
------
+*****
 
 ####  406129465  
 ##### 467#       发表于 2021-6-26 18:09
@@ -6157,7 +6157,7 @@ survive=mgsurvive？
 
                                                  
 
------
+*****
 
 ####  kuker53  
 ##### 468#       发表于 2021-6-26 19:47
@@ -6169,7 +6169,7 @@ survive=mgsurvive？
 没说7月吧，就是曝光最终幻想16的那个舅舅，N开头的说的几周后，这人准确率倒是挺高，但是我觉得还是不要对这个游戏和寂静岭新作抱有期待
 
 
------
+*****
 
 ####  SergeGlenn  
 ##### 469#       发表于 2021-6-26 19:58
@@ -6183,7 +6183,7 @@ survive=mgsurvive？
 
                                                  
 
------
+*****
 
 ####  halogta  
 ##### 470#       发表于 2021-6-30 16:33
@@ -6192,7 +6192,7 @@ survive=mgsurvive？
 科乐美跟Bloober Team达成战略合作协议，寂静岭外包出去的节奏？
 
 
------
+*****
 
 ####  医生狼多  
 ##### 471#       发表于 2021-6-30 16:45
@@ -6203,7 +6203,7 @@ survive=mgsurvive？
 周四能说明啥……索尼之前搞sop是在周五<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  SergeGlenn  
 ##### 472#       发表于 2021-6-30 17:15
@@ -6219,7 +6219,7 @@ survive=mgsurvive？
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 473#       发表于 2021-6-30 21:09
@@ -6239,7 +6239,7 @@ KONAMI AND BLOOBER TEAM ANNOUNCE PARTNERSHIP AMID SILENT HILL LINKS
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 474#       发表于 2021-7-1 19:46
@@ -6255,7 +6255,7 @@ Abandoned: Realtime Trailers
 
                                                  
 
------
+*****
 
 ####  DTCPSS  
 ##### 475#       发表于 2021-7-6 15:38
@@ -6264,7 +6264,7 @@ Abandoned: Realtime Trailers
 <img src="https://p.sda1.dev/2/b0869ecf12021db3c3e1c56bd538d08d/4146bb5dgy1gs75o6avvcj20m809g0un.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  westgun  
 ##### 476#       发表于 2021-7-6 15:47
@@ -6274,7 +6274,7 @@ Abandoned: Realtime Trailers
 震惊！这是什么
 
 
------
+*****
 
 ####  平贺才人  
 ##### 477#       发表于 2021-7-6 15:52
@@ -6284,7 +6284,7 @@ Abandoned: Realtime Trailers
 ？？？
 
 
------
+*****
 
 ####  新八  
 ##### 478#       发表于 2021-7-6 15:55
@@ -6293,7 +6293,7 @@ Abandoned: Realtime Trailers
 好家伙，风波再起吗
 
 
------
+*****
 
 ####  怨虎龙  
 ##### 479#       发表于 2021-7-6 15:56
@@ -6303,7 +6303,7 @@ Abandoned: Realtime Trailers
 什么啊，什么啊什么啊什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  陈玉礼  
 ##### 480#       发表于 2021-7-6 15:56
@@ -6314,7 +6314,7 @@ Abandoned: Realtime Trailers
 
 
 
------
+*****
 
 ####  平贺才人  
 ##### 481#       发表于 2021-7-6 16:04
@@ -6323,7 +6323,7 @@ Abandoned: Realtime Trailers
 微博看到个人说是mgs重制，蓝点做的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Gandalf  
 ##### 482#       发表于 2021-7-6 16:08
@@ -6332,7 +6332,7 @@ Abandoned: Realtime Trailers
 这乐子还有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DeerRua  
 ##### 483#       发表于 2021-7-6 16:24
@@ -6341,7 +6341,7 @@ Abandoned: Realtime Trailers
 找不到消息来源
 
 
------
+*****
 
 ####  曼陀罗肥  
 ##### 484#       发表于 2021-7-6 16:29
@@ -6352,7 +6352,7 @@ Abandoned: Realtime Trailers
 
                                                 
 
------
+*****
 
 ####  415452356  
 ##### 485#       发表于 2021-7-6 16:46
@@ -6363,7 +6363,7 @@ Abandoned: Realtime Trailers
 
                                                  
 
------
+*****
 
 ####  Fanek  
 ##### 486#       发表于 2021-7-6 17:57
@@ -6374,7 +6374,7 @@ Abandoned: Realtime Trailers
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 487#       发表于 2021-7-7 05:19
@@ -6385,7 +6385,7 @@ SOP就在转角，Hasan亮出了自己的推特号
 大的……大的……
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 488#       发表于 2021-7-7 05:21
@@ -6396,7 +6396,7 @@ SOP就在转角，Hasan亮出了自己的推特号
 
                                                  
 
------
+*****
 
 ####  final007  
 ##### 489#       发表于 2021-7-8 12:04
@@ -6407,7 +6407,7 @@ SOP就在转角，Hasan亮出了自己的推特号
 
                                                  
 
------
+*****
 
 ####  Cookiekira  
 ##### 490#       发表于 2021-7-8 12:47
@@ -6418,7 +6418,7 @@ SOP就在转角，Hasan亮出了自己的推特号
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 491#       发表于 2021-7-12 08:50
@@ -6433,7 +6433,7 @@ SOP就在转角，Hasan亮出了自己的推特号
 
                                                  
 
------
+*****
 
 ####  gingawang  
 ##### 492#       发表于 2021-7-12 11:55
@@ -6444,7 +6444,7 @@ SOP就在转角，Hasan亮出了自己的推特号
 
                                                  
 
------
+*****
 
 ####  luoyianwu  
 ##### 493#       发表于 2021-7-15 03:13

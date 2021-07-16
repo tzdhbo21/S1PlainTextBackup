@@ -1,7 +1,7 @@
 > ## **本文件最后更新于2021-01-16 15:59** 
 
 
------
+*****
 
 ####  JustW  
 ##### 6001#       发表于 2020-12-20 20:30
@@ -10,7 +10,7 @@
 草，对主持人暴言了
 
 
------
+*****
 
 ####  草牛  
 ##### 6002#       发表于 2020-12-20 20:30
@@ -19,7 +19,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太你妈生草了
 
 
------
+*****
 
 ####  路人庚  
 ##### 6003#       发表于 2020-12-20 20:30
@@ -28,7 +28,7 @@
 mea：软软冰你给我闭嘴
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6004#       发表于 2020-12-20 20:31
@@ -37,7 +37,7 @@ mea：软软冰你给我闭嘴
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6005#       发表于 2020-12-20 20:31
@@ -46,7 +46,7 @@ mea：软软冰你给我闭嘴
 魔王城类人猿公主
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6006#       发表于 2020-12-20 20:31
@@ -56,7 +56,7 @@ mea：软软冰你给我闭嘴
 是我网不好了吗
 
 
------
+*****
 
 ####  路人庚  
 ##### 6007#       发表于 2020-12-20 20:31
@@ -65,7 +65,7 @@ mea：软软冰你给我闭嘴
 我已经完全理解了星川为什么要把你咩姐卷起来打了
 
 
------
+*****
 
 ####  sw11133  
 ##### 6008#       发表于 2020-12-20 20:31
@@ -74,7 +74,7 @@ mea：软软冰你给我闭嘴
 好耶！
 
 
------
+*****
 
 ####  finefrenzy  
 ##### 6009#       发表于 2020-12-20 20:32
@@ -86,7 +86,7 @@ mea：软软冰你给我闭嘴
 我有
 
 
------
+*****
 
 ####  JustW  
 ##### 6010#       发表于 2020-12-20 20:32
@@ -95,7 +95,7 @@ mea：软软冰你给我闭嘴
 我网一直很烂，估计是我的问题
 
 
------
+*****
 
 ####  clvan_  
 ##### 6011#       发表于 2020-12-20 20:32
@@ -104,7 +104,7 @@ mea：软软冰你给我闭嘴
 看来跟软软冰混的挺熟的
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6012#       发表于 2020-12-20 20:32
@@ -113,7 +113,7 @@ mea：软软冰你给我闭嘴
 我这倒是重复了一遍
 
 
------
+*****
 
 ####  zaozaoxx  
 ##### 6013#       发表于 2020-12-20 20:32
@@ -122,7 +122,7 @@ mea：软软冰你给我闭嘴
 那一瞬间断流了吧
 
 
------
+*****
 
 ####  路人庚  
 ##### 6014#       发表于 2020-12-20 20:32
@@ -131,7 +131,7 @@ mea：软软冰你给我闭嘴
 你咩姐心中的爱豆.jpg
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6015#       发表于 2020-12-20 20:32
@@ -140,7 +140,7 @@ mea：软软冰你给我闭嘴
 可爱，想揍她<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  燃烧的石头  
 ##### 6016#       发表于 2020-12-20 20:32
@@ -149,7 +149,7 @@ mea：软软冰你给我闭嘴
 搞笑艺人
 
 
------
+*****
 
 ####  sw11133  
 ##### 6017#       发表于 2020-12-20 20:32
@@ -160,7 +160,7 @@ mea：软软冰你给我闭嘴
 这个我绷不住了
 
 
------
+*****
 
 ####  physi1202  
 ##### 6018#       发表于 2020-12-20 20:32
@@ -169,7 +169,7 @@ mea：软软冰你给我闭嘴
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">这是个锤子爱抖露
 
 
------
+*****
 
 ####  planetcd  
 ##### 6019#       发表于 2020-12-20 20:32
@@ -178,7 +178,7 @@ mea：软软冰你给我闭嘴
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这是什么时代的偶像
 
 
------
+*****
 
 ####  JustW  
 ##### 6020#       发表于 2020-12-20 20:32
@@ -187,7 +187,7 @@ mea：软软冰你给我闭嘴
 你这是个锤子爱豆
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6021#       发表于 2020-12-20 20:32
@@ -196,7 +196,7 @@ mea：软软冰你给我闭嘴
 呀咩咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  2111X  
 ##### 6022#       发表于 2020-12-20 20:33
@@ -205,7 +205,7 @@ mea：软软冰你给我闭嘴
 泰森 拳界爱抖露
 
 
------
+*****
 
 ####  若风之景  
 ##### 6023#       发表于 2020-12-20 20:33
@@ -219,7 +219,7 @@ mea：软软冰你给我闭嘴
 —— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6024#       发表于 2020-12-20 20:33
@@ -228,7 +228,7 @@ mea：软软冰你给我闭嘴
 你这是故意整活吧 真的欠揍
 
 
------
+*****
 
 ####  295405468  
 ##### 6025#       发表于 2020-12-20 20:33
@@ -237,7 +237,7 @@ mea：软软冰你给我闭嘴
 打人纸片人犯法吗 真心问
 
 
------
+*****
 
 ####  我想做mkm的舔狗  
 ##### 6026#       发表于 2020-12-20 20:33
@@ -246,7 +246,7 @@ mea：软软冰你给我闭嘴
 搞笑役的偶像
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6027#       发表于 2020-12-20 20:33
@@ -255,7 +255,7 @@ mea：软软冰你给我闭嘴
 《在魔王城当搞笑爱抖露的类人猿公主你喜欢吗？》
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6028#       发表于 2020-12-20 20:33
@@ -268,7 +268,7 @@ mea：软软冰你给我闭嘴
 突然传来了庞大的数据流.jpg
 
 
------
+*****
 
 ####  若风之景  
 ##### 6029#       发表于 2020-12-20 20:33
@@ -279,7 +279,7 @@ mea：软软冰你给我闭嘴
 —— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  草牛  
 ##### 6030#       发表于 2020-12-20 20:34
@@ -288,7 +288,7 @@ mea：软软冰你给我闭嘴
 《可爱摄影大会》
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 6031#       发表于 2020-12-20 20:34
@@ -297,7 +297,7 @@ mea：软软冰你给我闭嘴
 这个腿从内八到外八<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">姿势过于自然
 
 
------
+*****
 
 ####  地精也是精  
 ##### 6032#       发表于 2020-12-20 20:34
@@ -306,7 +306,7 @@ mea：软软冰你给我闭嘴
 穿着爱抖露服却在整个活动期间一丁点爱抖露的感觉都没有感受到。
 
 
------
+*****
 
 ####  JustW  
 ##### 6033#       发表于 2020-12-20 20:34
@@ -315,7 +315,7 @@ mea：软软冰你给我闭嘴
 郭德纲都显得更像爱豆
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6034#       发表于 2020-12-20 20:34
@@ -324,7 +324,7 @@ mea：软软冰你给我闭嘴
 我女儿！我女儿！我女儿在撒娇！！
 
 
------
+*****
 
 ####  笋狐  
 ##### 6035#       发表于 2020-12-20 20:35
@@ -333,7 +333,7 @@ mea：软软冰你给我闭嘴
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，这人下一套新衣服也不用费心设计了，就用说相声的黑大褂吧，那个比较符合这吊人的气质
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6036#       发表于 2020-12-20 20:35
@@ -344,7 +344,7 @@ mea：软软冰你给我闭嘴
 还有圆黑镜片
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6037#       发表于 2020-12-20 20:35
@@ -353,7 +353,7 @@ mea：软软冰你给我闭嘴
 这个竟然还保留了啊
 
 
------
+*****
 
 ####  路人庚  
 ##### 6038#       发表于 2020-12-20 20:35
@@ -362,7 +362,7 @@ mea：软软冰你给我闭嘴
 线下事前大作战内容
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6039#       发表于 2020-12-20 20:37
@@ -371,7 +371,7 @@ mea：软软冰你给我闭嘴
 (是不是只买了三首歌的翻唱权，删掉又不太合适)
 
 
------
+*****
 
 ####  JustW  
 ##### 6040#       发表于 2020-12-20 20:37
@@ -380,7 +380,7 @@ mea：软软冰你给我闭嘴
 话说会有观众集体做蹲起的环节吗
 
 
------
+*****
 
 ####  路人庚  
 ##### 6041#       发表于 2020-12-20 20:37
@@ -389,7 +389,7 @@ mea：软软冰你给我闭嘴
 傲娇睡觉的姿势.png
 
 
------
+*****
 
 ####  JustW  
 ##### 6042#       发表于 2020-12-20 20:38
@@ -398,7 +398,7 @@ mea：软软冰你给我闭嘴
 这是腿抽筋儿了吧
 
 
------
+*****
 
 ####  路人庚  
 ##### 6043#       发表于 2020-12-20 20:38
@@ -407,7 +407,7 @@ mea：软软冰你给我闭嘴
 草，突然起飞
 
 
------
+*****
 
 ####  追风小星星  
 ##### 6044#       发表于 2020-12-20 20:38
@@ -416,7 +416,7 @@ mea：软软冰你给我闭嘴
 怎么做到的? <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  地精也是精  
 ##### 6045#       发表于 2020-12-20 20:38
@@ -425,7 +425,7 @@ mea：软软冰你给我闭嘴
 从坐下到站起来全是生草。
 
 
------
+*****
 
 ####  JustW  
 ##### 6046#       发表于 2020-12-20 20:38
@@ -434,7 +434,7 @@ mea：软软冰你给我闭嘴
 赛 博 朋 克 2077
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 6047#       发表于 2020-12-20 20:38
@@ -443,7 +443,7 @@ mea：软软冰你给我闭嘴
 躺下来这个姿势，身体哪边肯定负担过大
 
 
------
+*****
 
 ####  2111X  
 ##### 6048#       发表于 2020-12-20 20:38
@@ -452,7 +452,7 @@ mea：软软冰你给我闭嘴
 mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6049#       发表于 2020-12-20 20:39
@@ -461,7 +461,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 这是对于人类来说还是为时过早的傲娇
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6050#       发表于 2020-12-20 20:39
@@ -485,7 +485,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 查看全部评分
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6051#       发表于 2020-12-20 20:39
@@ -494,7 +494,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 没有人比我更懂傲娇.JPG
 
 
------
+*****
 
 ####  面具13  
 ##### 6052#       发表于 2020-12-20 20:40
@@ -503,7 +503,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 刚才起飞后说了几句谢谢
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6053#       发表于 2020-12-20 20:42
@@ -512,7 +512,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 1是不是这个？：<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dent  
 ##### 6054#       发表于 2020-12-20 20:42
@@ -521,7 +521,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">你们又不是傲娇懂什么傲娇，咩姐可是真正的傲娇
 
 
------
+*****
 
 ####  JustW  
 ##### 6055#       发表于 2020-12-20 20:43
@@ -530,7 +530,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 中日共识还行
 
 
------
+*****
 
 ####  路人庚  
 ##### 6056#       发表于 2020-12-20 20:43
@@ -539,7 +539,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 可爱生气的姿势：你们圣诞节只能一个人过吧，真可怜啊
 
 
------
+*****
 
 ####  缺陷电气杨永信  
 ##### 6057#       发表于 2020-12-20 20:44
@@ -550,7 +550,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  路人庚  
 ##### 6058#       发表于 2020-12-20 20:44
@@ -559,7 +559,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 土下座草
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6059#       发表于 2020-12-20 20:44
@@ -568,7 +568,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 秒怂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6060#       发表于 2020-12-20 20:45
@@ -577,7 +577,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6061#       发表于 2020-12-20 20:45
@@ -586,7 +586,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 这土下座也太快了
 
 
------
+*****
 
 ####  JustW  
 ##### 6062#       发表于 2020-12-20 20:45
@@ -595,7 +595,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 破防了破防了
 
 
------
+*****
 
 ####  笋狐  
 ##### 6063#       发表于 2020-12-20 20:45
@@ -604,7 +604,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有仇当场就报了的吊人...草，怎么怂了
 
 
------
+*****
 
 ####  2111X  
 ##### 6064#       发表于 2020-12-20 20:45
@@ -613,7 +613,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 这个精彩，太妙了
 
 
------
+*****
 
 ####  草牛  
 ##### 6065#       发表于 2020-12-20 20:45
@@ -622,7 +622,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等录像一定要截个神乐mea土下座gif
 
 
------
+*****
 
 ####  若风之景  
 ##### 6066#       发表于 2020-12-20 20:46
@@ -633,7 +633,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 —— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6067#       发表于 2020-12-20 20:46
@@ -642,7 +642,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 就这? 怎么不多唱几首歌吗
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 6068#       发表于 2020-12-20 20:46
@@ -651,7 +651,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 仇可以当场就报，也可以当场就怂，圆滑了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6069#       发表于 2020-12-20 20:46
@@ -660,7 +660,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 谁能帮我把这只白色螃蟹的壳给剥了
 
 
------
+*****
 
 ####  路人庚  
 ##### 6070#       发表于 2020-12-20 20:48
@@ -669,7 +669,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 龙城二公子（爷傲耐我何饼干
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6071#       发表于 2020-12-20 20:50
@@ -680,7 +680,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 不过按成线下设计想的话 哎 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6072#       发表于 2020-12-20 20:50
@@ -689,7 +689,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 打嗝了，中之人没换
 
 
------
+*****
 
 ####  JustW  
 ##### 6073#       发表于 2020-12-20 20:51
@@ -698,7 +698,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 传统艺能不能丢
 
 
------
+*****
 
 ####  physi1202  
 ##### 6074#       发表于 2020-12-20 20:52
@@ -707,7 +707,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 凛fam可还行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JustW  
 ##### 6075#       发表于 2020-12-20 20:52
@@ -716,7 +716,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 这张确实不错
 
 
------
+*****
 
 ####  路人庚  
 ##### 6076#       发表于 2020-12-20 20:53
@@ -728,7 +728,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 话说极光3D先现在看来好像是裤 袜来着（
 
 
------
+*****
 
 ####  physi1202  
 ##### 6077#       发表于 2020-12-20 20:54
@@ -737,7 +737,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6078#       发表于 2020-12-20 20:55
@@ -746,7 +746,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 想看到现场的荧光棒啊
 
 
------
+*****
 
 ####  likemike  
 ##### 6079#       发表于 2020-12-20 20:55
@@ -755,7 +755,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 届到了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 6080#       发表于 2020-12-20 20:55
@@ -764,7 +764,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 我喜欢大家，还有mea<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6081#       发表于 2020-12-20 20:56
@@ -773,7 +773,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 想看到现场的荧光棒<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6082#       发表于 2020-12-20 20:56
@@ -784,7 +784,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现场返利50元√
 
 
------
+*****
 
 ####  路人庚  
 ##### 6083#       发表于 2020-12-20 20:57
@@ -793,7 +793,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 应该还有一首原创曲来着
 
 
------
+*****
 
 ####  A2014720  
 ##### 6084#       发表于 2020-12-20 20:57
@@ -802,7 +802,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 就这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  面具13  
 ##### 6085#       发表于 2020-12-20 20:58
@@ -811,7 +811,7 @@ mj绝活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 beast dance！！
 
 
------
+*****
 
 ####  KL25001  
 ##### 6086#       发表于 2020-12-20 20:58
@@ -822,7 +822,7 @@ beast dance
 她真的喜欢这首歌啊
 
 
------
+*****
 
 ####  路人庚  
 ##### 6087#       发表于 2020-12-20 20:58
@@ -831,7 +831,7 @@ beast dance
 野兽之舞老角色歌了
 
 
------
+*****
 
 ####  A2014720  
 ##### 6088#       发表于 2020-12-20 20:59
@@ -840,7 +840,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6089#       发表于 2020-12-20 20:59
@@ -849,7 +849,7 @@ beast dance
 梦回19年
 
 
------
+*****
 
 ####  路人庚  
 ##### 6090#       发表于 2020-12-20 20:59
@@ -858,7 +858,7 @@ beast dance
 空气吉他赞哦
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6091#       发表于 2020-12-20 20:59
@@ -867,7 +867,7 @@ beast dance
 空气吉他还行 什么时候真的练吉他呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KL25001  
 ##### 6092#       发表于 2020-12-20 20:59
@@ -876,7 +876,7 @@ beast dance
 2番！
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6093#       发表于 2020-12-20 21:01
@@ -886,7 +886,7 @@ beast dance
 去年唱的多，今年唱的少了
 
 
------
+*****
 
 ####  路人庚  
 ##### 6094#       发表于 2020-12-20 21:02
@@ -895,7 +895,7 @@ beast dance
 真正的爱豆姿势
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6095#       发表于 2020-12-20 21:02
@@ -904,7 +904,7 @@ beast dance
 完美配合这衣服啊
 
 
------
+*****
 
 ####  clvan_  
 ##### 6096#       发表于 2020-12-20 21:02
@@ -913,7 +913,7 @@ beast dance
 好
 
 
------
+*****
 
 ####  笋狐  
 ##### 6097#       发表于 2020-12-20 21:03
@@ -922,7 +922,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">明明可以御姐模式撩的飞起，偏要当个搞笑艺人
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6098#       发表于 2020-12-20 21:03
@@ -933,7 +933,7 @@ beast dance
 这段能切片出来涨粉就好了
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6099#       发表于 2020-12-20 21:04
@@ -942,7 +942,7 @@ beast dance
 这首真的好
 
 
------
+*****
 
 ####  路人庚  
 ##### 6100#       发表于 2020-12-20 21:04
@@ -951,7 +951,7 @@ beast dance
 三连啊
 
 
------
+*****
 
 ####  JustW  
 ##### 6101#       发表于 2020-12-20 21:05
@@ -960,7 +960,7 @@ beast dance
 咩
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6102#       发表于 2020-12-20 21:05
@@ -971,7 +971,7 @@ beast dance
 猫党给爷死
 
 
------
+*****
 
 ####  gongge666  
 ##### 6103#       发表于 2020-12-20 21:05
@@ -985,7 +985,7 @@ beast dance
 她眼睛就是猫眼
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6104#       发表于 2020-12-20 21:06
@@ -994,7 +994,7 @@ beast dance
 这个咩配上闭眼歪头太可爱了
 
 
------
+*****
 
 ####  physi1202  
 ##### 6105#       发表于 2020-12-20 21:07
@@ -1003,7 +1003,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">这带call动作
 
 
------
+*****
 
 ####  gongge666  
 ##### 6106#       发表于 2020-12-20 21:07
@@ -1012,7 +1012,7 @@ beast dance
 这首歌倒是完全暴露了唱歌是录播这件事
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6107#       发表于 2020-12-20 21:07
@@ -1021,7 +1021,7 @@ beast dance
 有线下该多好啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6108#       发表于 2020-12-20 21:08
@@ -1030,7 +1030,7 @@ beast dance
 这猛毒爽的一b
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6109#       发表于 2020-12-20 21:08
@@ -1039,7 +1039,7 @@ beast dance
 本羊党只凭一首猛毒就可以赢一辈子
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6110#       发表于 2020-12-20 21:09
@@ -1048,7 +1048,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  追风小星星  
 ##### 6111#       发表于 2020-12-20 21:09
@@ -1057,7 +1057,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 羊都是营业,猫才是本体
 
 
------
+*****
 
 ####  KL25001  
 ##### 6112#       发表于 2020-12-20 21:09
@@ -1066,7 +1066,7 @@ beast dance
 如果是线下，如果是线下<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 6113#       发表于 2020-12-20 21:09
@@ -1075,7 +1075,7 @@ beast dance
 重铸羊党荣光，义不容辞
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 6114#       发表于 2020-12-20 21:09
@@ -1084,7 +1084,7 @@ beast dance
 这次卖不卖蓝光 有说吗
 
 
------
+*****
 
 ####  斗斗一号  
 ##### 6115#       发表于 2020-12-20 21:10
@@ -1093,7 +1093,7 @@ beast dance
 很好奇，原来mea真准备全场真跳下来吗，就算歌是录播也吃不消啊
 
 
------
+*****
 
 ####  clvan_  
 ##### 6116#       发表于 2020-12-20 21:11
@@ -1102,7 +1102,7 @@ beast dance
 这人很多地方有奇怪的执念的
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6117#       发表于 2020-12-20 21:11
@@ -1111,7 +1111,7 @@ beast dance
 按照这么长的MC时间是有可能的
 
 
------
+*****
 
 ####  zaozaoxx  
 ##### 6118#       发表于 2020-12-20 21:11
@@ -1120,7 +1120,7 @@ beast dance
 羊猫都是营业，螃蟹才是本体
 
 
------
+*****
 
 ####  KL25001  
 ##### 6119#       发表于 2020-12-20 21:12
@@ -1129,7 +1129,7 @@ beast dance
 螃蟹才是本体草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6120#       发表于 2020-12-20 21:13
@@ -1138,7 +1138,7 @@ beast dance
 螃蟹党站起来
 
 
------
+*****
 
 ####  whbstc4545  
 ##### 6121#       发表于 2020-12-20 21:13
@@ -1147,7 +1147,7 @@ beast dance
 螃蟹党赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  离心  
 ##### 6122#       发表于 2020-12-20 21:13
@@ -1156,7 +1156,7 @@ beast dance
 东蛋啊……
 
 
------
+*****
 
 ####  草牛  
 ##### 6123#       发表于 2020-12-20 21:13
@@ -1165,7 +1165,7 @@ beast dance
 梦想是在东蛋打棒球，老麻枝准了
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6124#       发表于 2020-12-20 21:14
@@ -1174,7 +1174,7 @@ beast dance
 破防录像来了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6125#       发表于 2020-12-20 21:14
@@ -1183,7 +1183,7 @@ beast dance
 真正的idol
 
 
------
+*****
 
 ####  gzhao01  
 ##### 6126#       发表于 2020-12-20 21:14
@@ -1192,7 +1192,7 @@ beast dance
 从今以后我就是螃蟹党了
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 6127#       发表于 2020-12-20 21:14
@@ -1201,7 +1201,7 @@ beast dance
 樱花妹的脑子都这么同步的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6128#       发表于 2020-12-20 21:14
@@ -1210,7 +1210,7 @@ beast dance
 新曲了，这个是线下放过的那个，但当时放的是阴间渲染也没有背景特效
 
 
------
+*****
 
 ####  dent  
 ##### 6129#       发表于 2020-12-20 21:14
@@ -1222,7 +1222,7 @@ beast dance
 播片和现场mc杂谈是做不到无缝切换的，注意转场就知道了
 
 
------
+*****
 
 ####  Eutopia  
 ##### 6130#       发表于 2020-12-20 21:14
@@ -1231,7 +1231,7 @@ beast dance
 穿礼服就应该是这种前奏的风格才对<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  physi1202  
 ##### 6131#       发表于 2020-12-20 21:15
@@ -1240,7 +1240,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这首好适合在live现场唱啊
 
 
------
+*****
 
 ####  斗斗一号  
 ##### 6132#       发表于 2020-12-20 21:16
@@ -1249,7 +1249,7 @@ beast dance
 有点破防的感觉
 
 
------
+*****
 
 ####  草牛  
 ##### 6133#       发表于 2020-12-20 21:16
@@ -1258,7 +1258,7 @@ beast dance
 这原创曲挺不错
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6134#       发表于 2020-12-20 21:16
@@ -1267,7 +1267,7 @@ beast dance
 21号通知取消后，工作人员放了这首歌的排练录像，一片骚乱中前面几个老哥用力地挥动着手里的荧光棒打着call，这是那天最让我破防的
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6135#       发表于 2020-12-20 21:16
@@ -1276,7 +1276,7 @@ beast dance
 感觉被破防了
 
 
------
+*****
 
 ####  离心  
 ##### 6136#       发表于 2020-12-20 21:17
@@ -1285,7 +1285,7 @@ beast dance
 有点破防了……这首歌真的很适合充满活力的她
 
 
------
+*****
 
 ####  若风之景  
 ##### 6137#       发表于 2020-12-20 21:17
@@ -1296,7 +1296,7 @@ beast dance
 —— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  LIPP  
 ##### 6138#       发表于 2020-12-20 21:17
@@ -1305,7 +1305,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 6139#       发表于 2020-12-20 21:17
@@ -1314,7 +1314,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">很多很多现场环节，如果有现场该多好
 
 
------
+*****
 
 ####  Cortana  
 ##### 6140#       发表于 2020-12-20 21:18
@@ -1323,7 +1323,7 @@ beast dance
 该难忘今宵了（
 
 
------
+*****
 
 ####  KL25001  
 ##### 6141#       发表于 2020-12-20 21:18
@@ -1333,7 +1333,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">线下的encore，线下的encore
 
 
------
+*****
 
 ####  草牛  
 ##### 6142#       发表于 2020-12-20 21:18
@@ -1342,7 +1342,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这里大家自己脑补安可吧
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6143#       发表于 2020-12-20 21:18
@@ -1351,7 +1351,7 @@ beast dance
 黑屏encore<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6144#       发表于 2020-12-20 21:18
@@ -1362,7 +1362,7 @@ beast dance
 又想起那天线下了…
 
 
------
+*****
 
 ####  physi1202  
 ##### 6145#       发表于 2020-12-20 21:18
@@ -1371,7 +1371,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  追风小星星  
 ##### 6146#       发表于 2020-12-20 21:18
@@ -1380,7 +1380,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer"> 现在想想,能活着就好了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6147#       发表于 2020-12-20 21:18
@@ -1389,7 +1389,7 @@ beast dance
 无声安可<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6148#       发表于 2020-12-20 21:18
@@ -1398,7 +1398,7 @@ beast dance
 又回到21号了，要是那时我能给她打call该多好
 
 
------
+*****
 
 ####  zaozaoxx  
 ##### 6149#       发表于 2020-12-20 21:19
@@ -1407,7 +1407,7 @@ beast dance
 《难忘今宵》
 
 
------
+*****
 
 ####  面具13  
 ##### 6150#       发表于 2020-12-20 21:19
@@ -1416,7 +1416,7 @@ beast dance
 这安可的合唱怎么听起来怪怪的
 
 
------
+*****
 
 ####  zaozaoxx  
 ##### 6151#       发表于 2020-12-20 21:19
@@ -1425,7 +1425,7 @@ beast dance
 谁跑调了草，这四个人肯定有一个不在调上
 
 
------
+*****
 
 ####  斗斗一号  
 ##### 6152#       发表于 2020-12-20 21:20
@@ -1434,7 +1434,7 @@ beast dance
 声音好小，怪怪的
 
 
------
+*****
 
 ####  finefrenzy  
 ##### 6153#       发表于 2020-12-20 21:20
@@ -1444,7 +1444,7 @@ beast dance
 忘了问了 第二首唱的歌的名字_
 
 
------
+*****
 
 ####  cgte030629  
 ##### 6154#       发表于 2020-12-20 21:20
@@ -1453,7 +1453,7 @@ beast dance
 看个乐完了
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 6155#       发表于 2020-12-20 21:20
@@ -1462,7 +1462,7 @@ beast dance
 录像这玩意肯定会有流出吧
 
 
------
+*****
 
 ####  草牛  
 ##### 6156#       发表于 2020-12-20 21:21
@@ -1471,7 +1471,7 @@ beast dance
 你楼马上就应该有了吧，不用急
 
 
------
+*****
 
 ####  likemike  
 ##### 6157#       发表于 2020-12-20 21:22
@@ -1480,7 +1480,7 @@ beast dance
 实体BD呢，阿B<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6158#       发表于 2020-12-20 21:22
@@ -1489,7 +1489,7 @@ beast dance
 我知道有老哥录了(๑&gt;؂&lt;๑）
 
 
------
+*****
 
 ####  KL25001  
 ##### 6159#       发表于 2020-12-20 21:22
@@ -1500,7 +1500,7 @@ beast dance
 但是至少她还存在<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gongge666  
 ##### 6160#       发表于 2020-12-20 21:22
@@ -1509,7 +1509,7 @@ beast dance
 其实小虾鱼在国内这一点就是铁录播了，唯一的疑问就是中之人是否是本人，因为现在在唱歌的这个模型很多**惯根本不像mea
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6161#       发表于 2020-12-20 21:22
@@ -1518,7 +1518,7 @@ beast dance
 不过确实肯定有个不在调上
 
 
------
+*****
 
 ####  静夜观星  
 ##### 6162#       发表于 2020-12-20 21:22
@@ -1527,7 +1527,7 @@ beast dance
 最后一集了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6163#       发表于 2020-12-20 21:23
@@ -1536,7 +1536,7 @@ beast dance
 实体BD还行
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 6164#       发表于 2020-12-20 21:23
@@ -1545,7 +1545,7 @@ beast dance
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ky·Kiske  
 ##### 6165#       发表于 2020-12-20 21:24
@@ -1554,7 +1554,7 @@ beast dance
 仅限一次登场的最终形态，kkkkguuaaaa
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6166#       发表于 2020-12-20 21:24
@@ -1563,7 +1563,7 @@ beast dance
 录像该放放嘛，当宣传了，我是无所谓
 
 
------
+*****
 
 ####  gongge666  
 ##### 6167#       发表于 2020-12-20 21:24
@@ -1572,7 +1572,7 @@ beast dance
 怪不得没听过原来是原创的啊，白嫖2件衣服3首歌不亏啊
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6168#       发表于 2020-12-20 21:25
@@ -1581,7 +1581,7 @@ beast dance
 切几个片涨涨粉也好啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6169#       发表于 2020-12-20 21:26
@@ -1590,7 +1590,7 @@ beast dance
 等一个BD寄到家，先看录像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6170#       发表于 2020-12-20 21:26
@@ -1600,7 +1600,7 @@ beast dance
 bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 
 
------
+*****
 
 ####  路人庚  
 ##### 6171#       发表于 2020-12-20 21:27
@@ -1609,7 +1609,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 至少原创曲肯定会放出来的
 
 
------
+*****
 
 ####  dilemma  
 ##### 6172#       发表于 2020-12-20 21:27
@@ -1621,7 +1621,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 不会又要冲错人吧
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 6173#       发表于 2020-12-20 21:28
@@ -1630,7 +1630,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 赶了个收尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6174#       发表于 2020-12-20 21:28
@@ -1643,7 +1643,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 管制太痛苦了
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6175#       发表于 2020-12-20 21:28
@@ -1652,7 +1652,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 群号来一个 秋梨膏
 
 
------
+*****
 
 ####  斗斗一号  
 ##### 6176#       发表于 2020-12-20 21:29
@@ -1661,7 +1661,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 原唱曲应该会投PV的
 
 
------
+*****
 
 ####  JustW  
 ##### 6177#       发表于 2020-12-20 21:30
@@ -1670,7 +1670,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 爱丽丝的中文音调还不错
 
 
------
+*****
 
 ####  面具13  
 ##### 6178#       发表于 2020-12-20 21:32
@@ -1679,7 +1679,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 最后一首独唱，不知道会不会整活
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6179#       发表于 2020-12-20 21:32
@@ -1688,7 +1688,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 爱丽丝人好好啊，kyky和小麻是真的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 6180#       发表于 2020-12-20 21:33
@@ -1697,7 +1697,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 爱丽丝yygq阿b就好感度up了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  clvan_  
 ##### 6181#       发表于 2020-12-20 21:34
@@ -1706,7 +1706,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 这曲风好复古
 
 
------
+*****
 
 ####  KL25001  
 ##### 6182#       发表于 2020-12-20 21:35
@@ -1715,7 +1715,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 草，最后的最后捡起了设定
 
 
------
+*****
 
 ####  草牛  
 ##### 6183#       发表于 2020-12-20 21:35
@@ -1724,7 +1724,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 突然回归设定
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6184#       发表于 2020-12-20 21:35
@@ -1733,7 +1733,7 @@ bd能把那个渲染到剩3帧竞技的henshin给爷修正了吗
 disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6185#       发表于 2020-12-20 21:35
@@ -1742,7 +1742,7 @@ disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 <img src="https://p.sda1.dev/0/561bfd73a928387b1817a55638fb8f2d/me_ykrank_s1next1608465420855.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zaozaoxx  
 ##### 6186#       发表于 2020-12-20 21:36
@@ -1751,7 +1751,7 @@ disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 再来几首原创曲就能出CD专辑了
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6187#       发表于 2020-12-20 21:36
@@ -1760,7 +1760,7 @@ disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 原来还有女仆的设定啊 第一次知道呢(
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6188#       发表于 2020-12-20 21:36
@@ -1771,7 +1771,7 @@ disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 我的第一反应是各位女装了
 
 
------
+*****
 
 ####  若风之景  
 ##### 6189#       发表于 2020-12-20 21:37
@@ -1782,7 +1782,7 @@ disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 —— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6190#       发表于 2020-12-20 21:38
@@ -1791,7 +1791,7 @@ disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 各位大约的确是女装了
 
 
------
+*****
 
 ####  likemike  
 ##### 6191#       发表于 2020-12-20 21:38
@@ -1800,7 +1800,7 @@ disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 翻身主人把歌唱
 
 
------
+*****
 
 ####  Ky·Kiske  
 ##### 6192#       发表于 2020-12-20 21:38
@@ -1809,7 +1809,7 @@ disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 我tm好像错过两首……
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 6193#       发表于 2020-12-20 21:38
@@ -1836,7 +1836,7 @@ disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 查看全部评分
 
 
------
+*****
 
 ####  gongge666  
 ##### 6194#       发表于 2020-12-20 21:39
@@ -1845,7 +1845,7 @@ disco舞曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png"
 B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 
 
------
+*****
 
 ####  草牛  
 ##### 6195#       发表于 2020-12-20 21:39
@@ -1854,7 +1854,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 停一停
 
 
------
+*****
 
 ####  JustW  
 ##### 6196#       发表于 2020-12-20 21:39
@@ -1863,7 +1863,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 怎么突然就开始了）
 
 
------
+*****
 
 ####  onlv星骸  
 ##### 6197#       发表于 2020-12-20 21:39
@@ -1872,7 +1872,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">没有抒情歌，遗憾
 
 
------
+*****
 
 ####  路人庚  
 ##### 6198#       发表于 2020-12-20 21:40
@@ -1888,7 +1888,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 2020-12-20 21:40 上传
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6199#       发表于 2020-12-20 21:40
@@ -1897,7 +1897,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 热得疯狂擦汗(●—●)
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6200#       发表于 2020-12-20 21:40
@@ -1908,7 +1908,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 来首别人的女朋友
 
 
------
+*****
 
 ####  JustW  
 ##### 6201#       发表于 2020-12-20 21:41
@@ -1917,7 +1917,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 咩希望live上的她是kirakira的那个她吧
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6202#       发表于 2020-12-20 21:41
@@ -1926,7 +1926,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 楼友怪起来了
 
 
------
+*****
 
 ####  KL25001  
 ##### 6203#       发表于 2020-12-20 21:41
@@ -1939,7 +1939,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 我好喜欢3D站桩输出的她啊
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6204#       发表于 2020-12-20 21:41
@@ -1948,7 +1948,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 透出水是什么东西？mea竟是雪人？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  追风小星星  
 ##### 6205#       发表于 2020-12-20 21:42
@@ -1957,7 +1957,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 唐突发情,真的还有肉体厨?
 
 
------
+*****
 
 ####  likemike  
 ##### 6206#       发表于 2020-12-20 21:42
@@ -1966,7 +1966,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 我连对着她冲都不舍得，楼友真的疯狂<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6207#       发表于 2020-12-20 21:43
@@ -1977,7 +1977,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 令人敬佩！
 
 
------
+*****
 
 ####  sw11133  
 ##### 6208#       发表于 2020-12-20 21:43
@@ -1986,7 +1986,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 懂了，这就去搬砖
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6209#       发表于 2020-12-20 21:43
@@ -1995,7 +1995,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 想明年还有机会再来一次<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6210#       发表于 2020-12-20 21:43
@@ -2006,7 +2006,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 201220:下次live？2、3、4、5、6年后吧
 
 
------
+*****
 
 ####  LIPP  
 ##### 6211#       发表于 2020-12-20 21:43
@@ -2015,7 +2015,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  シオン诗音  
 ##### 6212#       发表于 2020-12-20 21:44
@@ -2026,7 +2026,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  sw11133  
 ##### 6213#       发表于 2020-12-20 21:44
@@ -2035,7 +2035,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我会努力的
 
 
------
+*****
 
 ####  JustW  
 ##### 6214#       发表于 2020-12-20 21:44
@@ -2044,7 +2044,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 奥运会出场，粉丝们加把劲儿啊
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6215#       发表于 2020-12-20 21:45
@@ -2054,7 +2054,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 啊丢
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6216#       发表于 2020-12-20 21:45
@@ -2063,7 +2063,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 我破防了
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6217#       发表于 2020-12-20 21:45
@@ -2072,7 +2072,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 结束了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  physi1202  
 ##### 6218#       发表于 2020-12-20 21:45
@@ -2081,7 +2081,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">破防了
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6219#       发表于 2020-12-20 21:45
@@ -2090,7 +2090,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 破防了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6220#       发表于 2020-12-20 21:46
@@ -2099,7 +2099,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 今天我也是世界第一幸福<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6221#       发表于 2020-12-20 21:46
@@ -2142,7 +2142,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 查看全部评分
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6222#       发表于 2020-12-20 21:46
@@ -2151,7 +2151,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 刚开心完就看到这个<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  azccc52  
 ##### 6223#       发表于 2020-12-20 21:46
@@ -2160,7 +2160,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 不够看啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  若风之景  
 ##### 6224#       发表于 2020-12-20 21:46
@@ -2171,7 +2171,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 —— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  若风之景  
 ##### 6225#       发表于 2020-12-20 21:47
@@ -2184,7 +2184,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 —— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  clvan_  
 ##### 6226#       发表于 2020-12-20 21:47
@@ -2193,7 +2193,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 唉，凭什么<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KL25001  
 ##### 6227#       发表于 2020-12-20 21:47
@@ -2202,7 +2202,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 最后这个，这个女人太懂了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lovcavil  
 ##### 6228#       发表于 2020-12-20 21:47
@@ -2211,7 +2211,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 本来想憋到live结束就放开喷人 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 6229#       发表于 2020-12-20 21:48
@@ -2220,7 +2220,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 我看到有几个日本人刷 今日は世界１幸せです 是洋葱色的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JustW  
 ##### 6230#       发表于 2020-12-20 21:48
@@ -2229,7 +2229,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 的确是了却了一桩心事的感觉，人也燃尽了
 
 
------
+*****
 
 ####  LIPP  
 ##### 6231#       发表于 2020-12-20 21:48
@@ -2238,7 +2238,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">希望你的执念能带你去东蛋
 
 
------
+*****
 
 ####  A-Wie  
 ##### 6232#       发表于 2020-12-20 21:49
@@ -2247,7 +2247,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 希望你一直都是世界第一幸福的女孩
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6233#       发表于 2020-12-20 21:50
@@ -2256,7 +2256,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 不甘心啊，还是想线下给她挥荧光棒啊，明明可以更幸福的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千里夜雨  
 ##### 6234#       发表于 2020-12-20 21:51
@@ -2269,7 +2269,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 虽然大概体会不到想去现场的心情吧。
 
 
------
+*****
 
 ####  2111X  
 ##### 6235#       发表于 2020-12-20 21:52
@@ -2278,7 +2278,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 有没有s1小故事环节？等好久了。官组快上餐后甜点<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6236#       发表于 2020-12-20 21:52
@@ -2287,7 +2287,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 结束了，是时候选出今晚最佳羊腿了！我选极光咩
 
 
------
+*****
 
 ####  灬神丨龟灬  
 ##### 6237#       发表于 2020-12-20 21:52
@@ -2296,7 +2296,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 好耶，圆满落幕喽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6238#       发表于 2020-12-20 21:53
@@ -2305,7 +2305,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 不甘心啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6239#       发表于 2020-12-20 21:53
@@ -2314,7 +2314,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 当然是麻腿了，今天应该是满身大汗的吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6240#       发表于 2020-12-20 21:53
@@ -2333,7 +2333,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 该远行了
 
 
------
+*****
 
 ####  Cortana  
 ##### 6241#       发表于 2020-12-20 21:54
@@ -2342,7 +2342,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 知足常乐，知足常乐
 
 
------
+*****
 
 ####  冬瓜饭  
 ##### 6242#       发表于 2020-12-20 21:55
@@ -2354,7 +2354,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 羊腿就要有肉啊，极光咩太瘦了，还是草莓咩的腿好
 
 
------
+*****
 
 ####  我想做mkm的舔狗  
 ##### 6243#       发表于 2020-12-20 21:56
@@ -2378,7 +2378,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 查看全部评分
 
 
------
+*****
 
 ####  Kayz996  
 ##### 6244#       发表于 2020-12-20 21:57
@@ -2387,7 +2387,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不见了
 
 
------
+*****
 
 ####  dent  
 ##### 6245#       发表于 2020-12-20 21:57
@@ -2396,7 +2396,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这种尘埃落地的感觉是怎么回事
 
 
------
+*****
 
 ####  追风小星星  
 ##### 6246#       发表于 2020-12-20 21:58
@@ -2405,7 +2405,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer"> 翻开新一页了,你我都该成长了
 
 
------
+*****
 
 ####  2111X  
 ##### 6247#       发表于 2020-12-20 22:00
@@ -2414,7 +2414,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 这事还没完呢，我要小故事<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  呓亘  
 ##### 6248#       发表于 2020-12-20 22:01
@@ -2423,7 +2423,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 懂哥小故事呢
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6249#       发表于 2020-12-20 22:01
@@ -2432,7 +2432,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 有懂哥故事会吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6250#       发表于 2020-12-20 22:03
@@ -2445,7 +2445,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 尘埃落定倒没有，挺五味杂陈的，有点不甘
 
 
------
+*****
 
 ####  planetcd  
 ##### 6251#       发表于 2020-12-20 22:04
@@ -2454,7 +2454,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">两年了
 
 
------
+*****
 
 ####  Ky·Kiske  
 ##### 6252#       发表于 2020-12-20 22:06
@@ -2466,7 +2466,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 这一地鸡毛我没心情看了
 
 
------
+*****
 
 ####  青春银河  
 ##### 6253#       发表于 2020-12-20 22:07
@@ -2475,7 +2475,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 好帅好美好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JustW  
 ##### 6254#       发表于 2020-12-20 22:09
@@ -2484,7 +2484,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">录屏中间有一瞬间露了我的百度网盘界面，而且我还想不起来是什么时候了，算了，等别人放录屏吧
 
 
------
+*****
 
 ####  elect  
 ##### 6255#       发表于 2020-12-20 22:09
@@ -2493,7 +2493,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 找个时间再回顾一遍<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6256#       发表于 2020-12-20 22:17
@@ -2502,7 +2502,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 夢じゃないや。
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6257#       发表于 2020-12-20 22:18
@@ -2518,7 +2518,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 2020-12-20 22:18 上传
 
 
------
+*****
 
 ####  dent  
 ##### 6258#       发表于 2020-12-20 22:19
@@ -2553,7 +2553,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 查看全部评分
 
 
------
+*****
 
 ####  295405468  
 ##### 6259#       发表于 2020-12-20 22:21
@@ -2562,7 +2562,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 草 小故事挺有趣 
 
 
------
+*****
 
 ####  dent  
 ##### 6260#       发表于 2020-12-20 22:22
@@ -2571,7 +2571,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你们别引用别截图，等会我得编辑掉
 
 
------
+*****
 
 ####  呓亘  
 ##### 6261#       发表于 2020-12-20 22:22
@@ -2580,7 +2580,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 啊...这...
 
 
------
+*****
 
 ####  clvan_  
 ##### 6262#       发表于 2020-12-20 22:23
@@ -2589,7 +2589,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 这就是性情中人吗，唉
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6263#       发表于 2020-12-20 22:23
@@ -2598,7 +2598,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 是真的，红粉是真的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6264#       发表于 2020-12-20 22:24
@@ -2607,7 +2607,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6265#       发表于 2020-12-20 22:24
@@ -2616,7 +2616,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 差不多能想象出来
 
 
------
+*****
 
 ####  追风小星星  
 ##### 6266#       发表于 2020-12-20 22:25
@@ -2625,7 +2625,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 6267#       发表于 2020-12-20 22:25
@@ -2634,7 +2634,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">唉，就，心情复杂，说不出话
 
 
------
+*****
 
 ####  physi1202  
 ##### 6268#       发表于 2020-12-20 22:25
@@ -2643,7 +2643,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shichimiya  
 ##### 6269#       发表于 2020-12-20 22:25
@@ -2652,7 +2652,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 太真了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  缺陷电气杨永信  
 ##### 6270#       发表于 2020-12-20 22:25
@@ -2661,7 +2661,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6271#       发表于 2020-12-20 22:26
@@ -2670,7 +2670,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 进击的mea第三季 完
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6272#       发表于 2020-12-20 22:26
@@ -2679,7 +2679,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 其实还是能想到的，不然不会有狗出来咬她
 
 
------
+*****
 
 ####  呓亘  
 ##### 6273#       发表于 2020-12-20 22:26
@@ -2688,7 +2688,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 你咩真有百合片女主那味了...
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6274#       发表于 2020-12-20 22:26
@@ -2697,7 +2697,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 信则有不信则无<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，我比较关心麻 麻明天播不播
 
 
------
+*****
 
 ####  某不知名的路人  
 ##### 6275#       发表于 2020-12-20 22:27
@@ -2706,7 +2706,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我差点就信了
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6276#       发表于 2020-12-20 22:27
@@ -2715,7 +2715,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 傻口yhm<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  呓亘  
 ##### 6277#       发表于 2020-12-20 22:28
@@ -2724,7 +2724,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 唉 只能说太不理智了 虽然重感情这点我挺喜欢的
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6278#       发表于 2020-12-20 22:28
@@ -2733,7 +2733,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 能破她防的只有粉丝和夸了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fsfs_freeze  
 ##### 6279#       发表于 2020-12-20 22:28
@@ -2742,7 +2742,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6280#       发表于 2020-12-20 22:29
@@ -2751,7 +2751,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 别车了，又不一定就全是真的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，某人已死，享受小麻不好吗，我那天破防成这样都看开了
 
 
------
+*****
 
 ####  elect  
 ##### 6281#       发表于 2020-12-20 22:30
@@ -2760,7 +2760,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 她怎么这么好，人如果能有这么个朋友，也是幸运啊
 
 
------
+*****
 
 ####  dent  
 ##### 6282#       发表于 2020-12-20 22:30
@@ -2773,7 +2773,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 而且今晚是她自己的节日，无关的人物和过去的事情不提也罢
 
 
------
+*****
 
 ####  Unlimited290  
 ##### 6283#       发表于 2020-12-20 22:30
@@ -2782,7 +2782,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 哪来的六字母傻狗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  青春银河  
 ##### 6284#       发表于 2020-12-20 22:31
@@ -2791,7 +2791,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 也不用吵吧，都过去的事了
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6285#       发表于 2020-12-20 22:32
@@ -2800,7 +2800,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 暗黑贴贴人赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6286#       发表于 2020-12-20 22:32
@@ -2811,7 +2811,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 在想怎么打扮能吸引她注意力
 
 
------
+*****
 
 ####  路人庚  
 ##### 6287#       发表于 2020-12-20 22:33
@@ -2820,7 +2820,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 想吵也支持，不过希望能把各自知道的情报都放出来，当然如果觉得自己掌握的情报还不能公开，只是为了发泄情绪的话就算了
 
 
------
+*****
 
 ####  lunachild  
 ##### 6288#       发表于 2020-12-20 22:33
@@ -2829,7 +2829,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 高情商:有考虑做贴贴粉头吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6289#       发表于 2020-12-20 22:34
@@ -2838,7 +2838,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 买一件bl痛衣或者装扮成精致女粉，抽选概率upup<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 6290#       发表于 2020-12-20 22:35
@@ -2848,7 +2848,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 太有趣的人了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6291#       发表于 2020-12-20 22:37
@@ -2857,7 +2857,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 来个她最喜欢的BL漫画名称 我整件痛T上去
 
 
------
+*****
 
 ####  笋狐  
 ##### 6292#       发表于 2020-12-20 22:38
@@ -2871,7 +2871,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来晚了没康到，懂哥能私我一下编辑了啥吗偶内盖（好奇心
 
 
------
+*****
 
 ####  dent  
 ##### 6293#       发表于 2020-12-20 22:39
@@ -2882,7 +2882,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 至于有些事情，相信自己坚信的就好了，反正都过去了
 
 
------
+*****
 
 ####  草牛  
 ##### 6294#       发表于 2020-12-20 22:40
@@ -2893,7 +2893,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 我觉得你咩姐还是最适合综艺，契合度太高了
 
 
------
+*****
 
 ####  シオン诗音  
 ##### 6295#       发表于 2020-12-20 22:40
@@ -2904,7 +2904,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  2111X  
 ##### 6296#       发表于 2020-12-20 22:43
@@ -2913,7 +2913,7 @@ B站监修的几首新曲比她自己做的耐听多了，草莓果酱太腻了
 hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6297#       发表于 2020-12-20 22:43
@@ -2935,7 +2935,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 ファンがいつか1人になっても
 
 
------
+*****
 
 ####  aisakahammer  
 ##### 6298#       发表于 2020-12-20 22:45
@@ -2944,7 +2944,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
   差不多圆满了 放心成佛.jpg
 
 
------
+*****
 
 ####  若风之景  
 ##### 6299#       发表于 2020-12-20 22:47
@@ -2955,7 +2955,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 —— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  ashero  
 ##### 6300#       发表于 2020-12-20 22:53
@@ -2974,7 +2974,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 舞台负责和七首歌编舞 觉得跳舞不像她那是因为有编舞
 
 
------
+*****
 
 ####  呓亘  
 ##### 6301#       发表于 2020-12-20 22:53
@@ -2983,7 +2983,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 快快成长起来吧 我的小丫头 希望还能有一天看见你在舞台上蹦蹦跳跳的样子 
 
 
------
+*****
 
 ####  奇拉奇拉  
 ##### 6302#       发表于 2020-12-20 22:54
@@ -2994,7 +2994,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lunachild  
 ##### 6303#       发表于 2020-12-20 22:54
@@ -3003,7 +3003,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 什么叫做跳舞不像她，难不成还见过以前的她跳舞<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ashero  
 ##### 6304#       发表于 2020-12-20 22:57
@@ -3015,7 +3015,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看到有个说跳舞小动作不像她说是录播的 我也很莫名 录播都渲染成这鬼样我想锤死啊批了
 
 
------
+*****
 
 ####  elect  
 ##### 6305#       发表于 2020-12-20 22:57
@@ -3024,7 +3024,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 822fmt还是做过几套广播体操的
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 6306#       发表于 2020-12-20 22:59
@@ -3037,7 +3037,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 好奇她到底哪来的时间去学的舞蹈，这也太能扭了吧，莫非是看一遍就会的跳舞奇才？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 6307#       发表于 2020-12-20 23:00
@@ -3054,7 +3054,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 基本可以想象在场任何一个嘉宾遇到这种事，她的做法都不会有太大变动，只有受伤程度的大小罢了。 <blockquote>未熟 无ジョウ されど 美しくあれ</blockquote>
 
 
------
+*****
 
 ####  ashero  
 ##### 6308#       发表于 2020-12-20 23:05
@@ -3076,7 +3076,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 上次惊艳到我的是 炎和金合欢 第一次唱full combo 这人也不是天才 说明私下练得很多 
 
 
------
+*****
 
 ####  草牛  
 ##### 6309#       发表于 2020-12-20 23:07
@@ -3085,7 +3085,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是愣头青呗，处事不冷静也不圆滑，我们这刚毕业的学生不少都有这毛病，硬的不行，吃几次亏就好了，不过我知道你们不少人就好这一口，青少年特有的精气神
 
 
------
+*****
 
 ####  路人庚  
 ##### 6310#       发表于 2020-12-20 23:11
@@ -3097,7 +3097,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 虽然这句话是正确的，但不一定是对的（卫宫士郎饼干）
 
 
------
+*****
 
 ####  Cortana  
 ##### 6311#       发表于 2020-12-20 23:12
@@ -3106,7 +3106,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 如果一直硬下去的话……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6312#       发表于 2020-12-20 23:12
@@ -3117,7 +3117,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 你麻从来都是遇强则强，正经场合你见过她拉胯的离谱过么？
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 6313#       发表于 2020-12-20 23:13
@@ -3126,7 +3126,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  planetcd  
 ##### 6314#       发表于 2020-12-20 23:13
@@ -3135,7 +3135,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">年纪大了活得功利了，才羡慕起她年轻的样子
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6315#       发表于 2020-12-20 23:14
@@ -3144,7 +3144,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 楼友平均年龄再评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elect  
 ##### 6316#       发表于 2020-12-20 23:15
@@ -3153,7 +3153,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 你们不会都是叔叔吧.jpg
 
 
------
+*****
 
 ####  路人庚  
 ##### 6317#       发表于 2020-12-20 23:15
@@ -3162,7 +3162,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 如果一直硬下去的话，那么“ファンがいつか1人になって”的那天也不会远了
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6318#       发表于 2020-12-20 23:17
@@ -3174,7 +3174,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 [https://b23.tv/mbNya4](https://b23.tv/mbNya4)
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 6319#       发表于 2020-12-20 23:17
@@ -3193,7 +3193,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 像流星一般的生存方式————星川莎拉
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6320#       发表于 2020-12-20 23:19
@@ -3202,7 +3202,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 大家，都会发病啊.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  离心  
 ##### 6321#       发表于 2020-12-20 23:20
@@ -3211,7 +3211,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 想一直陪着她……看她到底会成为这样的人。是保持现在的无论遇到什么挫折都依然站起来的不死鸟，还是被苔姨同化成为一个卑鄙的大人。
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 6322#       发表于 2020-12-20 23:22
@@ -3220,7 +3220,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  静夜观星  
 ##### 6323#       发表于 2020-12-20 23:23
@@ -3230,7 +3230,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 勝者の時代に　何処で息を吸う
 
 
------
+*****
 
 ####  DDWarrior  
 ##### 6324#       发表于 2020-12-20 23:26
@@ -3239,7 +3239,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">有好心人能私信我一下没看见的内容吗
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6325#       发表于 2020-12-20 23:27
@@ -3248,7 +3248,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 見えない世界に色をつける声は僕だ<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6326#       发表于 2020-12-20 23:29
@@ -3263,7 +3263,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 “不能再像小时候那样任性了”
 
 
------
+*****
 
 ####  JY要塞  
 ##### 6327#       发表于 2020-12-20 23:29
@@ -3272,7 +3272,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克民又该总结情报了
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 6328#       发表于 2020-12-20 23:31
@@ -3281,7 +3281,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 能不能阳光一点啊，感想都这么沉重，s1都是坦克民<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  草牛  
 ##### 6329#       发表于 2020-12-20 23:33
@@ -3290,7 +3290,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏消息是叉腰穿模，好消息是骨架确实大，说不定很重
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6330#       发表于 2020-12-20 23:34
@@ -3299,7 +3299,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 模型那么细的腰都可以穿模还有什么好说的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6331#       发表于 2020-12-20 23:34
@@ -3335,7 +3335,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 2020-12-20 23:34 上传
 
 
------
+*****
 
 ####  我想做mkm的舔狗  
 ##### 6332#       发表于 2020-12-20 23:38
@@ -3344,7 +3344,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 咩咩，我可爱的咩咩，今晚梦中会见到你吗？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 6333#       发表于 2020-12-20 23:39
@@ -3353,7 +3353,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 看样子到家了，等到12点看看有无直播
 
 
------
+*****
 
 ####  jhouo8989  
 ##### 6334#       发表于 2020-12-20 23:52
@@ -3362,7 +3362,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 都累坏了，肯定洗洗睡
 
 
------
+*****
 
 ####  elect  
 ##### 6335#       发表于 2020-12-21 00:05
@@ -3371,7 +3371,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 群里看到极光3D有张胸穿模了，平板民又活了
 
 
------
+*****
 
 ####  追风小星星  
 ##### 6336#       发表于 2020-12-21 00:07
@@ -3380,7 +3380,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 那个模型,不穿模的都是怪物了
 
 
------
+*****
 
 ####  azccc52  
 ##### 6337#       发表于 2020-12-21 00:14
@@ -3389,7 +3389,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 说不定是细腰大屁股，坦克民还有希望<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6338#       发表于 2020-12-21 00:17
@@ -3398,7 +3398,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 你麻还能是葫芦身材？
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 6339#       发表于 2020-12-21 00:18
@@ -3409,7 +3409,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 那我也是坦克民了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6340#       发表于 2020-12-21 00:23
@@ -3420,7 +3420,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  vorastrix  
 ##### 6341#       发表于 2020-12-21 04:10
@@ -3431,7 +3431,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 — from HUAWEI LIO-AN00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6342#       发表于 2020-12-21 07:52
@@ -3444,7 +3444,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 同好会在压了，原来录的有10g
 
 
------
+*****
 
 ####  yywzjsw  
 ##### 6343#       发表于 2020-12-21 09:39
@@ -3453,7 +3453,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 求个云盘录播
 
 
------
+*****
 
 ####  sw11133  
 ##### 6344#       发表于 2020-12-21 10:47
@@ -3464,7 +3464,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 也不错
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 6345#       发表于 2020-12-21 11:06
@@ -3475,7 +3475,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 也就身材高挑这点石锤了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elect  
 ##### 6346#       发表于 2020-12-21 11:47
@@ -3484,7 +3484,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 昨天梦到小麻的live工作场地现场，有几个男staff长的还挺帅，坏了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6347#       发表于 2020-12-21 11:49
@@ -3497,7 +3497,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 来点录播，戒断了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6348#       发表于 2020-12-21 12:06
@@ -3506,7 +3506,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 麻杆民，站起来<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6349#       发表于 2020-12-21 12:22
@@ -3515,7 +3515,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 认真看live的就知道，动捕的手比实际的长，看拍手，双手互穿就知道了，坦克民没输
 
 
------
+*****
 
 ####  JY要塞  
 ##### 6350#       发表于 2020-12-21 12:31
@@ -3524,7 +3524,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一定是模型整体都大了，掩盖住了90/90/90
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6351#       发表于 2020-12-21 12:34
@@ -3533,7 +3533,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 你麻也喜欢穿大号宽松的debu衣服，对上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6352#       发表于 2020-12-21 12:38
@@ -3542,7 +3542,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 大号宽松衣服不只有debu爱穿啊 我体型偏瘦也爱穿大一号的衣服 垮在身上体感跟没穿衣服一样 可舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  呓亘  
 ##### 6353#       发表于 2020-12-21 12:44
@@ -3551,7 +3551,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 没穿衣服 hso
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6354#       发表于 2020-12-21 12:56
@@ -3560,7 +3560,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 看本子就喜欢贫乳穿宽松衣服弯腰的画面。
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6355#       发表于 2020-12-21 15:45
@@ -3569,7 +3569,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 前阵子不还兴画那个什么平板海滩挑战来着
 
 
------
+*****
 
 ####  JY要塞  
 ##### 6356#       发表于 2020-12-21 15:45
@@ -3578,7 +3578,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">然后你会看到小肚腩
 
 
------
+*****
 
 ####  physi1202  
 ##### 6357#       发表于 2020-12-21 17:04
@@ -3587,7 +3587,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">enako竟然回了
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6358#       发表于 2020-12-21 17:14
@@ -3596,7 +3596,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 建筑王舔狗
 
 
------
+*****
 
 ####  jhouo8989  
 ##### 6359#       发表于 2020-12-21 17:16
@@ -3605,7 +3605,7 @@ hOLY hSiT 没看到，求私<img src="https://static.saraba1st.com/image/smiley/
 enako作为曾经的小肥婆回复一下现任小肥婆是很合理的
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 6360#       发表于 2020-12-21 17:27
@@ -3616,7 +3616,7 @@ enako作为曾经的小肥婆回复一下现任小肥婆是很合理的
 1
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6361#       发表于 2020-12-21 17:40
@@ -3627,7 +3627,7 @@ enako作为曾经的小肥婆回复一下现任小肥婆是很合理的
 少说点这种aoe话<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6362#       发表于 2020-12-21 17:51
@@ -3640,7 +3640,7 @@ enako作为曾经的小肥婆回复一下现任小肥婆是很合理的
 syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 6363#       发表于 2020-12-21 18:08
@@ -3649,7 +3649,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 春风说话不过脑子又不是第一次了，屏蔽就好
 
 
------
+*****
 
 ####  jhouo8989  
 ##### 6364#       发表于 2020-12-21 19:11
@@ -3658,7 +3658,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 惊了，彩虹周报里竟然有mea，就是尼哥主持的那场联动
 
 
------
+*****
 
 ####  呓亘  
 ##### 6365#       发表于 2020-12-21 19:12
@@ -3667,7 +3667,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 春风发什么神经呢？
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6366#       发表于 2020-12-21 19:14
@@ -3676,7 +3676,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 春风nt也不是一天两天的了
 
 
------
+*****
 
 ####  IDIDIDIDID  
 ##### 6367#       发表于 2020-12-21 20:37
@@ -3685,7 +3685,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 录播。。录播有了吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 6368#       发表于 2020-12-21 20:43
@@ -3694,7 +3694,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 同求，可以提供门票截图<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ashero  
 ##### 6369#       发表于 2020-12-21 20:45
@@ -3706,7 +3706,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">好 时 代
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6370#       发表于 2020-12-21 21:01
@@ -3715,7 +3715,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 其实以前就上过一次的，和爱丽丝双人还是多人哪次记不得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 6371#       发表于 2020-12-21 21:12
@@ -3724,7 +3724,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 下午喝醉了 我家养的mea跑来挠键盘 请当无事发生
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6372#       发表于 2020-12-21 21:13
@@ -3737,7 +3737,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 有的请私信个链接谢谢。
 
 
------
+*****
 
 ####  时雨rain  
 ##### 6373#       发表于 2020-12-21 21:37
@@ -3750,7 +3750,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 一直都在说好话呜呜呜呜，别吹力
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6374#       发表于 2020-12-21 21:46
@@ -3759,7 +3759,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 看到有人说mea跑去小绿评论区了 说好的睡觉呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6375#       发表于 2020-12-21 21:47
@@ -3768,7 +3768,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 说好不播，我信她<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6376#       发表于 2020-12-21 21:52
@@ -3780,7 +3780,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">一说到咩宝立刻就出现了 
 
 
------
+*****
 
 ####  呓亘  
 ##### 6377#       发表于 2020-12-21 21:55
@@ -3789,7 +3789,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 主播起夜时发的弹幕
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6378#       发表于 2020-12-21 21:58
@@ -3798,7 +3798,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 小绿草，我还以为去tc了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6379#       发表于 2020-12-21 22:20
@@ -3810,7 +3810,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 咩宝不会也用通知机吧 监控有没有liver提到自己<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ashero  
 ##### 6380#       发表于 2020-12-21 22:31
@@ -3822,7 +3822,7 @@ syl，傻逼楼友又在说什么东西<img src="https://static.saraba1st.com/im
 fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如月前面在聊anmr的live
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6381#       发表于 2020-12-21 22:41
@@ -3831,7 +3831,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 又复盘了一遍，最后世界第一幸福的咩咩还是没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6382#       发表于 2020-12-21 22:59
@@ -3874,7 +3874,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 查看全部评分
 
 
------
+*****
 
 ####  vorastrix  
 ##### 6383#       发表于 2020-12-21 23:33
@@ -3886,7 +3886,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 请问同好会发布在哪儿？
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 6384#       发表于 2020-12-22 00:02
@@ -3918,7 +3918,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 查看全部评分
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6385#       发表于 2020-12-22 00:30
@@ -3948,7 +3948,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 2020-12-22 00:29 上传
 
 
------
+*****
 
 ####  yuanhang99  
 ##### 6386#       发表于 2020-12-22 00:32
@@ -3957,7 +3957,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 要是能放几个短片上官号就好了，流量点击粉丝都有的赚。毕竟效果很好，还是希望能有路人看一看的。
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 6387#       发表于 2020-12-22 00:39
@@ -3968,7 +3968,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 算了 事业民不得**<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 6388#       发表于 2020-12-22 00:44
@@ -3977,7 +3977,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 事业民赶紧去看看这几个月的数据对比，然后自己把棺材盖合上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 6389#       发表于 2020-12-22 00:47
@@ -4004,7 +4004,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 查看全部评分
 
 
------
+*****
 
 ####  elect  
 ##### 6390#       发表于 2020-12-22 00:57
@@ -4013,7 +4013,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 爱丽丝的小眼神太有意思了
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6391#       发表于 2020-12-22 01:00
@@ -4024,7 +4024,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 能切个片涨涨粉就好了
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6392#       发表于 2020-12-22 01:07
@@ -4037,7 +4037,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 不知道有没有解禁这么一说。
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6393#       发表于 2020-12-22 01:08
@@ -4057,7 +4057,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 2020-12-22 03:06 上传
 
 
------
+*****
 
 ####  yuanhang99  
 ##### 6394#       发表于 2020-12-22 01:40
@@ -4066,7 +4066,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 看完木口live之后你咩的BLS已经不是不错而是惊为天人了。没有对比没有伤害。
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 6395#       发表于 2020-12-22 02:12
@@ -4078,7 +4078,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 这波一眼看去猴楼只配住地下室
 
 
------
+*****
 
 ####  シオン诗音  
 ##### 6396#       发表于 2020-12-22 08:34
@@ -4087,7 +4087,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么楼友都看猴楼辣舞的，我还没看
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6397#       发表于 2020-12-22 08:50
@@ -4099,7 +4099,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 准确来说是狂气色气兼具
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6398#       发表于 2020-12-22 09:25
@@ -4108,7 +4108,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 我喜欢太妹蹲
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6399#       发表于 2020-12-22 09:27
@@ -4117,7 +4117,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 我喜欢螃蟹
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 6400#       发表于 2020-12-22 09:43
@@ -4126,7 +4126,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 还是那段变身最有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  蔵女  
 ##### 6401#       发表于 2020-12-22 10:07
@@ -4135,7 +4135,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 能别提木口不，bls这场的流程我看的还是挺舒服的
 
 
------
+*****
 
 ####  蔵女  
 ##### 6402#       发表于 2020-12-22 10:07
@@ -4144,7 +4144,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 能别提木口不，bls这场的流程我看的还是挺舒服的
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6403#       发表于 2020-12-22 10:25
@@ -4167,7 +4167,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 <img src="https://img.saraba1st.com/forum/202012/22/102506kosippsocfd0sdde.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  シオン诗音  
 ##### 6404#       发表于 2020-12-22 10:37
@@ -4178,7 +4178,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lll447  
 ##### 6405#       发表于 2020-12-22 10:46
@@ -4187,7 +4187,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 有没有有能man录个nico弹幕版的，想看看太君的反应
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 6406#       发表于 2020-12-22 11:48
@@ -4196,7 +4196,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">还想看她多多的3d演唱会
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6407#       发表于 2020-12-22 11:51
@@ -4205,7 +4205,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 不要木口不要木口，一想到到某人跟其它女人在一起的场面就恶心<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6408#       发表于 2020-12-22 12:26
@@ -4218,7 +4218,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 就很气
 
 
------
+*****
 
 ####  WhiteAvalon  
 ##### 6409#       发表于 2020-12-22 12:42
@@ -4227,7 +4227,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 只开线上效果较同类来说已经很好了，只怪p站作，承诺线下结果又是延期又是日方技术拉胯，嘉宾和观众当猴耍，当初只有线上也好
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6410#       发表于 2020-12-22 12:50
@@ -4240,7 +4240,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  clvan_  
 ##### 6411#       发表于 2020-12-22 12:51
@@ -4249,7 +4249,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 25号中午黄兔子四人组经典桃铁
 
 
------
+*****
 
 ####  elect  
 ##### 6412#       发表于 2020-12-22 13:24
@@ -4258,7 +4258,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 25号咩宝好忙啊
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6413#       发表于 2020-12-22 13:43
@@ -4270,7 +4270,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 要被咩宝塞满了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6414#       发表于 2020-12-22 13:53
@@ -4279,7 +4279,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 所以现在25号有哪些预订来着？中午桃铁，下午苔苔（播片），晚上圭利？还是有单人播的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pei23333  
 ##### 6415#       发表于 2020-12-22 14:03
@@ -4290,7 +4290,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6416#       发表于 2020-12-22 14:52
@@ -4320,7 +4320,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 2020-12-22 14:52 上传
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6417#       发表于 2020-12-22 15:54
@@ -4329,7 +4329,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 好好珍惜最近的多播，后面要6天看不到她了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6418#       发表于 2020-12-22 15:59
@@ -4338,7 +4338,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">能别提这种痛苦的事情
 
 
------
+*****
 
 ####  草牛  
 ##### 6419#       发表于 2020-12-22 16:01
@@ -4350,7 +4350,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 <img src="https://wx3.sinaimg.cn/mw690/0075zBXrly1glwp5xlvnug30dc07i7wh.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  呓亘  
 ##### 6420#       发表于 2020-12-22 16:05
@@ -4359,7 +4359,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 今天404 明天B限
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6421#       发表于 2020-12-22 16:05
@@ -4368,7 +4368,7 @@ fleet之前发了偷瞄 估计一直都在看如月 聊到自己才冒出来 如
 tc，就算六天不播，tc总是有的吧！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  planetcd  
 ##### 6422#       发表于 2020-12-22 16:18
@@ -4377,7 +4377,7 @@ tc，就算六天不播，tc总是有的吧！<img src="https://static.saraba1st
 为什么平安夜不播<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 6423#       发表于 2020-12-22 16:23
@@ -4386,7 +4386,7 @@ tc，就算六天不播，tc总是有的吧！<img src="https://static.saraba1st
 miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6424#       发表于 2020-12-22 17:15
@@ -4395,7 +4395,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  某不知名的路人  
 ##### 6425#       发表于 2020-12-22 17:17
@@ -4404,7 +4404,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 可能是要补偿fanbox（
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6426#       发表于 2020-12-22 17:35
@@ -4413,7 +4413,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 小麻平安夜别搞太晚<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6427#       发表于 2020-12-22 17:36
@@ -4422,7 +4422,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6428#       发表于 2020-12-22 17:51
@@ -4431,7 +4431,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">能不能25号凌晨听到疲惫的TC手机播
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 6429#       发表于 2020-12-22 18:18
@@ -4443,7 +4443,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 有没有消息
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6430#       发表于 2020-12-22 18:39
@@ -4452,7 +4452,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 明天六点B限
 
 
------
+*****
 
 ####  KL25001  
 ##### 6431#       发表于 2020-12-22 19:04
@@ -4465,7 +4465,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 油管会员社区留一周，这样就不会被油管AIgank了么
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6432#       发表于 2020-12-22 19:19
@@ -4476,7 +4476,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 咩啊，自己的財布圣诞节没看直播的话，干什么去了这种事，要自己察觉啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6433#       发表于 2020-12-22 19:23
@@ -4489,7 +4489,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 不是在挣钱吗
 
 
------
+*****
 
 ####  菊花战士  
 ##### 6434#       发表于 2020-12-22 19:29
@@ -4498,7 +4498,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">可不要喘着气播tc啊
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6435#       发表于 2020-12-22 19:30
@@ -4510,7 +4510,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 当然是出去玩了 谁要上班啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6436#       发表于 2020-12-22 19:32
@@ -4522,7 +4522,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 喘气hso 小麻的娇喘asmr<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6437#       发表于 2020-12-22 19:33
@@ -4531,7 +4531,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 啊啊啊啊娇喘asmr啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  htgz111  
 ##### 6438#       发表于 2020-12-22 20:13
@@ -4542,7 +4542,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  elect  
 ##### 6439#       发表于 2020-12-22 20:18
@@ -4551,7 +4551,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 唉，沉迷live录播无法自拔
 
 
------
+*****
 
 ####  gzhao01  
 ##### 6440#       发表于 2020-12-22 21:10
@@ -4560,7 +4560,7 @@ miu: ，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" re
 live有人有弹幕文件吗
 
 
------
+*****
 
 ####  依旧ing  
 ##### 6441#       发表于 2020-12-22 21:21
@@ -4571,7 +4571,7 @@ live有人有弹幕文件吗
 —— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  sw11133  
 ##### 6442#       发表于 2020-12-22 22:07
@@ -4580,7 +4580,7 @@ live有人有弹幕文件吗
 开了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6443#       发表于 2020-12-22 22:14
@@ -4590,7 +4590,7 @@ live有人有弹幕文件吗
 她可以治愈坏心情
 
 
------
+*****
 
 ####  KL25001  
 ##### 6444#       发表于 2020-12-22 22:21
@@ -4601,7 +4601,7 @@ live有人有弹幕文件吗
 您还有这技能呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6445#       发表于 2020-12-22 22:33
@@ -4612,7 +4612,7 @@ live有人有弹幕文件吗
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  KL25001  
 ##### 6446#       发表于 2020-12-22 22:35
@@ -4627,7 +4627,7 @@ live有人有弹幕文件吗
 看来和圭力的企划有活啊，期待一下
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6447#       发表于 2020-12-22 22:37
@@ -4636,7 +4636,7 @@ live有人有弹幕文件吗
 尼哥联动我急了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6448#       发表于 2020-12-22 22:37
@@ -4645,7 +4645,7 @@ live有人有弹幕文件吗
 又要和圭利整大活了啊
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6449#       发表于 2020-12-22 22:41
@@ -4654,7 +4654,7 @@ live有人有弹幕文件吗
 别整烂活就行<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6450#       发表于 2020-12-22 22:43
@@ -4663,7 +4663,7 @@ live有人有弹幕文件吗
 圆脸，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  草牛  
 ##### 6451#       发表于 2020-12-22 22:44
@@ -4672,7 +4672,7 @@ live有人有弹幕文件吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">坦起来了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6452#       发表于 2020-12-22 22:54
@@ -4681,7 +4681,7 @@ live有人有弹幕文件吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JY要塞  
 ##### 6453#       发表于 2020-12-22 22:58
@@ -4690,7 +4690,7 @@ live有人有弹幕文件吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">坦克民又赢了
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6454#       发表于 2020-12-22 22:58
@@ -4699,7 +4699,7 @@ live有人有弹幕文件吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6455#       发表于 2020-12-22 23:01
@@ -4739,7 +4739,7 @@ live有人有弹幕文件吗
 查看全部评分
 
 
------
+*****
 
 ####  sw11133  
 ##### 6456#       发表于 2020-12-22 23:06
@@ -4752,7 +4752,7 @@ live有人有弹幕文件吗
 mea怎么回事，怎么一瞬间变强了
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6457#       发表于 2020-12-22 23:09
@@ -4761,7 +4761,7 @@ mea怎么回事，怎么一瞬间变强了
 玩起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6458#       发表于 2020-12-22 23:17
@@ -4770,7 +4770,7 @@ mea怎么回事，怎么一瞬间变强了
 啊，怪物那边还是拉跨了
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6459#       发表于 2020-12-22 23:22
@@ -4829,7 +4829,7 @@ live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努�
 查看全部评分
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6460#       发表于 2020-12-22 23:23
@@ -4848,7 +4848,7 @@ live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努�
 来了来了
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6461#       发表于 2020-12-22 23:26
@@ -4857,7 +4857,7 @@ live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努�
 没滤镜，不挡脸，不对不对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KL25001  
 ##### 6462#       发表于 2020-12-22 23:51
@@ -4866,7 +4866,7 @@ live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努�
 うえ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6463#       发表于 2020-12-22 23:52
@@ -4875,7 +4875,7 @@ live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努�
 从前就觉得这个拟声词真的洗 脑而且很莫名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  2111X  
 ##### 6464#       发表于 2020-12-23 00:16
@@ -4884,7 +4884,7 @@ live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努�
 竟然要留档了，感动<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6465#       发表于 2020-12-23 00:32
@@ -4893,7 +4893,7 @@ live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努�
 小麻今天好开心<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ashero  
 ##### 6466#       发表于 2020-12-23 00:49
@@ -4905,7 +4905,7 @@ live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努�
 有个sl打了两千刀 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KL25001  
 ##### 6467#       发表于 2020-12-23 00:55
@@ -4914,7 +4914,7 @@ live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努�
 ”搞错了“好萌啊这下播
 
 
------
+*****
 
 ####  棉花怪  
 ##### 6468#       发表于 2020-12-23 01:01
@@ -4924,7 +4924,7 @@ live很开心 下次的话 后年 后后年再说吧 明年就太饱了啦~ 努�
 <img src="https://p.sda1.dev/0/834b565a025c849bd076f4480317754d/IMG_CMP_245751590.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6469#       发表于 2020-12-23 01:16
@@ -4973,7 +4973,7 @@ niconico的回放跳过去弹幕会不会一起跳过去来着？唱歌的时候
 查看全部评分
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6470#       发表于 2020-12-23 01:40
@@ -4984,7 +4984,7 @@ niconico的回放跳过去弹幕会不会一起跳过去来着？唱歌的时候
 丝滑流畅
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6471#       发表于 2020-12-23 07:23
@@ -4993,7 +4993,7 @@ niconico的回放跳过去弹幕会不会一起跳过去来着？唱歌的时候
 皮gachi急了，不要新l2d好不好，你开个眼捕就行<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elect  
 ##### 6472#       发表于 2020-12-23 13:33
@@ -5002,7 +5002,7 @@ niconico的回放跳过去弹幕会不会一起跳过去来着？唱歌的时候
 呜呜，memory真好听
 
 
------
+*****
 
 ####  fsfs_freeze  
 ##### 6473#       发表于 2020-12-23 13:58
@@ -5011,7 +5011,7 @@ niconico的回放跳过去弹幕会不会一起跳过去来着？唱歌的时候
 话说bls的原创曲会单独发出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6474#       发表于 2020-12-23 15:00
@@ -5020,7 +5020,7 @@ niconico的回放跳过去弹幕会不会一起跳过去来着？唱歌的时候
 TC播
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6475#       发表于 2020-12-23 15:31
@@ -5031,7 +5031,7 @@ TC播
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  LIPP  
 ##### 6476#       发表于 2020-12-23 15:48
@@ -5042,7 +5042,7 @@ TC播
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elect  
 ##### 6477#       发表于 2020-12-23 16:30
@@ -5051,7 +5051,7 @@ TC播
 可爱得像个小憨憨
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6478#       发表于 2020-12-23 17:11
@@ -5123,7 +5123,7 @@ TC播
 查看全部评分
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6479#       发表于 2020-12-23 17:32
@@ -5132,7 +5132,7 @@ TC播
 已经对现在的staff产生依赖了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6480#       发表于 2020-12-23 17:34
@@ -5141,7 +5141,7 @@ TC播
 看她描述真的有种stf沉迷投喂小屁孩的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不要养猪啊
 
 
------
+*****
 
 ####  Ky·Kiske  
 ##### 6481#       发表于 2020-12-23 17:41
@@ -5150,7 +5150,7 @@ TC播
 晚上加班睿限？
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6482#       发表于 2020-12-23 17:42
@@ -5159,7 +5159,7 @@ TC播
 staff不会也是老母亲吧，咩宝的老母亲角色也太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">“你妈觉得你饿”
 
 
------
+*****
 
 ####  KL25001  
 ##### 6483#       发表于 2020-12-23 18:06
@@ -5168,7 +5168,7 @@ staff不会也是老母亲吧，咩宝的老母亲角色也太多了<img src="ht
 这蠢羊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 6484#       发表于 2020-12-23 18:07
@@ -5177,7 +5177,7 @@ staff不会也是老母亲吧，咩宝的老母亲角色也太多了<img src="ht
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6485#       发表于 2020-12-23 18:08
@@ -5188,7 +5188,7 @@ staff不会也是老母亲吧，咩宝的老母亲角色也太多了<img src="ht
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  JY要塞  
 ##### 6486#       发表于 2020-12-23 18:08
@@ -5197,7 +5197,7 @@ staff不会也是老母亲吧，咩宝的老母亲角色也太多了<img src="ht
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦又赢？
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6487#       发表于 2020-12-23 18:10
@@ -5207,7 +5207,7 @@ staff不会也是老母亲吧，咩宝的老母亲角色也太多了<img src="ht
 《牧天狗的孩子》
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6488#       发表于 2020-12-23 18:25
@@ -5220,7 +5220,7 @@ staff不会也是老母亲吧，咩宝的老母亲角色也太多了<img src="ht
 但是她说得新冠喉咙坏掉那段直接给我整破防了，不安开始了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6489#       发表于 2020-12-23 18:35
@@ -5229,7 +5229,7 @@ staff不会也是老母亲吧，咩宝的老母亲角色也太多了<img src="ht
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">别说了，我也开始不安了
 
 
------
+*****
 
 ####  sw11133  
 ##### 6490#       发表于 2020-12-23 18:39
@@ -5238,7 +5238,7 @@ staff不会也是老母亲吧，咩宝的老母亲角色也太多了<img src="ht
 不去想就不会有事不去想就不会有事不去想就不会有事
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6491#       发表于 2020-12-23 18:39
@@ -5249,7 +5249,7 @@ yhm竟在我身边<img src="https://static.saraba1st.com/image/smiley/face2017/0
 yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 6492#       发表于 2020-12-23 18:51
@@ -5258,7 +5258,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 这新冠真是让人不安
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6493#       发表于 2020-12-23 19:06
@@ -5267,7 +5267,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 我羊呢？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  龙魂绯影  
 ##### 6494#       发表于 2020-12-23 19:10
@@ -5276,7 +5276,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 开了
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6495#       发表于 2020-12-23 19:11
@@ -5285,7 +5285,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 鼻音有点重啊
 
 
------
+*****
 
 ####  sw11133  
 ##### 6496#       发表于 2020-12-23 19:16
@@ -5294,7 +5294,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 草 no1来了
 
 
------
+*****
 
 ####  onlv星骸  
 ##### 6497#       发表于 2020-12-23 19:32
@@ -5303,7 +5303,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这不是很会演傲娇嘛
 
 
------
+*****
 
 ####  KL25001  
 ##### 6498#       发表于 2020-12-23 19:34
@@ -5312,7 +5312,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 哼~~哈~~哼~~~<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6499#       发表于 2020-12-23 19:36
@@ -5321,7 +5321,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">suki
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6500#       发表于 2020-12-23 19:38
@@ -5330,7 +5330,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 猪党被公开处刑了
 
 
------
+*****
 
 ####  physi1202  
 ##### 6501#       发表于 2020-12-23 19:39
@@ -5339,7 +5339,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好家伙 这是故意的还是巧合
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6502#       发表于 2020-12-23 19:42
@@ -5348,7 +5348,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 巧合吧 歌回唱过好几次了
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6503#       发表于 2020-12-23 19:43
@@ -5357,7 +5357,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 一唱这歌就好多人说p家 不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  笋狐  
 ##### 6504#       发表于 2020-12-23 19:48
@@ -5366,7 +5366,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌单类似都能强行关联吗，我还说这首印象最深的是和狗狗的人工合成版呢，声线简直配一嗓（
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6505#       发表于 2020-12-23 19:49
@@ -5378,7 +5378,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 链接来一个
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6506#       发表于 2020-12-23 19:54
@@ -5405,7 +5405,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 查看全部评分
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6507#       发表于 2020-12-23 19:59
@@ -5414,7 +5414,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 这包袱抖得好
 
 
------
+*****
 
 ####  KL25001  
 ##### 6508#       发表于 2020-12-23 20:11
@@ -5425,7 +5425,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 这一嗓子可以啊
 
 
------
+*****
 
 ####  sw11133  
 ##### 6509#       发表于 2020-12-23 20:20
@@ -5434,7 +5434,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">帅不过三秒
 
 
------
+*****
 
 ####  龙魂绯影  
 ##### 6510#       发表于 2020-12-23 20:35
@@ -5443,7 +5443,7 @@ yhm竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/1
 bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6511#       发表于 2020-12-23 20:37
@@ -5452,7 +5452,7 @@ bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/f
 刚才我是不是听到她讲关西话了？？？
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6512#       发表于 2020-12-23 20:39
@@ -5461,7 +5461,7 @@ bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/f
 小巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6513#       发表于 2020-12-23 20:39
@@ -5470,7 +5470,7 @@ bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6514#       发表于 2020-12-23 20:39
@@ -5479,7 +5479,7 @@ bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">mua~
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6515#       发表于 2020-12-23 20:40
@@ -5488,7 +5488,7 @@ bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/f
 选曲和互动好顺滑啊。
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6516#       发表于 2020-12-23 20:40
@@ -5497,7 +5497,7 @@ bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/f
 今天真的神回，好好玩
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6517#       发表于 2020-12-23 20:42
@@ -5506,7 +5506,7 @@ bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/f
 今天神回只有直播能体会到 录播肯定就没内味了
 
 
------
+*****
 
 ####  离心  
 ##### 6518#       发表于 2020-12-23 20:52
@@ -5515,7 +5515,7 @@ bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/f
 神tm好耶
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6519#       发表于 2020-12-23 20:53
@@ -5524,7 +5524,7 @@ bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/f
 不许好耶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  离心  
 ##### 6520#       发表于 2020-12-23 20:54
@@ -5533,7 +5533,7 @@ bml时的moneymoneymoney草<img src="https://static.saraba1st.com/image/smiley/f
 bsyl，难受只看了后半部分，月兔！
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6521#       发表于 2020-12-23 20:56
@@ -5544,7 +5544,7 @@ bsyl，难受只看了后半部分，月兔！
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6522#       发表于 2020-12-23 20:59
@@ -5553,7 +5553,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6523#       发表于 2020-12-23 21:00
@@ -5562,7 +5562,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">她真好
 
 
------
+*****
 
 ####  sw11133  
 ##### 6524#       发表于 2020-12-23 21:01
@@ -5571,7 +5571,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6525#       发表于 2020-12-23 21:02
@@ -5580,7 +5580,7 @@ bsyl，难受只看了后半部分，月兔！
 总觉得会有回马枪
 
 
------
+*****
 
 ####  IrisL  
 ##### 6526#       发表于 2020-12-23 21:03
@@ -5589,7 +5589,7 @@ bsyl，难受只看了后半部分，月兔！
 爽到
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6527#       发表于 2020-12-23 21:03
@@ -5598,7 +5598,7 @@ bsyl，难受只看了后半部分，月兔！
 对线时间也占用歌回时间，能多唱会儿就好了。不过感觉她嗓子状态还差点。
 
 
------
+*****
 
 ####  elect  
 ##### 6528#       发表于 2020-12-23 21:04
@@ -5607,7 +5607,7 @@ bsyl，难受只看了后半部分，月兔！
 舒服了，不够看啊
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6529#       发表于 2020-12-23 21:08
@@ -5616,7 +5616,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6530#       发表于 2020-12-23 21:12
@@ -5627,7 +5627,7 @@ bsyl，难受只看了后半部分，月兔！
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6531#       发表于 2020-12-23 21:17
@@ -5638,7 +5638,7 @@ bsyl，难受只看了后半部分，月兔！
 得想办法骗这麻再唱一遍.jpg
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6532#       发表于 2020-12-23 21:26
@@ -5647,7 +5647,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 6533#       发表于 2020-12-23 22:25
@@ -5656,7 +5656,7 @@ bsyl，难受只看了后半部分，月兔！
 什么？又唱月兔了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KL25001  
 ##### 6534#       发表于 2020-12-24 00:51
@@ -5665,7 +5665,7 @@ bsyl，难受只看了后半部分，月兔！
 回顾了一下，b限这场质量真高啊，各种玩梗互动+高质量歌，而且选曲和杂谈内容有机结合，真难想象没有台本的直播能做到这个水平
 
 
------
+*****
 
 ####  elect  
 ##### 6535#       发表于 2020-12-24 01:19
@@ -5674,7 +5674,7 @@ bsyl，难受只看了后半部分，月兔！
 你咩姐跟你开玩笑的，这次直播这么有趣，aut剪辑的片段熟肉都出俩了
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6536#       发表于 2020-12-24 07:36
@@ -5683,7 +5683,7 @@ bsyl，难受只看了后半部分，月兔！
 收益化两周年
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6537#       发表于 2020-12-24 10:17
@@ -5692,7 +5692,7 @@ bsyl，难受只看了后半部分，月兔！
 今天咩宝要去做那些事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6538#       发表于 2020-12-24 10:33
@@ -5701,7 +5701,7 @@ bsyl，难受只看了后半部分，月兔！
 那些事（指在别人快快乐乐的时候要痛苦的缴税）
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6539#       发表于 2020-12-24 10:37
@@ -5710,7 +5710,7 @@ bsyl，难受只看了后半部分，月兔！
 要做大人的事了（指交税）
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6540#       发表于 2020-12-24 10:53
@@ -5719,7 +5719,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  魔法使い2019  
 ##### 6541#       发表于 2020-12-24 11:38
@@ -5729,7 +5729,7 @@ bsyl，难受只看了后半部分，月兔！
 😄
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6542#       发表于 2020-12-24 11:42
@@ -5738,7 +5738,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  feyir  
 ##### 6543#       发表于 2020-12-24 12:02
@@ -5749,7 +5749,7 @@ bsyl，难受只看了后半部分，月兔！
 —— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6544#       发表于 2020-12-24 12:06
@@ -5758,7 +5758,7 @@ bsyl，难受只看了后半部分，月兔！
 弱智gachi来管管弱智绿帽啊.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6545#       发表于 2020-12-24 12:09
@@ -5767,7 +5767,7 @@ bsyl，难受只看了后半部分，月兔！
 已经没有gachi了 只有绿帽了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6546#       发表于 2020-12-24 12:10
@@ -5776,7 +5776,7 @@ bsyl，难受只看了后半部分，月兔！
 都会发病啊 大家.jpg
 
 
------
+*****
 
 ####  elect  
 ##### 6547#       发表于 2020-12-24 12:21
@@ -5785,7 +5785,7 @@ bsyl，难受只看了后半部分，月兔！
 可以快进到小小麻出生了
 
 
------
+*****
 
 ####  JY要塞  
 ##### 6548#       发表于 2020-12-24 12:23
@@ -5794,7 +5794,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">交税（交公粮）
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6549#       发表于 2020-12-24 12:24
@@ -5805,7 +5805,7 @@ bsyl，难受只看了后半部分，月兔！
 那还挺涩的
 
 
------
+*****
 
 ####  LIPP  
 ##### 6550#       发表于 2020-12-24 12:32
@@ -5814,7 +5814,7 @@ bsyl，难受只看了后半部分，月兔！
 看到了miu名言更新版，那么是谁之前去青色洞窟今年3播呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6551#       发表于 2020-12-24 12:35
@@ -5823,7 +5823,7 @@ bsyl，难受只看了后半部分，月兔！
 现在还在生理呢 小小麻是没机会了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6552#       发表于 2020-12-24 12:46
@@ -5832,7 +5832,7 @@ bsyl，难受只看了后半部分，月兔！
 麻 麻可以上我！啊我也在生理啊，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6553#       发表于 2020-12-24 12:47
@@ -5843,7 +5843,7 @@ bsyl，难受只看了后半部分，月兔！
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  sw11133  
 ##### 6554#       发表于 2020-12-24 13:04
@@ -5852,7 +5852,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">浴血奋战也太怪了吧
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6555#       发表于 2020-12-24 13:17
@@ -5863,7 +5863,7 @@ bsyl，难受只看了后半部分，月兔！
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 6556#       发表于 2020-12-24 13:24
@@ -5872,7 +5872,7 @@ bsyl，难受只看了后半部分，月兔！
 过于弱智以至于看起来不那么弱智了
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6557#       发表于 2020-12-24 13:35
@@ -5883,7 +5883,7 @@ bsyl，难受只看了后半部分，月兔！
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6558#       发表于 2020-12-24 13:38
@@ -5896,7 +5896,7 @@ bsyl，难受只看了后半部分，月兔！
 看到标题还是带上吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6559#       发表于 2020-12-24 14:03
@@ -5905,7 +5905,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  WhiteAvalon  
 ##### 6560#       发表于 2020-12-24 14:03
@@ -5914,7 +5914,7 @@ bsyl，难受只看了后半部分，月兔！
 你麻视奸你楼是真的，看到这么多绿帽给你们亲手带上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6561#       发表于 2020-12-24 14:06
@@ -5925,7 +5925,7 @@ bsyl，难受只看了后半部分，月兔！
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6562#       发表于 2020-12-24 14:13
@@ -5936,7 +5936,7 @@ bsyl，难受只看了后半部分，月兔！
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6563#       发表于 2020-12-24 14:31
@@ -5945,7 +5945,7 @@ bsyl，难受只看了后半部分，月兔！
 年轻火气旺没办法<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6564#       发表于 2020-12-24 14:46
@@ -5954,7 +5954,7 @@ bsyl，难受只看了后半部分，月兔！
 你楼是不是把nga同化了啊，怎么到处都是弱智绿帽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6565#       发表于 2020-12-24 14:50
@@ -5963,7 +5963,7 @@ bsyl，难受只看了后半部分，月兔！
 因为都是一拨人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6566#       发表于 2020-12-24 14:51
@@ -5972,7 +5972,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  llconforever  
 ##### 6567#       发表于 2020-12-24 14:57
@@ -5981,7 +5981,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">发病了？
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6568#       发表于 2020-12-24 15:02
@@ -5992,7 +5992,7 @@ bsyl，难受只看了后半部分，月兔！
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6569#       发表于 2020-12-24 15:12
@@ -6001,7 +6001,7 @@ bsyl，难受只看了后半部分，月兔！
 浴血奋战可真有你们的
 
 
------
+*****
 
 ####  llconforever  
 ##### 6570#       发表于 2020-12-24 15:21
@@ -6010,7 +6010,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天的小麻尤其弱智
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6571#       发表于 2020-12-24 15:22
@@ -6019,7 +6019,7 @@ bsyl，难受只看了后半部分，月兔！
 被甩了 所以<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6572#       发表于 2020-12-24 15:24
@@ -6028,7 +6028,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6573#       发表于 2020-12-24 15:25
@@ -6037,7 +6037,7 @@ bsyl，难受只看了后半部分，月兔！
 这活太阴间了 顶不住<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6574#       发表于 2020-12-24 15:34
@@ -6046,7 +6046,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6575#       发表于 2020-12-24 15:43
@@ -6057,7 +6057,7 @@ bsyl，难受只看了后半部分，月兔！
 希望能听到疲惫不堪的声音<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6576#       发表于 2020-12-24 15:44
@@ -6068,7 +6068,7 @@ bsyl，难受只看了后半部分，月兔！
 我不要听到疲惫不堪的啪啪声
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6577#       发表于 2020-12-24 15:47
@@ -6079,7 +6079,7 @@ bsyl，难受只看了后半部分，月兔！
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6578#       发表于 2020-12-24 15:59
@@ -6090,7 +6090,7 @@ bsyl，难受只看了后半部分，月兔！
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6579#       发表于 2020-12-24 16:21
@@ -6100,7 +6100,7 @@ bsyl，难受只看了后半部分，月兔！
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6580#       发表于 2020-12-24 16:30
@@ -6181,7 +6181,7 @@ PH？自己看的都是个人摄影作品 被干掉的都是DVD那些吧 没啥�
 查看全部评分
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6581#       发表于 2020-12-24 18:17
@@ -6194,7 +6194,7 @@ PH？自己看的都是个人摄影作品 被干掉的都是DVD那些吧 没啥�
 玛德刚发现明天还有烂活<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  菊花战士  
 ##### 6582#       发表于 2020-12-24 18:30
@@ -6203,7 +6203,7 @@ PH？自己看的都是个人摄影作品 被干掉的都是DVD那些吧 没啥�
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">要去的时候就用怪叫掩饰过去吧
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6583#       发表于 2020-12-24 19:03
@@ -6212,7 +6212,7 @@ PH？自己看的都是个人摄影作品 被干掉的都是DVD那些吧 没啥�
 今年的圣诞节从苔总开始,到苔总结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6584#       发表于 2020-12-24 20:17
@@ -6221,7 +6221,7 @@ PH？自己看的都是个人摄影作品 被干掉的都是DVD那些吧 没啥�
 突然想到看今晚直播同接或可推断天狗的现充数量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6585#       发表于 2020-12-24 20:29
@@ -6232,7 +6232,7 @@ PH？自己看的都是个人摄影作品 被干掉的都是DVD那些吧 没啥�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6586#       发表于 2020-12-24 21:46
@@ -6241,7 +6241,7 @@ PH？自己看的都是个人摄影作品 被干掉的都是DVD那些吧 没啥�
 Everyday young life JUNES！
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6587#       发表于 2020-12-24 21:56
@@ -6250,7 +6250,7 @@ Everyday young life JUNES！
 今晚肯定有保守曲目  我成为别人的女朋友了
 
 
------
+*****
 
 ####  KL25001  
 ##### 6588#       发表于 2020-12-24 21:56
@@ -6259,7 +6259,7 @@ Everyday young life JUNES！
 好耶，想听<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  时雨rain  
 ##### 6589#       发表于 2020-12-24 22:03
@@ -6272,7 +6272,7 @@ Everyday young life JUNES！
 两人人工合唱https://www.bilibili.com/video/BV1Zy4y1m7qu
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6590#       发表于 2020-12-24 23:13
@@ -6281,7 +6281,7 @@ Everyday young life JUNES！
 你麻最近老喜欢这首生日歌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6591#       发表于 2020-12-24 23:17
@@ -6290,7 +6290,7 @@ Everyday young life JUNES！
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6592#       发表于 2020-12-24 23:21
@@ -6299,7 +6299,7 @@ Everyday young life JUNES！
 <img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6593#       发表于 2020-12-24 23:22
@@ -6308,7 +6308,7 @@ Everyday young life JUNES！
 这次瞬き的那句没胡我的妹<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  295405468  
 ##### 6594#       发表于 2020-12-24 23:29
@@ -6317,7 +6317,7 @@ Everyday young life JUNES！
 呜呜呜 好有感染力  爱了爱了
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6595#       发表于 2020-12-24 23:33
@@ -6330,7 +6330,7 @@ Everyday young life JUNES！
 完成度太高了，爽了
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6596#       发表于 2020-12-24 23:38
@@ -6339,7 +6339,7 @@ Everyday young life JUNES！
 一直连唱 一定是在努力掩盖自己的气息吧 不然说话就要喘起来了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6597#       发表于 2020-12-24 23:44
@@ -6348,7 +6348,7 @@ Everyday young life JUNES！
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我和绿帽贴贴
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6598#       发表于 2020-12-24 23:46
@@ -6357,7 +6357,7 @@ Everyday young life JUNES！
 都在播着了为什么你们还在戴绿帽<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6599#       发表于 2020-12-24 23:46
@@ -6369,7 +6369,7 @@ Everyday young life JUNES！
 弱智time差不多得了，你还nga、s1两边跑。
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6600#       发表于 2020-12-24 23:51
@@ -6380,7 +6380,7 @@ Everyday young life JUNES！
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  sw11133  
 ##### 6601#       发表于 2020-12-24 23:53
@@ -6392,7 +6392,7 @@ Everyday young life JUNES！
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6602#       发表于 2020-12-24 23:55
@@ -6406,7 +6406,7 @@ Everyday young life JUNES！
 我自肃
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6603#       发表于 2020-12-24 23:55
@@ -6415,7 +6415,7 @@ Everyday young life JUNES！
 <img src="https://static.saraba1st.com/image/smiley/face2017/170.png" referrerpolicy="no-referrer">不是有圣诞帽吗
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6604#       发表于 2020-12-24 23:56
@@ -6426,7 +6426,7 @@ Everyday young life JUNES！
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  sw11133  
 ##### 6605#       发表于 2020-12-25 00:00
@@ -6437,7 +6437,7 @@ Everyday young life JUNES！
 不然我连<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">都带不好
 
 
------
+*****
 
 ####  sw11133  
 ##### 6606#       发表于 2020-12-25 00:00
@@ -6448,7 +6448,7 @@ Everyday young life JUNES！
 草二连了
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6607#       发表于 2020-12-25 00:00
@@ -6457,7 +6457,7 @@ Everyday young life JUNES！
 开始断气了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ylssb10438  
 ##### 6608#       发表于 2020-12-25 00:18
@@ -6468,7 +6468,7 @@ Everyday young life JUNES！
 这首可爱😊这情感抒发的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  295405468  
 ##### 6609#       发表于 2020-12-25 00:26
@@ -6477,7 +6477,7 @@ Everyday young life JUNES！
 这人真的强了好多  我却还是这么lj
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6610#       发表于 2020-12-25 00:26
@@ -6486,7 +6486,7 @@ Everyday young life JUNES！
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6611#       发表于 2020-12-25 00:27
@@ -6495,7 +6495,7 @@ Everyday young life JUNES！
 经典曲目有点多啊。
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6612#       发表于 2020-12-25 00:36
@@ -6504,7 +6504,7 @@ Everyday young life JUNES！
 这个さよなら
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6613#       发表于 2020-12-25 00:36
@@ -6513,7 +6513,7 @@ Everyday young life JUNES！
 这首好听啊，好好唱啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6614#       发表于 2020-12-25 00:44
@@ -6522,7 +6522,7 @@ Everyday young life JUNES！
 果然是SJ S1的小巨魔
 
 
------
+*****
 
 ####  LIPP  
 ##### 6615#       发表于 2020-12-25 00:45
@@ -6531,7 +6531,7 @@ Everyday young life JUNES！
 <img src="https://static.saraba1st.com/image/smiley/face2017/170.png" referrerpolicy="no-referrer">圣诞快乐，祝楼友梦里都有羊薅
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6616#       发表于 2020-12-25 00:46
@@ -6542,7 +6542,7 @@ Everyday young life JUNES！
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  离心  
 ##### 6617#       发表于 2020-12-25 01:09
@@ -6551,7 +6551,7 @@ Everyday young life JUNES！
 楼友们圣诞快乐，来自一个没听到今晚歌回的rz……
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6618#       发表于 2020-12-25 01:11
@@ -6560,7 +6560,7 @@ Everyday young life JUNES！
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6619#       发表于 2020-12-25 01:46
@@ -6569,7 +6569,7 @@ Everyday young life JUNES！
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6620#       发表于 2020-12-25 02:00
@@ -6580,7 +6580,7 @@ Everyday young life JUNES！
 b博动,圣诞快乐
 
 
------
+*****
 
 ####  与太郎  
 ##### 6621#       发表于 2020-12-25 11:42
@@ -6608,7 +6608,7 @@ b博动,圣诞快乐
 查看全部评分
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6622#       发表于 2020-12-25 12:13
@@ -6619,7 +6619,7 @@ b博动,圣诞快乐
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6623#       发表于 2020-12-25 12:40
@@ -6629,7 +6629,7 @@ b博动,圣诞快乐
 不是很懂霓虹人的脑回路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6624#       发表于 2020-12-25 12:42
@@ -6641,7 +6641,7 @@ b博动,圣诞快乐
 让观众猜吗？
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6625#       发表于 2020-12-25 12:44
@@ -6650,7 +6650,7 @@ b博动,圣诞快乐
 嘴里含热水和冰水，嘶，联想到了某些不好的东西
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6626#       发表于 2020-12-25 12:44
@@ -6661,7 +6661,7 @@ b博动,圣诞快乐
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6627#       发表于 2020-12-25 12:44
@@ -6676,7 +6676,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 当然一切以实物为准<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6628#       发表于 2020-12-25 12:46
@@ -6687,7 +6687,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 可能这就是我身体不好的原因吧..... 麻 麻不要学(›´ω`‹ )
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6629#       发表于 2020-12-25 12:54
@@ -6696,7 +6696,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 含水怎么说话啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 而且就算一开始是冰水 含久了也变热水了
 
 
------
+*****
 
 ####  笋狐  
 ##### 6630#       发表于 2020-12-25 12:57
@@ -6705,7 +6705,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是日式综艺范的胡椒水芥末水之类的阴间玩意儿就该偷笑了（
 
 
------
+*****
 
 ####  暴走的包子  
 ##### 6631#       发表于 2020-12-25 13:14
@@ -6716,7 +6716,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 —— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6632#       发表于 2020-12-25 13:16
@@ -6725,7 +6725,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 我觉得这种企划不行。老老实实打雀魂不好吗。
 
 
------
+*****
 
 ####  A2014720  
 ##### 6633#       发表于 2020-12-25 13:19
@@ -6734,7 +6734,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 圣诞还要看昨天nt企划<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6634#       发表于 2020-12-25 13:21
@@ -6743,7 +6743,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 文化鸿沟文化鸿沟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6635#       发表于 2020-12-25 13:22
@@ -6756,7 +6756,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 舞元和neru拿着个炸弹传来传去几回合了都没爆<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fsfs_freeze  
 ##### 6636#       发表于 2020-12-25 13:26
@@ -6766,7 +6766,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 只能听听叫声了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 6637#       发表于 2020-12-25 13:45
@@ -6775,7 +6775,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 草 yygq起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6638#       发表于 2020-12-25 14:02
@@ -6784,7 +6784,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 好起来了，捡到好的卡就是容易翻盘啊。
 
 
------
+*****
 
 ####  sw11133  
 ##### 6639#       发表于 2020-12-25 14:04
@@ -6795,7 +6795,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 求地址啊
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6640#       发表于 2020-12-25 14:07
@@ -6819,7 +6819,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 查看全部评分
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6641#       发表于 2020-12-25 14:58
@@ -6828,7 +6828,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">笑死 舞元连炸两个炸弹
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6642#       发表于 2020-12-25 15:07
@@ -6837,7 +6837,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">咩宝花了12亿买的皇家EX卡被舞元一张偷卡偷走了 草
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6643#       发表于 2020-12-25 15:24
@@ -6849,7 +6849,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 那卡确实太牛了。
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6644#       发表于 2020-12-25 15:39
@@ -6860,7 +6860,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 但是兔姨想加快结束的心情确实表达出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6645#       发表于 2020-12-25 17:33
@@ -6869,7 +6869,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 想看麻酱打麻将
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6646#       发表于 2020-12-25 19:11
@@ -6878,7 +6878,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 话说和黑叔叔联动是几点？
 
 
------
+*****
 
 ####  DDWarrior  
 ##### 6647#       发表于 2020-12-25 19:16
@@ -6887,7 +6887,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 按照油管上直播预定的时间的话，大概是中国时间19:45？
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6648#       发表于 2020-12-25 19:29
@@ -6896,7 +6896,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 (*´∀｀)谢谢
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6649#       发表于 2020-12-25 19:53
@@ -6905,7 +6905,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 玩快闪呢？？？
 
 
------
+*****
 
 ####  DDWarrior  
 ##### 6650#       发表于 2020-12-25 19:53
@@ -6914,7 +6914,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">持续了一分钟的神秘直播
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6651#       发表于 2020-12-25 19:53
@@ -6923,7 +6923,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 玩快闪呢？？？
 
 
------
+*****
 
 ####  A-Wie  
 ##### 6652#       发表于 2020-12-25 19:54
@@ -6932,7 +6932,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 一分钟结束<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6653#       发表于 2020-12-25 19:55
@@ -6943,7 +6943,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 太行为艺术了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6654#       发表于 2020-12-25 19:56
@@ -6952,7 +6952,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 烂活
 
 
------
+*****
 
 ####  FCCHua  
 ##### 6655#       发表于 2020-12-25 19:56
@@ -6963,7 +6963,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 圭利直播是这样的，不少一分钟就结束的<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  WhiteAvalon  
 ##### 6656#       发表于 2020-12-25 19:57
@@ -6972,7 +6972,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 太神必了
 
 
------
+*****
 
 ####  草牛  
 ##### 6657#       发表于 2020-12-25 19:58
@@ -6981,7 +6981,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 ？？？
 
 
------
+*****
 
 ####  DDWarrior  
 ##### 6658#       发表于 2020-12-25 19:58
@@ -6990,7 +6990,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 <img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">想把吊人吊起来打一顿，一定会哭很久吧
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6659#       发表于 2020-12-25 20:02
@@ -7001,7 +7001,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 6660#       发表于 2020-12-25 20:07
@@ -7012,7 +7012,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 妈妈不高兴
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6661#       发表于 2020-12-25 20:10
@@ -7021,7 +7021,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 这活太烂了，不如打雀魂。
 
 
------
+*****
 
 ####  青春银河  
 ##### 6662#       发表于 2020-12-25 21:10
@@ -7032,7 +7032,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 马车掉线不是要全员-30吗，素质真差啊
 
 
------
+*****
 
 ####  A2014720  
 ##### 6663#       发表于 2020-12-25 21:14
@@ -7041,7 +7041,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 一年的贷款最后就这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  草牛  
 ##### 6664#       发表于 2020-12-25 21:19
@@ -7050,7 +7050,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是蛮逗的，有种pop子和pipi美的感觉
 
 
------
+*****
 
 ####  KL25001  
 ##### 6665#       发表于 2020-12-25 22:00
@@ -7061,7 +7061,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 总比没啥可说的尬聊好
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6666#       发表于 2020-12-25 22:11
@@ -7070,7 +7070,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 我懂了,是虹liver故事会,赏饭给你麻吃不要不识抬举<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6667#       发表于 2020-12-25 22:25
@@ -7079,7 +7079,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 不得不说这bgm真带感
 
 
------
+*****
 
 ####  onlv星骸  
 ##### 6668#       发表于 2020-12-25 22:26
@@ -7093,7 +7093,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 她俩这私房打ai，没分的
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6669#       发表于 2020-12-25 22:32
@@ -7102,7 +7102,7 @@ https://www.bilibili.com/video/BV1ty4y1k7Nr?from=search&amp;seid=152087023578576
 Mea不说异议压力真是可惜
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6670#       发表于 2020-12-25 22:40
@@ -7111,7 +7111,7 @@ Mea不说异议压力真是可惜
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6671#       发表于 2020-12-25 22:53
@@ -7120,7 +7120,7 @@ Mea不说异议压力真是可惜
 不该黑屁苔苔的，谢虹人老爷赏饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elect  
 ##### 6672#       发表于 2020-12-25 22:56
@@ -7129,7 +7129,7 @@ Mea不说异议压力真是可惜
 本土彩虹还是强啊
 
 
------
+*****
 
 ####  草牛  
 ##### 6673#       发表于 2020-12-25 22:56
@@ -7138,7 +7138,7 @@ Mea不说异议压力真是可惜
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，这联动挺好玩的
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6674#       发表于 2020-12-25 23:00
@@ -7147,7 +7147,7 @@ Mea不说异议压力真是可惜
 不知道是不是有台本 麻酱血carry
 
 
------
+*****
 
 ####  龙魂绯影  
 ##### 6675#       发表于 2020-12-25 23:01
@@ -7156,7 +7156,7 @@ Mea不说异议压力真是可惜
 这会看的挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过最后都变成证人有罪了就很草
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6676#       发表于 2020-12-25 23:12
@@ -7165,7 +7165,7 @@ Mea不说异议压力真是可惜
 算了.... 还是蛮有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6677#       发表于 2020-12-25 23:14
@@ -7174,7 +7174,7 @@ Mea不说异议压力真是可惜
 打完游戏只赶上尾巴，说起来原来舞元的声音是这样的啊
 
 
------
+*****
 
 ####  暴走的包子  
 ##### 6678#       发表于 2020-12-25 23:16
@@ -7187,7 +7187,7 @@ Mea不说异议压力真是可惜
 —— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  草牛  
 ##### 6679#       发表于 2020-12-25 23:17
@@ -7196,7 +7196,7 @@ Mea不说异议压力真是可惜
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈耶最后这个ed还是好好唱的，绝了
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 6680#       发表于 2020-12-25 23:18
@@ -7205,7 +7205,7 @@ Mea不说异议压力真是可惜
 差点没听出是咩阿
 
 
------
+*****
 
 ####  ashero  
 ##### 6681#       发表于 2020-12-25 23:20
@@ -7217,7 +7217,7 @@ Mea不说异议压力真是可惜
 咩宝唱得好有感情 爱了爱了
 
 
------
+*****
 
 ####  DDWarrior  
 ##### 6682#       发表于 2020-12-25 23:20
@@ -7226,7 +7226,7 @@ Mea不说异议压力真是可惜
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">说实话，这舞元裁判的活儿整得还真挺不错的，还能拉着彩虹系给吊人灌一大口饭，苔苔，暂时滴神！
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6683#       发表于 2020-12-25 23:20
@@ -7235,7 +7235,7 @@ Mea不说异议压力真是可惜
 好活，节目安排上苔苔还是有一手的、
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6684#       发表于 2020-12-25 23:21
@@ -7244,7 +7244,7 @@ Mea不说异议压力真是可惜
 是御姐音~果然圣诞节成长为大人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whbstc4545  
 ##### 6685#       发表于 2020-12-25 23:23
@@ -7253,7 +7253,7 @@ Mea不说异议压力真是可惜
 这次效果那么好应该会有熟肉吧，到时候再重温一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  燃烧的石头  
 ##### 6686#       发表于 2020-12-25 23:27
@@ -7262,7 +7262,7 @@ Mea不说异议压力真是可惜
 什么?节目效果好吗，该补录播了
 
 
------
+*****
 
 ####  elect  
 ##### 6687#       发表于 2020-12-25 23:31
@@ -7271,7 +7271,7 @@ Mea不说异议压力真是可惜
 这次联动咩宝很积极很有干劲<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6688#       发表于 2020-12-25 23:32
@@ -7280,7 +7280,7 @@ Mea不说异议压力真是可惜
 啊这 有五元debuff评价都那么高吗 等个熟肉补
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6689#       发表于 2020-12-25 23:35
@@ -7291,7 +7291,7 @@ Mea不说异议压力真是可惜
 但是我不看虹的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ashero  
 ##### 6690#       发表于 2020-12-25 23:39
@@ -7300,7 +7300,7 @@ Mea不说异议压力真是可惜
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哪怕有台本 咩宝这个反应速度和进攻力度都是首屈一指 最后苔苔部分的阴阳怪气笑死我了
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 6691#       发表于 2020-12-25 23:51
@@ -7309,7 +7309,7 @@ Mea不说异议压力真是可惜
 这种虹圈联动可以多搞点,嗨叔叔土农民还是少点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 6692#       发表于 2020-12-25 23:51
@@ -7320,7 +7320,7 @@ Mea不说异议压力真是可惜
 风怒编辑了
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6693#       发表于 2020-12-26 01:20
@@ -7329,7 +7329,7 @@ Mea不说异议压力真是可惜
 这种一次性消费了彩虹那么多梗积累的企划，苔苔自己也难得来一次。
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6694#       发表于 2020-12-26 10:55
@@ -7367,7 +7367,7 @@ DSC_0097.JPG
 查看全部评分
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6695#       发表于 2020-12-26 11:29
@@ -7376,7 +7376,7 @@ DSC_0097.JPG
 是2点半不是3点
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6696#       发表于 2020-12-26 11:46
@@ -7388,7 +7388,7 @@ DSC_0097.JPG
 节目表上写1430 注意下哦
 
 
------
+*****
 
 ####  A2014720  
 ##### 6697#       发表于 2020-12-26 12:31
@@ -7397,7 +7397,7 @@ DSC_0097.JPG
 官组新熟肉还以为掉粉掉到40w了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6698#       发表于 2020-12-26 12:49
@@ -7406,7 +7406,7 @@ DSC_0097.JPG
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6699#       发表于 2020-12-26 13:14
@@ -7416,7 +7416,7 @@ DSC_0097.JPG
 我深刻体会了这点
 
 
------
+*****
 
 ####  gongge666  
 ##### 6700#       发表于 2020-12-26 13:39
@@ -7425,7 +7425,7 @@ DSC_0097.JPG
 今天会不会有惯例的贴贴巨魔出现呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elect  
 ##### 6701#       发表于 2020-12-26 13:49
@@ -7434,7 +7434,7 @@ DSC_0097.JPG
 你咩提前征集了bw问题了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6702#       发表于 2020-12-26 14:46
@@ -7445,7 +7445,7 @@ DSC_0097.JPG
 想让那个唱歌的傻叉闭嘴
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6703#       发表于 2020-12-26 15:07
@@ -7455,7 +7455,7 @@ DSC_0097.JPG
 BLS 1月2号重播，好耶
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6704#       发表于 2020-12-26 15:13
@@ -7464,7 +7464,7 @@ BLS 1月2号重播，好耶
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">那么可以和小麻一起看小麻了吗
 
 
------
+*****
 
 ####  A2014720  
 ##### 6705#       发表于 2020-12-26 15:16
@@ -7473,7 +7473,7 @@ BLS 1月2号重播，好耶
 小麻在老家呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6706#       发表于 2020-12-26 15:16
@@ -7482,7 +7482,7 @@ BLS 1月2号重播，好耶
 小麻会不会和麻妈麻爸一起看live 小麻要哈子尬希了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  笋狐  
 ##### 6707#       发表于 2020-12-26 15:21
@@ -7491,7 +7491,7 @@ BLS 1月2号重播，好耶
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道要不要票开不开放购票，如果要岂不是显得延期公告出来之后不再卖票这个决定十分nt？
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6708#       发表于 2020-12-26 15:24
@@ -7500,7 +7500,7 @@ BLS 1月2号重播，好耶
 卖票了 40块 之前有票的可以继续免费看
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6709#       发表于 2020-12-26 15:25
@@ -7509,7 +7509,7 @@ BLS 1月2号重播，好耶
 重播完有个公告,不知道是啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6710#       发表于 2020-12-26 15:36
@@ -7518,7 +7518,7 @@ BLS 1月2号重播，好耶
 2nd举办决定（
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6711#       发表于 2020-12-26 15:37
@@ -7527,7 +7527,7 @@ BLS 1月2号重播，好耶
 总不可能是2nd吧
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6712#       发表于 2020-12-26 15:39
@@ -7536,7 +7536,7 @@ BLS 1月2号重播，好耶
 卖曲子，卖碟子，卖语音，新2d。反正应该这里面有一个吧。
 
 
------
+*****
 
 ####  KL25001  
 ##### 6713#       发表于 2020-12-26 15:40
@@ -7547,7 +7547,7 @@ BLS 1月2号重播，好耶
 我估计可能是那些原创曲的pv
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6714#       发表于 2020-12-26 15:52
@@ -7560,7 +7560,7 @@ BLS 1月2号重播，好耶
 叔叔求你再把路费赚回去好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  龙魂绯影  
 ##### 6715#       发表于 2020-12-26 15:54
@@ -7569,7 +7569,7 @@ BLS 1月2号重播，好耶
 pv吧
 
 
------
+*****
 
 ####  A2014720  
 ##### 6716#       发表于 2020-12-26 15:56
@@ -7580,7 +7580,7 @@ pv吧
 楼友别有这些不切实际的想法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6717#       发表于 2020-12-26 15:57
@@ -7592,7 +7592,7 @@ pv吧
 2nd搞线上的多大点事···
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6718#       发表于 2020-12-26 16:05
@@ -7601,7 +7601,7 @@ pv吧
 天狗会买票的，只是线上2nd也不是不能办啊资本家......<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6719#       发表于 2020-12-26 16:09
@@ -7610,7 +7610,7 @@ pv吧
 可能是发专辑了吧
 
 
------
+*****
 
 ####  dsylolicon  
 ##### 6720#       发表于 2020-12-26 16:25
@@ -7619,7 +7619,7 @@ pv吧
 谁能来点现场coser
 
 
------
+*****
 
 ####  龙魂绯影  
 ##### 6721#       发表于 2020-12-26 17:03
@@ -7629,7 +7629,7 @@ pv吧
 <img src="https://p.sda1.dev/0/b9b8527cd92745c4bc8c93bc4fd6fbae/IMG_CMP_210351398.jpeg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 6722#       发表于 2020-12-26 17:25
@@ -7638,7 +7638,7 @@ pv吧
 好真实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6723#       发表于 2020-12-26 17:46
@@ -7647,7 +7647,7 @@ pv吧
 有如月cos么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Sleipnirω  
 ##### 6724#       发表于 2020-12-26 18:03
@@ -7656,7 +7656,7 @@ pv吧
 先别骂，指不定小麻自己穿还比不过人家
 
 
------
+*****
 
 ####  elect  
 ##### 6725#       发表于 2020-12-26 18:07
@@ -7665,7 +7665,7 @@ pv吧
 不知道今天半夜会不会播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6726#       发表于 2020-12-26 18:08
@@ -7676,7 +7676,7 @@ pv吧
 hso<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6727#       发表于 2020-12-26 19:51
@@ -7688,7 +7688,7 @@ hso<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6728#       发表于 2020-12-26 19:52
@@ -7699,7 +7699,7 @@ hso<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  A2014720  
 ##### 6729#       发表于 2020-12-26 20:10
@@ -7708,7 +7708,7 @@ hso<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 初版ddd军服模型已经很卡姿兰大眼睛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6730#       发表于 2020-12-26 20:35
@@ -7721,7 +7721,7 @@ hso<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 后知后觉，忘了昨天是大灰狼和小红帽一周年了<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6731#       发表于 2020-12-26 22:09
@@ -7732,7 +7732,7 @@ mk2在吗 给我nga小号咩版权限呀
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  sw11133  
 ##### 6732#       发表于 2020-12-26 22:22
@@ -7764,7 +7764,7 @@ mk2在吗 给我nga小号咩版权限呀
 查看全部评分
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 6733#       发表于 2020-12-26 23:02
@@ -7773,7 +7773,7 @@ mk2在吗 给我nga小号咩版权限呀
 咩啊我知道你在看的，1月2日我们能discord群同步视听吗。1W档也行<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 6734#       发表于 2020-12-26 23:03
@@ -7788,7 +7788,7 @@ mk2在吗 给我nga小号咩版权限呀
 BSYL，草 不是找楼主吗为什么找mk2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6735#       发表于 2020-12-26 23:04
@@ -7799,7 +7799,7 @@ BSYL，草 不是找楼主吗为什么找mk2<img src="https://static.saraba1st.c
 好
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 6736#       发表于 2020-12-27 01:49
@@ -7808,7 +7808,7 @@ BSYL，草 不是找楼主吗为什么找mk2<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">0.16%，比你妈原神还难抽
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6737#       发表于 2020-12-27 01:52
@@ -7819,7 +7819,7 @@ BSYL，草 不是找楼主吗为什么找mk2<img src="https://static.saraba1st.c
 真没想到原神都有可以被拿来拄拐的日子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6738#       发表于 2020-12-27 01:56
@@ -7835,7 +7835,7 @@ BSYL，草 不是找楼主吗为什么找mk2<img src="https://static.saraba1st.c
 2020-12-27 01:56 上传
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6739#       发表于 2020-12-27 02:13
@@ -7846,7 +7846,7 @@ BSYL，草 不是找楼主吗为什么找mk2<img src="https://static.saraba1st.c
 这活动12月27日至31截止，mea都回老家了最多也就直播tc无转播，油管的也就个桃铁联动还不开台。开直播还能当顺便打赏，在连轮播都没有的直播间玩纯抽卡也没气氛啊？？而且这种直接把v分369的操作，mea这边好歹说还有利用价值。6%的基本上就差明说是用来污染卡池的了。
 
 
------
+*****
 
 ####  路人庚  
 ##### 6740#       发表于 2020-12-27 02:36
@@ -7857,7 +7857,7 @@ BSYL，草 不是找楼主吗为什么找mk2<img src="https://static.saraba1st.c
 只能说这年头所谓的“盲盒”文化真是坏的透彻
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 6741#       发表于 2020-12-27 02:59
@@ -7868,7 +7868,7 @@ BSYL，草 不是找楼主吗为什么找mk2<img src="https://static.saraba1st.c
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  2111X  
 ##### 6742#       发表于 2020-12-27 03:14
@@ -7883,7 +7883,7 @@ BSYL，草 不是找楼主吗为什么找mk2<img src="https://static.saraba1st.c
 不行，越想越严重，谁授权阿b借你麻的形象进行赌博活动的？
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6743#       发表于 2020-12-27 03:15
@@ -7897,7 +7897,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  龙魂绯影  
 ##### 6744#       发表于 2020-12-27 03:23
@@ -7906,7 +7906,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 要是整个fgo那种大手子画的牛逼卡面说不定还有兴趣试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6745#       发表于 2020-12-27 03:42
@@ -7919,7 +7919,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 《你麻的稀有程度在所有人之上，天狗们不要不识抬举》<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  2111X  
 ##### 6746#       发表于 2020-12-27 03:48
@@ -7930,7 +7930,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 小麻冲啊！！！
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6747#       发表于 2020-12-27 04:01
@@ -7939,7 +7939,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 日本昨天确诊3880，光东京就900多，地铁司机都感染一打了，我觉得她不见得能回家。
 
 
------
+*****
 
 ####  jhouo8989  
 ##### 6748#       发表于 2020-12-27 06:34
@@ -7948,7 +7948,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 不安起来了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6749#       发表于 2020-12-27 07:21
@@ -7961,7 +7961,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 小麻一定要注意安全啊，一想到她说喉咙坏掉就顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6750#       发表于 2020-12-27 09:02
@@ -7970,7 +7970,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 能不能直接打车回家啊
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6751#       发表于 2020-12-27 09:09
@@ -7979,7 +7979,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 家人开车接比较安全！就是小麻可能要和麻妈一路对线。
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6752#       发表于 2020-12-27 09:19
@@ -7990,7 +7990,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 麻妈:为什么我要来接你啊 车又脏了 整个车都因为你变臭了 赶紧开窗通风啊 为什么不坐电车啊 你就不能拒绝我来接你然后执意坐电车吗 怎么这时候这么听话了 真烦啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6753#       发表于 2020-12-27 09:58
@@ -8001,7 +8001,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 不过目前感觉她应该还是能回家的，就是她回了家后可能会因为封城无法返回了（
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6754#       发表于 2020-12-27 09:59
@@ -8010,7 +8010,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 好浓的麻味儿，小麻回家劝咱妈出道vtb好不好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6755#       发表于 2020-12-27 10:02
@@ -8019,7 +8019,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 麻妈对线是因为喜欢麻担心麻啊 参考上次去黄兔子家 麻妈担心小麻安全才主动送的 对线对了一路 老傲娇了
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6756#       发表于 2020-12-27 10:23
@@ -8028,7 +8028,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 在家就只能用老设备直播了，又能听到年轻的声音了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6757#       发表于 2020-12-27 11:06
@@ -8037,7 +8037,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 不知道今天播不播，明天就是今年最后一播了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6758#       发表于 2020-12-27 11:59
@@ -8046,7 +8046,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 所以上次东京场那位大龄粉丝有确定是麻爸么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KL25001  
 ##### 6759#       发表于 2020-12-27 12:00
@@ -8055,7 +8055,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 如果真是麻爸来线下的话，那对阿B不梁木增生？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6760#       发表于 2020-12-27 12:28
@@ -8064,7 +8064,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 可小麻已经跟叔叔签了卖身契了，已经......不再是您的女儿了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 6761#       发表于 2020-12-27 13:23
@@ -8073,7 +8073,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 艹，b站首页bml广告终于刷到mea的。是草莓那一身双手做猫抓的手势<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6762#       发表于 2020-12-27 13:33
@@ -8084,7 +8084,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  sw11133  
 ##### 6763#       发表于 2020-12-27 14:07
@@ -8096,7 +8096,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 嘻嘻
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6764#       发表于 2020-12-27 14:15
@@ -8105,7 +8105,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 这种独一档的操作，当阿b巨魔到恰到好处时，我一时竟分不清它是在yygq还是蠢得一笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 6765#       发表于 2020-12-27 14:28
@@ -8116,7 +8116,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6766#       发表于 2020-12-27 14:47
@@ -8125,7 +8125,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 小麻为了向叔叔效忠都把如月献给叔叔了，希望如月不要像你麻一样一碗水端平两边跑，不如抛弃404直接化身如拉夫必橄榄赤皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 6767#       发表于 2020-12-27 16:00
@@ -8134,7 +8134,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 放过小小个人势吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  蔵女  
 ##### 6768#       发表于 2020-12-27 16:22
@@ -8143,7 +8143,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 日本那边这波疫情闹的可真厉害…
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6769#       发表于 2020-12-27 16:45
@@ -8154,7 +8154,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  龙魂绯影  
 ##### 6770#       发表于 2020-12-27 16:53
@@ -8163,7 +8163,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 变异病毒一出来疫情瞬间反弹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6771#       发表于 2020-12-27 17:00
@@ -8172,7 +8172,7 @@ BSYL，草 不是找楼主吗为什么找mk2</blockquote>噫 搞错了
 众筹把麻酱全家接国内好不好<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KL25001  
 ##### 6772#       发表于 2020-12-27 17:02
@@ -8183,7 +8183,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 你不会是认真的吧
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6773#       发表于 2020-12-27 17:03
@@ -8192,7 +8192,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 我想把小麻掳回家关起来想很久了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  KL25001  
 ##### 6774#       发表于 2020-12-27 17:10
@@ -8201,7 +8201,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 掳成功了记得定时放出来给天狗直播<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6775#       发表于 2020-12-27 17:10
@@ -8212,7 +8212,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6776#       发表于 2020-12-27 17:11
@@ -8222,7 +8222,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">不知道下一次会进化成什么样
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6777#       发表于 2020-12-27 17:18
@@ -8231,7 +8231,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 众筹赎身和众筹躲避疫情那能一样么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6778#       发表于 2020-12-27 17:20
@@ -8242,7 +8242,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 6779#       发表于 2020-12-27 17:25
@@ -8251,7 +8251,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 在没问过本人这一点都没区别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6780#       发表于 2020-12-27 17:27
@@ -8260,7 +8260,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 求别弱智了。
 
 
------
+*****
 
 ####  草牛  
 ##### 6781#       发表于 2020-12-27 17:31
@@ -8269,7 +8269,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能众筹把楼友送进精神科
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6782#       发表于 2020-12-27 17:31
@@ -8278,7 +8278,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 我要创造一个只有麻酱的世界<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 6783#       发表于 2020-12-27 17:34
@@ -8287,7 +8287,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 众筹真的可以送进小黑屋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6784#       发表于 2020-12-27 17:35
@@ -8296,7 +8296,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 那就问一问嘛，我不信以前阿b的人跟她谈的时候就没动过这种心思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6785#       发表于 2020-12-27 17:39
@@ -8305,7 +8305,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 绿帽弱智要吃，抓猫弱智也要吃，这样才算得上健全（
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6786#       发表于 2020-12-27 17:41
@@ -8316,7 +8316,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 狠狠地打屁股
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6787#       发表于 2020-12-27 17:52
@@ -8325,7 +8325,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 快进到人手一小麻
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6788#       发表于 2020-12-27 17:54
@@ -8338,7 +8338,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 想吃烤兔肉了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LIPP  
 ##### 6789#       发表于 2020-12-27 18:18
@@ -8347,7 +8347,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">不一定要抓过来，把我抓到她家也可以
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6790#       发表于 2020-12-27 18:39
@@ -8358,7 +8358,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  physi1202  
 ##### 6791#       发表于 2020-12-27 19:20
@@ -8367,7 +8367,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 我要抓到小麻必一起fc2出道<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6792#       发表于 2020-12-27 19:46
@@ -8376,7 +8376,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 不洗澡不给吃饭<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6793#       发表于 2020-12-27 19:59
@@ -8386,7 +8386,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 快进到被榨干
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6794#       发表于 2020-12-27 20:40
@@ -8397,7 +8397,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  A2014720  
 ##### 6795#       发表于 2020-12-27 20:41
@@ -8406,7 +8406,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6796#       发表于 2020-12-27 20:52
@@ -8415,7 +8415,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 艹 你们好怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6797#       发表于 2020-12-27 21:21
@@ -8424,7 +8424,7 @@ smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 TC播
 
 
------
+*****
 
 ####  路人庚  
 ##### 6798#       发表于 2020-12-27 22:04
@@ -8436,7 +8436,7 @@ TC播
 你咩姐的发情艺真有趣（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6799#       发表于 2020-12-27 22:14
@@ -8445,7 +8445,7 @@ TC播
 明天去银行、联动、晚上可能播，然后29号回家了
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 6800#       发表于 2020-12-27 22:30
@@ -8454,7 +8454,7 @@ TC播
 喜欢arashi才算正宗的yhm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6801#       发表于 2020-12-27 22:44
@@ -8463,7 +8463,7 @@ TC播
 深夜觅食的羊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LIPP  
 ##### 6802#       发表于 2020-12-27 22:45
@@ -8472,7 +8472,7 @@ TC播
 <img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">吃东西好可爱 更嫉妒士大夫了
 
 
------
+*****
 
 ####  A2014720  
 ##### 6803#       发表于 2020-12-27 23:10
@@ -8481,7 +8481,7 @@ TC播
 你们只是云养猪，士大夫是真养猪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6804#       发表于 2020-12-27 23:21
@@ -8490,7 +8490,7 @@ TC播
 发情了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6805#       发表于 2020-12-27 23:21
@@ -8499,7 +8499,7 @@ TC播
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6806#       发表于 2020-12-27 23:22
@@ -8508,7 +8508,7 @@ TC播
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次界限化还蛮持久的
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6807#       发表于 2020-12-27 23:23
@@ -8517,7 +8517,7 @@ TC播
 啧，这女人
 
 
------
+*****
 
 ####  vegetable  
 ##### 6808#       发表于 2020-12-27 23:24
@@ -8526,7 +8526,7 @@ TC播
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  osuppy38  
 ##### 6809#       发表于 2020-12-27 23:25
@@ -8535,7 +8535,7 @@ TC播
 众筹把主播送精神科吧，把二宫带上更好
 
 
------
+*****
 
 ####  IrisL  
 ##### 6810#       发表于 2020-12-27 23:30
@@ -8544,7 +8544,7 @@ TC播
 高强度发情中
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6811#       发表于 2020-12-27 23:33
@@ -8553,7 +8553,7 @@ TC播
 跑了
 
 
------
+*****
 
 ####  路人庚  
 ##### 6812#       发表于 2020-12-27 23:33
@@ -8567,7 +8567,7 @@ TC播
 下播前说的是稍后再见，前面说了mmo日常弄完了还要录音，这是说录完音还会深夜突击吗（
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6813#       发表于 2020-12-27 23:37
@@ -8576,7 +8576,7 @@ TC播
 一想到咩咩在阿宅们看不见的地方4545就好嗯好嗯<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6814#       发表于 2020-12-27 23:38
@@ -8666,7 +8666,7 @@ TC播
 查看全部评分
 
 
------
+*****
 
 ####  A2014720  
 ##### 6815#       发表于 2020-12-27 23:51
@@ -8675,7 +8675,7 @@ TC播
 什么粉就有什么v<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IrisL  
 ##### 6816#       发表于 2020-12-28 00:07
@@ -8684,7 +8684,7 @@ TC播
 真不怪mixi
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6817#       发表于 2020-12-28 07:17
@@ -8697,7 +8697,7 @@ TC播
 全是你楼车过的，究竟是麻是你楼意志的集中表现，还是你楼是麻的意识合集，目前尚不得知<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6818#       发表于 2020-12-28 07:27
@@ -8708,7 +8708,7 @@ TC播
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6819#       发表于 2020-12-28 09:07
@@ -8719,7 +8719,7 @@ TC播
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 6820#       发表于 2020-12-28 09:24
@@ -8728,7 +8728,7 @@ TC播
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">又是美好的一天
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6821#       发表于 2020-12-28 11:52
@@ -8739,7 +8739,7 @@ TC播
              
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6822#       发表于 2020-12-28 11:52
@@ -8748,7 +8748,7 @@ TC播
 哦对了，指koyori和noe<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6823#       发表于 2020-12-28 12:05
@@ -8757,7 +8757,7 @@ TC播
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 6824#       发表于 2020-12-28 12:10
@@ -8766,7 +8766,7 @@ TC播
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6825#       发表于 2020-12-28 12:43
@@ -8794,7 +8794,7 @@ TC播
 2020-12-28 12:43 上传
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6826#       发表于 2020-12-28 13:12
@@ -8805,7 +8805,7 @@ TC播
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  路人庚  
 ##### 6827#       发表于 2020-12-28 13:20
@@ -8821,7 +8821,7 @@ TC播
 2020-12-28 13:19 上传
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6828#       发表于 2020-12-28 13:34
@@ -8830,7 +8830,7 @@ TC播
 先奶一口她从老家回来头两天有一场桃铁联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  llconforever  
 ##### 6829#       发表于 2020-12-28 14:32
@@ -8839,7 +8839,7 @@ TC播
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白毛经典睡过头
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6830#       发表于 2020-12-28 15:51
@@ -8850,7 +8850,7 @@ TC播
 这桃铁比想象中内容多啊，三次联动才17年打的像圣杯战争一样。之前认为一次打8年，只要联动7次还是太保守了。
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6831#       发表于 2020-12-28 16:22
@@ -8886,7 +8886,7 @@ TC播
 2020-12-28 16:22 上传
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6832#       发表于 2020-12-28 16:23
@@ -8902,7 +8902,7 @@ TC播
 2020-12-28 16:23 上传
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6833#       发表于 2020-12-28 16:24
@@ -8934,7 +8934,7 @@ TC播
 查看全部评分
 
 
------
+*****
 
 ####  シルフィエット  
 ##### 6834#       发表于 2020-12-28 16:37
@@ -8943,7 +8943,7 @@ TC播
 7点油管歌回
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6835#       发表于 2020-12-28 16:56
@@ -8952,7 +8952,7 @@ TC播
 今年最后的麻酱 呜呜呜
 
 
------
+*****
 
 ####  sw11133  
 ##### 6836#       发表于 2020-12-28 17:14
@@ -8963,7 +8963,7 @@ TC播
 不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6837#       发表于 2020-12-28 17:25
@@ -8972,7 +8972,7 @@ TC播
 临行前的告别<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  physi1202  
 ##### 6838#       发表于 2020-12-28 19:13
@@ -8981,7 +8981,7 @@ TC播
 怎么我喜欢的妹子都喜欢nino<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6839#       发表于 2020-12-28 19:18
@@ -8990,7 +8990,7 @@ TC播
 明年3月份就能喝酒、赌马逛牛郎店了。
 
 
------
+*****
 
 ####  llconforever  
 ##### 6840#       发表于 2020-12-28 19:27
@@ -8999,7 +8999,7 @@ TC播
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不安。得赶紧想个法子把小麻关起来
 
 
------
+*****
 
 ####  路人庚  
 ##### 6841#       发表于 2020-12-28 19:30
@@ -9008,7 +9008,7 @@ TC播
 正好赶上开唱
 
 
------
+*****
 
 ####  vegetable  
 ##### 6842#       发表于 2020-12-28 19:49
@@ -9017,7 +9017,7 @@ TC播
 又是发情
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6843#       发表于 2020-12-28 19:50
@@ -9026,7 +9026,7 @@ TC播
 这大概就是tc歌回的感觉吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6844#       发表于 2020-12-28 20:05
@@ -9037,7 +9037,7 @@ TC播
 羊注射催产素之后的珍贵影像.mp4
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6845#       发表于 2020-12-28 20:06
@@ -9046,7 +9046,7 @@ TC播
 tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到都怀疑喝了酒。
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 6846#       发表于 2020-12-28 20:51
@@ -9056,7 +9056,7 @@ tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到
 有没有人可以用她3d的几个动作做个新宝岛MV啊，感觉能凑出来一套动作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6847#       发表于 2020-12-28 21:08
@@ -9065,7 +9065,7 @@ tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到
 非常有阿宅换纸片人老婆的感觉，这个季度一个，下季度马上下一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  シルフィエット  
 ##### 6848#       发表于 2020-12-28 21:10
@@ -9074,7 +9074,7 @@ tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到
 又搁这做意面了
 
 
------
+*****
 
 ####  kerfars  
 ##### 6849#       发表于 2020-12-28 21:13
@@ -9083,7 +9083,7 @@ tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到
 完成度很高，建议剪出来（）
 
 
------
+*****
 
 ####  シルフィエット  
 ##### 6850#       发表于 2020-12-28 21:33
@@ -9092,7 +9092,7 @@ tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到
 言って。
 
 
------
+*****
 
 ####  シルフィエット  
 ##### 6851#       发表于 2020-12-28 21:57
@@ -9101,7 +9101,7 @@ tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到
 愛唄好耶！上次是1121之前唱的了
 
 
------
+*****
 
 ####  elect  
 ##### 6852#       发表于 2020-12-28 22:02
@@ -9110,7 +9110,7 @@ tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到
 好耐久哦
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6853#       发表于 2020-12-28 22:06
@@ -9119,7 +9119,7 @@ tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到
 今天是可以循环的歌回<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LIPP  
 ##### 6854#       发表于 2020-12-28 22:12
@@ -9128,7 +9128,7 @@ tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">又到了抒情连唱时间
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6855#       发表于 2020-12-28 22:12
@@ -9137,7 +9137,7 @@ tc状态怎么跑油管了，岚的药效这么强吗？？不是她年龄没到
 mea的歌单里有几名钉子户。
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6856#       发表于 2020-12-28 22:31
@@ -9146,7 +9146,7 @@ mea的歌单里有几名钉子户。
 草 自己encore还行
 
 
------
+*****
 
 ####  A-Wie  
 ##### 6857#       发表于 2020-12-28 22:33
@@ -9155,7 +9155,7 @@ mea的歌单里有几名钉子户。
 <img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 6858#       发表于 2020-12-28 22:37
@@ -9164,7 +9164,7 @@ mea的歌单里有几名钉子户。
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6859#       发表于 2020-12-28 22:42
@@ -9173,7 +9173,7 @@ mea的歌单里有几名钉子户。
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 6860#       发表于 2020-12-28 22:45
@@ -9182,7 +9182,7 @@ mea的歌单里有几名钉子户。
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  muldrotha  
 ##### 6861#       发表于 2020-12-28 22:53
@@ -9282,7 +9282,7 @@ mea的歌单里有几名钉子户。
 查看全部评分
 
 
------
+*****
 
 ####  我想做mkm的舔狗  
 ##### 6862#       发表于 2020-12-28 23:13
@@ -9291,7 +9291,7 @@ mea的歌单里有几名钉子户。
 结束了啊今年
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6863#       发表于 2020-12-28 23:18
@@ -9302,7 +9302,7 @@ mea的歌单里有几名钉子户。
 要疯了要疯了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6864#       发表于 2020-12-28 23:22
@@ -9313,7 +9313,7 @@ mea的歌单里有几名钉子户。
 今年一整年都见不到麻酱了...
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6865#       发表于 2020-12-29 01:14
@@ -9323,7 +9323,7 @@ mea的歌单里有几名钉子户。
 また来年
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6866#       发表于 2020-12-29 08:18
@@ -9332,7 +9332,7 @@ mea的歌单里有几名钉子户。
 日子不好过啊 养点螃蟹顶一顶吧
 
 
------
+*****
 
 ####  sw11133  
 ##### 6867#       发表于 2020-12-29 08:54
@@ -9343,7 +9343,7 @@ mea的歌单里有几名钉子户。
 那没事了
 
 
------
+*****
 
 ####  D麦林  
 ##### 6868#       发表于 2020-12-29 09:06
@@ -9352,7 +9352,7 @@ mea的歌单里有几名钉子户。
 羊肉螃蟹煲<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6869#       发表于 2020-12-29 09:19
@@ -9363,7 +9363,7 @@ mea的歌单里有几名钉子户。
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6870#       发表于 2020-12-29 09:30
@@ -9372,7 +9372,7 @@ mea的歌单里有几名钉子户。
 我怀疑现在的你们已经可以把吃螃蟹方法的文章当r18g看了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6871#       发表于 2020-12-29 09:43
@@ -9381,7 +9381,7 @@ mea的歌单里有几名钉子户。
 之前不就有吃羊腿的
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6872#       发表于 2020-12-29 09:51
@@ -9392,7 +9392,7 @@ mea的歌单里有几名钉子户。
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6873#       发表于 2020-12-29 09:55
@@ -9401,7 +9401,7 @@ mea的歌单里有几名钉子户。
 软壳蟹<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6874#       发表于 2020-12-29 10:00
@@ -9410,7 +9410,7 @@ mea的歌单里有几名钉子户。
 麻酱不在的第一天，只有你楼的弱智time才有些许温度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6875#       发表于 2020-12-29 10:14
@@ -9419,7 +9419,7 @@ mea的歌单里有几名钉子户。
 吃下去就永远在一起了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6876#       发表于 2020-12-29 10:38
@@ -9428,7 +9428,7 @@ mea的歌单里有几名钉子户。
 麻酱拌蟹腿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 6877#       发表于 2020-12-29 10:39
@@ -9439,7 +9439,7 @@ mea的歌单里有几名钉子户。
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  路人庚  
 ##### 6878#       发表于 2020-12-29 10:58
@@ -9448,7 +9448,7 @@ mea的歌单里有几名钉子户。
 麻骑麻的味道，原来是这样的啊（
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 6879#       发表于 2020-12-29 11:31
@@ -9457,7 +9457,7 @@ mea的歌单里有几名钉子户。
 她正好过年要吃螃蟹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6880#       发表于 2020-12-29 11:39
@@ -9466,7 +9466,7 @@ mea的歌单里有几名钉子户。
 嘬蟹腿
 
 
------
+*****
 
 ####  sw11133  
 ##### 6881#       发表于 2020-12-29 12:21
@@ -9475,7 +9475,7 @@ mea的歌单里有几名钉子户。
 想嘬蟹腿蟹胸
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6882#       发表于 2020-12-29 12:32
@@ -9484,7 +9484,7 @@ mea的歌单里有几名钉子户。
 草被你们说的我真的想吃螃蟹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 6883#       发表于 2020-12-29 15:30
@@ -9493,7 +9493,7 @@ mea的歌单里有几名钉子户。
 哎，现在的身体，已经告别吃螃蟹了，会脚痛，我 是羊党
 
 
------
+*****
 
 ####  A2014720  
 ##### 6884#       发表于 2020-12-29 19:28
@@ -9502,7 +9502,7 @@ mea的歌单里有几名钉子户。
 渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  physi1202  
 ##### 6885#       发表于 2020-12-29 19:48
@@ -9511,7 +9511,7 @@ mea的歌单里有几名钉子户。
 怎么楼友年纪轻轻就痛风了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kerfars  
 ##### 6886#       发表于 2020-12-29 19:50
@@ -9520,7 +9520,7 @@ mea的歌单里有几名钉子户。
 真的年纪轻轻吗（）
 
 
------
+*****
 
 ####  gongge666  
 ##### 6887#       发表于 2020-12-29 22:20
@@ -9529,7 +9529,7 @@ mea的歌单里有几名钉子户。
 戒断了
 
 
------
+*****
 
 ####  elect  
 ##### 6888#       发表于 2020-12-29 22:27
@@ -9538,7 +9538,7 @@ mea的歌单里有几名钉子户。
 怎么fleet都不发一个
 
 
------
+*****
 
 ####  clvan_  
 ##### 6889#       发表于 2020-12-29 22:28
@@ -9547,7 +9547,7 @@ mea的歌单里有几名钉子户。
 抛弃我们去过真正的现充生活了呜呜呜
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6890#       发表于 2020-12-29 22:35
@@ -9556,7 +9556,7 @@ mea的歌单里有几名钉子户。
 明天估计就会动了吧，今天是爸妈管教第一日
 
 
------
+*****
 
 ####  菊花战士  
 ##### 6891#       发表于 2020-12-29 23:10
@@ -9565,7 +9565,7 @@ mea的歌单里有几名钉子户。
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">等一个被窝TC
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6892#       发表于 2020-12-29 23:58
@@ -9576,7 +9576,7 @@ mea的歌单里有几名钉子户。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6893#       发表于 2020-12-30 07:01
@@ -9587,7 +9587,7 @@ mea的歌单里有几名钉子户。
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6894#       发表于 2020-12-30 07:17
@@ -9596,7 +9596,7 @@ mea的歌单里有几名钉子户。
 会被麻妈按着头相亲吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  时雨rain  
 ##### 6895#       发表于 2020-12-30 09:47
@@ -9605,7 +9605,7 @@ mea的歌单里有几名钉子户。
 别尬黑，你麻有二宫这个偶像老公了😓
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6896#       发表于 2020-12-30 09:58
@@ -9615,7 +9615,7 @@ tctctctctctc我的tc还不来呜呜呜呜<img src="https://static.saraba1st.com/
 戒断了
 
 
------
+*****
 
 ####  LIPP  
 ##### 6897#       发表于 2020-12-30 12:27
@@ -9624,7 +9624,7 @@ tctctctctctc我的tc还不来呜呜呜呜<img src="https://static.saraba1st.com/
 这才一天 就已经忘了我了吗 小麻<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6898#       发表于 2020-12-30 14:28
@@ -9640,7 +9640,7 @@ tctctctctctc我的tc还不来呜呜呜呜<img src="https://static.saraba1st.com/
 2020-12-30 14:28 上传
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 6899#       发表于 2020-12-30 16:29
@@ -9649,7 +9649,7 @@ tctctctctctc我的tc还不来呜呜呜呜<img src="https://static.saraba1st.com/
 我放弃了，我应该多跟周围的朋友多在一起，再见了，小麻
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6900#       发表于 2020-12-30 16:47
@@ -9658,7 +9658,7 @@ tctctctctctc我的tc还不来呜呜呜呜<img src="https://static.saraba1st.com/
 咩宝一定是养女，虚拟灰姑娘，好可怜<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 6901#       发表于 2020-12-30 17:01
@@ -9667,7 +9667,7 @@ tctctctctctc我的tc还不来呜呜呜呜<img src="https://static.saraba1st.com/
 不都穿上水晶鞋了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6902#       发表于 2020-12-30 17:09
@@ -9676,7 +9676,7 @@ tctctctctctc我的tc还不来呜呜呜呜<img src="https://static.saraba1st.com/
 出门不洗澡就上床被骂不是很正常吗 小时候就经常因为这被骂
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 6903#       发表于 2020-12-30 17:17
@@ -9686,7 +9686,7 @@ tctctctctctc我的tc还不来呜呜呜呜<img src="https://static.saraba1st.com/
 这就是挑衅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6904#       发表于 2020-12-30 18:16
@@ -9736,7 +9736,7 @@ tctctctctctc我的tc还不来呜呜呜呜<img src="https://static.saraba1st.com/
 查看全部评分
 
 
------
+*****
 
 ####  hwlzdjbrs  
 ##### 6905#       发表于 2020-12-30 18:33
@@ -9771,7 +9771,7 @@ QQ图片20201230183330.jpg
 <img src="https://img.saraba1st.com/forum/202012/30/183349n5sr1ex1r1u3c43w.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6906#       发表于 2020-12-30 18:57
@@ -9797,7 +9797,7 @@ QQ图片20201230183330.jpg
 2020-12-30 18:57 上传
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6907#       发表于 2020-12-31 10:46
@@ -9806,7 +9806,7 @@ QQ图片20201230183330.jpg
 卡古拉咩啊一动不动<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 6908#       发表于 2020-12-31 11:19
@@ -9821,7 +9821,7 @@ QQ图片20201230183330.jpg
 再见了巨魔的我！
 
 
------
+*****
 
 ####  kenjjj  
 ##### 6909#       发表于 2020-12-31 11:21
@@ -9830,7 +9830,7 @@ QQ图片20201230183330.jpg
 今年限定是吧，明年继续巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6910#       发表于 2020-12-31 12:00
@@ -9846,7 +9846,7 @@ QQ图片20201230183330.jpg
 2020-12-31 12:00 上传
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 6911#       发表于 2020-12-31 12:05
@@ -9868,7 +9868,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 <img src="https://img.saraba1st.com/forum/202012/31/120156mrqdhc4dcd1cd2cf.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  兔耳僵尸  
 ##### 6912#       发表于 2020-12-31 12:13
@@ -9878,7 +9878,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 居然不是官组
 
 
------
+*****
 
 ####  A2014720  
 ##### 6913#       发表于 2020-12-31 12:29
@@ -9887,7 +9887,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6914#       发表于 2020-12-31 12:30
@@ -9905,7 +9905,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  离心  
 ##### 6915#       发表于 2020-12-31 12:39
@@ -9914,7 +9914,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 今年就不对meaqua阴湿了，祝愿两人贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6916#       发表于 2020-12-31 12:40
@@ -9935,7 +9935,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 2020-12-31 12:39 上传
 
 
------
+*****
 
 ####  路人庚  
 ##### 6917#       发表于 2020-12-31 13:43
@@ -9951,7 +9951,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 2020-12-31 13:43 上传
 
 
------
+*****
 
 ####  路人庚  
 ##### 6918#       发表于 2020-12-31 15:11
@@ -9960,7 +9960,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 发了个万档饭盒还行，今天这个点了还干活的吗（
 
 
------
+*****
 
 ####  呓亘  
 ##### 6919#       发表于 2020-12-31 15:54
@@ -9969,7 +9969,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 敬业先锋神乐咩
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6920#       发表于 2020-12-31 15:59
@@ -9978,7 +9978,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 所以什么时候TC
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6921#       发表于 2020-12-31 16:38
@@ -9987,7 +9987,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6922#       发表于 2020-12-31 16:44
@@ -9996,7 +9996,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  菊花战士  
 ##### 6923#       发表于 2020-12-31 17:28
@@ -10005,7 +10005,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6924#       发表于 2020-12-31 18:57
@@ -10014,7 +10014,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 现在开启岚的live就能跟阿咩一起同步试听了，而且等到有nino出场的画面，还可以很轻松的脑补到阿咩兴奋的尖叫声（
 
 
------
+*****
 
 ####  路人庚  
 ##### 6925#       发表于 2020-12-31 22:35
@@ -10030,7 +10030,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 2020-12-31 22:35 上传
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6926#       发表于 2020-12-31 23:08
@@ -10039,7 +10039,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐啊咩咩，希望今年你也能有很多开心的事情<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 6927#       发表于 2020-12-31 23:10
@@ -10048,7 +10048,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 20岁啊，小麻要长大了，等一个振袖和服<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  离心  
 ##### 6928#       发表于 2021-1-1 00:01
@@ -10057,7 +10057,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐，希望新的一年你能快快乐乐的
 
 
------
+*****
 
 ####  KL25001  
 ##### 6929#       发表于 2021-1-1 00:03
@@ -10123,7 +10123,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 查看全部评分
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6930#       发表于 2021-1-1 00:06
@@ -10133,7 +10133,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 <img src="https://p.sda1.dev/0/defff2f53a48e71b4a94866030040990/IMG_CMP_163171262.jpeg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elect  
 ##### 6931#       发表于 2021-1-1 00:14
@@ -10142,7 +10142,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 21年，希望她能平稳吧
 
 
------
+*****
 
 ####  aisakahammer  
 ##### 6932#       发表于 2021-1-1 00:15
@@ -10151,7 +10151,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
  各位新年快乐
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 6933#       发表于 2021-1-1 00:21
@@ -10160,7 +10160,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6934#       发表于 2021-1-1 00:22
@@ -10169,7 +10169,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 楼友新年快乐(*'▽'*)♪
 
 
------
+*****
 
 ####  jhouo8989  
 ##### 6935#       发表于 2021-1-1 00:23
@@ -10178,7 +10178,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6936#       发表于 2021-1-1 00:28
@@ -10187,7 +10187,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐
 
 
------
+*****
 
 ####  A-Wie  
 ##### 6937#       发表于 2021-1-1 00:28
@@ -10198,7 +10198,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 6938#       发表于 2021-1-1 00:39
@@ -10207,7 +10207,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 各位楼友新年快乐
 
 
------
+*****
 
 ####  Ky·Kiske  
 ##### 6939#       发表于 2021-1-1 00:41
@@ -10218,7 +10218,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 6940#       发表于 2021-1-1 00:42
@@ -10227,7 +10227,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐
 
 
------
+*****
 
 ####  时雨rain  
 ##### 6941#       发表于 2021-1-1 00:43
@@ -10238,7 +10238,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐
 
 
------
+*****
 
 ####  斗斗一号  
 ##### 6942#       发表于 2021-1-1 01:43
@@ -10247,7 +10247,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐
 
 
------
+*****
 
 ####  Sleipnirω  
 ##### 6943#       发表于 2021-1-1 01:50
@@ -10258,7 +10258,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  シルフィエット  
 ##### 6944#       发表于 2021-1-1 03:00
@@ -10291,7 +10291,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 查看全部评分
 
 
------
+*****
 
 ####  hwlzdjbrs  
 ##### 6945#       发表于 2021-1-1 13:47
@@ -10300,7 +10300,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 草 看同好会评论还真有因为乐子人宣传 然后入咩坑的新人么
 
 
------
+*****
 
 ####  KL25001  
 ##### 6946#       发表于 2021-1-1 13:53
@@ -10309,7 +10309,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 黑流量也是流量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 6947#       发表于 2021-1-1 14:09
@@ -10318,7 +10318,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 什么，还有新人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lovcavil  
 ##### 6948#       发表于 2021-1-1 14:37
@@ -10327,7 +10327,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 什么，还有人
 
 
------
+*****
 
 ####  离心  
 ##### 6949#       发表于 2021-1-1 14:45
@@ -10336,7 +10336,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 什么，还有流量？
 
 
------
+*****
 
 ####  游山赫乃丈丶  
 ##### 6950#       发表于 2021-1-1 16:12
@@ -10348,7 +10348,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">肯定有的啊 孙狗变孙哥 流量时代 黑流量也是流量 
 
 
------
+*****
 
 ####  路人庚  
 ##### 6951#       发表于 2021-1-1 16:20
@@ -10362,7 +10362,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 虽然可以猜到这应该是问过你咩姐之后的做法
 
 
------
+*****
 
 ####  A2014720  
 ##### 6952#       发表于 2021-1-1 17:04
@@ -10371,7 +10371,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 想回看也不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 6953#       发表于 2021-1-1 17:05
@@ -10380,7 +10380,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 之前想找鲜血王座那个fleet时就发现了
 
 
------
+*****
 
 ####  Sleipnirω  
 ##### 6954#       发表于 2021-1-1 17:20
@@ -10391,7 +10391,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  路人庚  
 ##### 6955#       发表于 2021-1-1 17:30
@@ -10400,7 +10400,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 巧了，我今天也是想去找鲜血王座那个fleet结果发现官号没了
 
 
------
+*****
 
 ####  若风之景  
 ##### 6956#       发表于 2021-1-1 18:54
@@ -10411,7 +10411,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 —— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 6957#       发表于 2021-1-1 19:07
@@ -10420,7 +10420,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年新气象
 
 
------
+*****
 
 ####  平半高水  
 ##### 6958#       发表于 2021-1-1 20:02
@@ -10446,7 +10446,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 2021-1-1 19:53 上传
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6959#       发表于 2021-1-1 20:05
@@ -10458,7 +10458,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 比 较 安 静，认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  平半高水  
 ##### 6960#       发表于 2021-1-1 20:07
@@ -10472,7 +10472,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">因为我看的那次就是比较安静，一直在唱歌，不怎么说话，唱的都是很抒情的歌
 
 
------
+*****
 
 ####  路人庚  
 ##### 6961#       发表于 2021-1-1 20:25
@@ -10481,7 +10481,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 现在确实除了偶尔吹台风、玩玩阴间变声器，确实比较安静了
 
 
------
+*****
 
 ####  WhiteAvalon  
 ##### 6962#       发表于 2021-1-1 20:28
@@ -10492,7 +10492,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 草，老哥我跟你经历好像，牌子等级都一样的，但我是20年3月Vtuber吧炸时入咩坑的，当时就过了几天吧里咩黑料就有一大堆，我人看傻了，很多发散的贼离谱，搞的我把以前的直播录像补了些，然后接受了，就一直看下去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  平半高水  
 ##### 6963#       发表于 2021-1-1 21:01
@@ -10510,7 +10510,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 然后最重要的是：她的直播确实很有趣
 
 
------
+*****
 
 ####  ryy3jk  
 ##### 6964#       发表于 2021-1-1 21:09
@@ -10519,7 +10519,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐
 
 
------
+*****
 
 ####  jhouo8989  
 ##### 6965#       发表于 2021-1-1 21:13
@@ -10530,7 +10530,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 很多“黑料”切片节目效果就很好，可惜大🔥不爱听真话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 6966#       发表于 2021-1-1 22:27
@@ -10539,7 +10539,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 新年快乐
 
 
------
+*****
 
 ####  月下红魔  
 ##### 6967#       发表于 2021-1-2 09:02
@@ -10551,7 +10551,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  LIPP  
 ##### 6968#       发表于 2021-1-2 12:06
@@ -10560,7 +10560,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 突然想起来今天晚上7点还有live回放
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 6969#       发表于 2021-1-2 12:56
@@ -10569,7 +10569,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这蠢女人摸几天来着？
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6970#       发表于 2021-1-2 14:45
@@ -10578,7 +10578,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 说是四天 但是她那么蠢 说不定算错了
 
 
------
+*****
 
 ####  路人辰  
 ##### 6971#       发表于 2021-1-2 16:11
@@ -10596,7 +10596,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 2021-1-2 16:10 上传
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 6972#       发表于 2021-1-2 16:57
@@ -10605,7 +10605,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 说起来我也是2月入坑的 经历也差不多 想看完黑料再gachi上的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JY要塞  
 ##### 6973#       发表于 2021-1-2 18:44
@@ -10614,7 +10614,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">一想到过年每天体重都会up
 
 
------
+*****
 
 ####  路人辰  
 ##### 6974#       发表于 2021-1-2 18:46
@@ -10632,7 +10632,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 2021-1-2 18:46 上传
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6975#       发表于 2021-1-2 18:56
@@ -10641,7 +10641,7 @@ Screenshot_2020-12-31-11-54-30-19_149003a2d400f6adb210d7e357a3a646.jpg
 bls重播开了，7点开始
 
 
------
+*****
 
 ####  Sleipnirω  
 ##### 6976#       发表于 2021-1-2 19:03
@@ -10652,7 +10652,7 @@ bls重播开了，7点开始
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  路人庚  
 ##### 6977#       发表于 2021-1-2 19:07
@@ -10661,7 +10661,7 @@ bls重播开了，7点开始
 之前歌词也是有字幕的
 
 
------
+*****
 
 ####  KL25001  
 ##### 6978#       发表于 2021-1-2 19:11
@@ -10670,7 +10670,7 @@ bls重播开了，7点开始
 无论多少次，都感觉这个大衣3d是好文明
 
 
------
+*****
 
 ####  whbstc4545  
 ##### 6979#       发表于 2021-1-2 19:12
@@ -10679,7 +10679,7 @@ bls重播开了，7点开始
 真全熟了，看来是要卖bd了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6980#       发表于 2021-1-2 19:15
@@ -10688,7 +10688,7 @@ bls重播开了，7点开始
 9成熟还行
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 6981#       发表于 2021-1-2 19:32
@@ -10697,7 +10697,7 @@ bls重播开了，7点开始
 真想把她按在椅子上强迫她一直看自己3D的各种动作<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6982#       发表于 2021-1-2 19:47
@@ -10706,7 +10706,7 @@ bls重播开了，7点开始
 重听才明白mea把“多少钱”唱成了“小姐”
 
 
------
+*****
 
 ####  sw11133  
 ##### 6983#       发表于 2021-1-2 21:04
@@ -10721,7 +10721,7 @@ bls重播开了，7点开始
 难道法兰西帝国复兴在即？
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 6984#       发表于 2021-1-2 21:18
@@ -10730,7 +10730,7 @@ bls重播开了，7点开始
 他们的话，什么“阳光天狗”，什么“路人天狗”，什么“新人天狗”，在我耳里，竟是一个字也听不懂！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 6985#       发表于 2021-1-2 21:20
@@ -10739,7 +10739,7 @@ bls重播开了，7点开始
 我也看不懂
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 6986#       发表于 2021-1-2 21:27
@@ -10748,7 +10748,7 @@ bls重播开了，7点开始
 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 6987#       发表于 2021-1-2 21:30
@@ -10757,7 +10757,7 @@ bls重播开了，7点开始
 我是绿光天狗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Sleipnirω  
 ##### 6988#       发表于 2021-1-2 21:31
@@ -10768,7 +10768,7 @@ bls重播开了，7点开始
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  sw11133  
 ##### 6989#       发表于 2021-1-2 21:33
@@ -10777,7 +10777,7 @@ bls重播开了，7点开始
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到反攻倒算
 
 
------
+*****
 
 ####  sw11133  
 ##### 6990#       发表于 2021-1-2 21:48
@@ -10788,7 +10788,7 @@ bls重播开了，7点开始
 也就是说bd会贩卖的意思是把
 
 
------
+*****
 
 ####  草牛  
 ##### 6991#       发表于 2021-1-2 21:48
@@ -10797,7 +10797,7 @@ bls重播开了，7点开始
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼谁说的按着你咩姐的头一起看的？
 
 
------
+*****
 
 ####  シルフィエット  
 ##### 6992#       发表于 2021-1-2 21:48
@@ -10808,7 +10808,7 @@ bls重播开了，7点开始
 公开处刑来了
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 6993#       发表于 2021-1-2 21:48
@@ -10817,7 +10817,7 @@ bls重播开了，7点开始
 同步视听它来力
 
 
------
+*****
 
 ####  路人庚  
 ##### 6994#       发表于 2021-1-2 21:48
@@ -10829,7 +10829,7 @@ bls重播开了，7点开始
 1月24日，公开处刑同步视听bls
 
 
------
+*****
 
 ####  llconforever  
 ##### 6995#       发表于 2021-1-2 21:48
@@ -10838,7 +10838,7 @@ bls重播开了，7点开始
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1月24日小麻公开处刑自己
 
 
------
+*****
 
 ####  KL25001  
 ##### 6996#       发表于 2021-1-2 21:49
@@ -10849,7 +10849,7 @@ bls重播开了，7点开始
 这个真不错，比BD什么的实在多了
 
 
------
+*****
 
 ####  缺陷电气杨永信  
 ##### 6997#       发表于 2021-1-2 21:49
@@ -10871,7 +10871,7 @@ bls重播开了，7点开始
 2021-1-2 21:52 上传
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 6998#       发表于 2021-1-2 21:49
@@ -10881,7 +10881,7 @@ bls重播开了，7点开始
 我到要看看到时候她会怎么吐槽自己各种搞怪的动作<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 6999#       发表于 2021-1-2 21:50
@@ -10890,7 +10890,7 @@ bls重播开了，7点开始
 原创单曲啥时候发啊，我等memory好久了
 
 
------
+*****
 
 ####  斗斗一号  
 ##### 7000#       发表于 2021-1-2 21:50
@@ -10899,7 +10899,7 @@ bls重播开了，7点开始
 不错，公开处刑
 
 
------
+*****
 
 ####  A-Wie  
 ##### 7001#       发表于 2021-1-2 21:50
@@ -10908,7 +10908,7 @@ bls重播开了，7点开始
 可以听到咩咩害羞的惨叫了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7002#       发表于 2021-1-2 21:50
@@ -10917,7 +10917,7 @@ bls重播开了，7点开始
 写下时间，1月24日北京19点
 
 
------
+*****
 
 ####  斗斗一号  
 ##### 7003#       发表于 2021-1-2 21:50
@@ -10926,7 +10926,7 @@ bls重播开了，7点开始
 是的  原创曲还以为演唱会结束就会出了，结果到现在一点消息都没
 
 
------
+*****
 
 ####  シルフィエット  
 ##### 7004#       发表于 2021-1-2 21:51
@@ -10935,7 +10935,7 @@ bls重播开了，7点开始
 不会得等到24号同时视听结束后才有吧
 
 
------
+*****
 
 ####  BigLittle1999  
 ##### 7005#       发表于 2021-1-2 21:52
@@ -10944,7 +10944,7 @@ bls重播开了，7点开始
 同步视听好耶
 
 
------
+*****
 
 ####  caupollen  
 ##### 7006#       发表于 2021-1-2 21:52
@@ -10953,7 +10953,7 @@ bls重播开了，7点开始
 想知道这个24号同时试听放不放画面，屏蔽不屏蔽海外ip<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">在海外能不能看
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 7007#       发表于 2021-1-2 21:53
@@ -10962,7 +10962,7 @@ bls重播开了，7点开始
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">针不戳
 
 
------
+*****
 
 ####  路人庚  
 ##### 7008#       发表于 2021-1-2 21:54
@@ -10974,7 +10974,7 @@ bls重播开了，7点开始
 感觉可能是b限、nico双推流
 
 
------
+*****
 
 ####  笋狐  
 ##### 7009#       发表于 2021-1-2 21:54
@@ -10983,7 +10983,7 @@ bls重播开了，7点开始
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连续性暂停-闭麦-上厕所警告
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 7010#       发表于 2021-1-2 21:56
@@ -10994,7 +10994,7 @@ bls重播开了，7点开始
 没想到以这种方式暴露了我是mea男友的事实
 
 
------
+*****
 
 ####  onlv星骸  
 ##### 7011#       发表于 2021-1-2 21:56
@@ -11003,7 +11003,7 @@ bls重播开了，7点开始
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">为什么都预定是哈子卡西，就不能对自己发情吗
 
 
------
+*****
 
 ####  离心  
 ##### 7012#       发表于 2021-1-2 21:57
@@ -11012,7 +11012,7 @@ bls重播开了，7点开始
 好耶
 
 
------
+*****
 
 ####  elect  
 ##### 7013#       发表于 2021-1-2 21:57
@@ -11021,7 +11021,7 @@ bls重播开了，7点开始
 对自己发情还行，她对爱丽丝发情的样子我做梦都能梦到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7014#       发表于 2021-1-2 22:45
@@ -11030,7 +11030,7 @@ bls重播开了，7点开始
 这是打算弄个副音轨，塞bd里？？
 
 
------
+*****
 
 ####  月下红魔  
 ##### 7015#       发表于 2021-1-2 23:26
@@ -11041,7 +11041,7 @@ bls重播开了，7点开始
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7016#       发表于 2021-1-2 23:41
@@ -11050,7 +11050,7 @@ bls重播开了，7点开始
 我自己吐槽我自己，装傻吐槽一体机
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 7017#       发表于 2021-1-3 00:03
@@ -11059,7 +11059,7 @@ bls重播开了，7点开始
 叔叔不愧是资本家，一场演唱会卖三次
 
 
------
+*****
 
 ####  路人庚  
 ##### 7018#       发表于 2021-1-3 00:12
@@ -11068,7 +11068,7 @@ bls重播开了，7点开始
 我还以为24日会是免费的，这可真是误会了
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7019#       发表于 2021-1-3 00:23
@@ -11079,7 +11079,7 @@ bls重播开了，7点开始
 不过b站还没做好相关功能，明明已经有了付费点播，却还没有在这种演唱会直播搞付费后可以回看视频。
 
 
------
+*****
 
 ####  onlv星骸  
 ##### 7020#       发表于 2021-1-3 09:20
@@ -11088,7 +11088,7 @@ bls重播开了，7点开始
 熟肉估计也得bd才有了
 
 
------
+*****
 
 ####  CHEUOH  
 ##### 7021#       发表于 2021-1-3 16:12
@@ -11097,7 +11097,7 @@ bls重播开了，7点开始
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">终于能说话了
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 7022#       发表于 2021-1-3 17:41
@@ -11106,7 +11106,7 @@ bls重播开了，7点开始
 这次戒断意外得还行？
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 7023#       发表于 2021-1-3 18:19
@@ -11115,7 +11115,7 @@ bls重播开了，7点开始
 新时代乐子看不完呀，麻快播，
 
 
------
+*****
 
 ####  dark_lemon  
 ##### 7024#       发表于 2021-1-3 18:55
@@ -11127,7 +11127,7 @@ bls重播开了，7点开始
 你翻墙出去 然后看能不能购票就知道禁不禁海外IP了 通常禁了是买不了票的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 7025#       发表于 2021-1-3 19:00
@@ -11141,7 +11141,7 @@ bls重播开了，7点开始
 不过我已经看到下面写了只提供大陆港澳台了，海外ip能买但也要翻回来看
 
 
------
+*****
 
 ####  路人辰  
 ##### 7026#       发表于 2021-1-3 19:27
@@ -11159,7 +11159,7 @@ bls重播开了，7点开始
 2021-1-3 19:27 上传
 
 
------
+*****
 
 ####  路人庚  
 ##### 7027#       发表于 2021-1-3 19:45
@@ -11168,7 +11168,7 @@ bls重播开了，7点开始
 新推，家里饭还是好恰啊
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7028#       发表于 2021-1-3 21:18
@@ -11177,7 +11177,7 @@ bls重播开了，7点开始
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 7029#       发表于 2021-1-3 21:32
@@ -11186,7 +11186,7 @@ bls重播开了，7点开始
 对了，昨天有翻译版本的bls有人录了吗，可不可以求一份<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  εRemastered  
 ##### 7030#       发表于 2021-1-3 22:29
@@ -11197,7 +11197,7 @@ bls重播开了，7点开始
 太屑了这也
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7031#       发表于 2021-1-3 23:14
@@ -11209,7 +11209,7 @@ bls重播开了，7点开始
 叫还能买票
 
 
------
+*****
 
 ####  Kayz996  
 ##### 7032#       发表于 2021-1-4 00:45
@@ -11218,7 +11218,7 @@ bls重播开了，7点开始
 这个我懂，叫边际效应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7033#       发表于 2021-1-4 07:08
@@ -11227,7 +11227,7 @@ bls重播开了，7点开始
 小麻要被榨干了，还搭上了如月，叔叔你好恶毒<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7034#       发表于 2021-1-4 09:44
@@ -11236,7 +11236,7 @@ bls重播开了，7点开始
 今天要回来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人辰  
 ##### 7035#       发表于 2021-1-4 10:47
@@ -11254,7 +11254,7 @@ bls重播开了，7点开始
 2021-1-4 10:46 上传
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 7036#       发表于 2021-1-4 10:51
@@ -11263,7 +11263,7 @@ bls重播开了，7点开始
 要 秃 了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7037#       发表于 2021-1-4 11:32
@@ -11274,7 +11274,7 @@ bls重播开了，7点开始
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  physi1202  
 ##### 7038#       发表于 2021-1-4 11:37
@@ -11283,7 +11283,7 @@ bls重播开了，7点开始
 脑补空丸刘海
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7039#       发表于 2021-1-4 11:47
@@ -11292,7 +11292,7 @@ bls重播开了，7点开始
 刘海...我的狗啃刘海...<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7040#       发表于 2021-1-4 14:34
@@ -11301,7 +11301,7 @@ bls重播开了，7点开始
 要变大额头了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人辰  
 ##### 7041#       发表于 2021-1-4 14:36
@@ -11319,7 +11319,7 @@ bls重播开了，7点开始
 2021-1-4 14:35 上传
 
 
------
+*****
 
 ####  路人庚  
 ##### 7042#       发表于 2021-1-4 15:18
@@ -11328,7 +11328,7 @@ bls重播开了，7点开始
 tc突击
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7043#       发表于 2021-1-4 15:21
@@ -11337,7 +11337,7 @@ tc突击
 好好好好好，不戒断了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7044#       发表于 2021-1-4 15:22
@@ -11348,7 +11348,7 @@ tc突击
 这声音也太肥了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7045#       发表于 2021-1-4 15:24
@@ -11357,7 +11357,7 @@ tc突击
 热乎的咩咩，赶上了赶上了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  笋狐  
 ##### 7046#       发表于 2021-1-4 15:25
@@ -11366,7 +11366,7 @@ tc突击
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每逢佳节....等会儿，她这胖了应该不止三斤吧
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7047#       发表于 2021-1-4 15:31
@@ -11375,7 +11375,7 @@ tc突击
 这才几天啊，坦克民差不多得了，明明声音跟18年差不多甚至更早差不多的(<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7048#       发表于 2021-1-4 17:39
@@ -11384,7 +11384,7 @@ tc突击
 这人貌似刚说到了不二家,然后被人开玩笑说要找到了
 
 
------
+*****
 
 ####  路人庚  
 ##### 7049#       发表于 2021-1-4 17:42
@@ -11393,7 +11393,7 @@ tc突击
 我已经到她公寓楼下了
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7050#       发表于 2021-1-4 17:43
@@ -11402,7 +11402,7 @@ tc突击
 很快就到麻家门口
 
 
------
+*****
 
 ####  physi1202  
 ##### 7051#       发表于 2021-1-4 17:44
@@ -11411,7 +11411,7 @@ tc突击
 你们来晚了 我已经在床上了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 7052#       发表于 2021-1-4 17:46
@@ -11420,7 +11420,7 @@ tc突击
 已经带她去做产检了
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7053#       发表于 2021-1-4 17:50
@@ -11429,7 +11429,7 @@ tc突击
 已经抱上我和她的孩子了
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 7054#       发表于 2021-1-4 17:51
@@ -11438,7 +11438,7 @@ tc突击
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">妈的，还是你们等级高
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 7055#       发表于 2021-1-4 17:53
@@ -11447,7 +11447,7 @@ tc突击
 是真的 我是接产的医生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 7056#       发表于 2021-1-4 17:57
@@ -11456,7 +11456,7 @@ tc突击
 孩子他妈说今天家里人多，让我多买点菜<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7057#       发表于 2021-1-4 18:01
@@ -11465,7 +11465,7 @@ tc突击
 已经和小小麻结婚了
 
 
------
+*****
 
 ####  路人辰  
 ##### 7058#       发表于 2021-1-4 18:04
@@ -11483,7 +11483,7 @@ tc突击
 2021-1-4 18:03 上传
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7059#       发表于 2021-1-4 18:29
@@ -11494,7 +11494,7 @@ tc突击
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Sleipnirω  
 ##### 7060#       发表于 2021-1-4 18:33
@@ -11505,7 +11505,7 @@ tc突击
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  LIPP  
 ##### 7061#       发表于 2021-1-4 18:33
@@ -11514,7 +11514,7 @@ tc突击
 小小麻东大毕业 再也不是厂妹了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7062#       发表于 2021-1-4 18:34
@@ -11523,7 +11523,7 @@ tc突击
 小小麻已经是我的了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7063#       发表于 2021-1-4 18:48
@@ -11532,7 +11532,7 @@ tc突击
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人辰  
 ##### 7064#       发表于 2021-1-4 18:55
@@ -11550,7 +11550,7 @@ tc突击
 2021-1-4 18:55 上传
 
 
------
+*****
 
 ####  A2014720  
 ##### 7065#       发表于 2021-1-4 19:03
@@ -11561,7 +11561,7 @@ fleet
 为什么会消失啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7066#       发表于 2021-1-4 19:14
@@ -11570,7 +11570,7 @@ fleet
 就像小麻总有一天会消失一样
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7067#       发表于 2021-1-4 19:18
@@ -11579,7 +11579,7 @@ fleet
 分享你刚编的故事，这么怕被特定的人刚发的怎么可能是真的。
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7068#       发表于 2021-1-4 19:24
@@ -11588,7 +11588,7 @@ fleet
 haneru跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7069#       发表于 2021-1-4 19:28
@@ -11597,7 +11597,7 @@ haneru跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 快进到咬掉尾巴
 
 
------
+*****
 
 ####  路人辰  
 ##### 7070#       发表于 2021-1-4 19:43
@@ -11615,7 +11615,7 @@ haneru跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 2021-1-4 19:43 上传
 
 
------
+*****
 
 ####  hjcxiaowo  
 ##### 7071#       发表于 2021-1-4 20:22
@@ -11624,7 +11624,7 @@ haneru跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 说起来这场live怎么多原创曲 什么时候能发到号上啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7072#       发表于 2021-1-4 20:37
@@ -11633,7 +11633,7 @@ haneru跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 不可能用bls的素材的，要找人画图制作mv调音还要等一段时间吧。
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7073#       发表于 2021-1-4 22:18
@@ -11643,7 +11643,7 @@ haneru跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 理解为啥能不停蹦跶3个多小时了
 
 
------
+*****
 
 ####  路人庚  
 ##### 7074#       发表于 2021-1-4 22:48
@@ -11675,7 +11675,7 @@ haneru跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 查看全部评分
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 7075#       发表于 2021-1-5 12:56
@@ -11686,7 +11686,7 @@ haneru跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  路人辰  
 ##### 7076#       发表于 2021-1-5 13:47
@@ -11704,7 +11704,7 @@ haneru跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 2021-1-5 13:47 上传
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7077#       发表于 2021-1-5 14:25
@@ -11715,7 +11715,7 @@ haneru跳脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 tc开了
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7078#       发表于 2021-1-5 14:53
@@ -11724,7 +11724,7 @@ tc开了
 杂谈出息了，直接上标题了，之前还躲在歌回里的。
 
 
------
+*****
 
 ####  LIPP  
 ##### 7079#       发表于 2021-1-5 17:39
@@ -11734,7 +11734,7 @@ tc开了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总感觉好久都没有师徒组联动了
 
 
------
+*****
 
 ####  我想做mkm的舔狗  
 ##### 7080#       发表于 2021-1-5 18:09
@@ -11743,7 +11743,7 @@ tc开了
 开了•́ω•̀)
 
 
------
+*****
 
 ####  路人庚  
 ##### 7081#       发表于 2021-1-5 18:12
@@ -11752,7 +11752,7 @@ tc开了
 这背景就突出一个金色传说
 
 
------
+*****
 
 ####  シルフィエット  
 ##### 7082#       发表于 2021-1-5 18:19
@@ -11761,7 +11761,7 @@ tc开了
 右边的gif过于草生
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7083#       发表于 2021-1-5 18:22
@@ -11772,7 +11772,7 @@ tc开了
 还是那个麻<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7084#       发表于 2021-1-5 18:24
@@ -11781,7 +11781,7 @@ tc开了
 我不信有粉色拖把，除非让我康康
 
 
------
+*****
 
 ####  路人庚  
 ##### 7085#       发表于 2021-1-5 18:26
@@ -11790,7 +11790,7 @@ tc开了
 斯巴达血脉，修电器靠锤的
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7086#       发表于 2021-1-5 18:27
@@ -11801,7 +11801,7 @@ yhm直播都这么费pc的吗<img src="https://static.saraba1st.com/image/smiley
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7087#       发表于 2021-1-5 18:32
@@ -11810,7 +11810,7 @@ yhm直播都这么费pc的吗<img src="https://static.saraba1st.com/image/smiley
 回不去了，是20岁的成年肥姨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7088#       发表于 2021-1-5 18:46
@@ -11819,7 +11819,7 @@ yhm直播都这么费pc的吗<img src="https://static.saraba1st.com/image/smiley
 坦又赢？
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7089#       发表于 2021-1-5 19:02
@@ -11828,7 +11828,7 @@ yhm直播都这么费pc的吗<img src="https://static.saraba1st.com/image/smiley
 新年祝福只发给了一个人 是特别的存在呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7090#       发表于 2021-1-5 19:31
@@ -11837,7 +11837,7 @@ yhm直播都这么费pc的吗<img src="https://static.saraba1st.com/image/smiley
 深夜可能再播（）
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7091#       发表于 2021-1-5 19:32
@@ -11846,7 +11846,7 @@ yhm直播都这么费pc的吗<img src="https://static.saraba1st.com/image/smiley
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7092#       发表于 2021-1-5 19:35
@@ -11861,7 +11861,7 @@ syl
 杂谈回结尾的时候唱一首留档，这是纪念回的形式啊，21年油管第一勃还整的挺有仪式感的
 
 
------
+*****
 
 ####  路人庚  
 ##### 7093#       发表于 2021-1-5 19:46
@@ -11870,7 +11870,7 @@ syl
 24日的同时视听在nico那边的形式还没确定还行（
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7094#       发表于 2021-1-5 20:07
@@ -11879,7 +11879,7 @@ syl
 雪山人狼已经退版本了，现在是宇宙人狼。
 
 
------
+*****
 
 ####  路人庚  
 ##### 7095#       发表于 2021-1-5 20:18
@@ -11893,7 +11893,7 @@ syl
 好吧，已经确定了是among us了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7096#       发表于 2021-1-5 20:20
@@ -11902,7 +11902,7 @@ syl
 说是among us来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且“各视点”，不知道会不会开台
 
 
------
+*****
 
 ####  ashero  
 ##### 7097#       发表于 2021-1-5 20:20
@@ -11914,7 +11914,7 @@ syl
 上次也是这样想的结果开的是雪山 这次不知道会不会换
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7098#       发表于 2021-1-5 22:01
@@ -11923,7 +11923,7 @@ syl
 何时才是深夜呢
 
 
------
+*****
 
 ####  路人庚  
 ##### 7099#       发表于 2021-1-5 22:25
@@ -11932,7 +11932,7 @@ syl
 那必然是明天了
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7100#       发表于 2021-1-5 22:32
@@ -11943,7 +11943,7 @@ syl
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  LIPP  
 ##### 7101#       发表于 2021-1-5 23:47
@@ -11952,7 +11952,7 @@ syl
 晚上可能再播=不播
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7102#       发表于 2021-1-6 06:54
@@ -11964,7 +11964,7 @@ syl
 啊 蟹女人 你为什么那么迷人
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7103#       发表于 2021-1-6 08:37
@@ -11975,7 +11975,7 @@ syl
 一早爬起来好累好困，又没有麻 麻看<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7104#       发表于 2021-1-6 11:20
@@ -11984,7 +11984,7 @@ syl
 麻琪麻 坏女人
 
 
------
+*****
 
 ####  路人庚  
 ##### 7105#       发表于 2021-1-6 18:42
@@ -11993,7 +11993,7 @@ syl
 刚想着她可能睡醒了，她就发推了
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7106#       发表于 2021-1-6 19:34
@@ -12002,7 +12002,7 @@ syl
 一定是陪酒女的工作太辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7107#       发表于 2021-1-6 21:15
@@ -12013,7 +12013,7 @@ syl
 东京23点30播
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 7108#       发表于 2021-1-6 21:18
@@ -12022,7 +12022,7 @@ syl
 陪酒女的工作来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 大家记得給小费啊
 
 
------
+*****
 
 ####  路人庚  
 ##### 7109#       发表于 2021-1-6 22:36
@@ -12031,7 +12031,7 @@ syl
 这是抱着一个玻璃杯在播啊
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7110#       发表于 2021-1-6 22:37
@@ -12042,7 +12042,7 @@ syl
 臭女人你到底要说多久的nino啊混蛋（;≥皿≤）
 
 
------
+*****
 
 ####  路人庚  
 ##### 7111#       发表于 2021-1-6 22:39
@@ -12054,7 +12054,7 @@ syl
 （这是一种循环
 
 
------
+*****
 
 ####  A2014720  
 ##### 7112#       发表于 2021-1-6 22:50
@@ -12063,7 +12063,7 @@ syl
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7113#       发表于 2021-1-6 22:56
@@ -12072,7 +12072,7 @@ syl
 among us = あもあす
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7114#       发表于 2021-1-6 23:02
@@ -12081,7 +12081,7 @@ among us = あもあす
 就嗯混<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7115#       发表于 2021-1-6 23:08
@@ -12090,7 +12090,7 @@ among us = あもあす
 恋爱裁判确实不熟的样子
 
 
------
+*****
 
 ####  Ky·Kiske  
 ##### 7116#       发表于 2021-1-6 23:13
@@ -12099,7 +12099,7 @@ among us = あもあす
 我就想起来这bwl的歌我都没听
 
 
------
+*****
 
 ####  路人庚  
 ##### 7117#       发表于 2021-1-6 23:14
@@ -12108,7 +12108,7 @@ among us = あもあす
 echo又要来力（bml之后就没练过了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7118#       发表于 2021-1-6 23:15
@@ -12117,7 +12117,7 @@ echo又要来力（bml之后就没练过了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7119#       发表于 2021-1-6 23:17
@@ -12126,7 +12126,7 @@ echo又要来力（bml之后就没练过了
 靠空耳记歌词的肌肉记忆效果还不错
 
 
------
+*****
 
 ####  Ky·Kiske  
 ##### 7120#       发表于 2021-1-6 23:29
@@ -12135,7 +12135,7 @@ echo又要来力（bml之后就没练过了
 咋捏个嗓子捏这么尖。。。
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7121#       发表于 2021-1-6 23:30
@@ -12144,7 +12144,7 @@ echo又要来力（bml之后就没练过了
 感觉今天嗓子不是很好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">算了她开心就好
 
 
------
+*****
 
 ####  路人庚  
 ##### 7122#       发表于 2021-1-6 23:32
@@ -12153,7 +12153,7 @@ echo又要来力（bml之后就没练过了
 新的沙雕图还行，终于不是每次都是撤硕了
 
 
------
+*****
 
 ####  A2014720  
 ##### 7123#       发表于 2021-1-6 23:36
@@ -12162,7 +12162,7 @@ echo又要来力（bml之后就没练过了
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7124#       发表于 2021-1-6 23:48
@@ -12171,7 +12171,7 @@ echo又要来力（bml之后就没练过了
 跟苔苔合唱的这首。。我字都没打完就翻了草
 
 
------
+*****
 
 ####  青春银河  
 ##### 7125#       发表于 2021-1-6 23:51
@@ -12180,7 +12180,7 @@ echo又要来力（bml之后就没练过了
 她唱这首时的声线超好的
 
 
------
+*****
 
 ####  ylssb10438  
 ##### 7126#       发表于 2021-1-6 23:53
@@ -12189,7 +12189,7 @@ echo又要来力（bml之后就没练过了
 怎么感觉过个年回来歌力下降了好多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sw11133  
 ##### 7127#       发表于 2021-1-6 23:56
@@ -12202,7 +12202,7 @@ echo又要来力（bml之后就没练过了
 不然一生遗憾
 
 
------
+*****
 
 ####  Rem-清曲  
 ##### 7128#       发表于 2021-1-6 23:56
@@ -12211,7 +12211,7 @@ echo又要来力（bml之后就没练过了
 因为她唱歌需要开嗓，而且时间要很长
 
 
------
+*****
 
 ####  路人庚  
 ##### 7129#       发表于 2021-1-6 23:57
@@ -12220,7 +12220,7 @@ echo又要来力（bml之后就没练过了
 这状态能上天乐吗
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7130#       发表于 2021-1-6 23:59
@@ -12229,7 +12229,7 @@ echo又要来力（bml之后就没练过了
 也许是因为真的肥了
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7131#       发表于 2021-1-6 23:59
@@ -12238,7 +12238,7 @@ echo又要来力（bml之后就没练过了
 风怒
 
 
------
+*****
 
 ####  路人庚  
 ##### 7132#       发表于 2021-1-7 00:02
@@ -12247,7 +12247,7 @@ echo又要来力（bml之后就没练过了
 天乐还行，嗓子稍微开了一点
 
 
------
+*****
 
 ####  KL25001  
 ##### 7133#       发表于 2021-1-7 00:03
@@ -12260,7 +12260,7 @@ echo又要来力（bml之后就没练过了
 真的爽
 
 
------
+*****
 
 ####  A2014720  
 ##### 7134#       发表于 2021-1-7 00:15
@@ -12271,7 +12271,7 @@ echo又要来力（bml之后就没练过了
 这里表真不错
 
 
------
+*****
 
 ####  路人庚  
 ##### 7135#       发表于 2021-1-7 00:17
@@ -12280,7 +12280,7 @@ echo又要来力（bml之后就没练过了
 这里表很熟练啊
 
 
------
+*****
 
 ####  sw11133  
 ##### 7136#       发表于 2021-1-7 00:17
@@ -12291,7 +12291,7 @@ echo又要来力（bml之后就没练过了
 我无憾了
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7137#       发表于 2021-1-7 00:18
@@ -12300,7 +12300,7 @@ echo又要来力（bml之后就没练过了
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7138#       发表于 2021-1-7 00:21
@@ -12309,7 +12309,7 @@ echo又要来力（bml之后就没练过了
 还是口胡<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7139#       发表于 2021-1-7 00:24
@@ -12320,7 +12320,7 @@ echo又要来力（bml之后就没练过了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  路人庚  
 ##### 7140#       发表于 2021-1-7 00:24
@@ -12329,7 +12329,7 @@ echo又要来力（bml之后就没练过了
 疯起来了
 
 
------
+*****
 
 ####  A2014720  
 ##### 7141#       发表于 2021-1-7 00:25
@@ -12340,7 +12340,7 @@ echo又要来力（bml之后就没练过了
 鹅妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7142#       发表于 2021-1-7 00:26
@@ -12349,7 +12349,7 @@ echo又要来力（bml之后就没练过了
 鹅妈妈的熟练度还是差了一点
 
 
------
+*****
 
 ####  路人庚  
 ##### 7143#       发表于 2021-1-7 00:33
@@ -12360,7 +12360,7 @@ echo又要来力（bml之后就没练过了
 这吵死了唱的真欢乐，还很软
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7144#       发表于 2021-1-7 00:54
@@ -12369,7 +12369,7 @@ echo又要来力（bml之后就没练过了
 溜了溜了
 
 
------
+*****
 
 ####  elect  
 ##### 7145#       发表于 2021-1-7 01:09
@@ -12378,7 +12378,7 @@ echo又要来力（bml之后就没练过了
 虽然已经挺晚了，还是有点意犹未尽的感觉
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7146#       发表于 2021-1-7 09:49
@@ -12389,7 +12389,7 @@ echo又要来力（bml之后就没练过了
 另外感觉过完年声音真的变的肥了好多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 7147#       发表于 2021-1-7 09:55
@@ -12398,7 +12398,7 @@ echo又要来力（bml之后就没练过了
 已经是肥的走不动道的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  草牛  
 ##### 7148#       发表于 2021-1-7 09:58
@@ -12407,7 +12407,7 @@ echo又要来力（bml之后就没练过了
 坦克升级了
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7149#       发表于 2021-1-7 15:22
@@ -12416,7 +12416,7 @@ echo又要来力（bml之后就没练过了
 麻了 楼友不会全跑去nga了吧 怎么那边也麻起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7150#       发表于 2021-1-7 16:25
@@ -12427,7 +12427,7 @@ echo又要来力（bml之后就没练过了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7151#       发表于 2021-1-7 16:42
@@ -12436,7 +12436,7 @@ echo又要来力（bml之后就没练过了
 NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新时代共情团结起来打V8的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  airclab  
 ##### 7152#       发表于 2021-1-7 16:57
@@ -12445,7 +12445,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 只求自己家里不被打进来
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7153#       发表于 2021-1-7 17:14
@@ -12454,7 +12454,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 不被新时代人进楼拉屎拉尿已经阿弥陀佛了，还有人整天撩拨的也是弱智得不行
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7154#       发表于 2021-1-7 17:18
@@ -12463,7 +12463,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 那人都被m楼喷了 那边也讨厌新时代人的
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7155#       发表于 2021-1-7 17:20
@@ -12472,7 +12472,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 是好事，有唱白脸的也要有唱红脸的，又不是只有毒唯是粉，贴贴人和所谓dd也是粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7156#       发表于 2021-1-7 17:42
@@ -12481,7 +12481,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 新推，谢谢你 黄兔子
 
 
------
+*****
 
 ####  elect  
 ##### 7157#       发表于 2021-1-7 17:50
@@ -12490,7 +12490,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 这次应该开台的吧
 
 
------
+*****
 
 ####  A2014720  
 ##### 7158#       发表于 2021-1-7 17:53
@@ -12499,7 +12499,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 我赌五毛不会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 7159#       发表于 2021-1-7 18:02
@@ -12508,7 +12508,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 放那么多立绘很累的
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7160#       发表于 2021-1-7 18:43
@@ -12517,7 +12517,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 不会又要嗯奶如月吧<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7161#       发表于 2021-1-7 19:08
@@ -12528,7 +12528,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 《希望如月能早日开窍》
 
 
------
+*****
 
 ####  青春银河  
 ##### 7162#       发表于 2021-1-7 19:38
@@ -12537,7 +12537,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 不真百合不看的
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7163#       发表于 2021-1-7 19:41
@@ -12546,7 +12546,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 暗示麻凜是真的，深柜麻suki<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7164#       发表于 2021-1-7 19:42
@@ -12555,7 +12555,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 百合是不会给麻带来快乐的,不如对着帅哥fq
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7165#       发表于 2021-1-7 19:46
@@ -12566,7 +12566,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 光一个330就不知道秒多少人好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 7166#       发表于 2021-1-7 19:48
@@ -12575,7 +12575,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 那是真的快乐，叔叔都差点把小麻的皮扒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7167#       发表于 2021-1-7 20:08
@@ -12584,7 +12584,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 有开台
 
 
------
+*****
 
 ####  路人庚  
 ##### 7168#       发表于 2021-1-7 20:08
@@ -12593,7 +12593,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 居然开台了，真少见啊
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 7169#       发表于 2021-1-7 20:22
@@ -12602,7 +12602,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">假百合，狗都不看
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7170#       发表于 2021-1-7 21:00
@@ -12611,7 +12611,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 这个あにおじ组啥意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7171#       发表于 2021-1-7 21:44
@@ -12620,7 +12620,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这伊东xswl
 
 
------
+*****
 
 ####  DDWarrior  
 ##### 7172#       发表于 2021-1-7 21:44
@@ -12650,7 +12650,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 查看全部评分
 
 
------
+*****
 
 ####  草牛  
 ##### 7173#       发表于 2021-1-7 22:07
@@ -12659,7 +12659,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊东联动的时候会逗人玩，挺有意思的
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 7174#       发表于 2021-1-7 22:18
@@ -12671,7 +12671,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 高于20ms浑身难受的我看到这个延迟更难受了
 
 
------
+*****
 
 ####  路人庚  
 ##### 7175#       发表于 2021-1-7 22:19
@@ -12680,7 +12680,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 粉色切开都是黑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然真是兔菊
 
 
------
+*****
 
 ####  路人庚  
 ##### 7176#       发表于 2021-1-7 22:37
@@ -12689,7 +12689,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 黄兔子带着伊东赢了一局啊，这最后一局伊东的盘外身份太好了，很难想到他了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7177#       发表于 2021-1-7 23:47
@@ -12699,7 +12699,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 麻酱社交滴神
 
 
------
+*****
 
 ####  路人辰  
 ##### 7178#       发表于 2021-1-7 23:49
@@ -12717,7 +12717,7 @@ NGA的M楼现在有些人的思想真的.... 昨天还看到有人试图跟新�
 2021-1-7 23:49 上传
 
 
------
+*****
 
 ####  路人庚  
 ##### 7179#       发表于 2021-1-7 23:57
@@ -12754,7 +12754,7 @@ syl，没记错
 查看全部评分
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7180#       发表于 2021-1-8 00:28
@@ -12763,7 +12763,7 @@ syl，没记错
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">又是新女人
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7181#       发表于 2021-1-8 00:45
@@ -12774,7 +12774,7 @@ syl，没记错
 小麻不要和陌生人说话啊，等结婚了就把你关在家里衣服全锁起来，看你怎么出门社交<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7182#       发表于 2021-1-8 00:47
@@ -12785,7 +12785,7 @@ syl，没记错
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  hwlzdjbrs  
 ##### 7183#       发表于 2021-1-8 03:31
@@ -12822,7 +12822,7 @@ syl，没记错
 查看全部评分
 
 
------
+*****
 
 ####  路人庚  
 ##### 7184#       发表于 2021-1-8 07:23
@@ -12834,7 +12834,7 @@ syl，没记错
 那个油管海盗居然还在搬运啊，直接举报冒充他人走一波了，理由我写的Piracy，不知道有没有用
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7185#       发表于 2021-1-8 11:34
@@ -12843,7 +12843,7 @@ syl，没记错
 等一个睡过arashi重播的fleet<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人辰  
 ##### 7186#       发表于 2021-1-8 11:50
@@ -12861,7 +12861,7 @@ syl，没记错
 2021-1-8 11:50 上传
 
 
------
+*****
 
 ####  clvan_  
 ##### 7187#       发表于 2021-1-8 12:22
@@ -12872,7 +12872,7 @@ syl，没记错
 麻酱线下社交花啊，忘了绿熊的评价了吗，不止男人应付男人女人都是一把好手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">响木青完全看不出交集的居然还线下约过饭
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 7188#       发表于 2021-1-8 12:27
@@ -12881,7 +12881,7 @@ syl，没记错
 这人只约美少女吃饭啊！ 
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 7189#       发表于 2021-1-8 12:43
@@ -12890,7 +12890,7 @@ syl，没记错
 来点响木青腿照让我羡慕一下(bushi <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暴走的包子  
 ##### 7190#       发表于 2021-1-8 13:56
@@ -12901,7 +12901,7 @@ syl，没记错
 —— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7191#       发表于 2021-1-8 14:18
@@ -12910,7 +12910,7 @@ syl，没记错
 别光说啊，图呢<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 7192#       发表于 2021-1-8 14:26
@@ -12919,7 +12919,7 @@ syl，没记错
 所以真是美少女吗，有没有图啊
 
 
------
+*****
 
 ####  airclab  
 ##### 7193#       发表于 2021-1-8 14:46
@@ -12928,7 +12928,7 @@ syl，没记错
 美图搞快点
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7194#       发表于 2021-1-8 15:08
@@ -12937,7 +12937,7 @@ syl，没记错
 麻酱老pua了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7195#       发表于 2021-1-8 15:15
@@ -12946,7 +12946,7 @@ syl，没记错
 来点美图<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7196#       发表于 2021-1-8 16:11
@@ -12957,7 +12957,7 @@ syl，没记错
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7197#       发表于 2021-1-8 17:31
@@ -12966,7 +12966,7 @@ syl，没记错
 好奇心88%<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  柚子皮  
 ##### 7198#       发表于 2021-1-8 18:24
@@ -12975,7 +12975,7 @@ syl，没记错
 就是普普通通的YHM，谷歌一查就有。
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7199#       发表于 2021-1-8 18:29
@@ -12984,7 +12984,7 @@ syl，没记错
 钓凯子，玩弄阿宅，约美少女，什么取向？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7200#       发表于 2021-1-8 18:31
@@ -12993,7 +12993,7 @@ syl，没记错
 不行，同性相吸，咩咩必是超绝美少女<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7201#       发表于 2021-1-8 18:41
@@ -13002,7 +13002,7 @@ syl，没记错
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">一定是坦克被拿来当绿叶，坦又赢
 
 
------
+*****
 
 ####  路人庚  
 ##### 7202#       发表于 2021-1-8 19:24
@@ -13011,7 +13011,7 @@ syl，没记错
 看来她并没有错过阿拉希的live的样子（
 
 
------
+*****
 
 ####  路人辰  
 ##### 7203#       发表于 2021-1-8 21:12
@@ -13029,7 +13029,7 @@ syl，没记错
 2021-1-8 21:11 上传
 
 
------
+*****
 
 ####  路人辰  
 ##### 7204#       发表于 2021-1-8 22:16
@@ -13047,7 +13047,7 @@ syl，没记错
 2021-1-8 22:16 上传
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7205#       发表于 2021-1-8 22:36
@@ -13056,7 +13056,7 @@ syl，没记错
 草了日本炸了 好担心小羊啊
 
 
------
+*****
 
 ####  路人庚  
 ##### 7206#       发表于 2021-1-8 23:58
@@ -13065,7 +13065,7 @@ syl，没记错
 还好她应该没什么必须要做的线下工作了，看她这次回老家都是爹妈接去送来的，应该也叮嘱过很多注意事项了
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7207#       发表于 2021-1-9 11:35
@@ -13074,7 +13074,7 @@ syl，没记错
 《众筹把小麻掳回国内再度被提上日程》<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7208#       发表于 2021-1-9 11:36
@@ -13083,7 +13083,7 @@ syl，没记错
 最近很多yhm都说身体不太舒服喉咙不太舒服的..... 麻 麻小心啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7209#       发表于 2021-1-9 11:42
@@ -13092,7 +13092,7 @@ syl，没记错
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">该接到我家里隔离了
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7210#       发表于 2021-1-9 13:22
@@ -13101,7 +13101,7 @@ syl，没记错
 现在知道把心爱的东西关起来才是正确的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7211#       发表于 2021-1-9 13:35
@@ -13110,7 +13110,7 @@ syl，没记错
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">已经在去她家接人的路上了
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 7212#       发表于 2021-1-9 13:43
@@ -13134,7 +13134,7 @@ syl，没记错
 查看全部评分
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 7213#       发表于 2021-1-9 13:44
@@ -13148,7 +13148,7 @@ Vtuberでターミネーター2 #漫画 #きずなーぽすと #たまきあー�
 [https://pixiv.net/artworks/86883508](https://pixiv.net/artworks/86883508)
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 7214#       发表于 2021-1-9 13:45
@@ -13157,7 +13157,7 @@ Vtuberでターミネーター2 #漫画 #きずなーぽすと #たまきあー�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea开泥头车追杀犬山，好耶
 
 
------
+*****
 
 ####  路人庚  
 ##### 7215#       发表于 2021-1-9 14:14
@@ -13166,7 +13166,7 @@ Vtuberでターミネーター2 #漫画 #きずなーぽすと #たまきあー�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两国网民殊途同归（）
 
 
------
+*****
 
 ####  KL25001  
 ##### 7216#       发表于 2021-1-9 14:22
@@ -13175,7 +13175,7 @@ Vtuberでターミネーター2 #漫画 #きずなーぽすと #たまきあー�
 T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7217#       发表于 2021-1-9 14:32
@@ -13184,7 +13184,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 怎么有种她本土粉多了一点的错觉
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7218#       发表于 2021-1-9 14:38
@@ -13193,7 +13193,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 多一点好 多一点好啊
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7219#       发表于 2021-1-9 14:47
@@ -13202,7 +13202,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 感觉本土粉多是因为冲国粉少了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7220#       发表于 2021-1-9 14:52
@@ -13211,7 +13211,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 最近貌似两边新粉都有增加？臭鱼烂虾太多反衬是这样的，不过这人天生不留粉，破粉丝防有一手的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7221#       发表于 2021-1-9 16:53
@@ -13223,7 +13223,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 求求这女人别讲男人了，受不了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7222#       发表于 2021-1-9 17:20
@@ -13237,7 +13237,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 岚好歹红了20年，国内甚至都找不到同等级的的组合。喜欢好歹有理有据，发情艺的人选比之前好多了。
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7223#       发表于 2021-1-9 18:28
@@ -13246,7 +13246,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 普通yhm发情而已<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人辰  
 ##### 7224#       发表于 2021-1-9 19:06
@@ -13267,7 +13267,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 2021-1-10 00:25 上传
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 7225#       发表于 2021-1-9 19:09
@@ -13276,7 +13276,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 前提是今晚她会动啊
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7226#       发表于 2021-1-9 19:11
@@ -13287,7 +13287,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 关键最近她fq也太多了，fleet说，tc说，油管还说......藤原有歌五元有梗，对岚fq没啥节目效果...... 
 
 
------
+*****
 
 ####  路人辰  
 ##### 7227#       发表于 2021-1-9 19:21
@@ -13308,7 +13308,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 2021-1-11 07:02 上传
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7228#       发表于 2021-1-9 19:24
@@ -13317,7 +13317,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 我能接受她一直fq艺，但我不想看她一直用没有意义和节目效果的fq去挤占整个直播的时间<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">...... 
 
 
------
+*****
 
 ####  路人庚  
 ##### 7229#       发表于 2021-1-9 19:36
@@ -13332,7 +13332,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 至于占用直播时间，俺寻思赶紧找个苏啪黑客把她的mmo账号销了才是真的（
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7230#       发表于 2021-1-9 19:49
@@ -13341,7 +13341,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 成年了，直播能整的活也会多点，反正2021年应该能赌马了，建议各位去看看赛马娘做做功课。
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7231#       发表于 2021-1-9 19:58
@@ -13350,7 +13350,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">成年了，可以光明正大地去找野男人了
 
 
------
+*****
 
 ####  A2014720  
 ##### 7232#       发表于 2021-1-9 20:01
@@ -13359,7 +13359,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 什么时候才能直播打柏青哥<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 7233#       发表于 2021-1-9 20:01
@@ -13368,7 +13368,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 你楼女粉都很可怕，切记切记
 
 
------
+*****
 
 ####  路人庚  
 ##### 7234#       发表于 2021-1-9 20:08
@@ -13377,7 +13377,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 成年了就可以喝酒了，等一个醉酒回<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7235#       发表于 2021-1-9 20:10
@@ -13386,7 +13386,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 醉酒好好好，不过以她性格肯定是没有的，即便有，那也肯定是不留档而且B站删除不允许任何二创<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 7236#       发表于 2021-1-9 20:10
@@ -13395,7 +13395,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 希望能喝了也别喝多，怕她坏嗓子。
 
 
------
+*****
 
 ####  路人庚  
 ##### 7237#       发表于 2021-1-9 20:16
@@ -13406,7 +13406,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 如果解酒酶不够的话，喝这种也是会醉的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 7238#       发表于 2021-1-9 20:17
@@ -13415,7 +13415,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 坐等士大夫送酒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7239#       发表于 2021-1-9 20:36
@@ -13424,7 +13424,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 坐等士大夫下⭕（<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7240#       发表于 2021-1-9 20:37
@@ -13437,7 +13437,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 我好奇很久了.... 你真的有“路人”加“天干地支”二十二个号吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么养啊，一天上一个？
 
 
------
+*****
 
 ####  路人庚  
 ##### 7241#       发表于 2021-1-9 20:44
@@ -13465,7 +13465,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 查看全部评分
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7242#       发表于 2021-1-9 20:50
@@ -13474,7 +13474,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">算了，今年日本这破样子还是让她在家里闷着吧，顺便发发酒疯
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7243#       发表于 2021-1-9 21:27
@@ -13483,7 +13483,7 @@ T1000草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7244#       发表于 2021-1-9 21:38
@@ -13492,7 +13492,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 那当然还有去牛 郎店
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 7245#       发表于 2021-1-9 22:15
@@ -13501,7 +13501,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 突然又想起来了，b站扫楼视频呢，到底还发不发出来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  国民掷弹兵  
 ##### 7246#       发表于 2021-1-9 22:41
@@ -13510,7 +13510,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 可能作为封入特典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7247#       发表于 2021-1-9 22:57
@@ -13519,7 +13519,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 当然是因为b站跳闸导致硬盘损坏 扫楼视频无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  llconforever  
 ##### 7248#       发表于 2021-1-9 23:03
@@ -13528,7 +13528,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">草，不会真当BD特典了吧
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7249#       发表于 2021-1-9 23:10
@@ -13539,7 +13539,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 还不如放fmt录像，和粉丝互动多有意思
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7250#       发表于 2021-1-9 23:24
@@ -13548,7 +13548,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">寄给苦主的录像带
 
 
------
+*****
 
 ####  路人庚  
 ##### 7251#       发表于 2021-1-10 00:07
@@ -13557,7 +13557,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 今天准备播了还行，会凌晨突击吗（
 
 
------
+*****
 
 ####  Cla0221  
 ##### 7252#       发表于 2021-1-10 03:39
@@ -13566,7 +13566,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 别指望了，b现在也就想着止止损了，它能少整点超级尴尬的推广文案就谢天谢地了。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 7253#       发表于 2021-1-10 11:30
@@ -13575,7 +13575,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不出话
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7254#       发表于 2021-1-10 13:39
@@ -13584,7 +13584,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 今天会播<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">，这是好的
 
 
------
+*****
 
 ####  路人庚  
 ##### 7255#       发表于 2021-1-10 15:21
@@ -13593,7 +13593,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 咩姐卖cd可还行（虽然只有一首翻唱的“你不知道的物语”
 
 
------
+*****
 
 ####  A2014720  
 ##### 7256#       发表于 2021-1-10 15:24
@@ -13606,7 +13606,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 成年了签卖身契了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7257#       发表于 2021-1-10 15:26
@@ -13617,7 +13617,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  神光咩咩  
 ##### 7258#       发表于 2021-1-10 15:42
@@ -13626,7 +13626,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 这CD牌面啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7259#       发表于 2021-1-10 16:10
@@ -13639,7 +13639,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 悄悄混入歌势的cd中
 
 
------
+*****
 
 ####  草牛  
 ##### 7260#       发表于 2021-1-10 16:22
@@ -13648,7 +13648,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这到底是怎么混进去的
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7261#       发表于 2021-1-10 16:51
@@ -13657,7 +13657,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看到图，都有谁啊
 
 
------
+*****
 
 ####  whbstc4545  
 ##### 7262#       发表于 2021-1-10 16:54
@@ -13666,7 +13666,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://p.sda1.dev/0/2c31d14f208fa8611e7cead695f3586a/-zue37Q5-dnn6KqT1kSbd-f1.jpg.thumb.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暴走的包子  
 ##### 7263#       发表于 2021-1-10 16:55
@@ -13677,7 +13677,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 —— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7264#       发表于 2021-1-10 16:59
@@ -13686,7 +13686,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">又双叒向资本低头了
 
 
------
+*****
 
 ####  路人庚  
 ##### 7265#       发表于 2021-1-10 17:08
@@ -13695,7 +13695,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 看了介绍，感觉第二个碟上说不定有合唱曲啊
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 7266#       发表于 2021-1-10 17:10
@@ -13704,7 +13704,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7267#       发表于 2021-1-10 17:25
@@ -13713,7 +13713,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 不会被歌势公开处刑吧麻 麻<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7268#       发表于 2021-1-10 17:27
@@ -13724,7 +13724,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 你怎么吃到的？？？？？？？？？？？
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7269#       发表于 2021-1-10 17:28
@@ -13740,7 +13740,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 2021-1-10 17:28 上传
 
 
------
+*****
 
 ####  elect  
 ##### 7270#       发表于 2021-1-10 17:31
@@ -13749,7 +13749,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 也许有天神子兔音的推荐？不管怎么说，能上就挺好的
 
 
------
+*****
 
 ####  路人庚  
 ##### 7271#       发表于 2021-1-10 17:34
@@ -13763,7 +13763,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 没有杏吧？
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7272#       发表于 2021-1-10 17:34
@@ -13774,7 +13774,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 她为什么不把《针》放首页。
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7273#       发表于 2021-1-10 17:36
@@ -13786,7 +13786,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 里面是没杏是没错，不过一般这种碟子虹杏都会插一脚的。
 
 
------
+*****
 
 ####  龙魂绯影  
 ##### 7274#       发表于 2021-1-10 17:50
@@ -13798,7 +13798,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 至于怎么拉上你麻的就不懂了
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7275#       发表于 2021-1-10 18:00
@@ -13809,7 +13809,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 之前索尼音乐不是投了4亿到B站<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  onlv星骸  
 ##### 7276#       发表于 2021-1-10 18:03
@@ -13818,7 +13818,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 说明你咩自己请的马内甲还是有干活的
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7277#       发表于 2021-1-10 18:05
@@ -13829,7 +13829,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 叔叔可以告诉我小麻舒服么？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 7278#       发表于 2021-1-10 18:06
@@ -13840,7 +13840,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 想想echo大概也是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7279#       发表于 2021-1-10 18:09
@@ -13858,7 +13858,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 2021-1-10 18:08 上传
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7280#       发表于 2021-1-10 18:18
@@ -13869,7 +13869,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7281#       发表于 2021-1-10 18:29
@@ -13878,7 +13878,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 那这几个V会开除虹籍吗
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 7282#       发表于 2021-1-10 18:32
@@ -13889,7 +13889,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 虽然这玩意实际和sony有个屁关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7283#       发表于 2021-1-10 18:38
@@ -13900,7 +13900,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  A2014720  
 ##### 7284#       发表于 2021-1-10 18:46
@@ -13909,7 +13909,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 还在这贷款呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7285#       发表于 2021-1-10 18:50
@@ -13922,7 +13922,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 （贷，都可以贷
 
 
------
+*****
 
 ####  clvan_  
 ##### 7286#       发表于 2021-1-10 18:55
@@ -13931,7 +13931,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 草，这是怎么混进去，人脉？感觉和叔叔没啥关系
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7287#       发表于 2021-1-10 19:06
@@ -13940,7 +13940,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">别贷款了，坏账率已经200%了
 
 
------
+*****
 
 ####  llconforever  
 ##### 7288#       发表于 2021-1-10 19:43
@@ -13949,7 +13949,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">人呢
 
 
------
+*****
 
 ####  路人庚  
 ##### 7289#       发表于 2021-1-10 19:56
@@ -13958,7 +13958,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 会限画头像还行
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7290#       发表于 2021-1-10 20:22
@@ -13967,7 +13967,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 又arashi<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7291#       发表于 2021-1-10 20:28
@@ -13976,7 +13976,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7292#       发表于 2021-1-10 21:00
@@ -13985,7 +13985,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 男粉好惨哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7293#       发表于 2021-1-10 21:01
@@ -13994,7 +13994,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 一眼看上去还是蛮惊悚的
 
 
------
+*****
 
 ####  路人庚  
 ##### 7294#       发表于 2021-1-10 21:11
@@ -14003,7 +14003,7 @@ yhm觉得做起来有意思的直播只有喝酒赌博唱k吗？<img src="https:
 mea写的渚（nagisa）很好康，加上之前玩暴露真名梗的时候叫的也是nagisa，暗示
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7295#       发表于 2021-1-10 21:18
@@ -14012,7 +14012,7 @@ mea写的渚（nagisa）很好康，加上之前玩暴露真名梗的时候叫�
 还会把男朋友和自己的姓写在一起<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7296#       发表于 2021-1-10 21:44
@@ -14021,7 +14021,7 @@ mea写的渚（nagisa）很好康，加上之前玩暴露真名梗的时候叫�
 猫党又胜利了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7297#       发表于 2021-1-10 21:50
@@ -14030,7 +14030,7 @@ mea写的渚（nagisa）很好康，加上之前玩暴露真名梗的时候叫�
 又来又来呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7298#       发表于 2021-1-10 21:53
@@ -14042,7 +14042,7 @@ mea写的渚（nagisa）很好康，加上之前玩暴露真名梗的时候叫�
 男朋友都要跟自己姓 微博女拳都没这么狠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7299#       发表于 2021-1-10 21:53
@@ -14055,7 +14055,7 @@ mea写的渚（nagisa）很好康，加上之前玩暴露真名梗的时候叫�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不需要对阿拉希这么敏感吧，阿咩刚刚也说了她已经满足了
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7300#       发表于 2021-1-10 21:57
@@ -14065,7 +14065,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 他们的综艺挺有意思的，没事可以去看看
 
 
------
+*****
 
 ####  草牛  
 ##### 7301#       发表于 2021-1-10 22:06
@@ -14074,7 +14074,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不许和女粉啵嘴
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7302#       发表于 2021-1-11 02:28
@@ -14083,7 +14083,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 这个点又发推
 
 
------
+*****
 
 ####  路人庚  
 ##### 7303#       发表于 2021-1-11 07:12
@@ -14094,7 +14094,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 而且夜宵之后居然还在安排神乐组新人，这是小紫小绿在用她们的通讯录拉人么…
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7304#       发表于 2021-1-11 07:23
@@ -14103,7 +14103,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 你们在期待什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7305#       发表于 2021-1-11 07:30
@@ -14112,7 +14112,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 之前神楽组建的时候以为她要开始往管理者方向干了，没想到组员一个比一个摸，夜宵索性直接人没了。很迷惑这个组织是什么鬼。
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7306#       发表于 2021-1-11 07:36
@@ -14121,7 +14121,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 又来b博戳💩了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7307#       发表于 2021-1-11 08:42
@@ -14132,7 +14132,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 所以到底会不会有u1
 
 
------
+*****
 
 ####  A2014720  
 ##### 7308#       发表于 2021-1-11 08:45
@@ -14141,7 +14141,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 还在拉人往火坑里跳，**罪大恶极啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  clvan_  
 ##### 7309#       发表于 2021-1-11 09:22
@@ -14152,7 +14152,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 她说的就是夜宵吧，这人居然没跑路。神乐组不就是个亲友讨论组嘛，连群都算不上，别真当什么组织了。草，我把eve看成eva了，原来真有个新人啊……这人不会也神隐半年吧
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 7310#       发表于 2021-1-11 09:27
@@ -14161,7 +14161,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 咩的陪玩组？
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7311#       发表于 2021-1-11 10:00
@@ -14170,7 +14170,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 有没有u1加上梅丽的的超神拳啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 7312#       发表于 2021-1-11 10:12
@@ -14179,7 +14179,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7313#       发表于 2021-1-11 10:53
@@ -14188,7 +14188,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 万一是麻妈呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7314#       发表于 2021-1-11 10:56
@@ -14201,7 +14201,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 《50%的bs》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gongge666  
 ##### 7315#       发表于 2021-1-11 11:08
@@ -14212,7 +14212,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 计划很好但第一部就夭折了，乐府根本联系不到mea
 
 
------
+*****
 
 ####  A2014720  
 ##### 7316#       发表于 2021-1-11 11:32
@@ -14221,7 +14221,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 离谱起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7317#       发表于 2021-1-11 11:43
@@ -14230,7 +14230,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 什么暗黑贴贴人，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7318#       发表于 2021-1-11 11:55
@@ -14239,7 +14239,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 好，麻 麻再加一个凛子一个u1，咩pro就是bs三跑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7319#       发表于 2021-1-11 12:36
@@ -14248,7 +14248,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 在组长那边突击联动雀魂，还有文野环？？？
 
 
------
+*****
 
 ####  草牛  
 ##### 7320#       发表于 2021-1-11 12:38
@@ -14257,7 +14257,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 你咩姐去组长那找男人了
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7321#       发表于 2021-1-11 13:00
@@ -14266,7 +14266,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 尬疯了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7322#       发表于 2021-1-11 13:09
@@ -14275,7 +14275,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7323#       发表于 2021-1-11 13:13
@@ -14382,7 +14382,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 查看全部评分
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7324#       发表于 2021-1-11 13:20
@@ -14398,7 +14398,7 @@ arashi可是国民级偶像<img src="https://static.saraba1st.com/image/smiley/f
 BGM：请校准时钟
 
 
------
+*****
 
 ####  LIPP  
 ##### 7325#       发表于 2021-1-11 13:30
@@ -14407,7 +14407,7 @@ BGM：请校准时钟
 原来冲蝗军不是勃艮第政体吗 就是黑太阳不太灵
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 7326#       发表于 2021-1-11 14:03
@@ -14416,7 +14416,7 @@ BGM：请校准时钟
 那是不是毒唯又该吊路灯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 7327#       发表于 2021-1-11 14:32
@@ -14425,7 +14425,7 @@ BGM：请校准时钟
 first time?.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7328#       发表于 2021-1-11 15:01
@@ -14437,7 +14437,7 @@ first time?.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是大祭司
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7329#       发表于 2021-1-11 15:02
@@ -14450,7 +14450,7 @@ first time?.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 -久しぶりだね
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 7330#       发表于 2021-1-11 15:55
@@ -14465,7 +14465,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 下次真的会让人考虑买不买
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7331#       发表于 2021-1-11 16:00
@@ -14506,7 +14506,7 @@ BLS这个周边质量真的一言难尽 权当上供了
             完成所有间谍任务后 凑阿库娅将被移出猴楼帝国内阁
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7332#       发表于 2021-1-11 16:06
@@ -14517,7 +14517,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 7333#       发表于 2021-1-11 16:07
@@ -14526,7 +14526,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 还是打sl吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 7334#       发表于 2021-1-11 16:20
@@ -14535,7 +14535,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 咩咩今天会参加成人礼吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">还是说明年满20岁才参加
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7335#       发表于 2021-1-11 16:27
@@ -14544,7 +14544,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">都取消了，而且就她这样就算没取消也不会去的罢
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 7336#       发表于 2021-1-11 16:39
@@ -14553,7 +14553,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 不去就不去吧，但可以来个穿着和服的直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7337#       发表于 2021-1-11 16:50
@@ -14562,7 +14562,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 221开播必sc厄介，小麻给我个机会<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7338#       发表于 2021-1-11 17:13
@@ -14571,7 +14571,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 她这辈子都没在那天播过，这次必然更不会例外（奶
 
 
------
+*****
 
 ####  A2014720  
 ##### 7339#       发表于 2021-1-11 17:34
@@ -14580,7 +14580,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 又到了每年的这个时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7340#       发表于 2021-1-11 17:46
@@ -14589,7 +14589,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 今年是大姑娘了，再也不是那个小屁孩儿了，我的小麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7341#       发表于 2021-1-11 17:55
@@ -14598,7 +14598,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 今年就要从小姑娘成长为女人了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  草牛  
 ##### 7342#       发表于 2021-1-11 17:57
@@ -14607,7 +14607,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 多亏xx今天成为大人了（
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7343#       发表于 2021-1-11 18:11
@@ -14616,7 +14616,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 以后只有麻姨了
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7344#       发表于 2021-1-11 18:18
@@ -14627,7 +14627,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  LIPP  
 ##### 7345#       发表于 2021-1-11 18:21
@@ -14637,7 +14637,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 变成大人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7346#       发表于 2021-1-11 18:23
@@ -14646,7 +14646,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 我寻思今天不仅不是221，连121都不是，怎么突然感慨这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  离心  
 ##### 7347#       发表于 2021-1-11 18:24
@@ -14655,7 +14655,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 青涩的果实成熟了
 
 
------
+*****
 
 ####  时雨rain  
 ##### 7348#       发表于 2021-1-11 18:28
@@ -14664,7 +14664,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 从死小鬼变成sb幕刃力，不爱了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鷹書たかしょ  
 ##### 7349#       发表于 2021-1-11 18:52
@@ -14673,7 +14673,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 追いつけないまま大人になって
 
 
------
+*****
 
 ####  elect  
 ##### 7350#       发表于 2021-1-11 18:54
@@ -14682,7 +14682,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 还是小屁孩好啊<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7351#       发表于 2021-1-11 19:20
@@ -14691,7 +14691,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 大人になれば寂しさも忘れていけるの？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  专业划水人员  
 ##### 7352#       发表于 2021-1-11 19:54
@@ -14700,7 +14700,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 今天会播是指中午的突击联动吗？
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7353#       发表于 2021-1-11 20:25
@@ -14709,7 +14709,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 不是指昨天么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7354#       发表于 2021-1-11 21:13
@@ -14718,7 +14718,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 播不播啊坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7355#       发表于 2021-1-11 21:35
@@ -14727,7 +14727,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 总感觉好久好久没播了，在忙着教新人出道么？不会是男人吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 7356#       发表于 2021-1-11 21:40
@@ -14736,7 +14736,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 说不定是穿了和服在一个人臭美呢<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  草牛  
 ##### 7357#       发表于 2021-1-11 21:42
@@ -14745,7 +14745,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 该光明正大的养小白脸了
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 7358#       发表于 2021-1-11 22:13
@@ -14760,7 +14760,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 你们生日能不工作也会躺着吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 7359#       发表于 2021-1-11 23:38
@@ -14769,7 +14769,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7360#       发表于 2021-1-11 23:41
@@ -14778,7 +14778,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7361#       发表于 2021-1-11 23:45
@@ -14787,7 +14787,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 （可能是）从凌晨通宵到中午联动完了才睡，这必然直接睡到凌晨，该等一个录播了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7362#       发表于 2021-1-12 07:53
@@ -14796,7 +14796,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">今天一定会播的对吧
 
 
------
+*****
 
 ####  菊花战士  
 ##### 7363#       发表于 2021-1-12 08:45
@@ -14805,7 +14805,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">昨天算一播么
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7364#       发表于 2021-1-12 08:52
@@ -14816,7 +14816,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7365#       发表于 2021-1-12 09:42
@@ -14825,7 +14825,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 虽然天狗觉得不算 但是小麻大抵是觉得算的
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7366#       发表于 2021-1-12 11:39
@@ -14834,7 +14834,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 虚拟bs什么时候开张啊，夜宵这一动我都怀疑是你麻上号代发好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7367#       发表于 2021-1-12 12:54
@@ -14845,7 +14845,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7368#       发表于 2021-1-12 13:07
@@ -14854,7 +14854,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 夜宵不会是麻 麻日后跑路给自己的备用皮吧，小麻好心机！还未成年就已经开始姨化，坏了坏了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7369#       发表于 2021-1-12 14:26
@@ -14867,7 +14867,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7370#       发表于 2021-1-12 14:41
@@ -14876,7 +14876,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 旧皮不要了可以给我吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7371#       发表于 2021-1-12 14:43
@@ -14885,7 +14885,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">驾驶员不是麻过不了认证器的
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7372#       发表于 2021-1-12 14:48
@@ -14894,7 +14894,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 快进到被粉红椭圆夺舍
 
 
------
+*****
 
 ####  时雨rain  
 ##### 7373#       发表于 2021-1-12 14:51
@@ -14903,7 +14903,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 呜呜呜，eve我的eve，希望新人是个黄毛
 
 
------
+*****
 
 ####  Cla0221  
 ##### 7374#       发表于 2021-1-12 15:01
@@ -14912,7 +14912,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 可粉红椭圆已经没以前那么灵活了<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7375#       发表于 2021-1-12 15:08
@@ -14921,7 +14921,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 金毛吧... 黄毛这个称呼总觉得<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7376#       发表于 2021-1-12 15:13
@@ -14930,7 +14930,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 可怜的小麻再怎么寻找，也找不到像和凛子贴贴时的新人了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 7377#       发表于 2021-1-12 15:51
@@ -14939,7 +14939,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 怎么，要她再为xx冲一次叔叔嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elect  
 ##### 7378#       发表于 2021-1-12 16:48
@@ -14948,7 +14948,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 再冲人没了(&gt;﹏&lt;)
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7379#       发表于 2021-1-12 17:25
@@ -14957,7 +14957,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 别冲叔叔了,冲楼友吧
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7380#       发表于 2021-1-12 17:36
@@ -14966,7 +14966,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">让小麻来冲楼友吗
 
 
------
+*****
 
 ####  LIPP  
 ##### 7381#       发表于 2021-1-12 18:00
@@ -14975,7 +14975,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 怎么体感已经一年没动了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7382#       发表于 2021-1-12 18:04
@@ -14984,7 +14984,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 肥肥需要冬眠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7383#       发表于 2021-1-12 18:16
@@ -14993,7 +14993,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 因为过年回来后没怎么播 什么时候深夜tc才是感觉她真的回来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7384#       发表于 2021-1-12 18:19
@@ -15005,7 +15005,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 然后mea昨天果然是通宵了直接没睡，“玩傻之比这个神作游戏太兴奋了就没睡”
 
 
------
+*****
 
 ####  aisakahammer  
 ##### 7385#       发表于 2021-1-12 18:21
@@ -15014,7 +15014,7 @@ BLS这个周边质量真的一言难尽 权当上供了
  观众抓不住她的梗就有点遗憾
 
 
------
+*****
 
 ####  clvan_  
 ##### 7386#       发表于 2021-1-12 18:33
@@ -15023,7 +15023,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 现在这样不好嘛，搞什么cp营业，搞着搞着把自己都搭进去了。不管联动什么的多播点就好了，感觉最近好摸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7387#       发表于 2021-1-12 18:34
@@ -15036,7 +15036,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 时间：2021-01-12 18:34:25 UTC+08:00
 
 
------
+*****
 
 ####  A2014720  
 ##### 7388#       发表于 2021-1-12 18:35
@@ -15045,7 +15045,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 别催了别催了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  clvan_  
 ##### 7389#       发表于 2021-1-12 18:36
@@ -15054,7 +15054,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 刚水完就发推播了，小麻监视s1石锤了
 
 
------
+*****
 
 ####  路人辰  
 ##### 7390#       发表于 2021-1-12 18:56
@@ -15074,7 +15074,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 2021-1-12 19:33 上传
 
 
------
+*****
 
 ####  LIPP  
 ##### 7391#       发表于 2021-1-12 22:51
@@ -15084,7 +15084,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 先睡为敬 坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  A2014720  
 ##### 7392#       发表于 2021-1-12 22:54
@@ -15093,7 +15093,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 骗子，睡了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  llconforever  
 ##### 7393#       发表于 2021-1-12 22:56
@@ -15102,7 +15102,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">“夜中”
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7394#       发表于 2021-1-12 22:57
@@ -15111,7 +15111,7 @@ BLS这个周边质量真的一言难尽 权当上供了
 人呢？？？？
 
 
------
+*****
 
 ####  路人庚  
 ##### 7395#       发表于 2021-1-12 22:58
@@ -15128,7 +15128,7 @@ syl，
 说的是凌晨，现在还没到凌晨啊（
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7396#       发表于 2021-1-12 22:59
@@ -15137,7 +15137,7 @@ syl，
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">坏女人，睡觉去了
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7397#       发表于 2021-1-12 23:31
@@ -15146,7 +15146,7 @@ syl，
 神乐mea，睁开眼睛，我是沙福林
 
 
------
+*****
 
 ####  mishidexieyu  
 ##### 7398#       发表于 2021-1-12 23:38
@@ -15156,7 +15156,7 @@ syl，
 发现了一直以来都有的问题，那句歌词是不是why cant i see啊，是我记错了还是每次mea都吞了why
 
 
------
+*****
 
 ####  路人庚  
 ##### 7399#       发表于 2021-1-12 23:47
@@ -15165,7 +15165,7 @@ syl，
 她6号用的唱法是bml现场live时候的唱法，当时why这个音是伴奏里的和声，她live当时就没唱（6号歌回的时候估计是没反应过来要唱why
 
 
------
+*****
 
 ####  mishidexieyu  
 ##### 7400#       发表于 2021-1-13 00:19
@@ -15175,7 +15175,7 @@ syl，
 谢谢楼友
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7401#       发表于 2021-1-13 00:43
@@ -15184,7 +15184,7 @@ syl，
 醒了
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7402#       发表于 2021-1-13 00:44
@@ -15193,7 +15193,7 @@ syl，
 准备熬一晚上了
 
 
------
+*****
 
 ####  呓语nnnnt  
 ##### 7403#       发表于 2021-1-13 00:52
@@ -15204,7 +15204,7 @@ syl，
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  拉格朗日乘数法  
 ##### 7404#       发表于 2021-1-13 01:35
@@ -15215,7 +15215,7 @@ syl，
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  拉格朗日乘数法  
 ##### 7405#       发表于 2021-1-13 01:41
@@ -15226,7 +15226,7 @@ syl，
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7406#       发表于 2021-1-13 01:55
@@ -15235,7 +15235,7 @@ syl，
 这个坏女人
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7407#       发表于 2021-1-13 02:10
@@ -15244,7 +15244,7 @@ syl，
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7408#       发表于 2021-1-13 02:18
@@ -15255,7 +15255,7 @@ syl，
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  路人庚  
 ##### 7409#       发表于 2021-1-13 07:05
@@ -15264,7 +15264,7 @@ syl，
 言而有信神乐咩（说凌晨播就凌晨播了
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 7410#       发表于 2021-1-13 07:35
@@ -15273,7 +15273,7 @@ syl，
 恢复正常节奏了，不断的调作息
 
 
------
+*****
 
 ####  A2014720  
 ##### 7411#       发表于 2021-1-13 08:38
@@ -15284,7 +15284,7 @@ syl，
 这熟悉的感觉，想@狂犬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7412#       发表于 2021-1-13 17:36
@@ -15293,7 +15293,7 @@ syl，
 隐隐约约有种今天也不会播的预感<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elect  
 ##### 7413#       发表于 2021-1-13 17:39
@@ -15302,7 +15302,7 @@ syl，
 晚上会不会突击b限LOL啊
 
 
------
+*****
 
 ####  路人庚  
 ##### 7414#       发表于 2021-1-13 19:40
@@ -15311,7 +15311,7 @@ syl，
 醒了，估计快播了
 
 
------
+*****
 
 ####  路人辰  
 ##### 7415#       发表于 2021-1-13 20:05
@@ -15329,7 +15329,7 @@ syl，
 2021-1-13 20:05 上传
 
 
------
+*****
 
 ####  llconforever  
 ##### 7416#       发表于 2021-1-13 20:09
@@ -15338,7 +15338,7 @@ syl，
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">11点歌回
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7417#       发表于 2021-1-13 20:12
@@ -15347,7 +15347,7 @@ syl，
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7418#       发表于 2021-1-13 21:59
@@ -15356,7 +15356,7 @@ syl，
 终于等到有麻的夜晚了，昨天晚上做梦都梦见她在唱歌，唱的还是炎，早上醒的时候让我听了好几遍
 
 
------
+*****
 
 ####  路人庚  
 ##### 7419#       发表于 2021-1-13 22:31
@@ -15367,7 +15367,7 @@ syl，
 待机间
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7420#       发表于 2021-1-13 23:09
@@ -15376,7 +15376,7 @@ syl，
 开了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7421#       发表于 2021-1-13 23:20
@@ -15387,7 +15387,7 @@ syl，
 算了是我的问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，编辑编辑
 
 
------
+*****
 
 ####  路人辰  
 ##### 7422#       发表于 2021-1-13 23:21
@@ -15408,7 +15408,7 @@ syl，
 2021-1-16 23:51 上传
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7423#       发表于 2021-1-13 23:21
@@ -15419,7 +15419,7 @@ syl，
 别人老婆怀孕了可是大新闻啊，我微博不关注那些方面都刷到了。
 
 
------
+*****
 
 ####  路人辰  
 ##### 7424#       发表于 2021-1-13 23:30
@@ -15430,7 +15430,7 @@ syl，
 1
 
 
------
+*****
 
 ####  Ky·Kiske  
 ##### 7425#       发表于 2021-1-13 23:31
@@ -15439,7 +15439,7 @@ syl，
 久违的听歌time
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7426#       发表于 2021-1-13 23:47
@@ -15448,7 +15448,7 @@ syl，
 我有一种今晚是翻车大赏的预感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7427#       发表于 2021-1-13 23:48
@@ -15457,7 +15457,7 @@ syl，
 手指轻轻划过她的l2d，像在抚摸小麻的脸庞一样<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7428#       发表于 2021-1-13 23:51
@@ -15466,7 +15466,7 @@ syl，
 原来mea是由多个小麻轮流驾驶的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  草牛  
 ##### 7429#       发表于 2021-1-14 00:00
@@ -15475,7 +15475,7 @@ syl，
 mea老师，为什么说话一顿一顿的
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7430#       发表于 2021-1-14 00:02
@@ -15484,7 +15484,7 @@ mea老师，为什么说话一顿一顿的
 这嗓子感觉不对劲啊
 
 
------
+*****
 
 ####  muldrotha  
 ##### 7431#       发表于 2021-1-14 01:12
@@ -15552,7 +15552,7 @@ mea老师，为什么说话一顿一顿的
 查看全部评分
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7432#       发表于 2021-1-14 01:22
@@ -15563,7 +15563,7 @@ mea老师，为什么说话一顿一顿的
 你们可以鲨我了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7433#       发表于 2021-1-14 11:34
@@ -15572,7 +15572,7 @@ mea老师，为什么说话一顿一顿的
 最近倒是没有联动预订呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，兔妈妈那边四人桃铁，还有一个薛定谔的野良猫新组合，都没说啥时候再开
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 7434#       发表于 2021-1-14 17:04
@@ -15581,7 +15581,7 @@ mea老师，为什么说话一顿一顿的
 小麻能去德云社学相声吗
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7435#       发表于 2021-1-14 17:58
@@ -15590,7 +15590,7 @@ mea老师，为什么说话一顿一顿的
 唱歌聊天跳舞漫才萌音rp明明都还可以的，就是偏偏要当普通yhm，这就是吸引人的地方啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7436#       发表于 2021-1-14 19:13
@@ -15599,7 +15599,7 @@ mea老师，为什么说话一顿一顿的
 萌音太累了，而且感觉她渐渐肥到发不出来了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7437#       发表于 2021-1-14 19:16
@@ -15608,7 +15608,7 @@ mea老师，为什么说话一顿一顿的
 年龄大了身体是会走形的 要变肥婆喽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  JY要塞  
 ##### 7438#       发表于 2021-1-14 19:52
@@ -15617,7 +15617,7 @@ mea老师，为什么说话一顿一顿的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦终赢
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7439#       发表于 2021-1-14 20:36
@@ -15626,7 +15626,7 @@ mea老师，为什么说话一顿一顿的
 其实还是麦的问题啦，演唱会作战会议那会儿的声音又尖又亮，麻味儿真的重好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7440#       发表于 2021-1-14 23:20
@@ -15635,7 +15635,7 @@ mea老师，为什么说话一顿一顿的
 想听asmr麦味儿的麻 麻<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  柚子皮  
 ##### 7441#       发表于 2021-1-15 03:24
@@ -15646,7 +15646,7 @@ mea老师，为什么说话一顿一顿的
 想要麻...
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7442#       发表于 2021-1-15 13:04
@@ -15655,7 +15655,7 @@ mea老师，为什么说话一顿一顿的
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">想要麻...
 
 
------
+*****
 
 ####  路人庚  
 ##### 7443#       发表于 2021-1-15 13:19
@@ -15664,7 +15664,7 @@ mea老师，为什么说话一顿一顿的
 tc突击
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7444#       发表于 2021-1-15 13:27
@@ -15673,7 +15673,7 @@ tc突击
 小麻今天好开心啊
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7445#       发表于 2021-1-15 13:51
@@ -15682,7 +15682,7 @@ tc突击
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">午觉惊醒
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7446#       发表于 2021-1-15 16:09
@@ -15691,7 +15691,7 @@ tc突击
 才发现油管24.6了
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 7447#       发表于 2021-1-15 16:29
@@ -15700,7 +15700,7 @@ tc突击
 天国的恐怖游戏
 
 
------
+*****
 
 ####  路人庚  
 ##### 7448#       发表于 2021-1-15 16:41
@@ -15709,7 +15709,7 @@ tc突击
 今天的阿咩好持久
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7449#       发表于 2021-1-15 16:42
@@ -15718,7 +15718,7 @@ tc突击
 25w不会也是摸鱼摸过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  2111X  
 ##### 7450#       发表于 2021-1-15 16:49
@@ -15727,7 +15727,7 @@ tc突击
 惊了 你麻哼了段adventure time片尾曲
 
 
------
+*****
 
 ####  Shiromeshi  
 ##### 7451#       发表于 2021-1-15 17:01
@@ -15736,7 +15736,7 @@ tc突击
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cushaw  
 ##### 7452#       发表于 2021-1-15 18:18
@@ -15747,7 +15747,7 @@ tc突击
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7453#       发表于 2021-1-15 18:28
@@ -15757,7 +15757,7 @@ tc突击
 感受到了少女的活力<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  thisisaspider  
 ##### 7454#       发表于 2021-1-15 20:23
@@ -15766,7 +15766,7 @@ tc突击
 小心**人人传人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7455#       发表于 2021-1-16 00:07
@@ -15775,7 +15775,7 @@ tc突击
 今晚会有突击么
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7456#       发表于 2021-1-16 00:54
@@ -15784,7 +15784,7 @@ tc突击
 今晚调作息应该不突了
 
 
------
+*****
 
 ####  rosevalley46  
 ##### 7457#       发表于 2021-1-16 04:57
@@ -15793,7 +15793,7 @@ tc突击
 tc播了,吃面
 
 
------
+*****
 
 ####  春风女神狄璐卡  
 ##### 7458#       发表于 2021-1-16 05:07
@@ -15802,7 +15802,7 @@ tc播了,吃面
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这吃面把我听饿了
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 7459#       发表于 2021-1-16 07:16
@@ -15811,7 +15811,7 @@ tc播了,吃面
 总觉得有人预言成功早起吃面直播了
 
 
------
+*****
 
 ####  gongge666  
 ##### 7460#       发表于 2021-1-16 08:11
@@ -15820,7 +15820,7 @@ tc播了,吃面
 都还在睡么
 
 
------
+*****
 
 ####  上坂蓮華  
 ##### 7461#       发表于 2021-1-16 08:15
@@ -15829,7 +15829,7 @@ tc播了,吃面
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">早突还行
 
 
------
+*****
 
 ####  planetcd  
 ##### 7462#       发表于 2021-1-16 08:44
@@ -15838,7 +15838,7 @@ tc播了,吃面
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">你麻亲下厨
 
 
------
+*****
 
 ####  路人庚  
 ##### 7463#       发表于 2021-1-16 09:28
@@ -15862,7 +15862,7 @@ tc播了,吃面
 查看全部评分
 
 
------
+*****
 
 ####  muldrotha  
 ##### 7464#       发表于 2021-1-16 10:14
@@ -15974,7 +15974,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 查看全部评分
 
 
------
+*****
 
 ####  笋狐  
 ##### 7465#       发表于 2021-1-16 10:23
@@ -15983,7 +15983,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">抽卡耐久这种有噱头的东西突击个毛毛，还是社畜最阴间的早班点（全恼）
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7466#       发表于 2021-1-16 10:53
@@ -15992,7 +15992,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">我错过了什么
 
 
------
+*****
 
 ####  路人庚  
 ##### 7467#       发表于 2021-1-16 14:02
@@ -16001,7 +16001,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 北京17点b限lol
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7468#       发表于 2021-1-16 17:06
@@ -16012,7 +16012,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  路人庚  
 ##### 7469#       发表于 2021-1-16 17:08
@@ -16021,7 +16021,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 勃了
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7470#       发表于 2021-1-16 17:17
@@ -16030,7 +16030,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 好精神的咩咩 可爱
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7471#       发表于 2021-1-16 17:21
@@ -16039,7 +16039,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 今天好精神啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">可爱
 
 
------
+*****
 
 ####  黒長直姫  
 ##### 7472#       发表于 2021-1-16 17:40
@@ -16048,7 +16048,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 这笑声太给人充能了 
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7473#       发表于 2021-1-16 17:46
@@ -16057,7 +16057,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 听这健康的笑声感觉能把十天活干干净<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7474#       发表于 2021-1-16 17:48
@@ -16066,7 +16066,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 努努就是很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  makourisu-2  
 ##### 7475#       发表于 2021-1-16 17:48
@@ -16075,7 +16075,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 为啥老是一卡一卡的啊，到现在也还没调整好直播设置吗？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  柚子皮  
 ##### 7476#       发表于 2021-1-16 17:59
@@ -16084,7 +16084,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 因为是笨蛋，所以顶配打lol也会卡
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7477#       发表于 2021-1-16 18:09
@@ -16093,7 +16093,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 真治愈啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7478#       发表于 2021-1-16 18:14
@@ -16102,7 +16102,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  十九号大侠  
 ##### 7479#       发表于 2021-1-16 18:50
@@ -16111,7 +16111,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 看了努努也不很快乐
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7480#       发表于 2021-1-16 19:33
@@ -16120,7 +16120,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 八点还播，今天是铁人咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 7481#       发表于 2021-1-16 19:53
@@ -16129,7 +16129,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 太勤奋了，吓到了
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7482#       发表于 2021-1-16 19:55
@@ -16138,7 +16138,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 小麻最近感觉好开心 甚至勤奋起来了 是有什么大好事了？相亲成功了？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7483#       发表于 2021-1-16 20:17
@@ -16147,7 +16147,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 妈耶今天真的好可爱啊好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7484#       发表于 2021-1-16 20:18
@@ -16156,7 +16156,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 可可爱爱，喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7485#       发表于 2021-1-16 20:20
@@ -16165,7 +16165,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">似乎是nino的歌（?
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7486#       发表于 2021-1-16 20:22
@@ -16174,7 +16174,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7487#       发表于 2021-1-16 20:23
@@ -16183,7 +16183,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  GRMeA104  
 ##### 7488#       发表于 2021-1-16 20:23
@@ -16192,7 +16192,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 破案了,是二宫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  离心  
 ##### 7489#       发表于 2021-1-16 20:33
@@ -16201,7 +16201,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 一天四动真有你的……又看不来了了
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7490#       发表于 2021-1-16 20:57
@@ -16210,7 +16210,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 她唱的虹也太顶了，这是给那个她的歌么？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elect  
 ##### 7491#       发表于 2021-1-16 21:08
@@ -16219,7 +16219,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 可爱耶
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7492#       发表于 2021-1-16 21:44
@@ -16228,7 +16228,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dualist彩  
 ##### 7493#       发表于 2021-1-16 22:02
@@ -16241,7 +16241,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 困困咩，想搂着睡<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7494#       发表于 2021-1-16 22:06
@@ -16250,7 +16250,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 久违的盒限，上次的盒限就好像一百年前一样
 
 
------
+*****
 
 ####  路人庚  
 ##### 7495#       发表于 2021-1-16 22:58
@@ -16259,7 +16259,7 @@ line不看的啊 只能勾起伤心的回忆（细数自己的会话 基本都�
 tc又播了，今天真实敬业先锋
 
 
------
+*****
 
 ####  Mikumiku831  
 ##### 7496#       发表于 2021-1-16 22:58
@@ -16268,7 +16268,7 @@ tc又播了，今天真实敬业先锋
 tc动了 一天五动 怕不是要摸一周了
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 7497#       发表于 2021-1-16 22:59
@@ -16277,7 +16277,7 @@ tc动了 一天五动 怕不是要摸一周了
 算上盒限今天六播，咩咩，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Joffre✔  
 ##### 7498#       发表于 2021-1-16 23:10
@@ -16286,7 +16286,7 @@ tc动了 一天五动 怕不是要摸一周了
 小麻怎么今天播那么多 是不是受啥刺激了 不安です<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  路人庚  
 ##### 7499#       发表于 2021-1-16 23:10
@@ -16300,7 +16300,7 @@ tc动了 一天五动 怕不是要摸一周了
 是神乐组开会吗（
 
 
------
+*****
 
 ####  甘栗No.007  
 ##### 7500#       发表于 2021-1-16 23:18

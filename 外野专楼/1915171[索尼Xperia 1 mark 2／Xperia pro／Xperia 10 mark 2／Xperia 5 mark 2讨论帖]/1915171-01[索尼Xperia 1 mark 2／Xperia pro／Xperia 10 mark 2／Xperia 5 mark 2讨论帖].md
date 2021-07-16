@@ -1,7 +1,7 @@
 > ## **本文件最后更新于2020-10-17 00:03** 
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1#       楼主       发表于 2020-2-22 18:17
@@ -24,7 +24,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 近日消息，型号为7Y6DU1I的索尼新机现身GeekBench跑分网站。如图所示，该机的单核成绩为908，多核成绩为3322，搭载高通骁龙865旗舰平台，配备8GB内存，运行Android 10。外媒猜测，这可能是索尼新一代旗舰Xperia 5 Ⅱ。
 
 
------
+*****
 
 ####  Cray  
 ##### 2#       发表于 2020-2-22 18:31
@@ -40,7 +40,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 3#       发表于 2020-2-22 18:31
@@ -49,7 +49,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 曲屏不是xz3 就棄了么
 
 
------
+*****
 
 ####  物哀  
 ##### 4#       发表于 2020-2-22 19:18
@@ -58,7 +58,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 索移又开始窒息取名了
 
 
------
+*****
 
 ####  阿虚家的三味  
 ##### 5#       发表于 2020-2-22 19:38
@@ -67,7 +67,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 所以那个水滴+大下巴是不是成品？
 
 
------
+*****
 
 ####  firimp-L  
 ##### 6#       发表于 2020-2-22 19:47
@@ -75,7 +75,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  rahicis  
 ##### 7#       发表于 2020-2-22 19:49
@@ -84,7 +84,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 买买买，下一部一定买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MixRadio  
 ##### 8#       发表于 2020-2-22 19:52
@@ -93,7 +93,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 瀑布屏.....
 
 
------
+*****
 
 ####  firimp-L  
 ##### 9#       发表于 2020-2-22 19:54
@@ -101,7 +101,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  leystage  
 ##### 10#       发表于 2020-2-22 19:57
@@ -110,7 +110,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 啊，那今年专楼就交给你了 XD
 
 
------
+*****
 
 ####  iceprince10  
 ##### 11#       发表于 2020-2-22 20:00
@@ -119,7 +119,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 索尼每年发布前看参数都觉得香，然后<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 12#       发表于 2020-2-23 00:28
@@ -136,7 +136,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Cray  
 ##### 13#       发表于 2020-2-23 00:58
@@ -154,7 +154,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 说不定还有折叠呢。
 
 
------
+*****
 
 ####  404489039  
 ##### 14#       发表于 2020-2-23 01:16
@@ -163,7 +163,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 水滴屏预定，按照嗦尼落后业界几年只能玩得起水滴屏
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 15#       发表于 2020-2-23 04:01
@@ -174,7 +174,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 再过一个月公布欧版售价，无敌的翔移又倒下了。
 
 
------
+*****
 
 ####  Cray  
 ##### 16#       发表于 2020-2-23 05:54
@@ -201,7 +201,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 不过听说这次有重制？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 17#       发表于 2020-2-23 08:57
@@ -217,7 +217,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  AkaiSuisei  
 ##### 18#       发表于 2020-2-23 10:24
@@ -226,7 +226,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 如果按照之前的说法耳机孔回归的话，5 plus很有可能是2020年目前唯一一款180g以下非异形屏的8x5系手机
 
 
------
+*****
 
 ####  行星减速器mk4  
 ##### 19#       发表于 2020-2-23 11:03
@@ -234,7 +234,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  水表  
 ##### 20#       发表于 2020-2-23 11:32
@@ -243,7 +243,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 真的还有人买索尼吗？
 
 
------
+*****
 
 ####  h20020901  
 ##### 21#       发表于 2020-2-23 11:45
@@ -254,7 +254,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  萱时令  
 ##### 22#       发表于 2020-2-23 11:48
@@ -265,7 +265,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1-alpha
 
 
------
+*****
 
 ####  leystage  
 ##### 23#       发表于 2020-2-23 11:50
@@ -279,7 +279,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 我都已经不需要3.5他又加上了（
 
 
------
+*****
 
 ####  leystage  
 ##### 24#       发表于 2020-2-23 11:52
@@ -292,7 +292,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 不是，我以为你在日本来着，虽然这两年索尼不行了但在日本还算是指名買い的选项之一不是么…
 
 
------
+*****
 
 ####  Cray  
 ##### 25#       发表于 2020-2-23 18:57
@@ -306,7 +306,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  狂风DKC  
 ##### 26#       发表于 2020-2-23 19:00
@@ -317,7 +317,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 —— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Cray  
 ##### 27#       发表于 2020-2-23 19:13
@@ -339,7 +339,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 4000还是有戏， 3500是最新的（噂）
 
 
------
+*****
 
 ####  firimp-L  
 ##### 28#       发表于 2020-2-23 19:49
@@ -347,7 +347,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  翠乙鼠  
 ##### 29#       发表于 2020-2-23 22:17
@@ -358,7 +358,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Cray  
 ##### 30#       发表于 2020-2-23 22:32
@@ -375,7 +375,7 @@ Xperia 1 II
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  5teven7in  
 ##### 31#       发表于 2020-2-23 22:53
@@ -389,7 +389,7 @@ Xperia 1 II
 <img src="http://wx4.sinaimg.cn/mw690/61bf4533gy1gc6qb2hb3pj20u019iwi7.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  5teven7in  
 ##### 32#       发表于 2020-2-23 22:54
@@ -403,7 +403,7 @@ Xperia 1 II
 Xperia 1 II和Xperia 10 II
 
 
------
+*****
 
 ####  leystage  
 ##### 33#       发表于 2020-2-23 22:54
@@ -417,7 +417,7 @@ Xperia 1 II和Xperia 10 II
 因为21:9真的实用，在聊天和浏览网页和很多办公软件时都代表先进生产力…
 
 
------
+*****
 
 ####  leystage  
 ##### 34#       发表于 2020-2-23 22:54
@@ -432,7 +432,7 @@ Xperia 1 II和Xperia 10 II
 啥，六筒是真的？所以我不急着买1m2的意思？
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 35#         楼主| 发表于 2020-2-23 23:10
@@ -443,7 +443,7 @@ Xperia 1 II和Xperia 10 II
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  翠乙鼠  
 ##### 36#       发表于 2020-2-23 23:11
@@ -456,7 +456,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  翠乙鼠  
 ##### 37#       发表于 2020-2-23 23:14
@@ -468,7 +468,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 38#       发表于 2020-2-23 23:27
@@ -479,7 +479,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 Xperia Zeta
 
 
------
+*****
 
 ####  行星减速器mk4  
 ##### 39#       发表于 2020-2-23 23:30
@@ -487,7 +487,7 @@ Xperia Zeta
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  ping117  
 ##### 40#       发表于 2020-2-23 23:33
@@ -498,7 +498,7 @@ Xperia Zeta
 — from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 41#       发表于 2020-2-23 23:35
@@ -514,7 +514,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 不知道索尼短期内还会不会有非21:9的机型，感觉它把这个作为卖点了
 
 
------
+*****
 
 ####  mhss  
 ##### 42#       发表于 2020-2-23 23:36
@@ -529,7 +529,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 43#       发表于 2020-2-23 23:41
@@ -542,7 +542,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MixRadio  
 ##### 44#       发表于 2020-2-23 23:50
@@ -553,7 +553,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  leystage  
 ##### 45#       发表于 2020-2-23 23:54
@@ -570,7 +570,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 放心，1m2上市也要六月份了，九月出5m2也不晚…
 
 
------
+*****
 
 ####  Cray  
 ##### 46#       发表于 2020-2-23 23:57
@@ -580,7 +580,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 你要把s去掉  不然pc看不到的。
 
 
------
+*****
 
 ####  TSST  
 ##### 47#       发表于 2020-2-24 00:00
@@ -593,7 +593,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 米10P都五千了
 
 
------
+*****
 
 ####  我很费纸  
 ##### 48#       发表于 2020-2-24 00:01
@@ -616,7 +616,7 @@ xz2、xz2c、xz2p都是2018年MWC发布的，而且3月底就能买到了。并�
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  内森德雷克  
 ##### 49#       发表于 2020-2-24 00:05
@@ -625,7 +625,7 @@ xz2、xz2c、xz2p都是2018年MWC发布的，而且3月底就能买到了。并�
 这配置香啊，居然还有耳机孔，耳！机！孔！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 50#       发表于 2020-2-24 00:24
@@ -634,7 +634,7 @@ xz2、xz2c、xz2p都是2018年MWC发布的，而且3月底就能买到了。并�
 4G oled t鍍膜  感覺是編的
 
 
------
+*****
 
 ####  mmmrm  
 ##### 51#       发表于 2020-2-24 00:28
@@ -652,7 +652,7 @@ xz2、xz2c、xz2p都是2018年MWC发布的，而且3月底就能买到了。并�
 2020-2-24 00:28 上传
 
 
------
+*****
 
 ####  罗克萨斯  
 ##### 52#       发表于 2020-2-24 00:33
@@ -665,7 +665,7 @@ xz2、xz2c、xz2p都是2018年MWC发布的，而且3月底就能买到了。并�
 —— 来自 smartisan DE106, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  ftdtyzst  
 ##### 53#       发表于 2020-2-24 01:16
@@ -676,7 +676,7 @@ xz2、xz2c、xz2p都是2018年MWC发布的，而且3月底就能买到了。并�
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 54#       发表于 2020-2-24 01:37
@@ -685,7 +685,7 @@ xz2、xz2c、xz2p都是2018年MWC发布的，而且3月底就能买到了。并�
 Colours: +Red, Yellow 买爆
 
 
------
+*****
 
 ####  Cray  
 ##### 55#       发表于 2020-2-24 02:01
@@ -697,7 +697,7 @@ Colours: +Red, Yellow 买爆
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">明天不发就是被砍了。或者下半年把。
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 56#       发表于 2020-2-24 02:17
@@ -711,7 +711,7 @@ Colours: +Red, Yellow 买爆
 因为4k@90p拉不动所以fps60渲染然后像电视那样另外在屏幕那边插黑？？？？这还得加芯片？？？
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 57#       发表于 2020-2-24 02:31
@@ -726,7 +726,7 @@ Colours: +Red, Yellow 买爆
 感觉是60插针90的意思
 
 
------
+*****
 
 ####  eureka9  
 ##### 58#       发表于 2020-2-24 02:59
@@ -735,7 +735,7 @@ Colours: +Red, Yellow 买爆
 3.5mm回来了，我tm买爆！
 
 
------
+*****
 
 ####  Cray  
 ##### 59#       发表于 2020-2-24 03:40
@@ -747,7 +747,7 @@ Colours: +Red, Yellow 买爆
 插黑位帧吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  firimp-L  
 ##### 60#       发表于 2020-2-24 07:29
@@ -755,7 +755,7 @@ Colours: +Red, Yellow 买爆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  利物浦  
 ##### 61#       发表于 2020-2-24 09:05
@@ -766,7 +766,7 @@ Colours: +Red, Yellow 买爆
 —— 来自 Google Pixel 4, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  defer  
 ##### 62#       发表于 2020-2-24 09:19
@@ -775,7 +775,7 @@ Colours: +Red, Yellow 买爆
 10II没有90帧，又不好选了。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 63#       发表于 2020-2-24 09:26
@@ -790,7 +790,7 @@ Colours: +Red, Yellow 买爆
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 64#       发表于 2020-2-24 09:45
@@ -806,7 +806,7 @@ Colours: +Red, Yellow 买爆
 不过结果上来看没人买也没办法
 
 
------
+*****
 
 ####  无念  
 ##### 65#       发表于 2020-2-24 10:12
@@ -815,7 +815,7 @@ Colours: +Red, Yellow 买爆
 国内安卓市场一直是地狱模式啊，旗舰SOC年年都能做进2K内，国外厂商只能当做看不见咯
 
 
------
+*****
 
 ####  rahicis  
 ##### 66#       发表于 2020-2-24 10:15
@@ -824,7 +824,7 @@ Colours: +Red, Yellow 买爆
 不出个白色吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  defer  
 ##### 67#       发表于 2020-2-24 10:19
@@ -842,7 +842,7 @@ Colours: +Red, Yellow 买爆
 —— 来自 Xiaomi MI PAD 4, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 68#       发表于 2020-2-24 11:20
@@ -851,7 +851,7 @@ Colours: +Red, Yellow 买爆
 4K 90Hz 是同时的？？？？？
 
 
------
+*****
 
 ####  mmmrm  
 ##### 69#       发表于 2020-2-24 11:36
@@ -866,7 +866,7 @@ Colours: +Red, Yellow 买爆
 而且这次的4K应该也是只有图片和视频里有效，有没有90hz没有区别，平时还是1080p
 
 
------
+*****
 
 ####  leystage  
 ##### 70#       发表于 2020-2-24 11:47
@@ -886,7 +886,7 @@ Colours: +Red, Yellow 买爆
 90Hz看了似乎是在游戏模式下有效？看之后具体情况了
 
 
------
+*****
 
 ####  3500  
 ##### 71#       发表于 2020-2-24 11:57
@@ -894,7 +894,7 @@ Colours: +Red, Yellow 买爆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  我很费纸  
 ##### 72#       发表于 2020-2-24 12:07
@@ -911,7 +911,7 @@ Colours: +Red, Yellow 买爆
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 73#       发表于 2020-2-24 12:08
@@ -928,7 +928,7 @@ Colours: +Red, Yellow 买爆
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 74#       发表于 2020-2-24 12:16
@@ -944,7 +944,7 @@ Colours: +Red, Yellow 买爆
 还是国内厂商中端机过于高性价比的原因吧，索尼肯定打不过
 
 
------
+*****
 
 ####  我很费纸  
 ##### 75#       发表于 2020-2-24 12:34
@@ -968,7 +968,7 @@ Colours: +Red, Yellow 买爆
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 76#       发表于 2020-2-24 12:44
@@ -984,7 +984,7 @@ Colours: +Red, Yellow 买爆
 好吧，再等三小时看1m2吧
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 77#       发表于 2020-2-24 13:01
@@ -999,7 +999,7 @@ Colours: +Red, Yellow 买爆
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  沧兰殇  
 ##### 78#       发表于 2020-2-24 13:02
@@ -1010,7 +1010,7 @@ Colours: +Red, Yellow 买爆
 —— 来自 motorola Moto Z (2), Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  blackeyed  
 ##### 79#       发表于 2020-2-24 13:45
@@ -1028,7 +1028,7 @@ Colours: +Red, Yellow 买爆
 为了内存, 现在只能用8G版的S10E
 
 
------
+*****
 
 ####  oskneo  
 ##### 80#       发表于 2020-2-24 14:23
@@ -1039,7 +1039,7 @@ Colours: +Red, Yellow 买爆
 — from HUAWEI HDL-W09, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  8400gs  
 ##### 81#       发表于 2020-2-24 14:40
@@ -1057,7 +1057,7 @@ Colours: +Red, Yellow 买爆
 而且你用21：9和16： 9比短边，脑子呢？
 
 
------
+*****
 
 ####  mmmrm  
 ##### 82#       发表于 2020-2-24 15:21
@@ -1078,7 +1078,7 @@ Colours: +Red, Yellow 买爆
 另外这楼里都在理性讨论，请您嘴巴放干净点，多谢了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  临界点  
 ##### 83#       发表于 2020-2-24 15:28
@@ -1087,7 +1087,7 @@ Colours: +Red, Yellow 买爆
 国内有没有不用翻就能看的？
 
 
------
+*****
 
 ####  firimp-L  
 ##### 84#       发表于 2020-2-24 15:30
@@ -1095,7 +1095,7 @@ Colours: +Red, Yellow 买爆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  mhss  
 ##### 85#       发表于 2020-2-24 15:32
@@ -1107,7 +1107,7 @@ Colours: +Red, Yellow 买爆
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  firimp-L  
 ##### 86#       发表于 2020-2-24 15:33
@@ -1115,7 +1115,7 @@ Colours: +Red, Yellow 买爆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  临界点  
 ##### 87#       发表于 2020-2-24 15:34
@@ -1129,7 +1129,7 @@ https://live.bilibili.com/788425?visit_id=2ejqc ...</blockquote>
 因为什么被警告？
 
 
------
+*****
 
 ####  firimp-L  
 ##### 88#       发表于 2020-2-24 15:38
@@ -1137,7 +1137,7 @@ https://live.bilibili.com/788425?visit_id=2ejqc ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  firimp-L  
 ##### 89#       发表于 2020-2-24 15:39
@@ -1145,7 +1145,7 @@ https://live.bilibili.com/788425?visit_id=2ejqc ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  我很费纸  
 ##### 90#       发表于 2020-2-24 15:39
@@ -1156,7 +1156,7 @@ LZ当初主楼描述果然不对，确实就是叫xperia 1 mark 2
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  木葉梟  
 ##### 91#       发表于 2020-2-24 15:39
@@ -1165,7 +1165,7 @@ LZ当初主楼描述果然不对，确实就是叫xperia 1 mark 2
 <img src="https://static.saraba1st.com/image/smiley/animal2017/006.png" referrerpolicy="no-referrer">还真就mark two啊......
 
 
------
+*****
 
 ####  我很费纸  
 ##### 92#       发表于 2020-2-24 15:40
@@ -1178,7 +1178,7 @@ LZ当初主楼描述果然不对，确实就是叫xperia 1 mark 2
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 93#       发表于 2020-2-24 15:44
@@ -1191,7 +1191,7 @@ LZ当初主楼描述果然不对，确实就是叫xperia 1 mark 2
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 94#       发表于 2020-2-24 15:46
@@ -1209,7 +1209,7 @@ LZ当初主楼描述果然不对，确实就是叫xperia 1 mark 2
 随便吧，这块4K就是16:9的4K成21:9嘛，说是4K也行，说短边比1440没多多少也行，我无意继续抬杠你
 
 
------
+*****
 
 ####  UMN307  
 ##### 95#       发表于 2020-2-24 15:48
@@ -1218,7 +1218,7 @@ LZ当初主楼描述果然不对，确实就是叫xperia 1 mark 2
 MUSIC！
 
 
------
+*****
 
 ####  firimp-L  
 ##### 96#       发表于 2020-2-24 15:49
@@ -1226,7 +1226,7 @@ MUSIC！
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  狂风DKC  
 ##### 97#       发表于 2020-2-24 15:49
@@ -1235,7 +1235,7 @@ MUSIC！
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">3.5mm回归真是太好了
 
 
------
+*****
 
 ####  傘木希美  
 ##### 98#       发表于 2020-2-24 15:50
@@ -1244,7 +1244,7 @@ MUSIC！
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有没有人介绍下索尼的系统咋样啊，等等党有意价格下来后买
 
 
------
+*****
 
 ####  firimp-L  
 ##### 99#       发表于 2020-2-24 15:51
@@ -1252,7 +1252,7 @@ MUSIC！
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  内森德雷克  
 ##### 100#       发表于 2020-2-24 15:51
@@ -1264,7 +1264,7 @@ MUSIC！
 简单概括起来就是缺优化的半原生
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 101#         楼主| 发表于 2020-2-24 15:52
@@ -1273,7 +1273,7 @@ MUSIC！
 xperia pro还行
 
 
------
+*****
 
 ####  mhss  
 ##### 102#       发表于 2020-2-24 15:52
@@ -1286,7 +1286,7 @@ xperia pro还行
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 103#       发表于 2020-2-24 15:52
@@ -1298,7 +1298,7 @@ xperia pro还行
 別想了 1 價格都沒下來
 
 
------
+*****
 
 ####  8400gs  
 ##### 104#       发表于 2020-2-24 15:52
@@ -1325,7 +1325,7 @@ display mate上倒是管S20的屏幕分辨率叫3K
 4K屏幕也从来没有用短边来定义的，都是用的长边，不然照您这逻辑，LG的5120*2160显示器哪敢叫5K啊
 
 
------
+*****
 
 ####  5teven7in  
 ##### 105#       发表于 2020-2-24 15:53
@@ -1336,7 +1336,7 @@ display mate上倒是管S20的屏幕分辨率叫3K
 —— 来自 Sony J9210, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  我很费纸  
 ##### 106#       发表于 2020-2-24 15:53
@@ -1347,7 +1347,7 @@ Pro？？？居然还有藏招
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 107#       发表于 2020-2-24 15:53
@@ -1358,7 +1358,7 @@ Pro？？？居然还有藏招
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 108#       发表于 2020-2-24 15:53
@@ -1369,7 +1369,7 @@ Pro？？？居然还有藏招
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Lisylfn  
 ##### 109#       发表于 2020-2-24 15:54
@@ -1378,7 +1378,7 @@ Pro？？？居然还有藏招
 xperia 1 pro的升级版, 然后就pro有毫米波支持?
 
 
------
+*****
 
 ####  螺纹  
 ##### 110#       发表于 2020-2-24 15:54
@@ -1390,7 +1390,7 @@ https://m.douyu.com/452628
 —— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  傘木希美  
 ##### 111#       发表于 2020-2-24 15:55
@@ -1401,7 +1401,7 @@ https://m.douyu.com/452628
 听起来用着会很难受的样子我连1+都没用过，对原生系统基本没概念
 
 
------
+*****
 
 ####  傘木希美  
 ##### 112#       发表于 2020-2-24 15:55
@@ -1414,7 +1414,7 @@ https://m.douyu.com/452628
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">就是很难用的意思嘛
 
 
------
+*****
 
 ####  我很费纸  
 ##### 113#       发表于 2020-2-24 15:56
@@ -1428,7 +1428,7 @@ https://m.douyu.com/452628
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  bxcds  
 ##### 114#       发表于 2020-2-24 15:56
@@ -1439,7 +1439,7 @@ https://m.douyu.com/452628
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  firimp-L  
 ##### 115#       发表于 2020-2-24 15:56
@@ -1447,7 +1447,7 @@ https://m.douyu.com/452628
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  MixRadio  
 ##### 116#       发表于 2020-2-24 15:57
@@ -1456,7 +1456,7 @@ https://m.douyu.com/452628
 这时长很索尼
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 117#       发表于 2020-2-24 15:57
@@ -1471,7 +1471,7 @@ https://m.douyu.com/452628
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  mhss  
 ##### 118#       发表于 2020-2-24 15:57
@@ -1484,7 +1484,7 @@ https://m.douyu.com/452628
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Cranberries  
 ##### 119#       发表于 2020-2-24 15:57
@@ -1495,7 +1495,7 @@ https://m.douyu.com/452628
 不难用啊。我觉得蛮流畅的。
 
 
------
+*****
 
 ####  翠乙鼠  
 ##### 120#       发表于 2020-2-24 15:58
@@ -1506,7 +1506,7 @@ xperia10 II发布会就提了一点点，L4直接是后妈养的提都不提
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 121#       发表于 2020-2-24 15:58
@@ -1517,7 +1517,7 @@ xperia10 II发布会就提了一点点，L4直接是后妈养的提都不提
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  rahicis  
 ##### 122#       发表于 2020-2-24 15:58
@@ -1526,7 +1526,7 @@ xperia10 II发布会就提了一点点，L4直接是后妈养的提都不提
 价格和上市时间都没有
 
 
------
+*****
 
 ####  傘木希美  
 ##### 123#       发表于 2020-2-24 15:59
@@ -1539,7 +1539,7 @@ xperia10 II发布会就提了一点点，L4直接是后妈养的提都不提
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">我稍微折腾下倒也是无所谓，现在蓝厂的系统太闹心了，nex应该不会有安卓10用了
 
 
------
+*****
 
 ####  miu255  
 ##### 124#       发表于 2020-2-24 15:59
@@ -1548,7 +1548,7 @@ xperia10 II发布会就提了一点点，L4直接是后妈养的提都不提
 关键字5g，unique然后完了
 
 
------
+*****
 
 ####  firimp-L  
 ##### 125#       发表于 2020-2-24 16:00
@@ -1556,7 +1556,7 @@ xperia10 II发布会就提了一点点，L4直接是后妈养的提都不提
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  5teven7in  
 ##### 126#       发表于 2020-2-24 16:00
@@ -1571,7 +1571,7 @@ xperia10 II发布会就提了一点点，L4直接是后妈养的提都不提
 —— 来自 Sony J9210, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  物哀  
 ##### 127#       发表于 2020-2-24 16:00
@@ -1586,7 +1586,7 @@ xperia10 II发布会就提了一点点，L4直接是后妈养的提都不提
 L这种贴牌系列本来就不会提的
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 128#       发表于 2020-2-24 16:01
@@ -1601,7 +1601,7 @@ L这种贴牌系列本来就不会提的
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  ambivalence  
 ##### 129#       发表于 2020-2-24 16:01
@@ -1614,7 +1614,7 @@ L这种贴牌系列本来就不会提的
 索尼我草泥马
 
 
------
+*****
 
 ####  wyinjie111  
 ##### 130#       发表于 2020-2-24 16:01
@@ -1625,7 +1625,7 @@ L这种贴牌系列本来就不会提的
 流畅但是不接地气
 
 
------
+*****
 
 ####  mmmrm  
 ##### 131#       发表于 2020-2-24 16:01
@@ -1643,7 +1643,7 @@ L这种贴牌系列本来就不会提的
 您自己竖个靶子和空气撕起来图什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  伊可费斯  
 ##### 132#       发表于 2020-2-24 16:02
@@ -1652,7 +1652,7 @@ L这种贴牌系列本来就不会提的
 糟糕是心动的感觉
 
 
------
+*****
 
 ####  mmmrm  
 ##### 133#       发表于 2020-2-24 16:02
@@ -1661,7 +1661,7 @@ L这种贴牌系列本来就不会提的
 所以说价格还是没公布吗。。。
 
 
------
+*****
 
 ####  傘木希美  
 ##### 134#       发表于 2020-2-24 16:04
@@ -1672,7 +1672,7 @@ L这种贴牌系列本来就不会提的
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">身边也没人用索尼手机，不好体验一下，难受
 
 
------
+*****
 
 ####  傘木希美  
 ##### 135#       发表于 2020-2-24 16:04
@@ -1683,7 +1683,7 @@ L这种贴牌系列本来就不会提的
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说来，一般港行会比国行便宜多少啊
 
 
------
+*****
 
 ####  kubikiri  
 ##### 136#       发表于 2020-2-24 16:06
@@ -1692,7 +1692,7 @@ L这种贴牌系列本来就不会提的
 这次中端机也有防水了？
 
 
------
+*****
 
 ####  罗克萨斯  
 ##### 137#       发表于 2020-2-24 16:06
@@ -1705,7 +1705,7 @@ L这种贴牌系列本来就不会提的
 就是这长度，放裤兜里真怕弯了，索尼就不能做个16：9的上下窄边框旗舰么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Narrative  
 ##### 138#       发表于 2020-2-24 16:06
@@ -1716,7 +1716,7 @@ L这种贴牌系列本来就不会提的
 —— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  firimp-L  
 ##### 139#       发表于 2020-2-24 16:07
@@ -1724,7 +1724,7 @@ L这种贴牌系列本来就不会提的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  leystage  
 ##### 140#       发表于 2020-2-24 16:07
@@ -1733,7 +1733,7 @@ L这种贴牌系列本来就不会提的
 强迫症小声提醒楼主能不能把标题的 ii 改成大写 II？
 
 
------
+*****
 
 ####  wyinjie111  
 ##### 141#       发表于 2020-2-24 16:08
@@ -1751,7 +1751,7 @@ sony用了几部，说说感想。
 再然后就是略信仰的定价了
 
 
------
+*****
 
 ####  jzsgtx  
 ##### 142#       发表于 2020-2-24 16:09
@@ -1762,7 +1762,7 @@ sony用了几部，说说感想。
 —— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 143#       发表于 2020-2-24 16:09
@@ -1774,7 +1774,7 @@ sony用了几部，说说感想。
 基本就換個貨幣符號吧...  HK豐澤5699   SONY CN 5699
 
 
------
+*****
 
 ####  ambivalence  
 ##### 144#       发表于 2020-2-24 16:10
@@ -1786,7 +1786,7 @@ sony用了几部，说说感想。
 索尼的尿性上市6000吧，港行大概能便宜个七八百
 
 
------
+*****
 
 ####  傘木希美  
 ##### 145#       发表于 2020-2-24 16:10
@@ -1797,7 +1797,7 @@ sony用了几部，说说感想。
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  defer  
 ##### 146#       发表于 2020-2-24 16:10
@@ -1812,7 +1812,7 @@ sony用了几部，说说感想。
 国内尚未有运营商公开宣布准备运营毫米波。
 
 
------
+*****
 
 ####  傘木希美  
 ##### 147#       发表于 2020-2-24 16:11
@@ -1823,7 +1823,7 @@ sony用了几部，说说感想。
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">就是不知道马云上怎么买靠谱
 
 
------
+*****
 
 ####  傘木希美  
 ##### 148#       发表于 2020-2-24 16:12
@@ -1834,7 +1834,7 @@ sony用了几部，说说感想。
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">索尼国行真滴贵港行应该没保修吧
 
 
------
+*****
 
 ####  我很费纸  
 ##### 149#       发表于 2020-2-24 16:12
@@ -1849,7 +1849,7 @@ sony用了几部，说说感想。
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 150#       发表于 2020-2-24 16:13
@@ -1864,7 +1864,7 @@ sony用了几部，说说感想。
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  ambivalence  
 ##### 151#       发表于 2020-2-24 16:14
@@ -1876,7 +1876,7 @@ sony用了几部，说说感想。
 保修有的，之前的港行z5p我拿去修过一次·······
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 152#       发表于 2020-2-24 16:14
@@ -1889,7 +1889,7 @@ sony用了几部，说说感想。
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  伊可费斯  
 ##### 153#       发表于 2020-2-24 16:16
@@ -1900,7 +1900,7 @@ sony用了几部，说说感想。
 pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这东西支持sub6和mmw的5g？？那还可以啊，监视器+直播编码器
 
 
------
+*****
 
 ####  ks_tse  
 ##### 154#       发表于 2020-2-24 16:17
@@ -1911,7 +1911,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 155#       发表于 2020-2-24 16:17
@@ -1922,7 +1922,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  wxc060302  
 ##### 156#       发表于 2020-2-24 16:19
@@ -1933,7 +1933,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 —— 来自 OPPO PCLM10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  GeneralAtomics  
 ##### 157#       发表于 2020-2-24 16:21
@@ -1942,7 +1942,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 Xperia Pro这个外观爱了爱了，钢铁直男不需要窄边框
 
 
------
+*****
 
 ####  kila31  
 ##### 158#       发表于 2020-2-24 16:21
@@ -1953,7 +1953,7 @@ Xperia Pro这个外观爱了爱了，钢铁直男不需要窄边框
 — from Sony G8441, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.0.1
 
 
------
+*****
 
 ####  pissca  
 ##### 159#       发表于 2020-2-24 16:21
@@ -1964,7 +1964,7 @@ xz1用了3年该换了<img src="https://static.saraba1st.com/image/smiley/face20
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  h20020901  
 ##### 160#       发表于 2020-2-24 16:23
@@ -1975,7 +1975,7 @@ xzp想换了
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  lc122448  
 ##### 161#       发表于 2020-2-24 16:23
@@ -1990,7 +1990,7 @@ xzp想换了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 162#       发表于 2020-2-24 16:25
@@ -2007,7 +2007,7 @@ xzp想换了
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  defer  
 ##### 163#       发表于 2020-2-24 16:26
@@ -2022,7 +2022,7 @@ xzp想换了
 5G有两个主流频段，sub6和毫米波。
 
 
------
+*****
 
 ####  傘木希美  
 ##### 164#       发表于 2020-2-24 16:26
@@ -2035,7 +2035,7 @@ xzp想换了
 有的更新就行看看18年中的nex和findx真的是<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  萱时令  
 ##### 165#       发表于 2020-2-24 16:26
@@ -2050,7 +2050,7 @@ xzp想换了
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1-alpha
 
 
------
+*****
 
 ####  rahicis  
 ##### 166#       发表于 2020-2-24 16:26
@@ -2059,7 +2059,7 @@ xzp想换了
 大法已经没有京东自营了。
 
 
------
+*****
 
 ####  傘木希美  
 ##### 167#       发表于 2020-2-24 16:27
@@ -2070,7 +2070,7 @@ xzp想换了
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">那有香港那边的**就能在大陆修了吧查了查天津好像有个索尼的维修点
 
 
------
+*****
 
 ####  傘木希美  
 ##### 168#       发表于 2020-2-24 16:27
@@ -2081,7 +2081,7 @@ xzp想换了
 <img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">有保修就太好了假如屏碎了，能当场换好吗
 
 
------
+*****
 
 ####  ks_tse  
 ##### 169#       发表于 2020-2-24 16:27
@@ -2094,7 +2094,7 @@ xzp想换了
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  萱时令  
 ##### 170#       发表于 2020-2-24 16:28
@@ -2108,7 +2108,7 @@ xzp想换了
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1-alpha
 
 
------
+*****
 
 ####  我很费纸  
 ##### 171#       发表于 2020-2-24 16:29
@@ -2121,7 +2121,7 @@ xzp想换了
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  傘木希美  
 ##### 172#       发表于 2020-2-24 16:30
@@ -2134,7 +2134,7 @@ xzp想换了
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">这是为啥呢
 
 
------
+*****
 
 ####  我很费纸  
 ##### 173#       发表于 2020-2-24 16:30
@@ -2147,7 +2147,7 @@ xzp想换了
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  mickoo  
 ##### 174#       发表于 2020-2-24 16:30
@@ -2156,7 +2156,7 @@ xzp想换了
 又没有90hz了，靠软件模拟90hz真的可以吗？还是等等一加8 pro
 
 
------
+*****
 
 ####  傘木希美  
 ##### 175#       发表于 2020-2-24 16:31
@@ -2168,7 +2168,7 @@ xzp想换了
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">推送了系统更新，更新完有的内置功能就没了？
 
 
------
+*****
 
 ####  傘木希美  
 ##### 176#       发表于 2020-2-24 16:32
@@ -2181,7 +2181,7 @@ xzp想换了
 那么行吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 177#       发表于 2020-2-24 16:32
@@ -2192,7 +2192,7 @@ xzp想换了
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 178#       发表于 2020-2-24 16:33
@@ -2204,7 +2204,7 @@ xzp想换了
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer"> 只發生在大版本更新后  便利但是非系統原生的小功能
 
 
------
+*****
 
 ####  ks_tse  
 ##### 179#       发表于 2020-2-24 16:33
@@ -2219,7 +2219,7 @@ xzp想换了
 —— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  StarBlazers  
 ##### 180#       发表于 2020-2-24 16:34
@@ -2230,7 +2230,7 @@ xzp想换了
 另外一個 Nano SIM 卡槽和一個混合式卡槽 (可使用 Nano SIM 卡或 microSD 卡)。並非所有機型與市場均提供雙 SIM 卡規格。同時使用 2 張 SIM 卡時，兩張 SIM 卡均不能使用 5G 網絡。
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 181#       发表于 2020-2-24 16:34
@@ -2245,7 +2245,7 @@ xzp想换了
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 182#       发表于 2020-2-24 16:35
@@ -2260,7 +2260,7 @@ xzp想换了
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  StarBlazers  
 ##### 183#       发表于 2020-2-24 16:35
@@ -2275,7 +2275,7 @@ xzp想换了
 香港官网这么说的 不知道为啥 
 
 
------
+*****
 
 ####  OTAKU100  
 ##### 184#       发表于 2020-2-24 16:37
@@ -2284,7 +2284,7 @@ xzp想换了
 mark ii~命名听着像相机~
 
 
------
+*****
 
 ####  defer  
 ##### 185#       发表于 2020-2-24 16:37
@@ -2296,7 +2296,7 @@ mark ii~命名听着像相机~
 索移就这么两个人了，一个机器第一版软件还是全的，如果后面升了大版本，并且自带软件和大版本特性有冲突那么下个大版本里这个组件就大概率会咕，后续的话有精力了又有可能加回来，也有可能就这么没了。
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 186#       发表于 2020-2-24 16:37
@@ -2309,7 +2309,7 @@ mark ii~命名听着像相机~
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  rahicis  
 ##### 187#       发表于 2020-2-24 16:39
@@ -2318,7 +2318,7 @@ mark ii~命名听着像相机~
 1199刀，SONY标值4000，剩下的部分比小米10 pro还便宜，买买买啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  萱时令  
 ##### 188#       发表于 2020-2-24 16:40
@@ -2330,7 +2330,7 @@ mark ii~命名听着像相机~
 软件功能基本上发布会看到是什么样 以后就一直是这样了 不会有大更新甚至还要砍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cray  
 ##### 189#       发表于 2020-2-24 16:40
@@ -2342,7 +2342,7 @@ mark ii~命名听着像相机~
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 190#       发表于 2020-2-24 16:40
@@ -2356,7 +2356,7 @@ xperia Pro因为加厚了机身来放HDMI口，好像连摄像头都不突出了
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  cat339  
 ##### 191#       发表于 2020-2-24 16:41
@@ -2365,7 +2365,7 @@ xperia Pro因为加厚了机身来放HDMI口，好像连摄像头都不突出了
 照相部分还是不肯往算法成像上面走啊, 继续吃硬件的老本+从阿尔法那边讨来的剩饭.<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  言可  
 ##### 192#       发表于 2020-2-24 16:44
@@ -2375,7 +2375,7 @@ xperia Pro因为加厚了机身来放HDMI口，好像连摄像头都不突出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">可是我已经换机了
 
 
------
+*****
 
 ####  傘木希美  
 ##### 193#       发表于 2020-2-24 16:45
@@ -2386,7 +2386,7 @@ xperia Pro因为加厚了机身来放HDMI口，好像连摄像头都不突出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以的
 
 
------
+*****
 
 ####  傘木希美  
 ##### 194#       发表于 2020-2-24 16:47
@@ -2398,7 +2398,7 @@ xperia Pro因为加厚了机身来放HDMI口，好像连摄像头都不突出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就怕之后的大版本更新，有好用的功能享受不到记得安卓10是可以强制分屏了吧，nex就很想拥有
 
 
------
+*****
 
 ####  cat339  
 ##### 195#       发表于 2020-2-24 16:48
@@ -2412,7 +2412,7 @@ xperia Pro因为加厚了机身来放HDMI口，好像连摄像头都不突出了
 不是应该手机这边结合触摸屏, 整套新界面来反哺相机才对吗
 
 
------
+*****
 
 ####  我很费纸  
 ##### 196#       发表于 2020-2-24 16:48
@@ -2429,7 +2429,7 @@ xperia Pro因为加厚了机身来放HDMI口，好像连摄像头都不突出了
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  伊可费斯  
 ##### 197#       发表于 2020-2-24 16:49
@@ -2438,7 +2438,7 @@ xperia Pro因为加厚了机身来放HDMI口，好像连摄像头都不突出了
 pro一定支持下，今年世界不灭亡的话<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 198#       发表于 2020-2-24 16:50
@@ -2447,7 +2447,7 @@ pro一定支持下，今年世界不灭亡的话<img src="https://static.saraba1
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">對標S20 不還是缺個大底高像素的望遠頭嗎
 
 
------
+*****
 
 ####  gulant  
 ##### 199#       发表于 2020-2-24 16:51
@@ -2458,7 +2458,7 @@ pro一定支持下，今年世界不灭亡的话<img src="https://static.saraba1
 —— 來自 Sony J9110, Android 9上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 200#       发表于 2020-2-24 16:54
@@ -2473,7 +2473,7 @@ pro一定支持下，今年世界不灭亡的话<img src="https://static.saraba1
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 201#       发表于 2020-2-24 16:54
@@ -2492,7 +2492,7 @@ pro一定支持下，今年世界不灭亡的话<img src="https://static.saraba1
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  saintsimpler  
 ##### 202#       发表于 2020-2-24 16:55
@@ -2501,7 +2501,7 @@ pro一定支持下，今年世界不灭亡的话<img src="https://static.saraba1
 紫色的MK2真好看，动心了，硬朗风格真的好
 
 
------
+*****
 
 ####  我很费纸  
 ##### 203#       发表于 2020-2-24 16:55
@@ -2514,7 +2514,7 @@ pro一定支持下，今年世界不灭亡的话<img src="https://static.saraba1
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  阴摩罗鬼之眼  
 ##### 204#       发表于 2020-2-24 16:57
@@ -2525,7 +2525,7 @@ Xperia Pro支持了……下一台就他了
 —— 来自 samsung SM-N9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  404489039  
 ##### 205#       发表于 2020-2-24 17:01
@@ -2536,7 +2536,7 @@ xperia  pro什么沙雕玩意<img src="https://static.saraba1st.com/image/smil
 也就你嗦想得出这样的卖点
 
 
------
+*****
 
 ####  梁皇无忌  
 ##### 206#       发表于 2020-2-24 17:04
@@ -2553,7 +2553,7 @@ mark ii~命名听着像相机~</blockquote>
 —— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Tochika  
 ##### 207#       发表于 2020-2-24 17:04
@@ -2562,7 +2562,7 @@ mark ii~命名听着像相机~</blockquote>
 唯一不满就是紫色不够骚，10的绿色真好看<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 208#       发表于 2020-2-24 17:05
@@ -2577,7 +2577,7 @@ mark ii~命名听着像相机~</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  firimp-L  
 ##### 209#       发表于 2020-2-24 17:05
@@ -2585,7 +2585,7 @@ mark ii~命名听着像相机~</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  xzk0916  
 ##### 210#       发表于 2020-2-24 17:06
@@ -2596,7 +2596,7 @@ xperia 1同时代也有过pro，售价比1多3k，你们真的愿意为了专业
 —— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 211#       发表于 2020-2-24 17:07
@@ -2607,7 +2607,7 @@ xperia 1同时代也有过pro，售价比1多3k，你们真的愿意为了专业
 如果你没用过国产手机，第一次买智能机，也不怎么装国产流氓软件，甚至不生活在国内，Xperia 的系统还是不错的 XD
 
 
------
+*****
 
 ####  我很费纸  
 ##### 212#       发表于 2020-2-24 17:14
@@ -2624,7 +2624,7 @@ xperia 1同时代也有过pro，售价比1多3k，你们真的愿意为了专业
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 213#       发表于 2020-2-24 17:16
@@ -2639,7 +2639,7 @@ xperia 1同时代也有过pro，售价比1多3k，你们真的愿意为了专业
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  mickoo  
 ##### 214#       发表于 2020-2-24 17:19
@@ -2648,7 +2648,7 @@ xperia 1同时代也有过pro，售价比1多3k，你们真的愿意为了专业
 下一台就是它
 
 
------
+*****
 
 ####  andychen  
 ##### 215#       发表于 2020-2-24 17:23
@@ -2664,7 +2664,7 @@ xperia 1同时代也有过pro，售价比1多3k，你们真的愿意为了专业
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
------
+*****
 
 ####  香月诗浓  
 ##### 216#       发表于 2020-2-24 17:28
@@ -2672,7 +2672,7 @@ xperia 1同时代也有过pro，售价比1多3k，你们真的愿意为了专业
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 217#         楼主| 发表于 2020-2-24 17:33
@@ -2686,7 +2686,7 @@ xperia 1同时代也有过pro，售价比1多3k，你们真的愿意为了专业
 双卡不能用5g还行
 
 
------
+*****
 
 ####  我很费纸  
 ##### 218#       发表于 2020-2-24 17:34
@@ -2703,7 +2703,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 219#       发表于 2020-2-24 17:35
@@ -2718,7 +2718,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  jestime  
 ##### 220#       发表于 2020-2-24 17:36
@@ -2730,7 +2730,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 2k5可以买到影刃了，高强度耐用，还不用担心没电
 
 
------
+*****
 
 ####  我很费纸  
 ##### 221#       发表于 2020-2-24 17:37
@@ -2749,7 +2749,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 222#       发表于 2020-2-24 17:41
@@ -2764,7 +2764,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  mickoo  
 ##### 223#       发表于 2020-2-24 17:47
@@ -2785,7 +2785,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 现在都2K+120刷新率了，唉！
 
 
------
+*****
 
 ####  傘木希美  
 ##### 224#       发表于 2020-2-24 17:49
@@ -2798,7 +2798,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那电信和联通5g呢
 
 
------
+*****
 
 ####  -lilipeipei-  
 ##### 225#       发表于 2020-2-24 17:55
@@ -2810,7 +2810,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 非异形屏、侧边指纹、无摄像头凸起<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cray  
 ##### 226#       发表于 2020-2-24 17:57
@@ -2825,7 +2825,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 227#       发表于 2020-2-24 17:58
@@ -2836,7 +2836,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 —— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 228#       发表于 2020-2-24 17:58
@@ -2851,7 +2851,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 229#       发表于 2020-2-24 17:59
@@ -2864,7 +2864,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  rahicis  
 ##### 230#       发表于 2020-2-24 17:59
@@ -2873,7 +2873,7 @@ http://weibo.com/7282463636/IvGLHmBT6
 Pro版电池和Mark2一样吗？
 
 
------
+*****
 
 ####  我很费纸  
 ##### 231#       发表于 2020-2-24 18:00
@@ -2886,7 +2886,7 @@ Pro版连参数都没放出来，就知道金属机身+HDMI输入口<img src="ht
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  rahicis  
 ##### 232#       发表于 2020-2-24 18:02
@@ -2899,7 +2899,7 @@ Pro版连参数都没放出来，就知道金属机身+HDMI输入口
 以SONY的艹性可能会加大吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 233#       发表于 2020-2-24 18:02
@@ -2914,7 +2914,7 @@ X1M2好歹认认真真挤牙膏了，比起xz2/3进化到X1，这次的惊喜可
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  zatsuza  
 ##### 234#       发表于 2020-2-24 18:02
@@ -2925,7 +2925,7 @@ X1M2好歹认认真真挤牙膏了，比起xz2/3进化到X1，这次的惊喜可
 — from Sony G8441, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 235#       发表于 2020-2-24 18:03
@@ -2938,7 +2938,7 @@ X1M2好歹认认真真挤牙膏了，比起xz2/3进化到X1，这次的惊喜可
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Cray  
 ##### 236#       发表于 2020-2-24 18:09
@@ -2958,7 +2958,7 @@ X1M2好歹认认真真挤牙膏了，比起xz2/3进化到X1，这次的惊喜可
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 237#       发表于 2020-2-24 18:10
@@ -2974,7 +2974,7 @@ X1M2好歹认认真真挤牙膏了，比起xz2/3进化到X1，这次的惊喜可
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  TheDoctor  
 ##### 238#       发表于 2020-2-24 18:10
@@ -2984,7 +2984,7 @@ X1M2好歹认认真真挤牙膏了，比起xz2/3进化到X1，这次的惊喜可
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 239#       发表于 2020-2-24 18:11
@@ -2997,7 +2997,7 @@ Sony Xperia 1 Mark 2 16mm-70mm/F1.7-3.4 T*
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 240#         楼主| 发表于 2020-2-24 18:15
@@ -3011,7 +3011,7 @@ Sony Xperia 1 Mark 2 16mm-70mm/F1.7-3.4 T*
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  傘木希美  
 ##### 241#       发表于 2020-2-24 18:15
@@ -3020,7 +3020,7 @@ Sony Xperia 1 Mark 2 16mm-70mm/F1.7-3.4 T*
 话说非pro版的是有8+256吗1200刀？
 
 
------
+*****
 
 ####  酥盐炸鸡  
 ##### 242#       发表于 2020-2-24 18:19
@@ -3031,7 +3031,7 @@ Sony Xperia 1 Mark 2 16mm-70mm/F1.7-3.4 T*
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  GeneralAtomics  
 ##### 243#       发表于 2020-2-24 18:19
@@ -3045,7 +3045,7 @@ Sony Xperia 1 Mark 2 16mm-70mm/F1.7-3.4 T*
 真的，完全是婆罗门手机，太难得了
 
 
------
+*****
 
 ####  OldGlory  
 ##### 244#       发表于 2020-2-24 18:21
@@ -3054,7 +3054,7 @@ Sony Xperia 1 Mark 2 16mm-70mm/F1.7-3.4 T*
 双卡不支持5g可太傻逼了
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 245#       发表于 2020-2-24 18:25
@@ -3066,7 +3066,7 @@ Sony Xperia 1 Mark 2 16mm-70mm/F1.7-3.4 T*
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 246#       发表于 2020-2-24 18:26
@@ -3079,7 +3079,7 @@ Sony Xperia 1 Mark 2 16mm-70mm/F1.7-3.4 T*
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 247#       发表于 2020-2-24 18:28
@@ -3094,7 +3094,7 @@ Sony Xperia 1 Mark 2 16mm-70mm/F1.7-3.4 T*
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  营业收入  
 ##### 248#       发表于 2020-2-24 18:29
@@ -3105,7 +3105,7 @@ Sony Xperia 1 Mark 2 16mm-70mm/F1.7-3.4 T*
 — from Google Pixel 3 XL, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 249#       发表于 2020-2-24 18:35
@@ -3122,7 +3122,7 @@ X...Xperia L4…？
 不是，这年头还有配置不无聊的产品么…
 
 
------
+*****
 
 ####  傘木希美  
 ##### 250#       发表于 2020-2-24 18:37
@@ -3135,7 +3135,7 @@ X...Xperia L4…？
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MixRadio  
 ##### 251#       发表于 2020-2-24 18:40
@@ -3146,7 +3146,7 @@ X...Xperia L4…？
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  iceprince10  
 ##### 252#       发表于 2020-2-24 18:43
@@ -3155,7 +3155,7 @@ X...Xperia L4…？
 所以这会支持电信吗
 
 
------
+*****
 
 ####  leystage  
 ##### 253#       发表于 2020-2-24 18:44
@@ -3171,7 +3171,7 @@ X...Xperia L4…？
 买两台 1 II，一台自己用，一台给父亲，换下来的 Xperia 1 给母亲 XD
 
 
------
+*****
 
 ####  GeneralAtomics  
 ##### 254#       发表于 2020-2-24 18:45
@@ -3186,7 +3186,7 @@ X...Xperia L4…？
 其实还差一个注入婆罗门灵魂的关键设计啊，挂绳孔<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Lisylfn  
 ##### 255#       发表于 2020-2-24 18:46
@@ -3197,7 +3197,7 @@ X...Xperia L4…？
 完全支持是不可能的，索移倒闭了都不可能，有个VoLTE支持就可以了，反正以后23G也要退网了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Benthic  
 ##### 256#       发表于 2020-2-24 18:50
@@ -3208,7 +3208,7 @@ X...Xperia L4…？
 — from Google Pixel 3 XL, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  patema  
 ##### 257#       发表于 2020-2-24 18:51
@@ -3220,7 +3220,7 @@ X...Xperia L4…？
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还有可拆卸电池
 
 
------
+*****
 
 ####  404489039  
 ##### 258#       发表于 2020-2-24 18:55
@@ -3232,7 +3232,7 @@ X...Xperia L4…？
 错 是可拆卸后盖电池不可换
 
 
------
+*****
 
 ####  lbzlxx  
 ##### 259#       发表于 2020-2-24 18:56
@@ -3241,7 +3241,7 @@ X...Xperia L4…？
 侧面指纹还是1同款吗，能不能换回z系的，国内应该没这专利问题吧
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 260#       发表于 2020-2-24 18:56
@@ -3257,7 +3257,7 @@ X...Xperia L4…？
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 261#       发表于 2020-2-24 19:03
@@ -3270,7 +3270,7 @@ X...Xperia L4…？
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 262#       发表于 2020-2-24 19:05
@@ -3281,7 +3281,7 @@ X...Xperia L4…？
 还差翻盖机打开合上时的咔嗒声！
 
 
------
+*****
 
 ####  少打音游多读书  
 ##### 263#       发表于 2020-2-24 19:15
@@ -3290,7 +3290,7 @@ X...Xperia L4…？
 xperia 1国行首发价多少来着
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 264#       发表于 2020-2-24 19:19
@@ -3311,7 +3311,7 @@ UI有内味了，左上jpeg，所以支援dng格式吗？
 2020-2-24 19:20 上传
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 265#       发表于 2020-2-24 19:20
@@ -3324,7 +3324,7 @@ xperia 1国行首发价多少来着</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 266#       发表于 2020-2-24 19:20
@@ -3337,7 +3337,7 @@ UI有内味了，左上jpeg，所以支援dng格式吗？</blockquote>
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  兰开夏  
 ##### 267#       发表于 2020-2-24 19:21
@@ -3346,7 +3346,7 @@ UI有内味了，左上jpeg，所以支援dng格式吗？</blockquote>
 ufs2.1 和ddr4？
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 268#       发表于 2020-2-24 19:22
@@ -3361,7 +3361,7 @@ ufs2.1 和ddr4？
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  lbzlxx  
 ##### 269#       发表于 2020-2-24 19:22
@@ -3379,7 +3379,7 @@ ufs2.1 和ddr4？
 如果有16：9就真是无敌了（剔除价格）
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 270#       发表于 2020-2-24 19:22
@@ -3394,7 +3394,7 @@ ufs2.1 和ddr4？
 UI支持触控交互，alpha系列历史初次，赢了！
 
 
------
+*****
 
 ####  cubesun  
 ##### 271#       发表于 2020-2-24 19:33
@@ -3406,7 +3406,7 @@ UI支持触控交互，alpha系列历史初次，赢了！
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 272#       发表于 2020-2-24 19:33
@@ -3421,7 +3421,7 @@ ufs2.1 和ddr4？</blockquote>
 假设为真吧，ufs2.1其实问题不大，影响流畅度的是4k读写速度不是连续读写，这点3.0或者3.1和2.1没有拉开差距。lpddr4x会比较伤，但目前还没有用lpddr4x的865手机，希望索移做个人吧。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 273#       发表于 2020-2-24 19:35
@@ -3436,7 +3436,7 @@ ufs2.1 和ddr4？</blockquote>
 可以继续上半年超旗舰陪半成品系统，下半年小旗舰配个功能齐全的完整系统，然后bug统一Android 11修复，更新的同时顺手砍一些特色功能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  leystage  
 ##### 274#       发表于 2020-2-24 19:49
@@ -3447,7 +3447,7 @@ ufs2.1 和ddr4？</blockquote>
 有理有据，看得出你是老粉丝了 XD
 
 
------
+*****
 
 ####  傘木希美  
 ##### 275#       发表于 2020-2-24 20:13
@@ -3458,7 +3458,7 @@ ufs2.1 和ddr4？</blockquote>
 对了，听说马云买三星港行有的发/票有问题？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">索尼港行有这情况吗
 
 
------
+*****
 
 ####  rahicis  
 ##### 276#       发表于 2020-2-24 20:30
@@ -3472,7 +3472,7 @@ ufs2.1 和ddr4？</blockquote>
 B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  w4l17  
 ##### 277#       发表于 2020-2-24 20:36
@@ -3481,7 +3481,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 买了XZ1C后很少关注我索了，现在还有Compact系列吗？
 
 
------
+*****
 
 ####  内森德雷克  
 ##### 278#       发表于 2020-2-24 20:42
@@ -3492,7 +3492,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 乐观估计等875旗舰来了就能用上UFS3.0乃至3.1了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  兰开夏  
 ##### 279#       发表于 2020-2-24 20:54
@@ -3501,7 +3501,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 感觉这也是方向，变成非常特化的机型。买手机还能审下ninja的钱？要是亮度也强无敌那真的是
 
 
------
+*****
 
 ####  once-again  
 ##### 280#       发表于 2020-2-24 20:59
@@ -3512,7 +3512,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 大法我草泥马<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  香月诗浓  
 ##### 281#       发表于 2020-2-24 20:59
@@ -3520,7 +3520,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  黎恩  
 ##### 282#       发表于 2020-2-24 21:00
@@ -3528,7 +3528,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  leystage  
 ##### 283#       发表于 2020-2-24 21:01
@@ -3550,7 +3550,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 <img src="https://img.saraba1st.com/forum/202002/24/210038memb141ge61z0vhz.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  firimp-L  
 ##### 284#       发表于 2020-2-24 21:24
@@ -3558,7 +3558,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  mhss  
 ##### 285#       发表于 2020-2-24 21:25
@@ -3574,7 +3574,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 <img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_uduRD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 286#       发表于 2020-2-24 21:27
@@ -3589,7 +3589,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  香月诗浓  
 ##### 287#       发表于 2020-2-24 21:28
@@ -3597,7 +3597,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  mhss  
 ##### 288#       发表于 2020-2-24 21:32
@@ -3614,7 +3614,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 xz2的拍照畸变就算后期在app里加入了可选修复，可是微信等软件直接调用拍出来依然是个歪线条，要不是学会长按相册键直接调用相机还不知道要被恶心到什么时候<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 289#       发表于 2020-2-24 21:34
@@ -3633,7 +3633,7 @@ B站视频……这又是什么鬼？
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  激萌的萝莉  
 ##### 290#       发表于 2020-2-24 21:50
@@ -3642,7 +3642,7 @@ B站视频……这又是什么鬼？
 下一台一定买
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 291#       发表于 2020-2-24 21:51
@@ -3653,7 +3653,7 @@ B站视频……这又是什么鬼？
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 292#       发表于 2020-2-24 22:01
@@ -3665,7 +3665,7 @@ B站视频……这又是什么鬼？
 看这张图，底比去年的1大了不少嘛。对画质可以期待一下的感觉？</blockquote>看错，编辑了。好起来了
 
 
------
+*****
 
 ####  leystage  
 ##### 293#       发表于 2020-2-24 22:11
@@ -3676,7 +3676,7 @@ B站视频……这又是什么鬼？
 从1/2.4升级到1/1.7哦，12MP不变，确实好起来了
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 294#       发表于 2020-2-24 22:22
@@ -3688,7 +3688,7 @@ B站视频……这又是什么鬼？
 mit Legendary ZEISS® Optik
 
 
------
+*****
 
 ####  人生如戏  
 ##### 295#       发表于 2020-2-24 22:27
@@ -3699,7 +3699,7 @@ mit Legendary ZEISS® Optik
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Cray  
 ##### 296#       发表于 2020-2-24 22:32
@@ -3711,7 +3711,7 @@ mit Legendary ZEISS® Optik
 谷歌相机马少有做啊，你可以去刷。
 
 
------
+*****
 
 ####  zatsuza  
 ##### 297#       发表于 2020-2-24 22:34
@@ -3723,7 +3723,7 @@ mit Legendary ZEISS® Optik
 拍照畸变是索索的顽疾了，不用指望能变好的
 
 
------
+*****
 
 ####  StarBlazers  
 ##### 298#       发表于 2020-2-24 22:46
@@ -3734,7 +3734,7 @@ mit Legendary ZEISS® Optik
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 299#       发表于 2020-2-24 22:48
@@ -3749,7 +3749,7 @@ mit Legendary ZEISS® Optik
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Cray  
 ##### 300#       发表于 2020-2-24 22:58
@@ -3782,7 +3782,7 @@ mit Legendary ZEISS® Optik
 顺便 电池没变还是4000
 
 
------
+*****
 
 ####  Ferrari  
 ##### 301#       发表于 2020-2-24 23:03
@@ -3797,7 +3797,7 @@ Pro很棒 这种侧面纹理让人想起了当年大法的walkman MP3
 官网价格是143000日元
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 302#       发表于 2020-2-24 23:03
@@ -3812,7 +3812,7 @@ Pro很棒 这种侧面纹理让人想起了当年大法的walkman MP3
 MkII poro，psycho gundam而已
 
 
------
+*****
 
 ####  StarBlazers  
 ##### 303#       发表于 2020-2-24 23:06
@@ -3827,7 +3827,7 @@ MkII poro，psycho gundam而已
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 304#       发表于 2020-2-24 23:09
@@ -3838,7 +3838,7 @@ mit Legendary ZEISS® Optik</blockquote>
 我德语学得少，但这是真的有德味了 XD
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 305#       发表于 2020-2-24 23:11
@@ -3850,7 +3850,7 @@ mit Legendary ZEISS® Optik</blockquote>
 T*镀膜应该可以吊打**的鬼影摄像头了
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 306#       发表于 2020-2-24 23:21
@@ -3865,7 +3865,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了
 做梦都想有洋垃圾pro（的零件
 
 
------
+*****
 
 ####  我很费纸  
 ##### 307#       发表于 2020-2-24 23:23
@@ -3882,7 +3882,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 308#       发表于 2020-2-24 23:23
@@ -3894,7 +3894,7 @@ MkII poro，psycho gundam而已</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 是 FA MKII
 
 
------
+*****
 
 ####  leystage  
 ##### 309#       发表于 2020-2-24 23:32
@@ -3908,7 +3908,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了</blockquote>
 看到推特上蔡司已经在和索尼商业互吹了，说索尼把T*镀膜带到了智能手机上
 
 
------
+*****
 
 ####  Cray  
 ##### 310#       发表于 2020-2-24 23:36
@@ -3923,7 +3923,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了</blockquote>
 这次主镜头也是蔡司的，肯定比🍏的树脂强。
 
 
------
+*****
 
 ####  wyhman  
 ##### 311#       发表于 2020-2-24 23:56
@@ -3939,7 +3939,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了</blockquote>
 等我索出神机的那一天！（并无可能
 
 
------
+*****
 
 ####  坂本龍一  
 ##### 312#       发表于 2020-2-24 23:58
@@ -3950,7 +3950,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了</blockquote>
 —— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 313#       发表于 2020-2-25 00:10
@@ -3962,7 +3962,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了</blockquote>
 下一台就是可变型的zeta手机了！
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 314#       发表于 2020-2-25 00:12
@@ -3977,7 +3977,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了</blockquote>
 旁友你知道qx100吗
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 315#       发表于 2020-2-25 00:17
@@ -3989,7 +3989,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/bundam2017/032.png" referrerpolicy="no-referrer"> AE產品跟聯邦軍直系的還是有區別的  
 
 
------
+*****
 
 ####  JWJking  
 ##### 316#       发表于 2020-2-25 01:46
@@ -3998,7 +3998,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了</blockquote>
 这侧边棱角，硬了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  逆袭的黑月  
 ##### 317#       发表于 2020-2-25 03:25
@@ -4009,7 +4009,7 @@ T*镀膜应该可以吊打**的鬼影摄像头了</blockquote>
 今年不下次一定了,P9该寿终正寝了
 
 
------
+*****
 
 ####  blackeyed  
 ##### 318#       发表于 2020-2-25 03:30
@@ -4024,7 +4024,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 另外编码码率也没法太高, 当然了大部分直接直播都不需要很高码率
 
 
------
+*****
 
 ####  行星减速器mk4  
 ##### 319#       发表于 2020-2-25 03:46
@@ -4032,7 +4032,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  Cray  
 ##### 320#       发表于 2020-2-25 04:37
@@ -4047,7 +4047,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 321#       发表于 2020-2-25 08:20
@@ -4066,7 +4066,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  lc122448  
 ##### 322#       发表于 2020-2-25 08:55
@@ -4079,7 +4079,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 323#       发表于 2020-2-25 09:06
@@ -4095,7 +4095,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  有乐亭八云  
 ##### 324#       发表于 2020-2-25 09:54
@@ -4106,7 +4106,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 下次一定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rbf1993  
 ##### 325#       发表于 2020-2-25 09:59
@@ -4117,7 +4117,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 不是国内厂商堆料太可怕，而是脑残小学生和水军太多，在他们嘴里，如果他们手上的手机是4500mah，你的是4490mah，他们也会说你的手机续航尿崩，他们的续航两天无压力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lc122448  
 ##### 326#       发表于 2020-2-25 10:21
@@ -4147,7 +4147,7 @@ XPERIA 5好像是68还是多少？
 还有就是用着双卡还是挺方便的，XZ1C这个大小做双卡估计不行
 
 
------
+*****
 
 ####  我很费纸  
 ##### 327#       发表于 2020-2-25 10:25
@@ -4166,7 +4166,7 @@ X5是68……介意宽度和我一样等X5M2吧
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  DaveZED  
 ##### 328#       发表于 2020-2-25 10:37
@@ -4178,7 +4178,7 @@ X5是68……介意宽度和我一样等X5M2吧
 —— 來自 samsung SM-N976N, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 329#       发表于 2020-2-25 11:03
@@ -4192,7 +4192,7 @@ X5是68……介意宽度和我一样等X5M2吧
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 330#       发表于 2020-2-25 11:04
@@ -4218,7 +4218,7 @@ X5是68……介意宽度和我一样等X5M2吧
 索尼的拍照和系统确实有点小毛病，从不否认，尤其去年的相机bug偶尔确实会恶心人。但跟网上给人的感觉比起来，其实还是要好一些的。网络是放大器。
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 331#       发表于 2020-2-25 11:12
@@ -4229,7 +4229,7 @@ X5是68……介意宽度和我一样等X5M2吧
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  拱猪  
 ##### 332#       发表于 2020-2-25 11:17
@@ -4238,7 +4238,7 @@ X5是68……介意宽度和我一样等X5M2吧
 我擦，pro好棒，索粉不买还是人么
 
 
------
+*****
 
 ####  布里希嘉曼  
 ##### 333#       发表于 2020-2-25 11:21
@@ -4250,7 +4250,7 @@ X5是68……介意宽度和我一样等X5M2吧
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  jumbleh  
 ##### 334#       发表于 2020-2-25 11:35
@@ -4259,7 +4259,7 @@ X5是68……介意宽度和我一样等X5M2吧
 索移还出不出小屏旗舰啊，眼见着市场上就剩下三星还在做这个了
 
 
------
+*****
 
 ####  izthr  
 ##### 335#       发表于 2020-2-25 11:41
@@ -4274,7 +4274,7 @@ X5是68……介意宽度和我一样等X5M2吧
 分辨率只看长边，再说了4K都是sony制定的标准，还不是想怎么说怎么说
 
 
------
+*****
 
 ####  patema  
 ##### 336#       发表于 2020-2-25 11:49
@@ -4283,7 +4283,7 @@ X5是68……介意宽度和我一样等X5M2吧
 有一说一pro看起来真的硬汉，相比之下别的手机都和娘炮一样，那个渐变玻璃真是逊啊。建议以后索索就这么设计了
 
 
------
+*****
 
 ####  leystage  
 ##### 337#       发表于 2020-2-25 11:56
@@ -4294,7 +4294,7 @@ X5是68……介意宽度和我一样等X5M2吧
 每年出一款呀，最新的是去年下半年的 Xperia 5，觉得买新不买旧可以等九月份的 Xperia 5 II
 
 
------
+*****
 
 ####  oskneo  
 ##### 338#       发表于 2020-2-25 12:14
@@ -4321,7 +4321,7 @@ Xperia L4：200欧元（约合1525元），4G网络，黑色或蓝色可选，3+
 看看国行和港行有多努力了
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 339#       发表于 2020-2-25 12:30
@@ -4337,7 +4337,7 @@ Xperia L4：200欧元（约合1525元），4G网络，黑色或蓝色可选，3+
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 340#       发表于 2020-2-25 12:34
@@ -4357,7 +4357,7 @@ Xperia L4：200欧元（约合1525元），4G网络，黑色或蓝色可选，3+
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 341#       发表于 2020-2-25 12:44
@@ -4371,7 +4371,7 @@ Xperia L4：200欧元（约合1525元），4G网络，黑色或蓝色可选，3+
 欧版价格可以打85折做参考
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 342#       发表于 2020-2-25 12:47
@@ -4386,7 +4386,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 343#       发表于 2020-2-25 12:57
@@ -4400,7 +4400,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 zack的消息有的时候emmm…
 
 
------
+*****
 
 ####  gulant  
 ##### 344#       发表于 2020-2-25 13:09
@@ -4409,7 +4409,7 @@ zack的消息有的时候emmm…
 接近一万块一台啊，还真以为自己身骄肉贵么，继续大暴死预定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 345#       发表于 2020-2-25 13:22
@@ -4422,7 +4422,7 @@ zack的消息有的时候emmm…</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  狂风DKC  
 ##### 346#       发表于 2020-2-25 13:29
@@ -4431,7 +4431,7 @@ zack的消息有的时候emmm…</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在还有人信索嗨头子？
 
 
------
+*****
 
 ####  oskneo  
 ##### 347#       发表于 2020-2-25 15:00
@@ -4446,7 +4446,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 — from Sony G8142, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  Cray  
 ##### 348#       发表于 2020-2-25 15:08
@@ -4461,7 +4461,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  leystage  
 ##### 349#       发表于 2020-2-25 15:12
@@ -4475,7 +4475,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 是6399-200，结果发货还比港版晚一阵…
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 350#       发表于 2020-2-25 15:40
@@ -4486,7 +4486,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 351#       发表于 2020-2-25 16:11
@@ -4500,7 +4500,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 过于魔幻以至于让我觉得搞不好国行有个专门的双卡版？
 
 
------
+*****
 
 ####  Cray  
 ##### 352#       发表于 2020-2-25 16:11
@@ -4512,7 +4512,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">话说昨天某人视频删了，大概是因为里面有个隐藏色。
 
 
------
+*****
 
 ####  dev2ce  
 ##### 353#       发表于 2020-2-25 16:31
@@ -4523,7 +4523,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 索移有一台不暴死吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早就习惯了吧
 
 
------
+*****
 
 ####  izthr  
 ##### 354#       发表于 2020-2-25 16:39
@@ -4535,7 +4535,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 首发不会低于7000，目测8000
 
 
------
+*****
 
 ####  Cray  
 ##### 355#       发表于 2020-2-25 16:58
@@ -4550,7 +4550,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">台湾的通稿说pro有独家散热系统，可能那个边框不光是天线。
 
 
------
+*****
 
 ####  傘木希美  
 ##### 356#       发表于 2020-2-25 17:05
@@ -4561,7 +4561,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">是不是得等个1年起了
 
 
------
+*****
 
 ####  leystage  
 ##### 357#       发表于 2020-2-25 17:13
@@ -4570,7 +4570,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 不过讲真，双卡双待需求是不是大部分都在中国大陆？
 
 
------
+*****
 
 ####  Cray  
 ##### 358#       发表于 2020-2-25 18:17
@@ -4585,7 +4585,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 359#       发表于 2020-2-25 19:12
@@ -4603,7 +4603,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 360#       发表于 2020-2-25 19:14
@@ -4619,7 +4619,7 @@ zack去年的时候一直放消息说1的价格基本不会超6k，结果。。�
 我自己也双持，个人感觉比双卡在续航、软件隔离性、防骚扰等方面都比双卡更方便。不过我反正自知是一小撮早就习惯了
 
 
------
+*****
 
 ####  我很费纸  
 ##### 361#       发表于 2020-2-25 19:22
@@ -4644,7 +4644,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 362#       发表于 2020-2-25 19:38
@@ -4655,7 +4655,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  lolozp  
 ##### 363#       发表于 2020-2-25 20:51
@@ -4672,7 +4672,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 —— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  lolozp  
 ##### 364#       发表于 2020-2-25 20:54
@@ -4689,7 +4689,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 —— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  罗克萨斯  
 ##### 365#       发表于 2020-2-25 21:10
@@ -4704,7 +4704,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 同样宽度的16:9全面屏会非常小巧，且看视频完全等效，简直不能再好，然而只能活在YY之中
 
 
------
+*****
 
 ####  有乐亭八云  
 ##### 366#       发表于 2020-2-25 21:16
@@ -4719,7 +4719,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 835之后没有哪款安卓机半年卡的
 
 
------
+*****
 
 ####  我很费纸  
 ##### 367#       发表于 2020-2-25 22:41
@@ -4734,7 +4734,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  gnorz  
 ##### 368#       发表于 2020-2-25 23:23
@@ -4743,7 +4743,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 那么只好继续等10马克兔的洋垃圾。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 369#       发表于 2020-2-25 23:37
@@ -4758,7 +4758,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 370#       发表于 2020-2-26 01:00
@@ -4767,7 +4767,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 看了一圈感觉这次网络舆论还是黑和踩的多… 真实大型双标现场…
 
 
------
+*****
 
 ####  我很费纸  
 ##### 371#       发表于 2020-2-26 01:47
@@ -4784,7 +4784,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  OldGlory  
 ##### 372#       发表于 2020-2-26 07:02
@@ -4793,7 +4793,7 @@ X1M2好贵，X5能降价1k让我先换上手机吗<img src="https://static.sarab
 买索尼还看什么网络舆论，婆罗门自己买了爽了就完事了
 
 
------
+*****
 
 ####  我很费纸  
 ##### 373#       发表于 2020-2-26 09:24
@@ -4808,7 +4808,7 @@ http://weibo.com/1748136774/IvWKcjh7u
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  leystage  
 ##### 374#       发表于 2020-2-26 10:03
@@ -4833,7 +4833,7 @@ http://weibo.com/1748136774/IvWKcjh7u
 不过也习惯了这种舆论氛围就是了，其实别家销量大的牌子也有这种事情，甚至更多
 
 
------
+*****
 
 ####  leystage  
 ##### 375#       发表于 2020-2-26 10:04
@@ -4847,7 +4847,7 @@ http://weibo.com/1748136 ...</blockquote>
 你不是正好就直接买到完全版了嘛，哈哈哈。。。
 
 
------
+*****
 
 ####  bxcds  
 ##### 376#       发表于 2020-2-26 10:15
@@ -4862,7 +4862,7 @@ http://weibo.com/1748136 ...</blockquote>
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  Cray  
 ##### 377#       发表于 2020-2-26 11:04
@@ -4877,7 +4877,7 @@ http://weibo.com/1748136 ...</blockquote>
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  defer  
 ##### 378#       发表于 2020-2-26 11:14
@@ -4886,7 +4886,7 @@ http://weibo.com/1748136 ...</blockquote>
 865绑定wifi6吗，如果没有神奇操作的话，这波就把手机路由和笔记本网卡一波换了。
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 379#       发表于 2020-2-26 11:21
@@ -4901,7 +4901,7 @@ http://weibo.com/1748136 ...</blockquote>
 沒完成的手機也砍掉就好
 
 
------
+*****
 
 ####  幻云矢  
 ##### 380#       发表于 2020-2-26 19:16
@@ -4912,7 +4912,7 @@ http://weibo.com/1748136 ...</blockquote>
 —— 来自 Sony J9210, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  翠乙鼠  
 ##### 381#       发表于 2020-2-26 19:33
@@ -4938,7 +4938,7 @@ http://weibo.com/1748136 ...</blockquote>
 尝试做了下16：9，确实<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cray  
 ##### 382#       发表于 2020-2-26 19:49
@@ -4953,7 +4953,7 @@ http://weibo.com/1748136 ...</blockquote>
 没想到b站速度这么快 被备份了/<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  jajajzz  
 ##### 383#       发表于 2020-2-26 23:56
@@ -4962,7 +4962,7 @@ http://weibo.com/1748136 ...</blockquote>
 请问21：9看漫画会不会很怪异啊
 
 
------
+*****
 
 ####  我很费纸  
 ##### 384#       发表于 2020-2-27 12:05
@@ -4979,7 +4979,7 @@ http://weibo.com/1748136774/Iw5P60psY
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  傘木希美  
 ##### 385#       发表于 2020-2-27 12:52
@@ -4992,7 +4992,7 @@ Zack去问了台湾拿到真机的同行
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">两张卡的话就谁也不能开5g？how
 
 
------
+*****
 
 ####  oskneo  
 ##### 386#       发表于 2020-2-27 13:48
@@ -5001,7 +5001,7 @@ Zack去问了台湾拿到真机的同行
 话说看图片貌似这机还是三大金刚？不是说安卓10就上手势了吗？
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 387#       发表于 2020-2-27 14:05
@@ -5014,7 +5014,7 @@ Zack去问了台湾拿到真机的同行
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 388#       发表于 2020-2-27 14:05
@@ -5029,7 +5029,7 @@ Zack去问了台湾拿到真机的同行
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Lisylfn  
 ##### 389#       发表于 2020-2-27 14:09
@@ -5038,7 +5038,7 @@ Zack去问了台湾拿到真机的同行
 想等Xperia 5 II, 但是又好急, 6s和XZ 1C刚不住了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 390#       发表于 2020-2-27 14:56
@@ -5053,7 +5053,7 @@ Zack去问了台湾拿到真机的同行
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  瞌睡的松鼠  
 ##### 391#       发表于 2020-2-27 15:22
@@ -5062,7 +5062,7 @@ Zack去问了台湾拿到真机的同行
 造型喜欢，还是等降价了
 
 
------
+*****
 
 ####  行星减速器mk4  
 ##### 392#       发表于 2020-2-27 15:53
@@ -5070,7 +5070,7 @@ Zack去问了台湾拿到真机的同行
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  内森德雷克  
 ##### 393#       发表于 2020-2-28 00:51
@@ -5080,7 +5080,7 @@ Zack去问了台湾拿到真机的同行
 现在来看槽点就只有这个双卡不能5G，不知道后面会不会有大神出来搞定<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  松川奈々  
 ##### 394#       发表于 2020-2-28 16:37
@@ -5089,7 +5089,7 @@ Zack去问了台湾拿到真机的同行
 xperia pro有情报吗，可太婆罗门了，想入
 
 
------
+*****
 
 ####  萱时令  
 ##### 395#       发表于 2020-2-28 17:56
@@ -5104,7 +5104,7 @@ pro硬件有了差别 会更不好买
 — from OnePlus GM1910, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.1-alpha
 
 
------
+*****
 
 ####  傘木希美  
 ##### 396#       发表于 2020-2-28 18:14
@@ -5113,7 +5113,7 @@ pro硬件有了差别 会更不好买
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道什么时候能降到5000以下啊港行价格现在有了吗
 
 
------
+*****
 
 ####  我很费纸  
 ##### 397#       发表于 2020-2-28 18:15
@@ -5132,7 +5132,7 @@ xperia pro有情报吗，可太婆罗门了，想入</blockquote>
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  有口皆悲  
 ##### 398#       发表于 2020-2-28 20:24
@@ -5141,7 +5141,7 @@ xperia pro有情报吗，可太婆罗门了，想入</blockquote>
 pro可以接ns玩主机模式，倍有范儿<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  coolcoat  
 ##### 399#       发表于 2020-3-3 11:56
@@ -5152,7 +5152,7 @@ pro可以接ns玩主机模式，倍有范儿<img src="https://static.saraba1st.c
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
------
+*****
 
 ####  leystage  
 ##### 400#       发表于 2020-3-3 15:09
@@ -5161,7 +5161,7 @@ pro可以接ns玩主机模式，倍有范儿<img src="https://static.saraba1st.c
 日本和台湾的官宣用词都是蔡司镜头和蔡司T*镀膜？？？
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 401#       发表于 2020-3-3 15:33
@@ -5174,7 +5174,7 @@ pro可以接ns玩主机模式，倍有范儿<img src="https://static.saraba1st.c
 — from Sony G8342, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 402#       发表于 2020-3-6 18:04
@@ -5185,7 +5185,7 @@ pro可以接ns玩主机模式，倍有范儿<img src="https://static.saraba1st.c
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Lisylfn  
 ##### 403#       发表于 2020-3-6 18:05
@@ -5196,7 +5196,7 @@ pro可以接ns玩主机模式，倍有范儿<img src="https://static.saraba1st.c
 oppo findx吧
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 404#       发表于 2020-3-6 18:06
@@ -5207,7 +5207,7 @@ oppo findx吧
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 405#       发表于 2020-3-6 18:07
@@ -5220,7 +5220,7 @@ oppo findx吧</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Cray  
 ##### 406#       发表于 2020-3-6 19:26
@@ -5241,7 +5241,7 @@ oppo findx吧</blockquote>
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  bxcds  
 ##### 407#       发表于 2020-3-6 19:54
@@ -5256,7 +5256,7 @@ oppo findx吧</blockquote>
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 408#       发表于 2020-3-6 22:00
@@ -5271,7 +5271,7 @@ oppo findx吧</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  Akkarriin  
 ##### 409#       发表于 2020-3-7 00:18
@@ -5283,7 +5283,7 @@ oppo findx吧</blockquote>
 —— 来自 HUAWEI CLT-AL01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 410#       发表于 2020-3-18 13:12
@@ -5300,7 +5300,7 @@ Xperia 1 II ・・・4月下旬本体価格は12万3552円
 比想象中早啊顺便价格比s20+贵
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 411#         楼主| 发表于 2020-3-18 13:25
@@ -5312,7 +5312,7 @@ Xperia 1 II ・・・4月下旬本体価格は12万3552円
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  香月诗浓  
 ##### 412#       发表于 2020-3-18 13:27
@@ -5320,7 +5320,7 @@ Xperia 1 II ・・・4月下旬本体価格は12万3552円
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  runningch  
 ##### 413#       发表于 2020-3-18 14:07
@@ -5329,7 +5329,7 @@ Xperia 1 II ・・・4月下旬本体価格は12万3552円
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">7X99的话只能观望等跳水了
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 414#       发表于 2020-3-18 14:08
@@ -5338,7 +5338,7 @@ Xperia 1 II ・・・4月下旬本体価格は12万3552円
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">錢留着充值PS5不好嗎  給手機賺真不是味兒
 
 
------
+*****
 
 ####  oskneo  
 ##### 415#       发表于 2020-3-18 14:44
@@ -5352,7 +5352,7 @@ Xperia 1 II ・・・4月下旬本体価格は12万3552円
 xzp快撑不下去了，只能操作2|3个屏幕很痛苦
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 416#       发表于 2020-3-18 17:25
@@ -5367,7 +5367,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1.1-alpha
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 417#         楼主| 发表于 2020-3-18 17:58
@@ -5379,7 +5379,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  mickoo  
 ##### 418#       发表于 2020-3-18 18:20
@@ -5396,7 +5396,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 说不定国行会支持双5G，港版只能单5G
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 419#         楼主| 发表于 2020-3-18 18:23
@@ -5411,7 +5411,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  mickoo  
 ##### 420#       发表于 2020-3-18 18:24
@@ -5426,7 +5426,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 那为什么其他865的机器都支持双5G
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 421#         楼主| 发表于 2020-3-18 18:26
@@ -5438,7 +5438,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  mickoo  
 ##### 422#       发表于 2020-3-18 18:28
@@ -5453,7 +5453,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 是双卡双5G待机，就像现在双卡双4G
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 423#         楼主| 发表于 2020-3-18 18:29
@@ -5466,7 +5466,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 424#         楼主| 发表于 2020-3-18 18:32
@@ -5479,7 +5479,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 425#       发表于 2020-3-18 19:18
@@ -5494,7 +5494,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1.1-alpha
 
 
------
+*****
 
 ####  日霜衣  
 ##### 426#       发表于 2020-3-18 19:18
@@ -5509,7 +5509,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 双4g是指，插入两张卡，就不能连接5G网络了？
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 427#         楼主| 发表于 2020-3-18 19:22
@@ -5521,7 +5521,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 428#         楼主| 发表于 2020-3-18 19:23
@@ -5535,7 +5535,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  hansel  
 ##### 429#       发表于 2020-3-18 19:58
@@ -5564,7 +5564,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 这个可以打在屏外也可以打在屏上，据说苹果想打在信号标上（五个点回归？），而且 PC 客户也很感兴趣，毕竟能实现廉价窄边框，泥潭肥宅应该也能忍 5/8mp 前置
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 430#       发表于 2020-3-18 21:57
@@ -5575,7 +5575,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1.1-alpha
 
 
------
+*****
 
 ####  leystage  
 ##### 431#       发表于 2020-3-18 22:43
@@ -5589,7 +5589,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 据说是的
 
 
------
+*****
 
 ####  leystage  
 ##### 432#       发表于 2020-3-18 22:44
@@ -5598,7 +5598,7 @@ s20和s20+都只有128g存储，感觉完全不够用啊
 日版官网产品页已经上线了，看了下不少功能都注释说上市后通过软件更新提供… 这是软件开发进度又更不上了么… 
 
 
------
+*****
 
 ####  我很费纸  
 ##### 433#       发表于 2020-3-18 23:39
@@ -5611,7 +5611,7 @@ X1M2在日本那边做了测速……5G网速不如4G（或者叫4G+网速堪比
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  Cray  
 ##### 434#       发表于 2020-3-19 01:20
@@ -5626,7 +5626,7 @@ X1M2在日本那边做了测速……5G网速不如4G（或者叫4G+网速堪比
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  leystage  
 ##### 435#       发表于 2020-3-19 15:17
@@ -5639,7 +5639,7 @@ X1M2在日本那边做了测速……5G网速不如4G（或者叫4G+网速堪比
 其实我更多觉得是索尼觉得全世界除了四位数？销量的中国大陆市场外几乎没有地方有双卡需求吧…
 
 
------
+*****
 
 ####  我很费纸  
 ##### 436#       发表于 2020-3-19 18:40
@@ -5656,7 +5656,7 @@ X1M2在日本那边做了测速……5G网速不如4G（或者叫4G+网速堪比
 —— 来自 Sony H8324, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 437#       发表于 2020-3-20 10:59
@@ -5667,7 +5667,7 @@ Zack是不是帮绅士手机站台的？
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1.1-alpha
 
 
------
+*****
 
 ####  我很费纸  
 ##### 438#       发表于 2020-3-24 19:53
@@ -5689,7 +5689,7 @@ X5修完拿回来了，现在屏幕大概是正常的（但是心理作用下还
 顺带过来问问，楼里X1、X5用户多，大家的跑分情况大概是什么水准orz，我好做个参考orz
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 439#         楼主| 发表于 2020-3-24 19:57
@@ -5704,7 +5704,7 @@ X5修完拿回来了，现在屏幕大概是正常的（但是心理作用下还
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 440#       发表于 2020-3-24 20:10
@@ -5722,7 +5722,7 @@ X5修完拿回来了，现在屏幕大概是正常的（但是心理作用下还
 寄去售后修了一个星期，前几天工程师甚至跟我说不能复现问题，我加微信发视频给他们才证明我手机确实有问题。前几天修完，今天快递刚刚送到家orz
 
 
------
+*****
 
 ####  我很费纸  
 ##### 441#       发表于 2020-3-24 20:57
@@ -5747,7 +5747,7 @@ Snipaste_2020-03-24_20-54-02.jpg
 <img src="https://img.saraba1st.com/forum/202003/24/205422potvztjauf6jy5f0.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 442#         楼主| 发表于 2020-3-24 21:03
@@ -5762,7 +5762,7 @@ Snipaste_2020-03-24_20-54-02.jpg
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  sakamichi  
 ##### 443#       发表于 2020-3-24 21:17
@@ -5771,7 +5771,7 @@ Snipaste_2020-03-24_20-54-02.jpg
 和pixel一样任性
 
 
------
+*****
 
 ####  h20020901  
 ##### 444#       发表于 2020-3-24 23:48
@@ -5782,7 +5782,7 @@ Snipaste_2020-03-24_20-54-02.jpg
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 445#       发表于 2020-3-25 00:05
@@ -5797,7 +5797,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MixRadio  
 ##### 446#       发表于 2020-4-2 21:35
@@ -5808,7 +5808,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  月夜凝雪  
 ##### 447#       发表于 2020-4-2 21:49
@@ -5823,7 +5823,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 今年不是全世界各种产业都凉凉
 
 
------
+*****
 
 ####  我很费纸  
 ##### 448#       发表于 2020-4-2 22:07
@@ -5841,7 +5841,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 449#       发表于 2020-4-2 22:54
@@ -5850,7 +5850,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 愚人节也行啊，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 450#       发表于 2020-4-2 23:17
@@ -5863,7 +5863,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 451#       发表于 2020-4-3 11:23
@@ -5878,7 +5878,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 哪里的消息啊，偶google或百度xperia 1 ii 延期没找到官方消息，只找到一个6天前路边媒体说延期一个月的
 
 
------
+*****
 
 ####  我很费纸  
 ##### 452#       发表于 2020-4-3 11:33
@@ -5893,7 +5893,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 453#       发表于 2020-4-3 11:40
@@ -5902,7 +5902,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 但是好像日版还是四月上市+软件慢慢更新？
 
 
------
+*****
 
 ####  香月诗浓  
 ##### 454#       发表于 2020-4-3 11:40
@@ -5910,7 +5910,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  leystage  
 ##### 455#       发表于 2020-4-3 11:42
@@ -5926,7 +5926,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 日版目前本月上市计划不变。
 
 
------
+*****
 
 ####  oskneo  
 ##### 456#       发表于 2020-4-3 12:19
@@ -5940,7 +5940,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 港版台版呢
 
 
------
+*****
 
 ####  我很费纸  
 ##### 457#       发表于 2020-4-3 12:37
@@ -5957,7 +5957,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  ziyo  
 ##### 458#       发表于 2020-4-3 13:03
@@ -5968,7 +5968,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 —— 来自 Sony Xperia Z1, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 459#       发表于 2020-4-3 13:24
@@ -5983,7 +5983,7 @@ z3和xzp呢
 — from HUAWEI HDL-W09, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  ziyo  
 ##### 460#       发表于 2020-4-3 15:35
@@ -5998,7 +5998,7 @@ z3和xzp呢
 没找到
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 461#         楼主| 发表于 2020-4-9 23:05
@@ -6008,7 +6008,7 @@ z3和xzp呢
 [https://www.ithome.com/0/481/957.htm](https://www.ithome.com/0/481/957.htm)
 
 
------
+*****
 
 ####  MixRadio  
 ##### 462#       发表于 2020-4-9 23:12
@@ -6019,7 +6019,7 @@ z3和xzp呢
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  auraria  
 ##### 463#       发表于 2020-4-9 23:20
@@ -6034,7 +6034,7 @@ z3和xzp呢
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 464#       发表于 2020-4-9 23:21
@@ -6043,7 +6043,7 @@ z3和xzp呢
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想要855的 10m2
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 465#         楼主| 发表于 2020-4-9 23:22
@@ -6057,7 +6057,7 @@ z3和xzp呢
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 466#         楼主| 发表于 2020-4-9 23:23
@@ -6069,7 +6069,7 @@ z3和xzp呢
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 467#       发表于 2020-4-9 23:27
@@ -6084,7 +6084,7 @@ z3和xzp呢
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 468#       发表于 2020-4-9 23:30
@@ -6101,7 +6101,7 @@ X10，之前是xa系列，这个机型每次引进国内价格都是2k5～3k…�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 469#       发表于 2020-4-10 00:11
@@ -6110,7 +6110,7 @@ X10，之前是xa系列，这个机型每次引进国内价格都是2k5～3k…�
 国行大概不会有 10 II 吧…
 
 
------
+*****
 
 ####  leystage  
 ##### 470#       发表于 2020-4-12 13:12
@@ -6119,7 +6119,7 @@ X10，之前是xa系列，这个机型每次引进国内价格都是2k5～3k…�
 日版也推迟上市了啊…
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 471#         楼主| 发表于 2020-4-19 18:26
@@ -6137,7 +6137,7 @@ X10，之前是xa系列，这个机型每次引进国内价格都是2k5～3k…�
 2020-4-19 18:24 上传
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 472#       发表于 2020-4-19 19:35
@@ -6148,7 +6148,7 @@ X10，之前是xa系列，这个机型每次引进国内价格都是2k5～3k…�
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1.1-alpha
 
 
------
+*****
 
 ####  hlazd  
 ##### 473#       发表于 2020-4-24 03:25
@@ -6159,7 +6159,7 @@ X10，之前是xa系列，这个机型每次引进国内价格都是2k5～3k…�
 — from Sony G8441, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.0.1
 
 
------
+*****
 
 ####  YoumuChan  
 ##### 474#       发表于 2020-4-24 04:06
@@ -6178,7 +6178,7 @@ X10，之前是xa系列，这个机型每次引进国内价格都是2k5～3k…�
 最后一个是免打扰模式经常不跟着设定的开关时间来
 
 
------
+*****
 
 ####  kelvinalis  
 ##### 475#       发表于 2020-4-24 07:17
@@ -6187,7 +6187,7 @@ X10，之前是xa系列，这个机型每次引进国内价格都是2k5～3k…�
 x10mk2塑料绿真是美貌
 
 
------
+*****
 
 ####  leystage  
 ##### 476#       发表于 2020-4-24 09:11
@@ -6212,7 +6212,7 @@ x10mk2塑料绿真是美貌
 现在 1 最大的问题不是还没怎么降价嘛…
 
 
------
+*****
 
 ####  傘木希美  
 ##### 477#       发表于 2020-4-24 19:53
@@ -6227,7 +6227,7 @@ x10mk2塑料绿真是美貌
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 478#       发表于 2020-4-24 20:40
@@ -6239,7 +6239,7 @@ x10mk2塑料绿真是美貌</blockquote>
 所以我想要855版的。<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  johnie  
 ##### 479#       发表于 2020-4-24 20:47
@@ -6252,7 +6252,7 @@ x10mk2塑料绿真是美貌</blockquote>
 不能两张都5g
 
 
------
+*****
 
 ####  sakamichi  
 ##### 480#       发表于 2020-4-24 20:48
@@ -6261,7 +6261,7 @@ x10mk2塑料绿真是美貌</blockquote>
 hdmi输入能打ps4不<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 481#         楼主| 发表于 2020-4-24 21:18
@@ -6273,7 +6273,7 @@ v2.2.2.1</blockquote>是的，双卡就都不能5g
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 482#       发表于 2020-4-24 21:47
@@ -6286,7 +6286,7 @@ v2.2.2.1</blockquote>是的，双卡就都不能5g
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1.1-alpha
 
 
------
+*****
 
 ####  kelvinalis  
 ##### 483#       发表于 2020-4-25 04:49
@@ -6298,7 +6298,7 @@ v2.2.2.1</blockquote>是的，双卡就都不能5g
 765G都行，完给你个665<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  傘木希美  
 ##### 484#       发表于 2020-4-25 09:11
@@ -6313,7 +6313,7 @@ v2.2.2.1</blockquote>是的，双卡就都不能5g
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 485#       发表于 2020-4-25 10:17
@@ -6335,7 +6335,7 @@ v2.2.2.1</blockquote>是的，双卡就都不能5g
 这个例子的意思是，对于不那么需要5G的人来讲，如果其他方面满足需求，只要综合考虑下来优点占多，倒也不是一定要拍死。想明白自己需求最重要
 
 
------
+*****
 
 ####  封印之矢  
 ##### 486#       发表于 2020-4-28 21:33
@@ -6348,7 +6348,7 @@ v2.2.2.1</blockquote>是的，双卡就都不能5g
 —— 来自 Sony G8441, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  qw945  
 ##### 487#       发表于 2020-4-29 03:04
@@ -6357,7 +6357,7 @@ v2.2.2.1</blockquote>是的，双卡就都不能5g
 都29号了还没宣布延期？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mlgbb  
 ##### 488#       发表于 2020-4-29 09:39
@@ -6366,7 +6366,7 @@ v2.2.2.1</blockquote>是的，双卡就都不能5g
 延期到五月下旬
 
 
------
+*****
 
 ####  leystage  
 ##### 489#       发表于 2020-4-29 10:38
@@ -6380,7 +6380,7 @@ v2.2.2.1</blockquote>是的，双卡就都不能5g
 额，这种问题你问我我也不知道啊。。。
 
 
------
+*****
 
 ####  oskneo  
 ##### 490#       发表于 2020-4-29 12:02
@@ -6395,7 +6395,7 @@ NTTドコモは「Xperia 1 II」の発売日を、当初予定の4月下旬以�
 同端末はソニー初の5G対応スマートフォンで、縦に長いアスペクト比21：9の4K有機ELディスプレイや、3眼カメラ、クアルコム最新のSnapdragon 865プロセッサを搭載。先代の「Xperia 1」に比べて、5Gに対応しながら先代より軽量化を果たすなど、随所にブラッシュアップが図られたモデルとなっています。
 
 
------
+*****
 
 ####  香月诗浓  
 ##### 491#       发表于 2020-5-2 00:01
@@ -6403,7 +6403,7 @@ NTTドコモは「Xperia 1 II」の発売日を、当初予定の4月下旬以�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  Cray  
 ##### 492#       发表于 2020-5-2 00:15
@@ -6412,7 +6412,7 @@ NTTドコモは「Xperia 1 II」の発売日を、当初予定の4月下旬以�
 调教风格看来还是偏向相机了。  要和其他安卓机区分开。
 
 
------
+*****
 
 ####  香月诗浓  
 ##### 493#       发表于 2020-5-3 01:13
@@ -6420,7 +6420,7 @@ NTTドコモは「Xperia 1 II」の発売日を、当初予定の4月下旬以�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  Cray  
 ##### 494#       发表于 2020-5-3 01:30
@@ -6435,7 +6435,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 这味道正啊<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  leystage  
 ##### 495#       发表于 2020-5-3 14:01
@@ -6444,7 +6444,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 其实之前手机本身的相机功能宣传片就完全是 Alpha 的味道了。能不能五年内做到一寸底好扔掉 RX100 呀
 
 
------
+*****
 
 ####  封印之矢  
 ##### 496#       发表于 2020-5-14 14:00
@@ -6456,7 +6456,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 一直手持RX100初代，想换，不知道现在的大法手机拍照效果有能和RX100初代类比的么。。
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 497#         楼主| 发表于 2020-5-18 18:22
@@ -6467,7 +6467,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 498#       发表于 2020-5-18 18:55
@@ -6482,7 +6482,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 不过 Xperia 1 自带相机也不支持 Raw 导出，参数也不方便调，局限还是很多。
 
 
------
+*****
 
 ####  Benthic  
 ##### 499#       发表于 2020-5-18 20:38
@@ -6493,7 +6493,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 — from Google Pixel 3 XL, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 500#       发表于 2020-5-18 22:59
@@ -6510,7 +6510,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 不过确实今年犹豫是不是还要支持行货就是了
 
 
------
+*****
 
 ####  h20020901  
 ##### 501#       发表于 2020-5-18 23:05
@@ -6521,7 +6521,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  淡定君  
 ##### 502#       发表于 2020-5-19 12:03
@@ -6530,7 +6530,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 只要不过万就行 pro不要过2万
 
 
------
+*****
 
 ####  bxcds  
 ##### 503#       发表于 2020-5-19 14:48
@@ -6545,7 +6545,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  lbzlxx  
 ##### 504#       发表于 2020-5-19 16:50
@@ -6557,7 +6557,7 @@ https://b23.tv/BV1tf4y1m7VE/p1</blockquote>
 https://b23.tv/9rTMq4
 
 
------
+*****
 
 ####  gulant  
 ##### 505#       发表于 2020-5-19 21:53
@@ -6572,7 +6572,7 @@ https://b23.tv/9rTMq4
 好久没有关注了，现在xperia 1 解锁后会丢失相机算法吗？
 
 
------
+*****
 
 ####  h20020901  
 ##### 506#       发表于 2020-5-19 22:37
@@ -6585,7 +6585,7 @@ https://b23.tv/9rTMq4
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  封印之矢  
 ##### 507#       发表于 2020-5-20 18:30
@@ -6598,7 +6598,7 @@ https://b23.tv/9rTMq4
 —— 来自 Sony G8441, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 508#       发表于 2020-5-20 19:18
@@ -6610,7 +6610,7 @@ https://b23.tv/9rTMq4
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 509#         楼主| 发表于 2020-5-20 20:15
@@ -6625,7 +6625,7 @@ https://b23.tv/9rTMq4
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  leystage  
 ##### 510#       发表于 2020-5-20 20:23
@@ -6639,7 +6639,7 @@ https://b23.tv/9rTMq4
 看起来你换机的周期不算短，5G 应该还是必要的，那就等 1 II 吧
 
 
------
+*****
 
 ####  yygundam  
 ##### 511#       发表于 2020-5-21 12:43
@@ -6648,7 +6648,7 @@ https://b23.tv/9rTMq4
 懒得去挖Xperia 1的帖子我就在这边问下了，你们Xperia 1的蓝牙耳机连接还稳定么，我这边TWS蓝牙耳机在室外就疯狂断连（创新Outlier Air），今天忍不了了把XZ2C翻出来当播放器用，结果完全没断过。。。（当然，我这耳机在855平台上是双耳独立连接手机的，在845的XZ2C上还是主从式。。。不知道和这个有没有关系）
 
 
------
+*****
 
 ####  h20020901  
 ##### 512#       发表于 2020-5-21 13:22
@@ -6664,7 +6664,7 @@ https://b23.tv/9rTMq4
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 513#       发表于 2020-5-21 19:28
@@ -6677,7 +6677,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 514#       发表于 2020-5-21 19:33
@@ -6698,7 +6698,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  hoyice  
 ##### 515#       发表于 2020-5-21 19:53
@@ -6709,7 +6709,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 终于看到你索845平台对tws+的支持了
 
 
------
+*****
 
 ####  yygundam  
 ##### 516#       发表于 2020-5-21 23:32
@@ -6727,7 +6727,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 说起来XZ2C推荐升安卓10么，我看到更新提示没敢升。。。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 517#       发表于 2020-5-22 00:08
@@ -6758,7 +6758,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 查看全部评分
 
 
------
+*****
 
 ####  ziyo  
 ##### 518#       发表于 2020-5-22 02:27
@@ -6770,7 +6770,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 当年你大法
 
 
------
+*****
 
 ####  leystage  
 ##### 519#       发表于 2020-5-22 08:27
@@ -6779,7 +6779,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 其实你看 1 II 的几个宣传片，也是相机团队做的嘛，除了没有氙气闪光灯和光学变焦，其实还像一回事
 
 
------
+*****
 
 ####  不可不信邪  
 ##### 520#       发表于 2020-5-24 20:32
@@ -6787,7 +6787,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  leystage  
 ##### 521#       发表于 2020-5-24 21:30
@@ -6796,7 +6796,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 不错，考虑到索尼中国今年的软件表现，我这次打算买港版了，5G什么的明年再说。还要等一个月
 
 
------
+*****
 
 ####  Cray  
 ##### 522#       发表于 2020-5-25 02:14
@@ -6805,7 +6805,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 6月国行发售了 相机软件 photo pro 应该能做完吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  oskneo  
 ##### 523#       发表于 2020-5-25 02:16
@@ -6816,7 +6816,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 — from HUAWEI HDL-W09, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  我很费纸  
 ##### 524#       发表于 2020-5-25 12:20
@@ -6833,7 +6833,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  不可不信邪  
 ##### 525#       发表于 2020-5-25 12:40
@@ -6841,7 +6841,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 526#       发表于 2020-5-25 20:12
@@ -6853,7 +6853,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 已经能确定6月国行了吗？
 
 
------
+*****
 
 ####  leystage  
 ##### 527#       发表于 2020-5-25 22:45
@@ -6864,7 +6864,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 不是扎克说这次港版可能不能刷国行5G？
 
 
------
+*****
 
 ####  我很费纸  
 ##### 528#       发表于 2020-5-26 00:01
@@ -6879,7 +6879,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 529#       发表于 2020-5-26 00:18
@@ -6891,7 +6891,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 说的是港版刷国不能保修来着
 
 
------
+*****
 
 ####  leystage  
 ##### 530#       发表于 2020-5-26 10:51
@@ -6905,7 +6905,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 港版是这周五公布售价的样子，终于快来了
 
 
------
+*****
 
 ####  oskneo  
 ##### 531#       发表于 2020-5-26 10:52
@@ -6918,7 +6918,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
------
+*****
 
 ####  runningch  
 ##### 532#       发表于 2020-5-26 14:04
@@ -6927,7 +6927,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 因为需要google全家桶，只能等港版，希望港版发售的时候photo pro能做好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  傘木希美  
 ##### 533#       发表于 2020-5-26 14:05
@@ -6940,7 +6940,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  内森德雷克  
 ##### 534#       发表于 2020-5-26 15:09
@@ -6953,7 +6953,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 价格对标S20+，还好吧，不过8+256的存储配置比12+128这种傻屌起配组合好多了，就是没得选512挺可惜
 
 
------
+*****
 
 ####  mhss  
 ##### 535#       发表于 2020-5-26 16:12
@@ -6964,7 +6964,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  傘木希美  
 ##### 536#       发表于 2020-5-26 17:11
@@ -6977,7 +6977,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 537#       发表于 2020-5-26 17:22
@@ -6995,7 +6995,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony G8142, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 538#       发表于 2020-5-26 18:10
@@ -7010,7 +7010,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 且不说平在现在绝对是稀有价值，这清汤寡水的软件在我看来相比国产那些是加分项。没有广告，没有花里胡哨，没有奇怪的魔改或降分辨率之类，UI 风格也没一些国产 ROM 那么老气/过度设计。至少也算是各有优劣吧
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 539#       发表于 2020-5-26 18:34
@@ -7027,7 +7027,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 菊弟那新出的X10就是完整的平面正面，性能也够用，要不是菊花不给折腾本来还挺合适的。
 
 
------
+*****
 
 ####  内森德雷克  
 ##### 540#       发表于 2020-5-26 21:44
@@ -7036,7 +7036,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">实在是受不了自带的那个半原生ROM，可以刷马大适配的MIUI或者官改包，X1M2不出意外也会有，甚至适配个MIUI12也不稀奇
 
 
------
+*****
 
 ####  Cray  
 ##### 541#       发表于 2020-5-27 07:15
@@ -7045,7 +7045,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 那个鸡肝粉有点奇葩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  淡定君  
 ##### 542#       发表于 2020-5-27 11:46
@@ -7057,7 +7057,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 然后送个耳机之类的，7999太良心不敢想
 
 
------
+*****
 
 ####  jzsgtx  
 ##### 543#       发表于 2020-5-27 11:46
@@ -7066,7 +7066,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 越来越后悔去年首发买了1，等等多好呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">虽然1也还行就是了
 
 
------
+*****
 
 ####  oskneo  
 ##### 544#       发表于 2020-5-27 11:57
@@ -7084,7 +7084,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 通刷的话不是通常除了日版外基本都能通刷的吗？
 
 
------
+*****
 
 ####  我很费纸  
 ##### 545#       发表于 2020-5-27 12:42
@@ -7102,7 +7102,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 546#       发表于 2020-5-27 12:45
@@ -7121,7 +7121,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  kanki  
 ##### 547#       发表于 2020-5-27 15:37
@@ -7130,7 +7130,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 那我这种手头已经有1000xm3的就被抛弃了？等600刀+的时候入吧，s20现在收个几乎全新也才700刀左右
 
 
------
+*****
 
 ####  Tochika  
 ##### 548#       发表于 2020-5-27 17:41
@@ -7139,7 +7139,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 真到7000的话，那就明年见吧，手上的1又不是不能用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cray  
 ##### 549#       发表于 2020-5-27 17:59
@@ -7154,7 +7154,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 550#       发表于 2020-5-27 18:13
@@ -7169,7 +7169,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  kila31  
 ##### 551#       发表于 2020-5-27 20:32
@@ -7184,7 +7184,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 — from Google Pixel 4, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
------
+*****
 
 ####  mhss  
 ##### 552#       发表于 2020-5-27 21:17
@@ -7199,7 +7199,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 喊习惯了，他自己也经常在视频里用“hi jerry”来自问自答<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Bazett  
 ##### 553#       发表于 2020-5-30 19:22
@@ -7208,7 +7208,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 想入5港版，听说TB水深，现在TB哪家可以买到港行？
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 554#         楼主| 发表于 2020-5-30 19:44
@@ -7221,7 +7221,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  leystage  
 ##### 555#       发表于 2020-5-30 20:19
@@ -7235,7 +7235,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 不好意思歪一层楼借地问一下，好奇很久了，被雨困住的城市是有什么特定的指代吗，东京？
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 556#         楼主| 发表于 2020-5-30 21:01
@@ -7247,7 +7247,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  leystage  
 ##### 557#       发表于 2020-5-30 21:39
@@ -7261,7 +7261,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 哦哦好的，谢谢
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 558#         楼主| 发表于 2020-5-30 22:09
@@ -7273,7 +7273,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 不用谢~~
 
 
------
+*****
 
 ####  leyenda  
 ##### 559#       发表于 2020-5-30 22:29
@@ -7288,7 +7288,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 鸡肝粉说的是紫色吗
 
 
------
+*****
 
 ####  我很费纸  
 ##### 560#       发表于 2020-5-30 23:36
@@ -7310,7 +7310,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 561#       发表于 2020-5-31 00:16
@@ -7324,7 +7324,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 指纹确实，不知道1/5这代是怎么想的，不一步到位。1的指纹也一言难尽，面积实在太小，而且有手汗时成功率断崖式下降。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 562#       发表于 2020-5-31 00:20
@@ -7339,7 +7339,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 563#       发表于 2020-5-31 10:00
@@ -7352,7 +7352,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 看下个月的 Mark 2 是不是改善
 
 
------
+*****
 
 ####  oskneo  
 ##### 564#       发表于 2020-5-31 11:43
@@ -7385,7 +7385,7 @@ z3那时偶是特意买了台版。
 不过在没机用的时候，貌似这修理好的也能防水。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 565#       发表于 2020-5-31 11:47
@@ -7404,7 +7404,7 @@ z3那时偶是特意买了台版。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 566#       发表于 2020-5-31 19:23
@@ -7418,7 +7418,7 @@ MK2  21w
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  淡定君  
 ##### 567#       发表于 2020-6-1 14:29
@@ -7439,7 +7439,7 @@ MK2  21w
 现在唯一悬念就是这马达，能不能稍微好一点呢，把个好马达做成普通那样，这个构思到底是怎么产生的呢？
 
 
------
+*****
 
 ####  拉沃契金  
 ##### 568#       发表于 2020-6-1 14:48
@@ -7448,7 +7448,7 @@ MK2  21w
 7999送耳机良心价格<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 569#       发表于 2020-6-1 16:19
@@ -7463,7 +7463,7 @@ MK2  21w
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 570#       发表于 2020-6-1 16:58
@@ -7478,7 +7478,7 @@ MK2  21w
 啥… 这是 1 II？
 
 
------
+*****
 
 ####  zhongjie  
 ##### 571#       发表于 2020-6-1 18:22
@@ -7493,7 +7493,7 @@ MK2  21w
 —— 来自 OPPO PDHM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 572#       发表于 2020-6-1 19:08
@@ -7508,7 +7508,7 @@ MK2  21w
 35900新台币是8500人民币啊。。。
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 573#       发表于 2020-6-1 19:22
@@ -7526,7 +7526,7 @@ MK2  21w
 —— 来自 Sony G8142, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 574#       发表于 2020-6-1 20:11
@@ -7541,7 +7541,7 @@ MK2  21w
 好像美媒那么多年就没有对索尼评价不偏低的
 
 
------
+*****
 
 ####  Cray  
 ##### 575#       发表于 2020-6-1 21:16
@@ -7555,7 +7555,7 @@ MK2  21w
 <img src="https://fdn.gsmarena.com/imgroot/reviews/20/sony-xperia-1-ii/lowlight/gsmarena_109.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 576#       发表于 2020-6-1 22:34
@@ -7571,7 +7571,7 @@ MK2  21w
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 577#       发表于 2020-6-2 01:51
@@ -7584,7 +7584,7 @@ MK2  21w
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 578#       发表于 2020-6-2 03:57
@@ -7599,7 +7599,7 @@ MK2  21w
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  gulant  
 ##### 579#       发表于 2020-6-2 08:08
@@ -7622,7 +7622,7 @@ MK2  21w
 每日游戏时间大概2小时左右，视频回信息等一个半小时左右，使用频率也不算高，话说为什么会回升？
 
 
------
+*****
 
 ####  我很费纸  
 ##### 580#       发表于 2020-6-3 08:35
@@ -7635,7 +7635,7 @@ MK2  21w
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  点点杠  
 ##### 581#       发表于 2020-6-3 09:56
@@ -7644,7 +7644,7 @@ MK2  21w
 现在手机这么贵了吗，这2年换一部遭不住，现在防水的，4000左右的手机有选择没
 
 
------
+*****
 
 ####  oskneo  
 ##### 582#       发表于 2020-6-3 10:15
@@ -7657,7 +7657,7 @@ MK2  21w
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 583#       发表于 2020-6-3 10:50
@@ -7668,7 +7668,7 @@ MK2  21w
 Xperia 1。。。 估计降到4000也快了
 
 
------
+*****
 
 ####  leystage  
 ##### 584#       发表于 2020-6-3 10:50
@@ -7681,7 +7681,7 @@ Xperia 1。。。 估计降到4000也快了
 买买买，看看这个月能不能拿到 XD
 
 
------
+*****
 
 ####  我很费纸  
 ##### 585#       发表于 2020-6-3 13:01
@@ -7696,7 +7696,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 586#       发表于 2020-6-3 13:03
@@ -7716,7 +7716,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  404489039  
 ##### 587#       发表于 2020-6-3 15:25
@@ -7727,7 +7727,7 @@ Xperia 1。。。 估计降到4000也快了
 你不如问问有那些手机不防水
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 588#       发表于 2020-6-3 15:56
@@ -7742,7 +7742,7 @@ Xperia 1。。。 估计降到4000也快了
 港行  HKD 7999    1不會降價吧...
 
 
------
+*****
 
 ####  mhss  
 ##### 589#       发表于 2020-6-3 16:41
@@ -7755,7 +7755,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 590#         楼主| 发表于 2020-6-3 17:09
@@ -7766,7 +7766,7 @@ Xperia 1。。。 估计降到4000也快了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 591#       发表于 2020-6-3 17:24
@@ -7781,7 +7781,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  不可不信邪  
 ##### 592#       发表于 2020-6-3 20:27
@@ -7789,7 +7789,7 @@ Xperia 1。。。 估计降到4000也快了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  点点杠  
 ##### 593#       发表于 2020-6-3 20:39
@@ -7803,7 +7803,7 @@ Xperia 1。。。 估计降到4000也快了
 洗澡想带手机啊
 
 
------
+*****
 
 ####  Cray  
 ##### 594#       发表于 2020-6-3 20:39
@@ -7818,7 +7818,7 @@ Xperia 1。。。 估计降到4000也快了
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 595#       发表于 2020-6-3 21:21
@@ -7833,7 +7833,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 596#       发表于 2020-6-3 22:53
@@ -7847,7 +7847,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 597#       发表于 2020-6-5 22:56
@@ -7856,7 +7856,7 @@ Xperia 1。。。 估计降到4000也快了
 下单了港版然后发现虽然6/19上市但大陆可能要7月中才能收货。行吧…
 
 
------
+*****
 
 ####  傘木希美  
 ##### 598#       发表于 2020-6-5 23:00
@@ -7867,7 +7867,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 599#       发表于 2020-6-5 23:09
@@ -7880,7 +7880,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 600#       发表于 2020-6-6 00:04
@@ -7894,7 +7894,7 @@ Xperia 1。。。 估计降到4000也快了
 绅士。不过他家降价很快，以前经常首发半个月降两三四百
 
 
------
+*****
 
 ####  傘木希美  
 ##### 601#       发表于 2020-6-6 00:18
@@ -7909,7 +7909,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 602#       发表于 2020-6-6 08:36
@@ -7928,7 +7928,7 @@ Xperia 1。。。 估计降到4000也快了
 但我觉得那人一直在有意怂恿大家买行货就是了。
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 603#       发表于 2020-6-6 09:02
@@ -7944,7 +7944,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 604#       发表于 2020-6-6 09:51
@@ -7963,7 +7963,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 605#       发表于 2020-6-6 09:55
@@ -7982,7 +7982,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  傘木希美  
 ##### 606#       发表于 2020-6-6 11:21
@@ -7997,7 +7997,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 607#       发表于 2020-6-6 11:21
@@ -8013,7 +8013,7 @@ Xperia 1。。。 估计降到4000也快了
 感觉无论如何7月上旬都不一定能收到了
 
 
------
+*****
 
 ####  我很费纸  
 ##### 608#       发表于 2020-6-6 12:05
@@ -8026,7 +8026,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 609#       发表于 2020-6-6 12:07
@@ -8041,7 +8041,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 610#       发表于 2020-6-6 13:03
@@ -8057,7 +8057,7 @@ Xperia 1。。。 估计降到4000也快了
 其实我很好奇对这种小众品牌，降得快和不降价那种最终业绩会更好。当然我感觉索尼中国的人定价策略属于完全不管竞品的那种，确实傻透了
 
 
------
+*****
 
 ####  傘木希美  
 ##### 611#       发表于 2020-6-6 13:10
@@ -8073,7 +8073,7 @@ Xperia 1。。。 估计降到4000也快了
 听说国行有个定制的啥软件？那是什么啊- -
 
 
------
+*****
 
 ####  我很费纸  
 ##### 612#       发表于 2020-6-6 14:44
@@ -8086,7 +8086,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  用户名已注册  
 ##### 613#       发表于 2020-6-6 14:50
@@ -8103,7 +8103,7 @@ Xperia 1。。。 估计降到4000也快了
 5月24日应该是庚子年闰四月初二...
 
 
------
+*****
 
 ####  Cray  
 ##### 614#       发表于 2020-6-6 15:03
@@ -8115,7 +8115,7 @@ Xperia 1。。。 估计降到4000也快了
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 615#       发表于 2020-6-6 15:05
@@ -8130,7 +8130,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  傘木希美  
 ##### 616#       发表于 2020-6-6 15:43
@@ -8143,7 +8143,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 617#       发表于 2020-6-6 16:33
@@ -8159,7 +8159,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 618#       发表于 2020-6-6 19:17
@@ -8174,7 +8174,7 @@ Xperia 1。。。 估计降到4000也快了
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 619#       发表于 2020-6-6 20:41
@@ -8190,7 +8190,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 620#       发表于 2020-6-6 20:47
@@ -8206,7 +8206,7 @@ Xperia 1。。。 估计降到4000也快了
 你想一下，连相机高级手动模式都是千呼万唤始出来。高级自动模式倒是出来七八年了（
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 621#       发表于 2020-6-6 21:31
@@ -8221,7 +8221,7 @@ Xperia 1。。。 估计降到4000也快了
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  不可不信邪  
 ##### 622#       发表于 2020-6-7 17:10
@@ -8229,7 +8229,7 @@ Xperia 1。。。 估计降到4000也快了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  leystage  
 ##### 623#       发表于 2020-6-7 17:31
@@ -8245,7 +8245,7 @@ https://www.youtube.com/watch?v=AmdWsBJLSe0 ...</blockquote>
 不过作为手机，普通人大多恐怕还是喜欢随手拍+AI美化。索尼这次依然会是比较克制的自动后期吧
 
 
------
+*****
 
 ####  mhss  
 ##### 624#       发表于 2020-6-8 15:04
@@ -8258,7 +8258,7 @@ https://www.youtube.com/watch?v=AmdWsBJLSe0 ...</blockquote>
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 625#       发表于 2020-6-10 12:46
@@ -8271,7 +8271,7 @@ https://www.youtube.com/watch?v=AmdWsBJLSe0 ...</blockquote>
 可惜xm3已经有，不过不明白为啥不发加拿大
 
 
------
+*****
 
 ####  暗铁  
 ##### 626#       发表于 2020-6-11 21:38
@@ -8282,7 +8282,7 @@ https://www.youtube.com/watch?v=AmdWsBJLSe0 ...</blockquote>
 —— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  iceprince10  
 ##### 627#       发表于 2020-6-11 23:06
@@ -8291,7 +8291,7 @@ https://www.youtube.com/watch?v=AmdWsBJLSe0 ...</blockquote>
 什么意思，mk2是原生120的屏幕，但是不给用？那他帧率锁在多少了？
 
 
------
+*****
 
 ####  我很费纸  
 ##### 628#       发表于 2020-6-12 02:09
@@ -8307,7 +8307,7 @@ X1这款不记得只不支持120了，也许也是原生支持120，但反正现
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 629#       发表于 2020-6-12 10:55
@@ -8318,7 +8318,7 @@ X1这款不记得只不支持120了，也许也是原生支持120，但反正现
 索尼大法好！
 
 
------
+*****
 
 ####  oskneo  
 ##### 630#       发表于 2020-6-12 13:37
@@ -8332,7 +8332,7 @@ X1这款不记得只不支持120了，也许也是原生支持120，但反正现
 这价格可以吗
 
 
------
+*****
 
 ####  eureka9  
 ##### 631#       发表于 2020-6-12 13:48
@@ -8346,7 +8346,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 可惜没有紫色版，气死我了，但还是定了。。
 
 
------
+*****
 
 ####  eureka9  
 ##### 632#       发表于 2020-6-12 13:50
@@ -8360,7 +8360,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 求渣克的微博id，围观一下
 
 
------
+*****
 
 ####  oskneo  
 ##### 633#       发表于 2020-6-12 14:05
@@ -8372,7 +8372,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 这网站里，紫色要比白色贵24刀，在犹豫
 
 
------
+*****
 
 ####  oskneo  
 ##### 634#       发表于 2020-6-12 14:28
@@ -8385,7 +8385,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 还有什么厂商有的？
 
 
------
+*****
 
 ####  sangw  
 ##### 635#       发表于 2020-6-12 18:47
@@ -8399,7 +8399,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 —— 来自 HTC U11, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 636#       发表于 2020-6-12 19:35
@@ -8414,7 +8414,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  oskneo  
 ##### 637#       发表于 2020-6-12 21:49
@@ -8430,7 +8430,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 看redflag对这网站的评价，貌似其他手机大多是港版
 
 
------
+*****
 
 ####  sangw  
 ##### 638#       发表于 2020-6-12 21:51
@@ -8446,7 +8446,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 —— 来自 HTC U11, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 639#       发表于 2020-6-12 21:59
@@ -8463,7 +8463,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 那个1640加刀的没写型号，但写着single sim
 
 
------
+*****
 
 ####  sangw  
 ##### 640#       发表于 2020-6-13 00:04
@@ -8479,7 +8479,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 —— 来自 HTC U11, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 641#       发表于 2020-6-13 00:14
@@ -8495,7 +8495,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 642#       发表于 2020-6-14 10:12
@@ -8507,7 +8507,7 @@ https://www.bhphotovideo.com/c/p ... .html/?currency=CAD
 zackbuks
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 643#       发表于 2020-6-14 10:17
@@ -8527,7 +8527,7 @@ zackbuks
 我直接搬运一下好了，这个是镜紫色
 
 
------
+*****
 
 ####  oskneo  
 ##### 644#       发表于 2020-6-14 10:54
@@ -8539,7 +8539,7 @@ zackbuks
 ｘｚｐ银色的时候已经很困惑了，究竟要啥壳子好， 全透明的？
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 645#       发表于 2020-6-15 18:44
@@ -8550,7 +8550,7 @@ zackbuks
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  暗铁  
 ##### 646#       发表于 2020-6-15 21:52
@@ -8561,7 +8561,7 @@ zackbuks
 —— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 647#       发表于 2020-6-15 22:44
@@ -8570,7 +8570,7 @@ zackbuks
 我看了微博 1m2哪里涂抹了？？？
 
 
------
+*****
 
 ####  Cray  
 ##### 648#       发表于 2020-6-16 04:06
@@ -8589,7 +8589,7 @@ zackbuks
 2020-6-16 04:06 上传
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 649#       发表于 2020-6-16 06:03
@@ -8600,7 +8600,7 @@ zacbucks和马少微博隔空喊话<img src="https://static.saraba1st.com/image/
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  auraria  
 ##### 650#       发表于 2020-6-16 07:07
@@ -8615,7 +8615,7 @@ zacbucks和马少微博隔空喊话<img src="https://static.saraba1st.com/image/
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 651#       发表于 2020-6-16 08:43
@@ -8631,7 +8631,7 @@ zacbucks和马少微博隔空喊话<img src="https://static.saraba1st.com/image/
 涂抹问题反正已经黑了索尼十年了，见怪不怪
 
 
------
+*****
 
 ####  MixRadio  
 ##### 652#       发表于 2020-6-16 09:06
@@ -8644,7 +8644,7 @@ zacbucks和马少微博隔空喊话<img src="https://static.saraba1st.com/image/
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 653#       发表于 2020-6-16 09:15
@@ -8655,7 +8655,7 @@ zacbucks和马少微博隔空喊话<img src="https://static.saraba1st.com/image/
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  sangw  
 ##### 654#       发表于 2020-6-16 10:31
@@ -8670,7 +8670,7 @@ zacbucks和马少微博隔空喊话<img src="https://static.saraba1st.com/image/
 只能希望 后面补丁 可以打开 高刷吧？
 
 
------
+*****
 
 ####  oskneo  
 ##### 655#       发表于 2020-6-16 12:53
@@ -8683,7 +8683,7 @@ PhotoPro到现在还没搞好吗你们说的软件不行究竟指的是哪方面
 感觉像在说玄学
 
 
------
+*****
 
 ####  我很费纸  
 ##### 656#       发表于 2020-6-16 13:34
@@ -8702,7 +8702,7 @@ PhotoPro到现在还没搞好吗你们说的软件不行究竟指的是哪方面
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MixRadio  
 ##### 657#       发表于 2020-6-16 13:41
@@ -8715,7 +8715,7 @@ PhotoPro到现在还没搞好吗你们说的软件不行究竟指的是哪方面
 —— 来自 Google Pixel 3, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 658#       发表于 2020-6-16 14:05
@@ -8730,7 +8730,7 @@ PhotoPro到现在还没搞好吗你们说的软件不行究竟指的是哪方面
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 659#       发表于 2020-6-16 19:32
@@ -8748,7 +8748,7 @@ PhotoPro到现在还没搞好吗你们说的软件不行究竟指的是哪方面
 pc上看 就是1m2 吊打。。
 
 
------
+*****
 
 ####  Cray  
 ##### 660#       发表于 2020-6-17 08:05
@@ -8776,7 +8776,7 @@ Xperia 10 II  就是个中端机啊<img src="https://static.saraba1st.com/imag
 2020-6-17 08:04 上传
 
 
------
+*****
 
 ####  yygundam  
 ##### 661#       发表于 2020-6-17 09:07
@@ -8791,7 +8791,7 @@ Xperia 10 II  就是个中端机啊<img src="https://static.saraba1st.com/imag
 那个app放弃开发了，只支持到安卓8，所以出厂就是安卓9的1和5自然是不支持了。（此外旧设备升级到安卓9之后也会不兼容）
 
 
------
+*****
 
 ####  MixRadio  
 ##### 662#       发表于 2020-6-17 09:13
@@ -8804,7 +8804,7 @@ Xperia 10 II  就是个中端机啊<img src="https://static.saraba1st.com/imag
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  yygundam  
 ##### 663#       发表于 2020-6-17 09:17
@@ -8819,7 +8819,7 @@ Xperia 10 II  就是个中端机啊<img src="https://static.saraba1st.com/imag
 可以用第三方的换机app迁移，一般都是把app重新打包成apk传过去，然后在新机器上批量执行apk安装。有极少数app可能用这种方式装不上。
 
 
------
+*****
 
 ####  好多大象啊  
 ##### 664#       发表于 2020-6-17 09:20
@@ -8830,7 +8830,7 @@ Xperia 10 II  就是个中端机啊<img src="https://static.saraba1st.com/imag
 其他xperia手机能支持这个功能吗? 是不是得专用的电源芯片?
 
 
------
+*****
 
 ####  赤座韶  
 ##### 665#       发表于 2020-6-17 11:18
@@ -8841,7 +8841,7 @@ Xperia 10 II  就是个中端机啊<img src="https://static.saraba1st.com/imag
 其实……谷歌套件现在就有这个功能，新机登录会自动把你备份的联系人/照片/应用（Google Play 限定）数据全都给还原，所以厂商没必要自己开发了
 
 
------
+*****
 
 ####  我很费纸  
 ##### 666#       发表于 2020-6-17 11:24
@@ -8856,7 +8856,7 @@ Xperia 10 II  就是个中端机啊<img src="https://static.saraba1st.com/imag
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 667#       发表于 2020-6-17 11:57
@@ -8867,7 +8867,7 @@ Xperia 10 II  就是个中端机啊<img src="https://static.saraba1st.com/imag
 安卓自己没这功能吗？
 
 
------
+*****
 
 ####  oskneo  
 ##### 668#       发表于 2020-6-17 11:58
@@ -8882,7 +8882,7 @@ Xperia 10 II  就是个中端机啊<img src="https://static.saraba1st.com/imag
 偶记得偶z3升级xzp的时候都是登陆gmail号直接全部弄好的。
 
 
------
+*****
 
 ####  oskneo  
 ##### 669#       发表于 2020-6-17 12:00
@@ -8897,7 +8897,7 @@ Xperia 10 II  就是个中端机啊
 到现在出的相片都是还没上photo pro的吧
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 670#       发表于 2020-6-17 15:09
@@ -8908,7 +8908,7 @@ Xperia 10 II  就是个中端机啊
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  赤座韶  
 ##### 671#       发表于 2020-6-17 22:01
@@ -8921,7 +8921,7 @@ Xperia 10 II  就是个中端机啊
 我觉得应该是你的网络问题下载一堆几十 MB 的应用时有点捉鸡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cleaner  
 ##### 672#       发表于 2020-6-17 22:45
@@ -8932,7 +8932,7 @@ Xperia 10 II  就是个中端机啊
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 673#       发表于 2020-6-18 08:35
@@ -8946,7 +8946,7 @@ Xperia 10 II  就是个中端机啊
 上半月下单的我已经不想管了（
 
 
------
+*****
 
 ####  Cray  
 ##### 674#       发表于 2020-6-18 22:54
@@ -8967,7 +8967,7 @@ Xperia 10 II  就是个中端机啊
 马少已经提取出来了。
 
 
------
+*****
 
 ####  Cray  
 ##### 675#       发表于 2020-6-18 22:55
@@ -8979,7 +8979,7 @@ Xperia 10 II  就是个中端机啊
 1m2是photopro拍的。 只有它能用这个app。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  oskneo  
 ##### 676#       发表于 2020-6-19 00:40
@@ -8998,7 +8998,7 @@ Xperia 10 II  就是个中端机啊
 偶买的紫色版比最低的时候贵了11刀，现在又升了45刀了，就那么几天
 
 
------
+*****
 
 ####  iceprince10  
 ##### 677#       发表于 2020-6-19 11:23
@@ -9013,7 +9013,7 @@ Xperia 10 II  就是个中端机啊
 6899是哪家，本来想着吃现，结果淘宝集体涨价了
 
 
------
+*****
 
 ####  leystage  
 ##### 678#       发表于 2020-6-19 12:22
@@ -9031,7 +9031,7 @@ Xperia 10 II  就是个中端机啊
 绅士跟我说涨价到7399，叫我多退少补。我昨天问怎么操作，一天了他也没理我。感觉不太想卖的样子（
 
 
------
+*****
 
 ####  roydimus  
 ##### 679#       发表于 2020-6-19 12:33
@@ -9045,7 +9045,7 @@ Xperia 10 II  就是个中端机啊
 看了眼紫色卖7700了（
 
 
------
+*****
 
 ####  不可不信邪  
 ##### 680#       发表于 2020-6-19 13:07
@@ -9053,7 +9053,7 @@ Xperia 10 II  就是个中端机啊
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 681#       发表于 2020-6-20 08:43
@@ -9070,7 +9070,7 @@ Xperia 10 II  就是个中端机啊
 索尼反而不算贵
 
 
------
+*****
 
 ####  Airwolf  
 ##### 682#       发表于 2020-6-20 10:24
@@ -9083,7 +9083,7 @@ Xperia 10 II  就是个中端机啊
 这是哪门子不算贵啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zhrs456  
 ##### 683#       发表于 2020-6-20 11:46
@@ -9097,7 +9097,7 @@ Xperia 10 II  就是个中端机啊
 ？哪几家国产靠到6000-7000了？除了菊花不都在4000/5000以下打架么?
 
 
------
+*****
 
 ####  oskneo  
 ##### 684#       发表于 2020-6-20 11:47
@@ -9113,7 +9113,7 @@ Xperia 10 II  就是个中端机啊
 当然，比起国产旗舰来说现在比值应该比以前低。
 
 
------
+*****
 
 ####  zhongjie  
 ##### 685#       发表于 2020-6-20 11:56
@@ -9124,7 +9124,7 @@ Xperia 10 II  就是个中端机啊
 find x2pro？线上价快7000了，线下最便宜也要快6000
 
 
------
+*****
 
 ####  zhrs456  
 ##### 686#       发表于 2020-6-20 11:58
@@ -9136,7 +9136,7 @@ find x2pro？线上价快7000了，线下最便宜也要快6000</blockquote>
 负责这个产品线的人不都“主动休息”了么 明显失败了
 
 
------
+*****
 
 ####  8400gs  
 ##### 687#       发表于 2020-6-20 12:03
@@ -9148,7 +9148,7 @@ find x2pro？线上价快7000了，线下最便宜也要快6000</blockquote>
 Find x2
 
 
------
+*****
 
 ####  Airwolf  
 ##### 688#       发表于 2020-6-20 12:11
@@ -9157,7 +9157,7 @@ Find x2
 你索现在的问题就是在这个价位上它与其他家旗舰有什么竞争力没有？是软件有竞争力？是硬件有竞争力？
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 689#       发表于 2020-6-20 17:51
@@ -9168,7 +9168,7 @@ Find x2
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 690#       发表于 2020-6-20 18:32
@@ -9182,7 +9182,7 @@ Find x2
 oppo vivo 1+ 小米 黑鲨旗舰统统6K以上
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 691#       发表于 2020-6-20 18:34
@@ -9198,7 +9198,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上
 抬走下一个。
 
 
------
+*****
 
 ####  zhrs456  
 ##### 692#       发表于 2020-6-20 18:39
@@ -9215,7 +9215,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 不知道怎么就统统6K以上了 
 
 
------
+*****
 
 ####  zhrs456  
 ##### 693#       发表于 2020-6-20 18:43
@@ -9230,7 +9230,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 除了find x2pro想冲击真高端失败/不讲究等于9pro想从旗舰杀手转职旗舰失败的 国产不就是我说的除了菊花都在4000-5000打架么 怎么就国产6K起索尼反而不算贵了呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Airwolf  
 ##### 694#       发表于 2020-6-20 19:16
@@ -9245,7 +9245,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 可以的<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">，你索不容易啊
 
 
------
+*****
 
 ####  chiman  
 ##### 695#       发表于 2020-6-20 20:03
@@ -9257,7 +9257,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 ----发送自 [Sony XQ-AT52,Android 10](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  MixRadio  
 ##### 696#       发表于 2020-6-20 20:10
@@ -9272,7 +9272,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 这型号名好复杂
 
 
------
+*****
 
 ####  傘木希美  
 ##### 697#       发表于 2020-6-20 20:16
@@ -9287,7 +9287,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 多少钱啊！
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 698#       发表于 2020-6-20 20:25
@@ -9303,7 +9303,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  zatsuza  
 ##### 699#       发表于 2020-6-20 20:27
@@ -9314,7 +9314,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 —— 来自 Realme RMX1901, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  aaron17  
 ##### 700#       发表于 2020-6-20 20:57
@@ -9325,7 +9325,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 — from Sony SOV40, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  hlazd  
 ##### 701#       发表于 2020-6-20 21:04
@@ -9340,7 +9340,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 一贯是不能的
 
 
------
+*****
 
 ####  chiman  
 ##### 702#       发表于 2020-6-20 21:23
@@ -9357,7 +9357,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 ----发送自 [Sony XQ-AT52,Android 10](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  chiman  
 ##### 703#       发表于 2020-6-20 21:25
@@ -9376,7 +9376,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 ----发送自 [Sony XQ-AT52,Android 10](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  chiman  
 ##### 704#       发表于 2020-6-20 21:26
@@ -9393,7 +9393,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 ----发送自 [Sony XQ-AT52,Android 10](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 705#       发表于 2020-6-20 21:48
@@ -9408,7 +9408,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 706#       发表于 2020-6-20 21:58
@@ -9417,7 +9417,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 店家说不知道什么时候能发货，还在清关，佛了。  楼上讨论价格的是老生常谈了，索尼在一些我在意的地方下了功夫，我认为它家的旗舰手机总体上对得起定价吧。便宜一两千，屏幕变差，系统内置大量广告和各种反原生安卓的功能修改，不见得就值得买了
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 707#       发表于 2020-6-20 22:00
@@ -9429,7 +9429,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 旗舰俩字看得懂就看，看不懂就一边凉快。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 708#       发表于 2020-6-21 00:46
@@ -9446,7 +9446,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  藤原亮政  
 ##### 709#       发表于 2020-6-21 07:18
@@ -9457,7 +9457,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 1的指紋解鎖辨識度真是一言難盡...甚至還不如我用來裝國產APPS的千元紅米
 
 
------
+*****
 
 ####  cleaner  
 ##### 710#       发表于 2020-6-21 08:16
@@ -9472,7 +9472,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  izthr  
 ##### 711#       发表于 2020-6-21 14:54
@@ -9487,7 +9487,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 没这功能
 
 
------
+*****
 
 ####  暗铁  
 ##### 712#       发表于 2020-6-21 17:21
@@ -9498,7 +9498,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 —— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 713#       发表于 2020-6-21 17:27
@@ -9513,7 +9513,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  有乐亭八云  
 ##### 714#       发表于 2020-6-21 18:54
@@ -9527,7 +9527,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 求打醒……
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 715#       发表于 2020-6-21 20:04
@@ -9540,7 +9540,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 716#       发表于 2020-6-21 20:11
@@ -9549,7 +9549,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 双卡5g。。想半天就没电吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑城舞夏  
 ##### 717#       发表于 2020-6-21 21:17
@@ -9560,7 +9560,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 是双卡的话任何一张卡都不能用5g，你再品品
 
 
------
+*****
 
 ####  leystage  
 ##### 718#       发表于 2020-6-21 21:27
@@ -9569,7 +9569,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 紫色没货于是换了白色已发货。 双机党无所谓双卡没5G，本来港版也不支持移动5G，一年至少90%的环境都有高速WiFi，就这么着吧。
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 719#       发表于 2020-6-21 21:39
@@ -9582,7 +9582,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  iceprince10  
 ##### 720#       发表于 2020-6-22 00:04
@@ -9591,7 +9591,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 等等，这意思是双卡的情况下都只能4g吗？只有插一张卡可以用5g？这是硬件限制还是可以刷机
 
 
------
+*****
 
 ####  oskneo  
 ##### 721#       发表于 2020-6-22 12:48
@@ -9606,7 +9606,7 @@ oppo vivo 1+ 小米 黑鲨旗舰统统6K以上</blockquote>
 pro出来后，貌似能战了？
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 722#       发表于 2020-6-22 13:24
@@ -9617,7 +9617,7 @@ Z大的微博说5ii可能上高刷了。。。如果是真的索尼怎么想的�
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 723#       发表于 2020-6-22 13:28
@@ -9632,7 +9632,7 @@ Z大的微博说5ii可能上高刷了。。。如果是真的索尼怎么想的�
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 724#       发表于 2020-6-22 14:22
@@ -9647,7 +9647,7 @@ Z大的微博说5ii可能上高刷了。。。如果是真的索尼怎么想的�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  leystage  
 ##### 725#       发表于 2020-6-22 14:29
@@ -9661,7 +9661,7 @@ Z大的微博说5ii可能上高刷了。。。如果是真的索尼怎么想的�
 低分辨率做高刷没那么费电？
 
 
------
+*****
 
 ####  leystage  
 ##### 726#       发表于 2020-6-22 14:30
@@ -9675,7 +9675,7 @@ Z大的微博说5ii可能上高刷了。。。如果是真的索尼怎么想的�
 嗯，昨天说是的，当天就发了
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 727#       发表于 2020-6-22 14:51
@@ -9691,7 +9691,7 @@ Z大的微博说5ii可能上高刷了。。。如果是真的索尼怎么想的�
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 728#       发表于 2020-6-22 16:24
@@ -9700,7 +9700,7 @@ Z大的微博说5ii可能上高刷了。。。如果是真的索尼怎么想的�
 我想知道X1M2这代解锁BL的话会丢什么
 
 
------
+*****
 
 ####  KosHaruhi  
 ##### 729#       发表于 2020-6-22 19:13
@@ -9718,7 +9718,7 @@ Z大的微博说5ii可能上高刷了。。。如果是真的索尼怎么想的�
 进到索尼官网去看有什么支持的文件传输方式结果是把整个transfer mobile给下架了，让用户自己移动照片和数据，太惨了
 
 
------
+*****
 
 ####  死宅真恶心  
 ##### 730#       发表于 2020-6-22 21:11
@@ -9727,7 +9727,7 @@ Z大的微博说5ii可能上高刷了。。。如果是真的索尼怎么想的�
 [https://b23.tv/rS5knI](https://b23.tv/rS5knI) 这代真可以
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 731#       发表于 2020-6-22 21:32
@@ -9740,7 +9740,7 @@ https://b23.tv/rS5knI 这代真可以</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  藤原亮政  
 ##### 732#       发表于 2020-6-22 21:51
@@ -9756,7 +9756,7 @@ https://b23.tv/rS5knI 这代真可以</blockquote>
 索移就<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">應該還是等高通吧
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 733#       发表于 2020-6-22 22:33
@@ -9767,7 +9767,7 @@ https://b23.tv/rS5knI 这代真可以</blockquote>
 现在我看港行是7398，还是有点肉痛
 
 
------
+*****
 
 ####  leystage  
 ##### 734#       发表于 2020-6-22 23:03
@@ -9782,7 +9782,7 @@ https://b23.tv/rS5knI 这代真可以</blockquote>
 确实，感觉能提供这些设计的厂商现在只有索尼一家了。但愿它能多活几年…
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 735#       发表于 2020-6-22 23:03
@@ -9793,7 +9793,7 @@ https://b23.tv/rS5knI 这代真可以</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  傘木希美  
 ##### 736#       发表于 2020-6-23 00:02
@@ -9806,7 +9806,7 @@ https://b23.tv/rS5knI 这代真可以</blockquote>
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 737#       发表于 2020-6-23 00:52
@@ -9824,7 +9824,7 @@ https://b23.tv/rS5knI 这代真可以</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 738#       发表于 2020-6-23 01:34
@@ -9840,7 +9840,7 @@ Adreno 650 GPU: displays up to 4K/60Hz, or 3200x1800/144Hz; HDR10+ support
 话说原来最高60hz是865的限制？之前那些1刷机高刷的是降分辨率然后高刷？
 
 
------
+*****
 
 ####  roydimus  
 ##### 739#       发表于 2020-6-23 10:48
@@ -9849,7 +9849,7 @@ Adreno 650 GPU: displays up to 4K/60Hz, or 3200x1800/144Hz; HDR10+ support
 扫了眼淘宝又涨价了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 740#       发表于 2020-6-23 10:55
@@ -9864,7 +9864,7 @@ Adreno 650 GPU: displays up to 4K/60Hz, or  ...</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  傘木希美  
 ##### 741#       发表于 2020-6-23 11:10
@@ -9877,7 +9877,7 @@ Adreno 650 GPU: displays up to 4K/60Hz, or  ...</blockquote>
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  狂风DKC  
 ##### 742#       发表于 2020-6-23 11:29
@@ -9888,7 +9888,7 @@ Adreno 650 GPU: displays up to 4K/60Hz, or  ...</blockquote>
 手头的X1国行用下来觉得还行，能支持移动5G的话考虑出X1换Mk2了……
 
 
------
+*****
 
 ####  oskneo  
 ##### 743#       发表于 2020-6-23 11:34
@@ -9903,7 +9903,7 @@ Adreno 650 GPU: displays up to 4K/60Hz, or  ...</blockquote>
 那么那些x1刷机120hz的分辨率是多少
 
 
------
+*****
 
 ####  christianlzl  
 ##### 744#       发表于 2020-6-23 11:48
@@ -9912,7 +9912,7 @@ Adreno 650 GPU: displays up to 4K/60Hz, or  ...</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  leystage  
 ##### 745#       发表于 2020-6-23 12:22
@@ -9925,7 +9925,7 @@ Adreno 650 GPU: displays up to 4K/60Hz, or  ...</blockquote>
 国行据说就是为了适配移动5G才大幅延期，应该能支持
 
 
------
+*****
 
 ####  我很费纸  
 ##### 746#       发表于 2020-6-23 13:17
@@ -9952,7 +9952,7 @@ PS：非科学计算方法，不严谨，仅代表个人观点，欢迎懂行大
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 747#       发表于 2020-6-23 13:18
@@ -9969,7 +9969,7 @@ Android手机买新不买旧，明年875肯定更香……明年又是制程进�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  利物浦  
 ##### 748#       发表于 2020-6-23 14:12
@@ -9982,7 +9982,7 @@ Android手机买新不买旧，明年875肯定更香……明年又是制程进�
 —— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 749#       发表于 2020-6-23 14:25
@@ -9991,7 +9991,7 @@ Android手机买新不买旧，明年875肯定更香……明年又是制程进�
 收到了… 虽然我的使用习惯不主流，但有问题尽管问吧…
 
 
------
+*****
 
 ####  Airwolf  
 ##### 750#       发表于 2020-6-23 14:31
@@ -10002,7 +10002,7 @@ Android手机买新不买旧，明年875肯定更香……明年又是制程进�
 说说系统软件上的优缺点吧？硬件没什么可说的了，智能机还是软件体验第一位
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 751#       发表于 2020-6-23 15:09
@@ -10015,7 +10015,7 @@ Android手机买新不买旧，明年875肯定更香……明年又是制程进�
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 752#       发表于 2020-6-23 15:14
@@ -10027,7 +10027,7 @@ Android手机买新不买旧，明年875肯定更香……明年又是制程进�
 支持移动的VOLTE了吗？
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 753#       发表于 2020-6-23 15:52
@@ -10040,7 +10040,7 @@ xperia 1就支持了啊
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  不可不信邪  
 ##### 754#       发表于 2020-6-23 16:04
@@ -10048,7 +10048,7 @@ xperia 1就支持了啊
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  傘木希美  
 ##### 755#       发表于 2020-6-23 16:05
@@ -10061,7 +10061,7 @@ Android手机买新不买旧，明年875肯定更香……明年又是制程进�
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 756#       发表于 2020-6-23 16:14
@@ -10092,7 +10092,7 @@ Photo Pro 很好玩
 总之就是索粉大欢喜 XD
 
 
------
+*****
 
 ####  leystage  
 ##### 757#       发表于 2020-6-23 16:16
@@ -10110,7 +10110,7 @@ Photo Pro 很好玩
 出片质量还没细看，再说吧…
 
 
------
+*****
 
 ####  zhongjie  
 ##### 758#       发表于 2020-6-23 16:18
@@ -10127,7 +10127,7 @@ Photo Pro 很好玩
 —— 来自 OPPO PDHM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  mhss  
 ##### 759#       发表于 2020-6-23 16:44
@@ -10140,7 +10140,7 @@ Photo Pro 很好玩
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 760#       发表于 2020-6-23 17:10
@@ -10161,7 +10161,7 @@ Photo Pro 很好玩
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 761#       发表于 2020-6-23 17:28
@@ -10178,7 +10178,7 @@ Photo Pro 很好玩
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 762#       发表于 2020-6-23 17:58
@@ -10195,7 +10195,7 @@ Photo Pro 很好玩
 现在恐怕接着电源下的跑分mk2能去到很高排位
 
 
------
+*****
 
 ####  bxcds  
 ##### 763#       发表于 2020-6-23 18:17
@@ -10214,7 +10214,7 @@ Photo Pro 很好玩
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  leystage  
 ##### 764#       发表于 2020-6-23 18:17
@@ -10228,7 +10228,7 @@ Photo Pro 很好玩
 XZP 对手汗不那么多的人来讲算是一碰就解锁，甚至过于灵敏了。手汗多的人如我家里，还是 XZ3 那样的背后指纹才稳定
 
 
------
+*****
 
 ####  leystage  
 ##### 765#       发表于 2020-6-23 18:27
@@ -10242,7 +10242,7 @@ XZP 对手汗不那么多的人来讲算是一碰就解锁，甚至过于灵敏�
 我要去加班了。。。 看看端午能不能都跑一下看看
 
 
------
+*****
 
 ####  我很费纸  
 ##### 766#       发表于 2020-6-23 18:34
@@ -10260,7 +10260,7 @@ Soc温度墙锁死60度，拿头战人家八九十度的性能模式温度墙<im
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 767#       发表于 2020-6-23 18:35
@@ -10278,7 +10278,7 @@ Soc温度墙锁死60度，拿头战人家八九十度的性能模式温度墙<im
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 768#       发表于 2020-6-23 18:36
@@ -10293,7 +10293,7 @@ Soc温度墙锁死60度，拿头战人家八九十度的性能模式温度墙<im
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 769#       发表于 2020-6-23 18:42
@@ -10310,7 +10310,7 @@ http://weibo.com/2814493542/J7Ytla6TZ
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 770#       发表于 2020-6-23 20:50
@@ -10323,7 +10323,7 @@ http://weibo.com/2814493542/J7Ytla6TZ
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 771#       发表于 2020-6-23 21:30
@@ -10336,7 +10336,7 @@ XZP 对手汗不那么多的人来讲算是一碰就解锁，甚至过于灵敏�
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 772#       发表于 2020-6-23 22:12
@@ -10355,7 +10355,7 @@ http://weibo.com/1748136774/J7YP4ksgv
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  cleaner  
 ##### 773#       发表于 2020-6-23 22:41
@@ -10370,7 +10370,7 @@ http://weibo.com/1748136774/J7YP4ksgv
 短片大师还在吗
 
 
------
+*****
 
 ####  cleaner  
 ##### 774#       发表于 2020-6-23 22:41
@@ -10385,7 +10385,7 @@ http://weibo.com/1748136774/J7YP4ksgv
 短片大师还在吗
 
 
------
+*****
 
 ####  月神侠  
 ##### 775#       发表于 2020-6-24 01:58
@@ -10394,7 +10394,7 @@ http://weibo.com/1748136774/J7YP4ksgv
 Google Photo 没用过，比起索尼相册如何
 
 
------
+*****
 
 ####  leystage  
 ##### 776#       发表于 2020-6-24 07:33
@@ -10413,7 +10413,7 @@ Google Photo 没用过，比起索尼相册如何
 最大亮度时1屏幕四周亮度略高，1 II 对比之下更均匀。
 
 
------
+*****
 
 ####  leystage  
 ##### 777#       发表于 2020-6-24 07:36
@@ -10428,7 +10428,7 @@ Google Photo 没用过，比起索尼相册如何
 比清汤寡水更清汤寡水。
 
 
------
+*****
 
 ####  leystage  
 ##### 778#       发表于 2020-6-24 07:41
@@ -10446,7 +10446,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 我的照片都是 OneDrive 备份，所以不用 Google Photo 的云功能，各种通知也都关了。喜欢的人大概会觉得有用。
 
 
------
+*****
 
 ####  cleaner  
 ##### 779#       发表于 2020-6-24 07:43
@@ -10461,7 +10461,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 780#       发表于 2020-6-24 07:48
@@ -10470,7 +10470,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 关于拍照先简单说几点吧。Photo Pro 可以快门键启动，这个 App 太有意思了爱不释手，值回票价；室内拍照仍然会用涂抹来消噪。中央区域其实不明显，只是放大到200%在手机上看也看不出什么。可以通过改变测光参数来改善或调整。随手拍感官其实还蛮讨喜，我也没有一定要放大画面非中央区域看细节是否被涂抹的强迫症…
 
 
------
+*****
 
 ####  oskneo  
 ##### 781#       发表于 2020-6-24 07:49
@@ -10486,7 +10486,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 难得walkman最近重回安卓
 
 
------
+*****
 
 ####  leystage  
 ##### 782#       发表于 2020-6-24 07:52
@@ -10501,7 +10501,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 但你不觉得真的 Walkman 上那个 Walkman 的 App，其实挺难用的…
 
 
------
+*****
 
 ####  jzsgtx  
 ##### 783#       发表于 2020-6-24 08:20
@@ -10512,7 +10512,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 784#       发表于 2020-6-24 08:22
@@ -10523,7 +10523,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 应该是在索尼自己的系统更新里提供的吧。这次没了… 只有一个 News Suite
 
 
------
+*****
 
 ####  plumlis  
 ##### 785#       发表于 2020-6-24 08:38
@@ -10534,7 +10534,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 — from Google Pixel 3 XL, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
------
+*****
 
 ####  jzsgtx  
 ##### 786#       发表于 2020-6-24 08:45
@@ -10546,7 +10546,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 1的国行系统这部分应用是通过系统更新提供的，港行放在初次GooglePlay里面了
 
 
------
+*****
 
 ####  不可不信邪  
 ##### 787#       发表于 2020-6-24 09:19
@@ -10554,7 +10554,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  leystage  
 ##### 788#       发表于 2020-6-24 09:47
@@ -10568,7 +10568,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 只说菜单上滑这类线性可预测的动画，比 1 确实肉眼可见地变得流畅了一些。 一般打字发帖之类的时候没什明显感觉。
 
 
------
+*****
 
 ####  Airwolf  
 ##### 789#       发表于 2020-6-24 09:53
@@ -10583,7 +10583,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 等我的到了后看看双5g卡下港版到底是1514模式还是双4模式
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 790#       发表于 2020-6-24 10:02
@@ -10596,7 +10596,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 791#       发表于 2020-6-24 11:10
@@ -10613,7 +10613,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Airwolf  
 ##### 792#       发表于 2020-6-24 13:08
@@ -10622,7 +10622,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 嗯，这背面真的无愧指纹收集器
 
 
------
+*****
 
 ####  Airwolf  
 ##### 793#       发表于 2020-6-24 14:57
@@ -10631,7 +10631,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 紫色这个挺漂亮的，唉你索这外观还是没得说的，确实用心做，就是这系统简单的对不起一众粉丝，当初彻底靠向原生我怀疑就是索移的软件部门是水平垃圾的跟不上时代了就偷懒靠人不作恶，你好歹也是一大公司软件本地化上真心辣眼，国内这些厂商一步步走到现在，在本地化便利化上都一直在下苦功，索移真心扶不起，丧门星虽然国内份额都快丢光了，人家软件投入上还知道一直下功夫，这索移<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暗铁  
 ##### 794#       发表于 2020-6-24 16:46
@@ -10642,7 +10642,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 —— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 795#       发表于 2020-6-24 16:49
@@ -10658,7 +10658,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 796#       发表于 2020-6-24 16:59
@@ -10667,7 +10667,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 这样说吧 是类源生才买他的
 
 
------
+*****
 
 ####  Airwolf  
 ##### 797#       发表于 2020-6-24 17:02
@@ -10684,7 +10684,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Bondrewd  
 ##### 798#       发表于 2020-6-24 17:06
@@ -10697,7 +10697,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 [https://ngabbs.com/read.php?tid=22308625](https://ngabbs.com/read.php?tid=22308625)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 799#       发表于 2020-6-24 17:50
@@ -10713,7 +10713,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 800#       发表于 2020-6-24 17:52
@@ -10727,7 +10727,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 有一说一，那难道不是因为谷歌粉丝信仰比索尼粉丝更足么…
 
 
------
+*****
 
 ####  Cray  
 ##### 801#       发表于 2020-6-24 20:52
@@ -10739,7 +10739,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 平行世界这片子就故意是做的卡卡的抽帧感啊。。
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 802#       发表于 2020-6-24 22:20
@@ -10753,7 +10753,7 @@ https://ngabbs.com/read.php?tid=22308625</blockquote>
 —— 来自 Sony G8142, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 803#       发表于 2020-6-24 22:48
@@ -10768,7 +10768,7 @@ https://ngabbs.com/read.php?tid=22308625</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 804#       发表于 2020-6-25 01:35
@@ -10781,7 +10781,7 @@ http://weibo.com/5217947713/J89DWCdGO
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 805#       发表于 2020-6-25 02:52
@@ -10799,7 +10799,7 @@ http://weibo.com/5217947713/J89DWCdGO
 本身摄像头限制了位置，也不需要太高的集成度。楼斌就是在那里带节奏罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cray  
 ##### 806#       发表于 2020-6-25 03:24
@@ -10808,7 +10808,7 @@ http://weibo.com/5217947713/J89DWCdGO
 散热有那么大一块散热垫呢。
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 807#       发表于 2020-6-25 06:53
@@ -10817,7 +10817,7 @@ http://weibo.com/5217947713/J89DWCdGO
 咸鱼360度翻身？
 
 
------
+*****
 
 ####  leystage  
 ##### 808#       发表于 2020-6-25 08:42
@@ -10834,7 +10834,7 @@ http://weibo.com/5217947713/J89DWCdGO
 不管是降低集成度还是软件放宽限制，最终看实际效果吧
 
 
------
+*****
 
 ####  lbzlxx  
 ##### 809#       发表于 2020-6-25 08:46
@@ -10843,7 +10843,7 @@ http://weibo.com/5217947713/J89DWCdGO
 不要啊，我还要咸鱼低价买
 
 
------
+*****
 
 ####  我很费纸  
 ##### 810#       发表于 2020-6-25 13:17
@@ -10862,7 +10862,7 @@ http://weibo.com/5217947713/J89DWCdGO
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 811#       发表于 2020-6-25 13:23
@@ -10882,7 +10882,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 812#       发表于 2020-6-25 20:00
@@ -10894,7 +10894,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 索尼从机内存储的类型、电池容量、充电速度和续航的取舍，都是出了名的保守，激进是不可能的，最多给个4k屏幕，然后大部分时间都是当fhd用。
 
 
------
+*****
 
 ####  Cray  
 ##### 813#       发表于 2020-6-25 21:01
@@ -10916,7 +10916,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 关于电池空间，本身日本人强迫症要高安全标准，边框厚度明显比国产多。 然后你看底部副板 我目前发现只有🔒尼给usb接口专门加了强度做安全防滚，然后为了正面扬声器导音腔，整个下部的厚度就上去。  综合起来 电池的空间就被挤压了。把这些全去掉 4500也没问题呀。鱼和熊掌的问题咯。
 
 
------
+*****
 
 ####  Cray  
 ##### 814#       发表于 2020-6-25 21:12
@@ -10927,7 +10927,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 包括排线涂黑 玻璃背板涂黑 都是石墨散热<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 楼斌就是喜欢在那里yygq  一直是这样的
 
 
------
+*****
 
 ####  coolcoat  
 ##### 815#       发表于 2020-6-25 21:44
@@ -10939,7 +10939,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 ----发送自 [Sony XQ-AT52,Android 10](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 816#       发表于 2020-6-25 22:22
@@ -10958,7 +10958,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 817#       发表于 2020-6-25 22:24
@@ -10974,7 +10974,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 818#       发表于 2020-6-25 23:16
@@ -10989,7 +10989,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 819#       发表于 2020-6-26 00:22
@@ -11004,7 +11004,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 820#       发表于 2020-6-26 00:38
@@ -11022,7 +11022,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 测温度应该拍hdr视频。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  oskneo  
 ##### 821#       发表于 2020-6-26 00:45
@@ -11039,7 +11039,7 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 还不如直接入个se。想安卓游戏性能强不如直接入个带风扇的。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 822#       发表于 2020-6-26 00:56
@@ -11062,7 +11062,7 @@ http://weibo.com/5908358617/IvRA71g1j
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 823#       发表于 2020-6-26 01:04
@@ -11088,7 +11088,7 @@ xz2c够小了吧，比X5小吧，3d mark vulkan模式跑分比X5高，索移能�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 824#       发表于 2020-6-26 01:20
@@ -11117,7 +11117,7 @@ xz2c够小了吧，比X5小吧，3d mark vulkan模式跑分比X5 ...</blockquote
 貌似距离你说的60度都很远。
 
 
------
+*****
 
 ####  淡定君  
 ##### 825#       发表于 2020-6-26 01:32
@@ -11149,7 +11149,7 @@ DDR5的内存，心头大石也放下来，点赞。
 PS:现在夏天这个气氛，户外拍4K HDR是必死无疑，不用太纠结过热保护。
 
 
------
+*****
 
 ####  MixRadio  
 ##### 826#       发表于 2020-6-26 01:37
@@ -11165,7 +11165,7 @@ PS:现在夏天这个气氛，户外拍4K HDR是必死无疑，不用太纠结�
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  我很费纸  
 ##### 827#       发表于 2020-6-26 02:06
@@ -11184,7 +11184,7 @@ PS:现在夏天这个气氛，户外拍4K HDR是必死无疑，不用太纠结�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MixRadio  
 ##### 828#       发表于 2020-6-26 02:10
@@ -11197,7 +11197,7 @@ PS:现在夏天这个气氛，户外拍4K HDR是必死无疑，不用太纠结�
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  oskneo  
 ##### 829#       发表于 2020-6-26 02:16
@@ -11223,7 +11223,7 @@ PS:现在夏天这个气氛，户外拍4K HDR是必死无疑，不用太纠结�
 自己看
 
 
------
+*****
 
 ####  淡定君  
 ##### 830#       发表于 2020-6-26 02:18
@@ -11241,7 +11241,7 @@ PS:现在夏天这个气氛，户外拍4K HDR是必死无疑，不用太纠结�
 下代X5一样跑不动，老实上X1 II吧
 
 
------
+*****
 
 ####  Cray  
 ##### 831#       发表于 2020-6-26 02:53
@@ -11257,7 +11257,7 @@ x5II  八成是没有耳机孔的。 这样想 主板不就不挤了嘛<img sr
 说到5.。他那个背板上只有摄像头旁边一圈涂了石墨， L型主板集成度超拉跨，sim槽堆叠在某芯片上面。 完全靠中框散热，中框和屏幕之间有半机身大小的散热片。应该不差啊，你那片子是不是不见了。你不是修过屏幕嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mhss  
 ##### 832#       发表于 2020-6-26 10:10
@@ -11268,7 +11268,7 @@ x5II  八成是没有耳机孔的。 这样想 主板不就不挤了嘛<img sr
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 833#       发表于 2020-6-26 10:12
@@ -11283,7 +11283,7 @@ itof在机后，能接受背面识别吗
 — from Sony D6653, Android 6.0.1 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
------
+*****
 
 ####  mhss  
 ##### 834#       发表于 2020-6-26 10:18
@@ -11298,7 +11298,7 @@ itof在机后，能接受背面识别吗
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 835#       发表于 2020-6-26 10:22
@@ -11314,7 +11314,7 @@ x5II  八成是没有耳机孔的。 这样想 主板不就不挤了嘛 哦，
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 836#       发表于 2020-6-26 10:23
@@ -11329,7 +11329,7 @@ x5II  八成是没有耳机孔的。 这样想 主板不就不挤了嘛 哦，
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 837#       发表于 2020-6-26 10:30
@@ -11358,7 +11358,7 @@ https://www.youtube.com/watch?v=SyuNxJe1240&amp;t=1s
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 838#       发表于 2020-6-26 10:35
@@ -11377,7 +11377,7 @@ https://www.youtube.com/watch?v=SyuNxJe1240&amp;t=1s
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 839#       发表于 2020-6-26 10:50
@@ -11394,7 +11394,7 @@ https://www.youtube.com/watch?v=SyuNxJe1240&amp;t=1s
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  淡定君  
 ##### 840#       发表于 2020-6-26 15:50
@@ -11426,7 +11426,7 @@ https://www.youtube.com/watch?v=SyuNxJe1240&amp;t=1s
 当然继续用X5或者买X5II继续找罪受我也没办法。
 
 
------
+*****
 
 ####  不可不信邪  
 ##### 841#       发表于 2020-6-26 16:42
@@ -11434,7 +11434,7 @@ https://www.youtube.com/watch?v=SyuNxJe1240&amp;t=1s
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  我很费纸  
 ##### 842#       发表于 2020-6-26 17:04
@@ -11462,7 +11462,7 @@ xz2c这种就是普通的散热表现，X5属于不及格水准，属于没有�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 843#       发表于 2020-6-26 20:26
@@ -11477,7 +11477,7 @@ xz2c这种就是普通的散热表现，X5属于不及格水准，属于没有�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  淡定君  
 ##### 844#       发表于 2020-6-26 20:55
@@ -11504,7 +11504,7 @@ XZ2P虽然半斤，温度从来不担心过，钢板和845+超厚散热，未来
 摩尔定律撞墙导致现在手机发展现在已经属于剪定事项了，未来没有任何可能性。
 
 
------
+*****
 
 ####  leystage  
 ##### 845#       发表于 2020-6-26 21:07
@@ -11519,7 +11519,7 @@ XZ2P虽然半斤，温度从来不担心过，钢板和845+超厚散热，未来
 我已经下载安装了 3D Mark 和 CPU float，你希望怎么测试，有什么讲究吗？
 
 
------
+*****
 
 ####  leystage  
 ##### 846#       发表于 2020-6-26 21:38
@@ -11568,7 +11568,7 @@ GPU 305 @T70
 查看全部评分
 
 
------
+*****
 
 ####  我很费纸  
 ##### 847#       发表于 2020-6-26 23:17
@@ -11600,7 +11600,7 @@ http://weibo.com/5908358617/Iucm5xqQV
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 848#       发表于 2020-6-26 23:23
@@ -11626,7 +11626,7 @@ Google 全家桶+Play 商店音乐图书等全部自动同步。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 849#       发表于 2020-6-26 23:34
@@ -11646,7 +11646,7 @@ Google 全家桶+Play 商店音乐图书等全部自动同步。
 其实我没看到有 HS 的开关之类的，不知道是不是自动切换。我明天试试看插电跑 3D mark。我主要是拖延症哈哈…
 
 
------
+*****
 
 ####  我很费纸  
 ##### 850#       发表于 2020-6-26 23:36
@@ -11661,7 +11661,7 @@ hs应该在游戏模式里面，3d mark可能要自己手动添加才会进入�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  淡定君  
 ##### 851#       发表于 2020-6-27 00:56
@@ -11679,7 +11679,7 @@ hs应该在游戏模式里面，3d mark可能要自己手动添加才会进入�
 要么买X5 II 要么就继续顶着索尼迷の缩肛继续玩，反正两条路是都是死路
 
 
------
+*****
 
 ####  cleaner  
 ##### 852#       发表于 2020-6-27 01:37
@@ -11690,7 +11690,7 @@ hs应该在游戏模式里面，3d mark可能要自己手动添加才会进入�
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 853#       发表于 2020-6-27 08:49
@@ -11705,7 +11705,7 @@ hs应该在游戏模式里面，3d mark可能要自己手动添加才会进入�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 854#       发表于 2020-6-27 11:04
@@ -11727,7 +11727,7 @@ Play 商店提示该设备不支持。
 不过 Pure Apk 版本5.7.A.0.2 可以下载安装正常并创建一段短片，也能正常播放。细节功功能没有具体测试。
 
 
------
+*****
 
 ####  oskneo  
 ##### 855#       发表于 2020-6-27 12:29
@@ -11738,7 +11738,7 @@ Play 商店提示该设备不支持。
 本地店子貌似到货了，现金1550刀，有点想退了那个明天之前去店里拿现货。
 
 
------
+*****
 
 ####  EFSF  
 ##### 856#       发表于 2020-6-27 13:53
@@ -11770,7 +11770,7 @@ sony自己的相册这次也彻底废了，我解锁地区的abema tv在这个�
 什么，你说拍照？那种装饰上面的人不会懂的……谁也不会真拿手机搞创作不是……
 
 
------
+*****
 
 ####  leystage  
 ##### 857#       发表于 2020-6-27 14:09
@@ -11785,7 +11785,7 @@ sony自己的相册这次也彻底废了，我解锁地区的abema tv在这个�
 去年开始的新主屏真的很奇怪。明明之前那个改进了那么多年很好用了…
 
 
------
+*****
 
 ####  leystage  
 ##### 858#       发表于 2020-6-27 14:11
@@ -11796,7 +11796,7 @@ sony自己的相册这次也彻底废了，我解锁地区的abema tv在这个�
 另外侧感的上下滑动似乎是先按下去停顿半秒再滑成功率会比较高。目前我自己大概是95%成功率…
 
 
------
+*****
 
 ####  EFSF  
 ##### 859#       发表于 2020-6-27 15:21
@@ -11807,7 +11807,7 @@ sony自己的相册这次也彻底废了，我解锁地区的abema tv在这个�
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  MixRadio  
 ##### 860#       发表于 2020-6-27 16:20
@@ -11822,7 +11822,7 @@ sony自己的相册这次也彻底废了，我解锁地区的abema tv在这个�
 分屏应该是安卓10的改动，可以在多任务界面长按应用图标，有一个分屏的选项
 
 
------
+*****
 
 ####  EFSF  
 ##### 861#       发表于 2020-6-27 16:36
@@ -11834,7 +11834,7 @@ sony自己的相册这次也彻底废了，我解锁地区的abema tv在这个�
 靠，原来还能这样，为了能侧边手势操作我最后把手机壳右边切了一个操作区域出来……
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 862#       发表于 2020-6-27 16:44
@@ -11846,7 +11846,7 @@ sony自己的相册这次也彻底废了，我解锁地区的abema tv在这个�
 LCD永不为奴！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 863#       发表于 2020-6-27 17:07
@@ -11863,7 +11863,7 @@ LCD永不为奴！<img src="https://static.saraba1st.com/image/smiley/face2017/0
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 864#       发表于 2020-6-27 17:22
@@ -11876,7 +11876,7 @@ LCD永不为奴！<img src="https://static.saraba1st.com/image/smiley/face2017/0
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  EFSF  
 ##### 865#       发表于 2020-6-27 17:31
@@ -11891,7 +11891,7 @@ LCD永不为奴！<img src="https://static.saraba1st.com/image/smiley/face2017/0
 标准一泡污
 
 
------
+*****
 
 ####  Cray  
 ##### 866#       发表于 2020-6-27 18:36
@@ -11900,7 +11900,7 @@ LCD永不为奴！<img src="https://static.saraba1st.com/image/smiley/face2017/0
 屏幕没换和1一样 肯定就那样了。。
 
 
------
+*****
 
 ####  cleaner  
 ##### 867#       发表于 2020-6-27 20:16
@@ -11915,7 +11915,7 @@ LCD永不为奴！<img src="https://static.saraba1st.com/image/smiley/face2017/0
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 868#       发表于 2020-6-27 20:35
@@ -11928,7 +11928,7 @@ LCD永不为奴！<img src="https://static.saraba1st.com/image/smiley/face2017/0
 当然最高亮度确实平庸，高分辨率 OLED 现在技术就这样了…
 
 
------
+*****
 
 ####  EFSF  
 ##### 869#       发表于 2020-6-27 22:46
@@ -11946,7 +11946,7 @@ LCD永不为奴！<img src="https://static.saraba1st.com/image/smiley/face2017/0
 现在上班进楼进园区去商场都要在户外依靠手机出示健康宝，想想都头大。
 
 
------
+*****
 
 ####  淡定君  
 ##### 870#       发表于 2020-6-28 01:00
@@ -11968,7 +11968,7 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 对了，你手上的是黑色X1 II?
 
 
------
+*****
 
 ####  Cray  
 ##### 871#       发表于 2020-6-28 02:43
@@ -11982,7 +11982,7 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 手机的oled亮度都蛮拉跨的，毕竟寿命在那里摆着。 某些机器激发亮度还要用强光手电筒照才能亮。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 872#       发表于 2020-6-28 07:29
@@ -11993,7 +11993,7 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  EFSF  
 ##### 873#       发表于 2020-6-28 09:22
@@ -12012,7 +12012,7 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  mhss  
 ##### 874#       发表于 2020-6-28 09:32
@@ -12027,7 +12027,7 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 875#       发表于 2020-6-28 09:58
@@ -12050,7 +12050,7 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 手头的 XZP 还在用，虽然个人偏好 OLED 的深色，但最高亮度确实比不了 LCD。只能说是大势所趋了…
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 876#       发表于 2020-6-28 10:11
@@ -12065,7 +12065,7 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Airwolf  
 ##### 877#       发表于 2020-6-28 10:24
@@ -12080,7 +12080,7 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  EFSF  
 ##### 878#       发表于 2020-6-28 10:27
@@ -12095,7 +12095,7 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 我手机不玩游戏的，但是我现在移动办公需求很多，XZ2首先放不了太多文档备着，我几乎拍照就删，靠一个小内存卡转存一些东西，本体因为一些不方便删的对话和不方便改文件夹的文档存放储存容量就保持在不到8G很久了，这还是我常清理，6G RAM是基本够，但是后台一下子开好几个或稍微大一点的文档还是吃点力，能大一些自然是好的。
 
 
------
+*****
 
 ####  EFSF  
 ##### 879#       发表于 2020-6-28 10:52
@@ -12104,7 +12104,7 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里了……我不知道这是什么用意……
 
 
------
+*****
 
 ####  bxcds  
 ##### 880#       发表于 2020-6-28 11:50
@@ -12117,7 +12117,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  leystage  
 ##### 881#       发表于 2020-6-28 11:54
@@ -12133,7 +12133,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 明明1还有NFC开关的。好奇怪
 
 
------
+*****
 
 ####  EFSF  
 ##### 882#       发表于 2020-6-28 13:33
@@ -12151,7 +12151,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 我觉得是程序员忘了。
 
 
------
+*****
 
 ####  MixRadio  
 ##### 883#       发表于 2020-6-28 13:39
@@ -12165,7 +12165,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 我的pixel3也没有，可能是谷歌程序员忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  EFSF  
 ##### 884#       发表于 2020-6-28 13:50
@@ -12176,7 +12176,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 你要说不好吧，似乎也还行，你要说还行吧，那是绝对不太够的……
 
 
------
+*****
 
 ####  傘木希美  
 ##### 885#       发表于 2020-6-28 14:41
@@ -12187,7 +12187,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 886#       发表于 2020-6-28 14:50
@@ -12200,7 +12200,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 这几天体感4000mAh的电池比以前的所有旗舰都耐用一截是没问题了，但重度使用估计也就勉强大半天
 
 
------
+*****
 
 ####  Cray  
 ##### 887#       发表于 2020-6-28 17:10
@@ -12209,7 +12209,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 自动亮度下 自己手动干预下让系统记住你的偏好会好点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 888#       发表于 2020-6-28 17:17
@@ -12227,7 +12227,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  EFSF  
 ##### 889#       发表于 2020-6-28 18:02
@@ -12244,7 +12244,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 算了接受个屁，出门发个闪送屏幕黑到接收码都看不见
 
 
------
+*****
 
 ####  我很费纸  
 ##### 890#       发表于 2020-6-28 22:15
@@ -12257,7 +12257,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 891#       发表于 2020-6-29 01:12
@@ -12269,7 +12269,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">你造嘛  移动可以直接5g。
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 892#       发表于 2020-6-29 01:14
@@ -12281,7 +12281,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 893#       发表于 2020-6-29 01:56
@@ -12296,7 +12296,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  iceprince10  
 ##### 894#       发表于 2020-6-29 09:34
@@ -12305,7 +12305,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 现在索尼的港行代票全国联保还有意义吗
 
 
------
+*****
 
 ####  leystage  
 ##### 895#       发表于 2020-6-29 10:04
@@ -12322,7 +12322,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 不强烈需求谷歌可以用国行。去年用下来的小毛病是，虽然可以登录谷歌使用框架，但内部地区码可能还是中国，所以包括PS Remote等一些App在Play商店里不支持。其他也有点软件游戏兼容的小毛病。优点是不登陆谷歌的时候不会被它费电，自带自启管理，比港版更干净，真正清汤寡水
 
 
------
+*****
 
 ####  jzsgtx  
 ##### 896#       发表于 2020-6-29 11:46
@@ -12344,7 +12344,7 @@ MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里�
 另外国行用户自己装的play商店是没法自动更新自己的
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 897#       发表于 2020-6-29 13:18
@@ -12356,7 +12356,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 898#       发表于 2020-6-29 13:37
@@ -12367,7 +12367,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Airwolf  
 ##### 899#       发表于 2020-6-29 14:15
@@ -12376,7 +12376,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 你索穷啊，舍不得让马哥和福报马割一茬
 
 
------
+*****
 
 ####  我很费纸  
 ##### 900#       发表于 2020-6-29 14:41
@@ -12394,7 +12394,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 901#       发表于 2020-6-29 16:34
@@ -12406,7 +12406,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  Cray  
 ##### 902#       发表于 2020-6-29 17:12
@@ -12418,7 +12418,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  leystage  
 ##### 903#       发表于 2020-6-29 18:08
@@ -12427,7 +12427,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 小众如我主力手机上甚至从来没有装过一天支付宝，好像生活毫无障碍… 微信付款最多也就一天一次无所谓了
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 904#       发表于 2020-6-29 18:50
@@ -12440,7 +12440,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  leystage  
 ##### 905#       发表于 2020-6-29 19:00
@@ -12456,7 +12456,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 前些年 XZP 边框确实有轻微掉漆。当时看到说用硅胶套可能会大面积腐化边框掉漆，我没用所以程度还可以。
 
 
------
+*****
 
 ####  christianlzl  
 ##### 906#       发表于 2020-6-29 21:17
@@ -12468,7 +12468,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  EFSF  
 ##### 907#       发表于 2020-6-29 22:06
@@ -12485,7 +12485,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  Cray  
 ##### 908#       发表于 2020-6-29 22:11
@@ -12500,7 +12500,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 怕不是疏油层<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  christianlzl  
 ##### 909#       发表于 2020-6-29 22:23
@@ -12512,7 +12512,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 我收到的当天就下单买了新手机壳了,附赠的那些能用?完全没有你的困惑,反正我用分屏手势是手动设置,提供一个思路而已
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 910#       发表于 2020-6-29 22:35
@@ -12525,7 +12525,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  EFSF  
 ##### 911#       发表于 2020-6-29 22:44
@@ -12537,7 +12537,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 我是预定手机之前就以已经提前买了一个手机壳而已，不好用又买了一个。
 
 
------
+*****
 
 ####  christianlzl  
 ##### 912#       发表于 2020-6-29 22:52
@@ -12552,7 +12552,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 我觉得某宝质量都差不多,25-30块的够用了,买之前会纠结紫色后背的镜面看不到,用上之后完全忽略掉这件事
 
 
------
+*****
 
 ####  Lisylfn  
 ##### 913#       发表于 2020-6-30 16:35
@@ -12561,7 +12561,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 相机拍出来的都是DSC_xxx的命名, 拍照拍得少, 最近发现同步出来会和旧的索尼手机拍照命名冲突, 怎么解决<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cleaner  
 ##### 914#       发表于 2020-6-30 23:46
@@ -12574,7 +12574,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 915#       发表于 2020-7-1 00:44
@@ -12586,7 +12586,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  iceprince10  
 ##### 916#       发表于 2020-7-1 12:48
@@ -12595,7 +12595,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 现在香港进关困难吧，港行几乎所有东西都有一定上涨。昨天又延到8月7了
 
 
------
+*****
 
 ####  oskneo  
 ##### 917#       发表于 2020-7-1 13:19
@@ -12606,7 +12606,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 918#       发表于 2020-7-1 13:22
@@ -12619,7 +12619,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 919#       发表于 2020-7-2 15:00
@@ -12628,7 +12628,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 你索是真的牛逼，一个手机还能涨价的。
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 920#       发表于 2020-7-2 16:19
@@ -12639,7 +12639,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 921#       发表于 2020-7-2 17:59
@@ -12654,7 +12654,7 @@ https://m.bilibili.com/video/BV12v411B7nR
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 922#       发表于 2020-7-2 18:33
@@ -12671,7 +12671,7 @@ photo pro的auto模式<img src="https://static.saraba1st.com/image/smiley/face20
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  不可不信邪  
 ##### 923#       发表于 2020-7-2 18:52
@@ -12679,7 +12679,7 @@ photo pro的auto模式<img src="https://static.saraba1st.com/image/smiley/face20
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  Cray  
 ##### 924#       发表于 2020-7-2 21:53
@@ -12695,7 +12695,7 @@ photo pro的auto模式</blockquote>
 上次微博大战可是把auto叫成特殊模式的。
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 925#       发表于 2020-7-2 22:07
@@ -12711,7 +12711,7 @@ photo pro的auto模式</blockquote>
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 926#       发表于 2020-7-3 01:36
@@ -12735,7 +12735,7 @@ photo pro的auto模式</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 927#       发表于 2020-7-3 01:37
@@ -12756,7 +12756,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 尽管我看最新的那个清晨样张，没触发模式天空有点不行  。
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 928#       发表于 2020-7-3 05:53
@@ -12769,7 +12769,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 929#       发表于 2020-7-3 09:15
@@ -12786,7 +12786,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  黄耀明  
 ##### 930#       发表于 2020-7-3 12:48
@@ -12798,7 +12798,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Cray  
 ##### 931#       发表于 2020-7-3 22:57
@@ -12807,7 +12807,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 国行说9月 那肯定是9月了。<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  藤原亮政  
 ##### 932#       发表于 2020-7-4 15:41
@@ -12822,7 +12822,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 1M2錄一個識別率也不錯,其他手指識別率也很好
 
 
------
+*****
 
 ####  mhss  
 ##### 933#       发表于 2020-7-5 12:23
@@ -12832,7 +12832,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 <img src="https://p.sda1.dev/0/c67394241a02772cee4c74b1dd9519fd/IMG_2F83EBC3E8AD9EF0BCAECFE3D0B50D8E.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  leystage  
 ##### 934#       发表于 2020-7-5 13:07
@@ -12845,7 +12845,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 盲猜是各个 App 的缓存文件。虽然根据 App 不同，有些缓存也许会是你想要留下的… 比如音乐和视频的缓存
 
 
------
+*****
 
 ####  红茶提督  
 ##### 935#       发表于 2020-7-9 14:21
@@ -12854,7 +12854,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 买的的说说这代能原生支持应用双开嘛
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 936#       发表于 2020-7-9 14:29
@@ -12865,7 +12865,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 —— 来自 Sony E6653, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 937#       发表于 2020-7-19 01:59
@@ -12876,7 +12876,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  eureka9  
 ##### 938#       发表于 2020-7-19 11:04
@@ -12891,7 +12891,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 你人在加拿大还是美国？我在美国最后还是没敢在这个店冒险买紫色，我天天安慰自己黑色也挺好看，还白送个耳机，如果坏了修也方便。。。
 
 
------
+*****
 
 ####  EFSF  
 ##### 939#       发表于 2020-7-20 09:23
@@ -12902,7 +12902,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  oskneo  
 ##### 940#       发表于 2020-7-22 11:57
@@ -12919,7 +12919,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  封印之矢  
 ##### 941#       发表于 2020-7-27 16:34
@@ -12930,7 +12930,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 现在全新港版的X5大概是什么价格比较合理
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 942#         楼主| 发表于 2020-7-27 17:40
@@ -12944,7 +12944,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 943#       发表于 2020-7-27 19:32
@@ -12961,7 +12961,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  zhongjie  
 ##### 944#       发表于 2020-7-27 22:47
@@ -12972,7 +12972,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 说不定x5m2能有100w快冲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  封印之矢  
 ##### 945#       发表于 2020-7-27 23:44
@@ -12987,7 +12987,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 年纪大了也不追求什么最新了，主要是现在手头的XZ1c实在是有点扛不住，经常开网易云听歌再开支付宝扫描共享单车都卡个半天。。然后内存也很小，又不能把APP转移到卡里面去。
 
 
------
+*****
 
 ####  封印之矢  
 ##### 946#       发表于 2020-7-27 23:45
@@ -13002,7 +13002,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 我看搜出一些价格再3600上下的商家，这是把耳机还是什么给换了降低价格的吧，其实最理想的是在闲鱼收一台。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 947#       发表于 2020-7-28 00:39
@@ -13017,7 +13017,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 948#       发表于 2020-7-28 00:43
@@ -13034,7 +13034,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  cleaner  
 ##### 949#       发表于 2020-7-28 00:49
@@ -13047,7 +13047,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 950#         楼主| 发表于 2020-7-28 00:58
@@ -13061,7 +13061,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  封印之矢  
 ##### 951#       发表于 2020-7-28 08:30
@@ -13073,7 +13073,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 这是严重影响使用了吧，我怀疑还有没有X5M2，而且从目前X1M2的上市速度来看，不想继续等了，而且新机上市价格肯定很高，也不想花超过4K去买一部手机。我看现在淘宝一些卖3500上下的店也不少，不过不大敢下手。
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 952#       发表于 2020-7-28 12:23
@@ -13085,7 +13085,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  月神侠  
 ##### 953#       发表于 2020-7-28 13:08
@@ -13094,7 +13094,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 据说要10月<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 954#       发表于 2020-7-28 15:04
@@ -13105,7 +13105,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 另，港版的google框架怎么才能关停，平时开着（gmail的刷新啥的都关了）有多耗电？谢谢。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 955#       发表于 2020-7-28 16:49
@@ -13117,7 +13117,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 日常真不影响，855一代神U，日常应用根本没压力，触发不了温度墙。但是我玩崩三那种优化不行画质压力又大的游戏，玩着玩着就撞着温度墙强制降频了。单纯日常使用我倒是没啥不便的，但是上班通勤总需要玩会儿游戏，就有点憋屈。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 956#       发表于 2020-7-28 16:52
@@ -13132,7 +13132,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 炼妖壶是有一些办法互通文件的，虽然互通的办法也挺麻烦，要ADB配合，确实用起来不大自然，步骤繁琐一点。
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 957#         楼主| 发表于 2020-7-28 17:40
@@ -13144,7 +13144,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 我用xz2的时候，就没弄明白怎么才能弄到跟小米的双开一样的体验，文件相互传就很费劲
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 958#         楼主| 发表于 2020-7-28 17:50
@@ -13153,7 +13153,7 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 索尼 Xperia 1 II 获系统更新：已支持 RAW 格式拍照
 
 
------
+*****
 
 ####  喷气式纸飞机  
 ##### 959#       发表于 2020-7-28 20:20
@@ -13165,7 +13165,7 @@ xz1换成x10m2几天感觉还行，弱鸡CPU+更大的电池+装的app不多，�
 ----发送自 [Sony XQ-AU52,Android 10](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  roydimus  
 ##### 960#       发表于 2020-7-29 19:57
@@ -13176,7 +13176,7 @@ xz1换成x10m2几天感觉还行，弱鸡CPU+更大的电池+装的app不多，�
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
------
+*****
 
 ####  封印之矢  
 ##### 961#       发表于 2020-7-29 23:44
@@ -13188,7 +13188,7 @@ xz1换成x10m2几天感觉还行，弱鸡CPU+更大的电池+装的app不多，�
 好吧，我看能不能蹲到一个合适的二手。
 
 
------
+*****
 
 ####  eureka9  
 ##### 962#       发表于 2020-7-31 06:53
@@ -13199,7 +13199,7 @@ xz1换成x10m2几天感觉还行，弱鸡CPU+更大的电池+装的app不多，�
 — from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
------
+*****
 
 ####  初蘅  
 ##### 963#       发表于 2020-7-31 12:47
@@ -13208,7 +13208,7 @@ xz1换成x10m2几天感觉还行，弱鸡CPU+更大的电池+装的app不多，�
 人在美帝，观望了很久还是买了，预订送WF1000XM3，豆子分开发货倒是收到了，手机说好的7.24发售反而迟迟不发货，今天收到通知还得再等一个月<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eureka9  
 ##### 964#       发表于 2020-7-31 13:01
@@ -13221,7 +13221,7 @@ xz1换成x10m2几天感觉还行，弱鸡CPU+更大的电池+装的app不多，�
 — from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
------
+*****
 
 ####  初蘅  
 ##### 965#       发表于 2020-7-31 13:04
@@ -13236,7 +13236,7 @@ xz1换成x10m2几天感觉还行，弱鸡CPU+更大的电池+装的app不多，�
 亚麻
 
 
------
+*****
 
 ####  leystage  
 ##### 966#       发表于 2020-7-31 13:13
@@ -13249,7 +13249,7 @@ dolby atmos 主要是增加环绕声效果，开不开看你个人偏好。
 creator mode 自动就行了，不见得说更讨喜，但在使用网飞等支持的应用时它能以接近导演意图的效果显示----主要还是个仪式感
 
 
------
+*****
 
 ####  eureka9  
 ##### 967#       发表于 2020-7-31 13:25
@@ -13264,7 +13264,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 — from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
------
+*****
 
 ####  oskneo  
 ##### 968#       发表于 2020-8-1 02:12
@@ -13273,7 +13273,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 偶订的那家店说又延到下周发货，每周都说下周发货。
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 969#       发表于 2020-8-1 05:14
@@ -13287,7 +13287,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 —— 来自 Sony E6653, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  bxcds  
 ##### 970#       发表于 2020-8-2 19:18
@@ -13298,7 +13298,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  Cray  
 ##### 971#       发表于 2020-8-2 20:17
@@ -13315,7 +13315,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 972#       发表于 2020-8-3 01:11
@@ -13327,7 +13327,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  李小淘  
 ##### 973#       发表于 2020-8-3 10:10
@@ -13335,7 +13335,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  leystage  
 ##### 974#       发表于 2020-8-3 10:39
@@ -13352,7 +13352,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 话说官网上最新的产品新闻标题甚至写着 BRAVIATM ，我寻思日本那边即使偷懒没有用专门的 TM 字符时也会记得打个括号，这是从基层员工到现场管理人员都不行的意思么
 
 
------
+*****
 
 ####  leystage  
 ##### 975#       发表于 2020-8-3 11:44
@@ -13361,7 +13361,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 系统更新支持了 Raw，Raw 模式下 自动 HDR 和 连拍不可用，单张照片大约 24M。切换的逻辑比较麻烦，要先手动关掉 HDR 才能选择，在想要打开连拍时也要先改设置
 
 
------
+*****
 
 ####  Cray  
 ##### 976#       发表于 2020-8-4 00:38
@@ -13376,7 +13376,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 是的
 
 
------
+*****
 
 ####  封印之矢  
 ##### 977#       发表于 2020-8-4 10:45
@@ -13391,7 +13391,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 存在5 2吗？感觉现在的消息来看是没有的样子啊
 
 
------
+*****
 
 ####  我很费纸  
 ##### 978#       发表于 2020-8-4 12:36
@@ -13404,7 +13404,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 979#       发表于 2020-8-4 12:37
@@ -13419,7 +13419,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  封印之矢  
 ##### 980#       发表于 2020-8-4 14:45
@@ -13434,7 +13434,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 出新的暂时也买不起，想着先买个X5算了。
 
 
------
+*****
 
 ####  lolozp  
 ##### 981#       发表于 2020-8-6 12:08
@@ -13453,7 +13453,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百度了一片，没发现几个相关的帖子。。来这个贴求助一下吧
 
 
------
+*****
 
 ####  eureka9  
 ##### 982#       发表于 2020-8-6 12:41
@@ -13464,7 +13464,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 — from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
 
 
------
+*****
 
 ####  bxcds  
 ##### 983#       发表于 2020-8-6 20:03
@@ -13477,7 +13477,7 @@ AT51和AT52有差别么
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 984#       发表于 2020-8-7 01:02
@@ -13490,7 +13490,7 @@ AT51和AT52有差别么
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  鹰富士茄子  
 ##### 985#       发表于 2020-8-7 05:34
@@ -13499,7 +13499,7 @@ AT51和AT52有差别么
 别家都换代了，索尼竟然还没有国行版。
 
 
------
+*****
 
 ####  leystage  
 ##### 986#       发表于 2020-8-7 15:20
@@ -13508,7 +13508,7 @@ AT51和AT52有差别么
 国行据说12G内存？？？
 
 
------
+*****
 
 ####  leyenda  
 ##### 987#       发表于 2020-8-8 10:41
@@ -13524,7 +13524,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 水货能打骨折吗<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> ​​​​
 
 
------
+*****
 
 ####  defer  
 ##### 988#       发表于 2020-8-8 10:47
@@ -13533,7 +13533,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 太好了，单卡Google用户等一个港版值崩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 989#       发表于 2020-8-8 14:48
@@ -13544,7 +13544,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  mhss  
 ##### 990#       发表于 2020-8-8 18:36
@@ -13553,7 +13553,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 港版值崩不是更好（本来就算跳水小王子了），看是对高性能新手机降价需求大，还是对所谓的5G需求大咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deenyao  
 ##### 991#       发表于 2020-8-8 19:29
@@ -13562,7 +13562,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 我愿意放弃5G换个...半价交朋友?
 
 
------
+*****
 
 ####  hoyice  
 ##### 992#       发表于 2020-8-8 20:45
@@ -13571,7 +13571,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">能像港行半斤那时一样交朋友吗？
 
 
------
+*****
 
 ####  我很费纸  
 ##### 993#       发表于 2020-8-9 01:16
@@ -13584,7 +13584,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  アーチェ  
 ##### 994#       发表于 2020-8-9 13:03
@@ -13596,7 +13596,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 ----发送自 [HUAWEI PCT-AL10,Android 10](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  8400gs  
 ##### 995#       发表于 2020-8-9 13:35
@@ -13605,7 +13605,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 只要跳水幅度够大，5G没有我完全无所谓啊……
 
 
------
+*****
 
 ####  oskneo  
 ##### 996#       发表于 2020-8-9 14:39
@@ -13616,7 +13616,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 997#       发表于 2020-8-9 17:25
@@ -13628,7 +13628,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  暗铁  
 ##### 998#       发表于 2020-8-9 17:43
@@ -13639,7 +13639,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 —— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Frimp  
 ##### 999#       发表于 2020-8-9 19:27
@@ -13648,7 +13648,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 港版不是能用电信和联通的5g吗
 
 
------
+*****
 
 ####  Cray  
 ##### 1000#       发表于 2020-8-9 19:57
@@ -13666,7 +13666,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  christianlzl  
 ##### 1001#       发表于 2020-8-9 23:24
@@ -13677,7 +13677,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 1002#       发表于 2020-8-9 23:48
@@ -13692,7 +13692,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1003#       发表于 2020-8-10 00:03
@@ -13707,7 +13707,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  christianlzl  
 ##### 1004#       发表于 2020-8-10 02:05
@@ -13722,7 +13722,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  zatsuza  
 ##### 1005#       发表于 2020-8-13 12:19
@@ -13735,7 +13735,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1006#       发表于 2020-8-13 13:16
@@ -13750,7 +13750,7 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1007#       发表于 2020-8-13 13:47
@@ -13761,7 +13761,7 @@ x1换mk2肯定很蠢吧
 下次一定.jpg
 
 
------
+*****
 
 ####  zatsuza  
 ##### 1008#       发表于 2020-8-13 14:06
@@ -13793,7 +13793,7 @@ x1换mk2肯定很蠢吧
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  leystage  
 ##### 1009#       发表于 2020-8-13 16:41
@@ -13811,7 +13811,7 @@ x1换mk2肯定很蠢吧
 如果不怎么拍照，那也许不用升级
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1010#         楼主| 发表于 2020-8-13 16:50
@@ -13823,7 +13823,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  zatsuza  
 ##### 1011#       发表于 2020-8-13 17:39
@@ -13836,7 +13836,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 —— 来自 Realme RMX1901, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1012#       发表于 2020-8-14 01:03
@@ -13854,7 +13854,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  zatsuza  
 ##### 1013#       发表于 2020-8-14 10:05
@@ -13868,7 +13868,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  zatsuza  
 ##### 1014#       发表于 2020-8-14 10:14
@@ -13879,7 +13879,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1015#       发表于 2020-8-14 15:11
@@ -13888,7 +13888,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 所以标题里的X5M2在哪呢？
 
 
------
+*****
 
 ####  oskneo  
 ##### 1016#       发表于 2020-8-14 15:12
@@ -13900,7 +13900,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1017#         楼主| 发表于 2020-8-14 15:19
@@ -13912,7 +13912,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  oskneo  
 ##### 1018#       发表于 2020-8-14 16:37
@@ -13923,7 +13923,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  oskneo  
 ##### 1019#       发表于 2020-8-15 00:31
@@ -13942,7 +13942,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 有应用不支持这分辨率，怎么破
 
 
------
+*****
 
 ####  oskneo  
 ##### 1020#       发表于 2020-8-15 00:36
@@ -13953,7 +13953,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1021#       发表于 2020-8-15 10:17
@@ -13971,7 +13971,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  yygundam  
 ##### 1022#       发表于 2020-8-15 17:58
@@ -13989,7 +13989,7 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 总的来说原生安卓这手势真是一团糟。
 
 
------
+*****
 
 ####  roydimus  
 ##### 1023#       发表于 2020-8-15 21:14
@@ -14018,7 +14018,7 @@ TIM截图20200815211801.png
 <img src="https://img.saraba1st.com/forum/202008/15/211816d6cez2idiaxng34t.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1024#       发表于 2020-8-15 22:28
@@ -14031,7 +14031,7 @@ TIM截图20200815211801.png
 裸奔就不要直接放桌上了，我都是拿东西垫着的
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1025#       发表于 2020-8-15 23:15
@@ -14044,7 +14044,7 @@ TIM截图20200815211801.png
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  oskneo  
 ##### 1026#       发表于 2020-8-16 13:59
@@ -14062,7 +14062,7 @@ TIM截图20200815211801.png
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1027#       发表于 2020-8-16 14:28
@@ -14082,7 +14082,7 @@ TIM截图20200815211801.png
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1028#       发表于 2020-8-16 14:34
@@ -14093,7 +14093,7 @@ TIM截图20200815211801.png
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1029#         楼主| 发表于 2020-8-16 14:44
@@ -14105,7 +14105,7 @@ TIM截图20200815211801.png
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1030#       发表于 2020-8-16 15:48
@@ -14120,7 +14120,7 @@ TIM截图20200815211801.png
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  fishmanzero  
 ##### 1031#       发表于 2020-8-16 18:17
@@ -14135,7 +14135,7 @@ TIM截图20200815211801.png
 —— 来自 粗粮 K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1032#         楼主| 发表于 2020-8-16 18:21
@@ -14147,7 +14147,7 @@ TIM截图20200815211801.png
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1033#       发表于 2020-8-16 18:28
@@ -14164,7 +14164,7 @@ PS：为啥鹅球最新版又发不了图了。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  roydimus  
 ##### 1034#       发表于 2020-8-17 08:50
@@ -14177,7 +14177,7 @@ PS：为啥鹅球最新版又发不了图了。
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.3.0
 
 
------
+*****
 
 ####  Cray  
 ##### 1035#       发表于 2020-8-17 09:46
@@ -14199,7 +14199,7 @@ http://weibo.com/3127526680/JgbZErHOa打起来打起来了所以X1M2......</bloc
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  FML  
 ##### 1036#       发表于 2020-8-17 10:19
@@ -14218,7 +14218,7 @@ http://weibo.com/3127526680/JgbZErHOa打起来打起来了所以X1M2......</bloc
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  leystage  
 ##### 1037#       发表于 2020-8-17 12:12
@@ -14243,7 +14243,7 @@ http://weibo.com/3127526680/JgbZErHOa
 搞得跟粉丝圈子吵架一样，太闲了…
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1038#       发表于 2020-8-17 12:57
@@ -14263,7 +14263,7 @@ http://weibo.com/3127526680/JgbZErHOa
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1039#       发表于 2020-8-17 13:45
@@ -14276,7 +14276,7 @@ http://weibo.com/3127526680/JgbZErHOa
 只有直播间可以添加到桌面，视频和专栏好像不行
 
 
------
+*****
 
 ####  FML  
 ##### 1040#       发表于 2020-8-17 14:42
@@ -14296,7 +14296,7 @@ http://weibo.com/3127526680/JgbZErHOa
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  leystage  
 ##### 1041#       发表于 2020-8-17 15:00
@@ -14315,7 +14315,7 @@ http://weibo.com/3127526680/JgbZErHOa
 默认主屏程序还是不够健壮
 
 
------
+*****
 
 ####  Cray  
 ##### 1042#       发表于 2020-8-17 16:55
@@ -14335,7 +14335,7 @@ http://weibo.com/3127526680/JgbZErHOa
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后用默认程序按快门不选焦点拍远景然后说糊
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1043#       发表于 2020-8-18 00:04
@@ -14344,7 +14344,7 @@ http://weibo.com/3127526680/JgbZErHOa
 听说mk2掉漆挺严重的，有说法吗
 
 
------
+*****
 
 ####  Airwolf  
 ##### 1044#       发表于 2020-8-18 00:14
@@ -14357,7 +14357,7 @@ http://weibo.com/3127526680/JgbZErHOa
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  Airwolf  
 ##### 1045#       发表于 2020-8-18 00:15
@@ -14368,7 +14368,7 @@ http://weibo.com/3127526680/JgbZErHOa
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  Cray  
 ##### 1046#       发表于 2020-8-18 00:32
@@ -14383,7 +14383,7 @@ http://weibo.com/3127526680/JgbZErHOa
 内部脱离目前看到的不多 都保修了。
 
 
------
+*****
 
 ####  roydimus  
 ##### 1047#       发表于 2020-8-18 01:44
@@ -14392,7 +14392,7 @@ http://weibo.com/3127526680/JgbZErHOa
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">迷的是xzp的镜面背板裸奔完全没问题，结果这次镜紫给整了个活
 
 
------
+*****
 
 ####  利物浦  
 ##### 1048#       发表于 2020-8-18 11:48
@@ -14401,7 +14401,7 @@ http://weibo.com/3127526680/JgbZErHOa
 X5M2的渲染图有点像z3c啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  leystage  
 ##### 1049#       发表于 2020-8-18 11:59
@@ -14414,7 +14414,7 @@ X5M2的渲染图有点像z3c啊</blockquote>
 把 Z 系的设计拿回来改改再来一次
 
 
------
+*****
 
 ####  leystage  
 ##### 1050#       发表于 2020-8-18 14:20
@@ -14423,7 +14423,7 @@ X5M2的渲染图有点像z3c啊</blockquote>
 索尼日本推出无锁版 X1M2，12G内存256G存储。国行看来是12G了
 
 
------
+*****
 
 ####  bxcds  
 ##### 1051#       发表于 2020-8-18 15:17
@@ -14436,7 +14436,7 @@ X5M2的渲染图有点像z3c啊</blockquote>
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1052#       发表于 2020-8-18 15:44
@@ -14449,7 +14449,7 @@ X5M2的渲染图有点像z3c啊</blockquote>
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  Cray  
 ##### 1053#       发表于 2020-8-18 16:09
@@ -14464,7 +14464,7 @@ X5M2的渲染图有点像z3c啊</blockquote>
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  暗铁  
 ##### 1054#       发表于 2020-8-18 17:12
@@ -14476,7 +14476,7 @@ X5M2的渲染图有点像z3c啊</blockquote>
 —— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  淡定君  
 ##### 1055#       发表于 2020-8-18 18:28
@@ -14491,7 +14491,7 @@ X5M2的渲染图有点像z3c啊</blockquote>
 当然也是看到相机部门今年发力，想看看下代，小问题也希望下代能改进。
 
 
------
+*****
 
 ####  leystage  
 ##### 1056#       发表于 2020-8-18 18:56
@@ -14507,7 +14507,7 @@ X5M2的渲染图有点像z3c啊</blockquote>
 别的嘛… 明年会更好…
 
 
------
+*****
 
 ####  Cray  
 ##### 1057#       发表于 2020-8-18 21:12
@@ -14519,7 +14519,7 @@ X5M2的渲染图有点像z3c啊</blockquote>
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  zhongjie  
 ##### 1058#       发表于 2020-8-18 21:33
@@ -14528,7 +14528,7 @@ X5M2的渲染图有点像z3c啊</blockquote>
 x1m2也太晚了吧，等m3了
 
 
------
+*****
 
 ####  roydimus  
 ##### 1059#       发表于 2020-8-18 21:42
@@ -14552,7 +14552,7 @@ TIM截图20200818214020.png
 <img src="https://img.saraba1st.com/forum/202008/18/214109xe2segf2hfvvwfae.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gulant  
 ##### 1060#       发表于 2020-8-18 21:52
@@ -14570,7 +14570,7 @@ TIM截图20200818214020.png
 脑子被门夹了？
 
 
------
+*****
 
 ####  淡定君  
 ##### 1061#       发表于 2020-8-18 21:57
@@ -14587,7 +14587,7 @@ TIM截图20200818214020.png
 打字后退场景震动相比以前改善否不？
 
 
------
+*****
 
 ####  Cray  
 ##### 1062#       发表于 2020-8-19 03:33
@@ -14596,7 +14596,7 @@ TIM截图20200818214020.png
 5马克兔就是z3/x经典复刻吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1063#       发表于 2020-8-20 14:19
@@ -14605,7 +14605,7 @@ TIM截图20200818214020.png
 为什么我看5M2侧边还是3颗按键？保留了指纹电源分开设计？
 
 
------
+*****
 
 ####  鹰富士茄子  
 ##### 1064#       发表于 2020-8-20 14:36
@@ -14614,7 +14614,7 @@ TIM截图20200818214020.png
 国行是不是到时候和5一块发布了
 
 
------
+*****
 
 ####  runningch  
 ##### 1065#       发表于 2020-8-20 18:13
@@ -14623,7 +14623,7 @@ TIM截图20200818214020.png
 12g版本可以刷港版系统吗？全家桶是刚需。
 
 
------
+*****
 
 ####  wyjbnb  
 ##### 1066#       发表于 2020-8-20 18:34
@@ -14632,7 +14632,7 @@ TIM截图20200818214020.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">没找到x5m2的图，能给个地址看看吗？
 
 
------
+*****
 
 ####  Cray  
 ##### 1067#       发表于 2020-8-20 19:17
@@ -14647,7 +14647,7 @@ TIM截图20200818214020.png
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  leyenda  
 ##### 1068#       发表于 2020-8-20 19:59
@@ -14656,7 +14656,7 @@ TIM截图20200818214020.png
 离得这么远肯定不是电源，难道是相机部门做一个单独的拍照app还不够，连快门都要分开吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黄耀明  
 ##### 1069#       发表于 2020-8-20 20:58
@@ -14670,7 +14670,7 @@ TIM截图20200818214020.png
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  leystage  
 ##### 1070#       发表于 2020-8-20 21:46
@@ -14681,7 +14681,7 @@ TIM截图20200818214020.png
 按相机来考虑，不是录像就是回放，哈哈
 
 
------
+*****
 
 ####  runningch  
 ##### 1071#       发表于 2020-8-20 21:52
@@ -14692,7 +14692,7 @@ TIM截图20200818214020.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">9月中旬，国行能开卖吗？
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1072#       发表于 2020-8-21 00:45
@@ -14704,7 +14704,7 @@ TIM截图20200818214020.png
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1073#       发表于 2020-8-21 01:09
@@ -14715,7 +14715,7 @@ TIM截图20200818214020.png
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  Cray  
 ##### 1074#       发表于 2020-8-21 02:46
@@ -14724,7 +14724,7 @@ TIM截图20200818214020.png
 Audio Pro ！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shionking32  
 ##### 1075#       发表于 2020-8-23 21:45
@@ -14733,7 +14733,7 @@ Audio Pro ！<img src="https://static.saraba1st.com/image/smiley/face2017/067.pn
 坐等5M2和国行系统信息，看看是不是让我彻底死心解毒。
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1076#       发表于 2020-8-24 00:57
@@ -14745,7 +14745,7 @@ Audio Pro ！<img src="https://static.saraba1st.com/image/smiley/face2017/067.pn
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  烁影  
 ##### 1077#       发表于 2020-8-25 13:17
@@ -14762,7 +14762,7 @@ Audio Pro ！<img src="https://static.saraba1st.com/image/smiley/face2017/067.pn
 [https://www.cnbeta.com/articles/tech/1018241.htm](https://www.cnbeta.com/articles/tech/1018241.htm)
 
 
------
+*****
 
 ####  kila31  
 ##### 1078#       发表于 2020-8-27 00:20
@@ -14784,7 +14784,7 @@ gsmarena_001.jpg
 <img src="https://img.saraba1st.com/forum/202008/27/001959jkb6sm6mk24ip46s.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  biscuit_guo  
 ##### 1079#       发表于 2020-8-27 01:53
@@ -14795,7 +14795,7 @@ gsmarena_001.jpg
 但看这渲染感觉中框还是圆滑的那种，难顶。
 
 
------
+*****
 
 ####  supersnake0410  
 ##### 1080#       发表于 2020-8-27 06:21
@@ -14804,7 +14804,7 @@ gsmarena_001.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说点个人意见，这外观还是算了吧。
 
 
------
+*****
 
 ####  kila31  
 ##### 1081#       发表于 2020-8-27 08:33
@@ -14815,7 +14815,7 @@ gsmarena_001.jpg
 — from Google Pixel 4, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1082#       发表于 2020-8-27 16:37
@@ -14828,7 +14828,7 @@ gsmarena_001.jpg
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  MixRadio  
 ##### 1083#       发表于 2020-8-27 16:48
@@ -14837,7 +14837,7 @@ gsmarena_001.jpg
 那个按钮盲猜是GoogleAssistant<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1084#       发表于 2020-8-27 21:59
@@ -14852,7 +14852,7 @@ gsmarena_001.jpg
 磁吸啊
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1085#       发表于 2020-8-28 01:32
@@ -14865,7 +14865,7 @@ gsmarena_001.jpg
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  Cray  
 ##### 1086#       发表于 2020-8-28 04:46
@@ -14884,7 +14884,7 @@ gsmarena_001.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">电池4000  大小没变
 
 
------
+*****
 
 ####  初蘅  
 ##### 1087#       发表于 2020-8-28 05:10
@@ -14895,7 +14895,7 @@ gsmarena_001.jpg
 — from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.1
 
 
------
+*****
 
 ####  藤原亮政  
 ##### 1088#       发表于 2020-8-28 05:30
@@ -14912,7 +14912,7 @@ gsmarena_001.jpg
 51單卡
 
 
------
+*****
 
 ####  biscuit_guo  
 ##### 1089#       发表于 2020-8-28 08:55
@@ -14923,7 +14923,7 @@ gsmarena_001.jpg
 —— 来自 samsung SM-G9810, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1090#       发表于 2020-8-28 08:55
@@ -14932,7 +14932,7 @@ gsmarena_001.jpg
 紫色mk2现在好便宜<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1091#       发表于 2020-8-28 08:58
@@ -14949,7 +14949,7 @@ via：http://t.cn/A64ZjkdX
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1092#       发表于 2020-8-28 09:02
@@ -14962,7 +14962,7 @@ via：http://t.cn/A64ZjkdX
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  Lisylfn  
 ##### 1093#       发表于 2020-8-28 09:08
@@ -14980,7 +14980,7 @@ Android Headlines 拿到了独家信息，曝光了索尼即将发布的疑似 X
 除了相机缩了, 屏幕电池都是升级? 还有这种好事?
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1094#       发表于 2020-8-28 09:10
@@ -14991,7 +14991,7 @@ Android Headlines 拿到了独家信息，曝光了索尼即将发布的疑似 X
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  gofbayrf  
 ##### 1095#       发表于 2020-8-28 09:17
@@ -15000,7 +15000,7 @@ Android Headlines 拿到了独家信息，曝光了索尼即将发布的疑似 X
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">1 8K 這個7K吧...
 
 
------
+*****
 
 ####  leystage  
 ##### 1096#       发表于 2020-8-28 09:18
@@ -15009,7 +15009,7 @@ Android Headlines 拿到了独家信息，曝光了索尼即将发布的疑似 X
 我觉得是默认回放键，也就是打开相册。 不过砍掉了 iTof 是在想什么
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 1097#       发表于 2020-8-28 09:56
@@ -15018,7 +15018,7 @@ Android Headlines 拿到了独家信息，曝光了索尼即将发布的疑似 X
 iTof仅暗光对焦有用么？具体的效果有多大啊？
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1098#       发表于 2020-8-28 10:20
@@ -15035,7 +15035,7 @@ iTof仅暗光对焦有用么？具体的效果有多大啊？
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1099#       发表于 2020-8-28 10:22
@@ -15048,7 +15048,7 @@ iTof仅暗光对焦有用么？具体的效果有多大啊？
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  KosHaruhi  
 ##### 1100#       发表于 2020-8-28 11:20
@@ -15057,7 +15057,7 @@ iTof仅暗光对焦有用么？具体的效果有多大啊？
 128？256的1m2蛮香的，再见
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1101#       发表于 2020-8-28 12:05
@@ -15068,7 +15068,7 @@ iTof仅暗光对焦有用么？具体的效果有多大啊？
 —— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  oskneo  
 ##### 1102#       发表于 2020-8-28 12:34
@@ -15081,7 +15081,7 @@ iTof仅暗光对焦有用么？具体的效果有多大啊？
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  eureka9  
 ##### 1103#       发表于 2020-8-28 13:44
@@ -15092,7 +15092,7 @@ iTof仅暗光对焦有用么？具体的效果有多大啊？
 — from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.1
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1104#       发表于 2020-8-28 16:48
@@ -15104,7 +15104,7 @@ iTof仅暗光对焦有用么？具体的效果有多大啊？
 因为无法连接到google 服务，所以会显示没有网络。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1105#       发表于 2020-8-28 17:41
@@ -15117,7 +15117,7 @@ iTof仅暗光对焦有用么？具体的效果有多大啊？
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1106#       发表于 2020-8-28 17:43
@@ -15136,7 +15136,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  Cray  
 ##### 1107#       发表于 2020-8-28 20:37
@@ -15152,7 +15152,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1108#       发表于 2020-8-28 21:14
@@ -15161,7 +15161,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 我就问一下，如果买了5M2依旧保持用4G套餐的话，是不是会比用5G省电一些？
 
 
------
+*****
 
 ####  Cray  
 ##### 1109#       发表于 2020-8-28 21:18
@@ -15181,7 +15181,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1110#       发表于 2020-8-28 21:25
@@ -15197,7 +15197,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 有这个答案我就能安心买了
 
 
------
+*****
 
 ####  Cray  
 ##### 1111#       发表于 2020-8-31 08:54
@@ -15206,7 +15206,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">开启HS模式后  居然要加个4k+120hz？？？？
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1112#       发表于 2020-9-3 16:48
@@ -15215,7 +15215,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 好久没有一台手机像5M2这样让我等得抓耳挠腮的了
 
 
------
+*****
 
 ####  Cray  
 ##### 1113#       发表于 2020-9-5 02:32
@@ -15236,7 +15236,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 某些东西1m2会软件升级。
 
 
------
+*****
 
 ####  oskneo  
 ##### 1114#       发表于 2020-9-5 10:06
@@ -15252,7 +15252,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  linjia  
 ##### 1115#       发表于 2020-9-5 11:11
@@ -15267,7 +15267,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 [https://tv.sohu.com/v/dXMvODIyMjQwNTMvMjEzMjg3MzkxLnNodG1s.html](https://tv.sohu.com/v/dXMvODIyMjQwNTMvMjEzMjg3MzkxLnNodG1s.html)
 
 
------
+*****
 
 ####  9-11-2001  
 ##### 1116#       发表于 2020-9-5 11:24
@@ -15276,7 +15276,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 有点动心啊
 
 
------
+*****
 
 ####  aiooia  
 ##### 1117#       发表于 2020-9-5 12:16
@@ -15295,7 +15295,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 （顺带说5g这个真的有用么？周围朋友买的新手机都是5G从来都不开）
 
 
------
+*****
 
 ####  iceprince10  
 ##### 1118#       发表于 2020-9-5 12:25
@@ -15310,7 +15310,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 国行啥时候出
 
 
------
+*****
 
 ####  aiooia  
 ##### 1119#       发表于 2020-9-5 12:38
@@ -15322,7 +15322,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 据传是国庆后
 
 
------
+*****
 
 ####  iceprince10  
 ##### 1120#       发表于 2020-9-5 12:42
@@ -15333,7 +15333,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 这也太晚了
 
 
------
+*****
 
 ####  leystage  
 ##### 1121#       发表于 2020-9-5 12:54
@@ -15355,7 +15355,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 如果你不在意续航，也不在意话费，又不满意4G的网速，5G是更好的
 
 
------
+*****
 
 ####  leystage  
 ##### 1122#       发表于 2020-9-5 12:55
@@ -15370,7 +15370,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 感觉今年的5不再是纯粹小屏版了啊… 自己更喜欢1m2的外形和大屏，但在想要不要给家里升级一下 XD
 
 
------
+*****
 
 ####  leystage  
 ##### 1123#       发表于 2020-9-5 12:57
@@ -15404,7 +15404,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 查看全部评分
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1124#         楼主| 发表于 2020-9-5 12:58
@@ -15420,7 +15420,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  leystage  
 ##### 1125#       发表于 2020-9-5 13:27
@@ -15434,7 +15434,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 咦好吧。我经常看到网友说5G套餐贵其实是搞错了吗…
 
 
------
+*****
 
 ####  sangw  
 ##### 1126#       发表于 2020-9-5 13:42
@@ -15452,7 +15452,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 —— 来自 HTC U11, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  sangw  
 ##### 1127#       发表于 2020-9-5 13:45
@@ -15471,7 +15471,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 —— 来自 HTC U11, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1128#       发表于 2020-9-5 15:04
@@ -15480,7 +15480,7 @@ X1和X1M2屏幕一样，不还是不能开启伪90Hz——这是纯软件功能�
 5M2 爱了爱了，国行快来吧！
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1129#       发表于 2020-9-5 15:59
@@ -15493,7 +15493,7 @@ X5M2这真的是索移的机器？？？
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  利物浦  
 ##### 1130#       发表于 2020-9-5 16:08
@@ -15502,7 +15502,7 @@ X5M2这真的是索移的机器？？？
 除了999刀的价格外，都好香啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  leystage  
 ##### 1131#       发表于 2020-9-5 16:57
@@ -15513,7 +15513,7 @@ X5M2这真的是索移的机器？？？
 1200刀的1m2港行不到7千，1000刀的5m2大概可以5千多？
 
 
------
+*****
 
 ####  auraria  
 ##### 1132#       发表于 2020-9-5 22:39
@@ -15526,7 +15526,7 @@ X5M2这真的是索移的机器？？？
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  leystage  
 ##### 1133#       发表于 2020-9-6 08:15
@@ -15540,7 +15540,7 @@ X5M2这真的是索移的机器？？？
 我现在就用的联通冰激凌套餐，虽然几年没管了，但记得也是超过一定流量限速的吧。5G套餐难道是到流量了直接停用…？
 
 
------
+*****
 
 ####  deenyao  
 ##### 1134#       发表于 2020-9-6 09:29
@@ -15552,7 +15552,7 @@ X5M2这真的是索移的机器？？？
 怕是超过一定流量直接发一条开始额外收钱的短信
 
 
------
+*****
 
 ####  mickoo  
 ##### 1135#       发表于 2020-9-6 09:31
@@ -15561,7 +15561,7 @@ X5M2这真的是索移的机器？？？
 1080P+120hz?给我个2K也好啊
 
 
------
+*****
 
 ####  iceprince10  
 ##### 1136#       发表于 2020-9-6 12:51
@@ -15570,7 +15570,7 @@ X5M2这真的是索移的机器？？？
 120hz真的感知不强啊
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1137#       发表于 2020-9-6 13:33
@@ -15585,7 +15585,7 @@ X5M2这真的是索移的机器？？？
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1138#         楼主| 发表于 2020-9-6 13:38
@@ -15597,7 +15597,7 @@ X5M2这真的是索移的机器？？？
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  leystage  
 ##### 1139#       发表于 2020-9-6 18:13
@@ -15611,7 +15611,7 @@ X5M2这真的是索移的机器？？？
 原来如此…多谢
 
 
------
+*****
 
 ####  Cray  
 ##### 1140#       发表于 2020-9-6 18:18
@@ -15623,7 +15623,7 @@ X5M2这真的是索移的机器？？？
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1141#         楼主| 发表于 2020-9-6 18:39
@@ -15638,7 +15638,7 @@ X5M2这真的是索移的机器？？？
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1142#       发表于 2020-9-7 00:36
@@ -15655,7 +15655,7 @@ X5M2这真的是索移的机器？？？
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  艾尔特翔  
 ##### 1143#       发表于 2020-9-7 09:46
@@ -15664,7 +15664,7 @@ X5M2这真的是索移的机器？？？
 请问国航的机器能装谷歌三件套吗，一直再用港行的，但是信号波段不全，想换国行的，但是本身一直在用谷歌，不知道国行能不能装
 
 
------
+*****
 
 ####  scstriker  
 ##### 1144#       发表于 2020-9-7 10:04
@@ -15673,7 +15673,7 @@ X5M2这真的是索移的机器？？？
 那个侧边多加的按钮是干啥用的
 
 
------
+*****
 
 ####  Lisylfn  
 ##### 1145#       发表于 2020-9-7 10:19
@@ -15685,7 +15685,7 @@ X5M2这真的是索移的机器？？？
 自带应用商店搜索谷歌就可以了, 应该不会阉割
 
 
------
+*****
 
 ####  淡定君  
 ##### 1146#       发表于 2020-9-7 10:43
@@ -15700,7 +15700,7 @@ X5M2这真的是索移的机器？？？
 24期免息吗
 
 
------
+*****
 
 ####  艾尔特翔  
 ##### 1147#       发表于 2020-9-7 10:48
@@ -15712,7 +15712,7 @@ X5M2这真的是索移的机器？？？
 感谢
 
 
------
+*****
 
 ####  linjia  
 ##### 1148#       发表于 2020-9-7 11:12
@@ -15724,7 +15724,7 @@ X5M2这真的是索移的机器？？？
 6800，我还是买iphone 12吧
 
 
------
+*****
 
 ####  oskneo  
 ##### 1149#       发表于 2020-9-7 12:25
@@ -15739,7 +15739,7 @@ X5M2这真的是索移的机器？？？
 还以为120hz是用来刷网页的
 
 
------
+*****
 
 ####  leystage  
 ##### 1150#       发表于 2020-9-7 12:26
@@ -15750,7 +15750,7 @@ X5M2这真的是索移的机器？？？
 去年的 1 是只要登录 Google 账号，重启，就变成了类似国际版的系统了，谷歌什么全都有
 
 
------
+*****
 
 ####  leystage  
 ##### 1151#       发表于 2020-9-7 12:27
@@ -15763,7 +15763,7 @@ X5M2这真的是索移的机器？？？
 我估计5500-6000
 
 
------
+*****
 
 ####  leystage  
 ##### 1152#       发表于 2020-9-7 12:28
@@ -15780,7 +15780,7 @@ X5M2这真的是索移的机器？？？
 好吧我对蜂窝的需求很少，还是续航要紧
 
 
------
+*****
 
 ####  oskneo  
 ##### 1153#       发表于 2020-9-7 12:28
@@ -15792,7 +15792,7 @@ X5M2这真的是索移的机器？？？
 可能也送个xm3
 
 
------
+*****
 
 ####  艾尔特翔  
 ##### 1154#       发表于 2020-9-7 13:27
@@ -15804,7 +15804,7 @@ X5M2这真的是索移的机器？？？
 这是要翻一次墙吗
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1155#       发表于 2020-9-7 14:24
@@ -15817,7 +15817,7 @@ X5M2这真的是索移的机器？？？
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1156#       发表于 2020-9-7 14:25
@@ -15832,7 +15832,7 @@ X5M2这真的是索移的机器？？？
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  linjia  
 ##### 1157#       发表于 2020-9-7 19:08
@@ -15846,7 +15846,7 @@ X5M2这真的是索移的机器？？？
 那还能接受，要不和s20差距2000人民币，买s20岂不美滋滋
 
 
------
+*****
 
 ####  月神侠  
 ##### 1158#       发表于 2020-9-7 21:09
@@ -15858,7 +15858,7 @@ X5M2这真的是索移的机器？？？
 自定义功能键
 
 
------
+*****
 
 ####  oskneo  
 ##### 1159#       发表于 2020-9-8 04:48
@@ -15873,7 +15873,7 @@ pc刷网页，除非你是触摸屏，否则没跟手问题。
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1160#       发表于 2020-9-8 06:53
@@ -15889,7 +15889,7 @@ pc刷网页，除非你是触摸屏，否则没跟手问题。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1161#         楼主| 发表于 2020-9-8 22:56
@@ -15898,7 +15898,7 @@ pc刷网页，除非你是触摸屏，否则没跟手问题。
 FCC 文件确认：索尼 Xperia 5 II 将配备熟悉的 18W 充电器
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1162#       发表于 2020-9-12 22:37
@@ -15907,7 +15907,7 @@ FCC 文件确认：索尼 Xperia 5 II 将配备熟悉的 18W 充电器
 张大妈上有人说“紫色用了两周后盖玻璃掉漆”……虽然我不太明白玻璃掉漆是怎么回事，还是请教一下，白色、紫色和黑色（包括新出的磨砂黑），哪一个不那么容易掉漆？
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1163#         楼主| 发表于 2020-9-12 23:00
@@ -15922,7 +15922,7 @@ FCC 文件确认：索尼 Xperia 5 II 将配备熟悉的 18W 充电器
 这个链接不知道能不能直接跳转到那楼去
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1164#       发表于 2020-9-13 16:14
@@ -15936,7 +15936,7 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pti ..
 谢谢
 
 
------
+*****
 
 ####  oskneo  
 ##### 1165#       发表于 2020-9-13 18:03
@@ -15949,7 +15949,7 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pti ..
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1166#       发表于 2020-9-13 19:29
@@ -15967,7 +15967,7 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pti ..
 另外现在手持的XZP使用3年多一点退休的迹象都没有，唯一的问题就是两侧边框的银漆掉的非常厉害，似乎是和手机保护套摩擦导致的（经常在脱壳清理手机的时候看到壳子里很多掉落的漆块），XZP的边框是塑料涂银漆，那顺便问一下马克兔边框的材质和XZP的是一样的吗？
 
 
------
+*****
 
 ####  oskneo  
 ##### 1167#       发表于 2020-9-14 01:47
@@ -15978,7 +15978,7 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pti ..
 偶xzp是透明软胶套，在弃疗裸奔前没发觉有掉漆。
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1168#         楼主| 发表于 2020-9-14 14:15
@@ -15994,7 +15994,7 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pti ..
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  东云静马  
 ##### 1169#       发表于 2020-9-14 14:33
@@ -16003,7 +16003,7 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pti ..
 卧槽，好像有点好看
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1170#       发表于 2020-9-14 16:30
@@ -16018,7 +16018,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  roydimus  
 ##### 1171#       发表于 2020-9-14 17:31
@@ -16035,7 +16035,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 黑色xzp边框一样掉漆，背板没问题，谁知道x1m2能给换过来（
 
 
------
+*****
 
 ####  cleaner  
 ##### 1172#       发表于 2020-9-14 19:04
@@ -16046,7 +16046,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  Cray  
 ##### 1173#       发表于 2020-9-14 19:15
@@ -16061,7 +16061,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1174#       发表于 2020-9-15 00:09
@@ -16071,7 +16071,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 然后刚才一次贴废了 所以国行mk2赶紧出啊
 
 
------
+*****
 
 ####  Tochika  
 ##### 1175#       发表于 2020-9-15 00:14
@@ -16085,7 +16085,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 我也是膜刮花了想想要换马克兔了结果还是没来，于是上个月29买又了2张<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1176#       发表于 2020-9-15 01:04
@@ -16097,7 +16097,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  leystage  
 ##### 1177#       发表于 2020-9-15 01:41
@@ -16115,7 +16115,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 明天的是 A7c 吧，小型化 Alpha
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1178#       发表于 2020-9-15 07:42
@@ -16131,7 +16131,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1179#       发表于 2020-9-15 10:39
@@ -16143,7 +16143,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1180#       发表于 2020-9-15 11:11
@@ -16154,7 +16154,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1181#       发表于 2020-9-15 14:50
@@ -16169,7 +16169,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 17号似乎是5 II发布，不是“国行 马克吐和5 II”发布…………
 
 
------
+*****
 
 ####  利物浦  
 ##### 1182#       发表于 2020-9-15 14:57
@@ -16182,7 +16182,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 鹅，原来国行连1m2也还没发布啊。。今天正好要路过淮海路，还想去看看呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1183#         楼主| 发表于 2020-9-16 00:39
@@ -16202,7 +16202,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 2020-9-16 00:39 上传
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1184#       发表于 2020-9-16 01:00
@@ -16217,7 +16217,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  linjia  
 ##### 1185#       发表于 2020-9-16 08:58
@@ -16234,7 +16234,7 @@ http://weibo.com/1748136774/JkAS8Ew1K
 TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺寸为157.65×68.4×8mm，将由3,860mAh电池供电
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1186#       发表于 2020-9-16 11:53
@@ -16247,7 +16247,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  szzyf7  
 ##### 1187#       发表于 2020-9-16 13:31
@@ -16258,7 +16258,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  东云静马  
 ##### 1188#       发表于 2020-9-16 14:01
@@ -16267,7 +16267,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 几点啊，在哪能看
 
 
------
+*****
 
 ####  linjia  
 ##### 1189#       发表于 2020-9-16 14:02
@@ -16282,7 +16282,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 小屏党对宽度会比较敏感些，哈哈
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1190#       发表于 2020-9-16 14:14
@@ -16294,7 +16294,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 其实吧，作为常年compact党，虽然每代compact都写着65mm，但实际上真机大小对比能发现是有一点大小区别的——说白了，大体宽度都一样的，每一代可能 因为边框弧度的区别有1mm的差距，其实挺正常的。
 
 
------
+*****
 
 ####  9-11-2001  
 ##### 1191#       发表于 2020-9-16 16:12
@@ -16303,7 +16303,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 不知道这次日常亮屏能有多长时间.....XZ1C那样的虽然可以7-8小时亮屏，但是用起来太折腾太小心翼翼了
 
 
------
+*****
 
 ####  dllplayer  
 ##### 1192#       发表于 2020-9-16 16:43
@@ -16312,7 +16312,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 额...那啥..问一下...国行不能用GOOGLE PLAY是吧....
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1193#       发表于 2020-9-16 16:50
@@ -16324,7 +16324,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  东云静马  
 ##### 1194#       发表于 2020-9-16 17:26
@@ -16333,7 +16333,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 好像19号中午11点？
 
 
------
+*****
 
 ####  leystage  
 ##### 1195#       发表于 2020-9-16 18:23
@@ -16350,7 +16350,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 虽然我个人并不需要这个本地化就是了
 
 
------
+*****
 
 ####  leystage  
 ##### 1196#       发表于 2020-9-16 18:23
@@ -16361,7 +16361,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 去年的情况是，国行只要你能登陆 Google，重启一下，就是近似港版系统，什么都有
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1197#         楼主| 发表于 2020-9-16 22:25
@@ -16377,7 +16377,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 2020-9-16 22:25 上传
 
 
------
+*****
 
 ####  Cray  
 ##### 1198#       发表于 2020-9-16 23:48
@@ -16392,7 +16392,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  Cray  
 ##### 1199#       发表于 2020-9-16 23:49
@@ -16409,7 +16409,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1200#       发表于 2020-9-17 08:56
@@ -16421,7 +16421,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1201#       发表于 2020-9-17 09:40
@@ -16434,7 +16434,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  艾尔特翔  
 ##### 1202#       发表于 2020-9-17 09:51
@@ -16446,7 +16446,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 现在的港版，信号波段还是不完全嘛？
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1203#       发表于 2020-9-17 10:42
@@ -16455,7 +16455,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 搬好小板凳等发布会直播了
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1204#       发表于 2020-9-17 11:12
@@ -16467,7 +16467,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 不知道国行有什么调整，1/5的国港两个版本支持的信号波段是一样的，二代国行这不还没发布嘛
 
 
------
+*****
 
 ####  艾尔特翔  
 ##### 1205#       发表于 2020-9-17 11:24
@@ -16479,7 +16479,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 多谢，波段一样我也还是港航优先考虑
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1206#       发表于 2020-9-17 11:36
@@ -16494,7 +16494,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  艾尔特翔  
 ##### 1207#       发表于 2020-9-17 11:44
@@ -16509,7 +16509,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 其实我对5G没啥要求，4G够用了，只要波段全信号可以就好了
 
 
------
+*****
 
 ####  linjia  
 ##### 1208#       发表于 2020-9-17 12:19
@@ -16523,7 +16523,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 [http://www.zhongguojinrongtouziwang.com/mobile/202009/9976.html](http://www.zhongguojinrongtouziwang.com/mobile/202009/9976.html)
 
 
------
+*****
 
 ####  leystage  
 ##### 1209#       发表于 2020-9-17 14:10
@@ -16534,7 +16534,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 毕竟5G额外费电不少，如果没特殊需求，4G确实眼下足够了。但就像楼上说的，m2 貌似港版硬件上会少大陆的5G频段
 
 
------
+*****
 
 ####  月神侠  
 ##### 1210#       发表于 2020-9-17 14:20
@@ -16543,7 +16543,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 **的微博草稿都已经写好了，已经定时15：10发<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月神侠  
 ##### 1211#       发表于 2020-9-17 14:36
@@ -16559,7 +16559,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 2020-9-17 14:36 上传
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1212#       发表于 2020-9-17 14:37
@@ -16570,7 +16570,7 @@ TENAA列表还显示Sony Xperia 5 II将配备6.1英寸显示屏。该设备尺�
 zzz
 
 
------
+*****
 
 ####  h20020901  
 ##### 1213#       发表于 2020-9-17 14:43
@@ -16579,7 +16579,7 @@ zzz
 我来转播一波 [https://live.bilibili.com/741569](https://live.bilibili.com/741569)
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1214#         楼主| 发表于 2020-9-17 15:09
@@ -16592,7 +16592,7 @@ mark3？？？还是我听错啦？
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  leystage  
 ##### 1215#       发表于 2020-9-17 15:13
@@ -16609,7 +16609,7 @@ mark3？？？还是我听错啦？
 已经正式发布了 5m2
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1216#       发表于 2020-9-17 15:15
@@ -16620,7 +16620,7 @@ mark3？？？还是我听错啦？
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1217#         楼主| 发表于 2020-9-17 15:25
@@ -16632,7 +16632,7 @@ mark3？？？还是我听错啦？
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  艾尔特翔  
 ##### 1218#       发表于 2020-9-17 15:25
@@ -16644,7 +16644,7 @@ mark3？？？还是我听错啦？
 这也是我的纠结点之一，虽然现在不适用，指不定明年5G什么情况，真的是降低4G速率加快5G使用率的话，也是要考虑情况。
 
 
------
+*****
 
 ####  月神侠  
 ##### 1219#       发表于 2020-9-17 15:27
@@ -16653,7 +16653,7 @@ mark3？？？还是我听错啦？
 请欣赏 泄露的TVC<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1220#       发表于 2020-9-17 15:47
@@ -16662,7 +16662,7 @@ mark3？？？还是我听错啦？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">联通用户的我一直选择港版
 
 
------
+*****
 
 ####  leystage  
 ##### 1221#       发表于 2020-9-17 16:05
@@ -16673,7 +16673,7 @@ mark3？？？还是我听错啦？
 是的，4G 可能会降速其实反而是目前看来最大的问题… 先再等几天看这次国行的情况吧
 
 
------
+*****
 
 ####  lancelot9  
 ##### 1222#       发表于 2020-9-17 16:18
@@ -16682,7 +16682,7 @@ mark3？？？还是我听错啦？
 我丢，说是海外版发货日期要到腊月？那国行岂不是只有更晚？之前的xzp烧了目前在靠15年的xz compact苦苦支撑，敖到10月勉强可以，熬到12月是真的有点艰难啊
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1223#       发表于 2020-9-17 16:20
@@ -16691,7 +16691,7 @@ mark3？？？还是我听错啦？
 ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上市时间……（传闻说上市时间要到10月中旬才公布…这TM是要留着过年么！？）
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1224#       发表于 2020-9-17 16:21
@@ -16704,7 +16704,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1225#       发表于 2020-9-17 16:32
@@ -16726,7 +16726,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 <img src="https://img.saraba1st.com/forum/202009/17/163152o2ifvdbqr22bmrrf.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1226#       发表于 2020-9-17 16:33
@@ -16739,7 +16739,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  月神侠  
 ##### 1227#       发表于 2020-9-17 16:43
@@ -16838,7 +16838,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  哒哒哒ver1.01  
 ##### 1228#       发表于 2020-9-17 16:46
@@ -16847,7 +16847,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 5II又没有无线充电了？
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1229#       发表于 2020-9-17 16:49
@@ -16858,7 +16858,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 5 II：没无线充，有120HZ
 
 
------
+*****
 
 ####  Tochika  
 ##### 1230#       发表于 2020-9-17 16:52
@@ -16867,7 +16867,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 祖传刀法
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1231#       发表于 2020-9-17 17:27
@@ -16878,7 +16878,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1232#       发表于 2020-9-17 17:51
@@ -16887,7 +16887,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 不知道1 II和5 II怎么选了……
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1233#       发表于 2020-9-17 17:52
@@ -16900,7 +16900,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1234#       发表于 2020-9-17 18:23
@@ -16914,7 +16914,7 @@ ZACKBUKS 说19号只是国航的马克兔和5 II的公布，并不会发布上�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1235#       发表于 2020-9-17 18:39
@@ -16927,7 +16927,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  Cray  
 ##### 1236#       发表于 2020-9-17 19:17
@@ -16942,7 +16942,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  有口皆悲  
 ##### 1237#       发表于 2020-9-17 19:41
@@ -16953,7 +16953,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 我现在xz2c用的磁吸式，充电口要插一个肛塞。
 
 
------
+*****
 
 ####  oskneo  
 ##### 1238#       发表于 2020-9-17 21:01
@@ -16968,7 +16968,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 究竟这消息来源是哪
 
 
------
+*****
 
 ####  月神侠  
 ##### 1239#       发表于 2020-9-17 21:36
@@ -16977,7 +16977,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 据说价格是 6099 和 7999<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  linjia  
 ##### 1240#       发表于 2020-9-17 21:44
@@ -16989,7 +16989,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 8g/12g ?
 
 
------
+*****
 
 ####  月神侠  
 ##### 1241#       发表于 2020-9-17 21:45
@@ -17001,7 +17001,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 5Ⅱ/1Ⅱ
 
 
------
+*****
 
 ####  黑爪爪  
 ##### 1242#       发表于 2020-9-17 21:59
@@ -17010,7 +17010,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 完了，好像要真香了
 
 
------
+*****
 
 ####  szzyf7  
 ##### 1243#       发表于 2020-9-17 22:19
@@ -17031,7 +17031,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 咱能卖便宜点么.jpg
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1244#       发表于 2020-9-17 22:40
@@ -17044,7 +17044,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  wizardasd  
 ##### 1245#       发表于 2020-9-17 23:59
@@ -17055,7 +17055,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 我以后是不是再也见不到方方正正的机器了……
 
 
------
+*****
 
 ####  月神侠  
 ##### 1246#       发表于 2020-9-18 00:11
@@ -17071,7 +17071,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 国行是12+256，硬件支持移动5G，港版再升级也支持不了国行有个新颜色，磨砂黑
 
 
------
+*****
 
 ####  利物浦  
 ##### 1247#       发表于 2020-9-18 00:36
@@ -17084,7 +17084,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 圆角确实圆角了，但我觉得在这方面吐槽大法太吹毛求疵了。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1248#       发表于 2020-9-18 06:18
@@ -17099,7 +17099,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  月神侠  
 ##### 1249#       发表于 2020-9-18 09:28
@@ -17111,7 +17111,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">被你说中了，这次国行还真的支持指纹了
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1250#       发表于 2020-9-18 10:07
@@ -17124,7 +17124,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  Benthic  
 ##### 1251#       发表于 2020-9-18 10:16
@@ -17133,7 +17133,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">1II和5II太纠结了
 
 
------
+*****
 
 ####  9-11-2001  
 ##### 1252#       发表于 2020-9-18 10:29
@@ -17142,7 +17142,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 1200万？效果不谈这像素还是偏低了啊，很多地方不够用
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1253#       发表于 2020-9-18 10:35
@@ -17158,7 +17158,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1254#       发表于 2020-9-18 14:53
@@ -17169,7 +17169,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 —— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  skaar  
 ##### 1255#       发表于 2020-9-18 15:35
@@ -17178,7 +17178,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 方框的确就是好看没得说，但从握感和揣裤兜的体验来说我还是情愿牺牲颜值的……方框是真的硌
 
 
------
+*****
 
 ####  Cray  
 ##### 1256#       发表于 2020-9-18 18:21
@@ -17193,7 +17193,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  月神侠  
 ##### 1257#       发表于 2020-9-18 21:21
@@ -17208,7 +17208,7 @@ http://weibo.com/1748136774/Jl3FZkpZf
 5 II屏幕1600w色，1 II屏幕10亿色；5 II蓝牙5.0，1 II蓝牙5.1。其他的大家都知道
 
 
------
+*****
 
 ####  oskneo  
 ##### 1258#       发表于 2020-9-18 21:28
@@ -17224,7 +17224,7 @@ https://www.bilibili.com/video/BV1rk4y1y7SQ
 不如psp？
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1259#       发表于 2020-9-18 23:17
@@ -17241,7 +17241,7 @@ https://www.bilibili.com/video/BV1rk4y1y7SQ
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  roydimus  
 ##### 1260#       发表于 2020-9-18 23:30
@@ -17250,7 +17250,7 @@ https://www.bilibili.com/video/BV1rk4y1y7SQ
 5ii要是背板和1ii的紫色一样出问题就搞笑了
 
 
------
+*****
 
 ####  月神侠  
 ##### 1261#       发表于 2020-9-18 23:36
@@ -17269,7 +17269,7 @@ https://www.bilibili.com/video/BV1rk4y1y7SQ
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1262#       发表于 2020-9-19 00:09
@@ -17291,7 +17291,7 @@ https://www.bilibili.com/video/BV1rk4y1y7SQ
 油管上这些没拿出实机的比较视频大部分都是乱来的
 
 
------
+*****
 
 ####  linjia  
 ##### 1263#       发表于 2020-9-19 00:27
@@ -17312,7 +17312,7 @@ UMTS HSPA+ (Bands 1, 2, 4, 5, 6, 8, 19)
 Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32, 34, 38, 39, 40, 41, 46, 66) / J8210:
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1264#       发表于 2020-9-19 01:08
@@ -17325,7 +17325,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  Lisylfn  
 ##### 1265#       发表于 2020-9-19 01:20
@@ -17334,7 +17334,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 5 II唯一缺点就是没有无线充电
 
 
------
+*****
 
 ####  月神侠  
 ##### 1266#       发表于 2020-9-19 01:32
@@ -17343,7 +17343,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 等月底港版发布会啊
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1267#       发表于 2020-9-19 11:03
@@ -17354,7 +17354,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  月神侠  
 ##### 1268#       发表于 2020-9-19 11:54
@@ -17386,7 +17386,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 港版定档<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1269#       发表于 2020-9-19 13:19
@@ -17398,7 +17398,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 这次我想买国行
 
 
------
+*****
 
 ####  8400gs  
 ##### 1270#       发表于 2020-9-19 13:27
@@ -17410,7 +17410,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 索然无味
 
 
------
+*****
 
 ####  linjia  
 ##### 1271#       发表于 2020-9-19 16:32
@@ -17420,7 +17420,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
  <blockquote>索尼官方给出信息，将于9月19日11:00召开Xperia新品全球发布会，据了解，本次会上Xperia 5 II将会与我们见面</blockquote>
 
 
------
+*****
 
 ####  zatsuza  
 ##### 1272#       发表于 2020-9-19 16:37
@@ -17431,7 +17431,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1273#       发表于 2020-9-19 17:06
@@ -17444,7 +17444,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  月神侠  
 ##### 1274#       发表于 2020-9-19 17:53
@@ -17459,7 +17459,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 猛男最爱色
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1275#       发表于 2020-9-19 18:34
@@ -17470,7 +17470,7 @@ Cat19 / Cat13 (Bands 1, 2, 3, 4, 5, 7, 8, 12, 13, 17, 19, 20, 25, 26, 28, 29, 32
 syl 机锋论坛是不是没了 想给备胎xzp刷个ROM都不知道去哪
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1276#       发表于 2020-9-19 19:02
@@ -17486,7 +17486,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 索尼真是比小米还能耍猴
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1277#         楼主| 发表于 2020-9-19 21:06
@@ -17498,7 +17498,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1278#       发表于 2020-9-19 23:47
@@ -17509,7 +17509,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 —— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
 
------
+*****
 
 ####  Cray  
 ##### 1279#       发表于 2020-9-20 04:18
@@ -17523,7 +17523,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1280#       发表于 2020-9-20 22:46
@@ -17532,7 +17532,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 有个想法，假如国行的后盖制作工艺改了是不是港版也可以换个国行的后盖
 
 
------
+*****
 
 ####  oskneo  
 ##### 1281#       发表于 2020-9-21 14:12
@@ -17543,7 +17543,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 其他电话或邮件啥的都是有声的
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1282#       发表于 2020-9-22 00:06
@@ -17558,7 +17558,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  EFSF  
 ##### 1283#       发表于 2020-9-22 21:03
@@ -17570,7 +17570,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 是真的，我看见这贴，打开了界面，选项里没有5G了，只有我以前选好的还留在那里，都不敢动。
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1284#       发表于 2020-9-23 08:29
@@ -17582,7 +17582,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 索尼的操作真他娘的谜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月神侠  
 ##### 1285#       发表于 2020-9-23 09:15
@@ -17591,7 +17591,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 索尼 Xperia 1 II 与 Xperia 5 II 将于 10.15 在中国大陆一起发布，届时会公布国行详细配置信息以及售价，Xperia 1 II 先开卖，Xperia 5 II 晚 10 天左右。
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1286#       发表于 2020-9-23 10:07
@@ -17603,7 +17603,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 相比起价格，我更在意具体的发售时间。真的是等太～～～久了
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1287#       发表于 2020-9-23 10:11
@@ -17616,7 +17616,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.2
 
 
------
+*****
 
 ####  oskneo  
 ##### 1288#       发表于 2020-9-23 10:18
@@ -17633,7 +17633,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  EFSF  
 ##### 1289#       发表于 2020-9-23 12:31
@@ -17649,7 +17649,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 打开短信，点上面三个点，点设定，点通知，点收到的信息（点前面文字的部分），点击画面下部高级的三角标，选择提示音。
 
 
------
+*****
 
 ####  月神侠  
 ##### 1290#       发表于 2020-9-23 13:10
@@ -17672,7 +17672,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 也是屏蔽字啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月神侠  
 ##### 1291#       发表于 2020-9-24 14:11
@@ -17681,7 +17681,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 港版Xperia 5 II定价6999港币，约合人民币6134元<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1292#       发表于 2020-9-24 14:34
@@ -17694,7 +17694,7 @@ ZACKBUKS还欢天喜地的的来了句“（10月15日）索尼 Xperia 1 II / 5 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.2
 
 
------
+*****
 
 ####  lc122448  
 ##### 1293#       发表于 2020-9-24 15:54
@@ -17705,7 +17705,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 vivo V1829A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  Cray  
 ##### 1294#       发表于 2020-9-25 00:05
@@ -17720,7 +17720,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1295#       发表于 2020-9-28 11:42
@@ -17731,7 +17731,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
 
 
------
+*****
 
 ####  leystage  
 ##### 1296#       发表于 2020-9-28 11:54
@@ -17745,7 +17745,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 倒角平面边框万岁！
 
 
------
+*****
 
 ####  月神侠  
 ##### 1297#       发表于 2020-9-28 16:22
@@ -17768,7 +17768,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 台版  35990新台币 约8463元
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1298#       发表于 2020-9-28 17:02
@@ -17779,7 +17779,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1299#       发表于 2020-9-28 19:04
@@ -17791,7 +17791,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1300#       发表于 2020-9-28 22:26
@@ -17806,7 +17806,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 真的假的，买爆！
 
 
------
+*****
 
 ####  wizardasd  
 ##### 1301#       发表于 2020-9-28 23:15
@@ -17821,7 +17821,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 会有免手续费分期吗……
 
 
------
+*****
 
 ####  lancelot9  
 ##### 1302#       发表于 2020-9-29 14:05
@@ -17836,7 +17836,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 真的假的？价格都出来的话发售日期有定了吗？
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1303#       发表于 2020-9-29 14:22
@@ -17848,7 +17848,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 今天看小道消息，说是11月才发售
 
 
------
+*****
 
 ####  月神侠  
 ##### 1304#       发表于 2020-9-30 10:26
@@ -17870,7 +17870,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Tochika  
 ##### 1305#       发表于 2020-9-30 12:04
@@ -17879,7 +17879,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 哪里来的勇气<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  leystage  
 ##### 1306#       发表于 2020-9-30 12:08
@@ -17888,7 +17888,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 完了完了，索尼中国…  平心而论，官方行货售价不是不能定7千+，1m2 国行版的配置非要说跟三星华为对标定价，也不是不行。但回到现实，索尼中国这些年把 Xperia 搞成这样，它的知名度和品牌力事实上是完全支撑不起它和三星对标定价还能有能看的销量的。加上这晚了半年上市… 目测京东效率三位数…
 
 
------
+*****
 
 ####  利物浦  
 ##### 1307#       发表于 2020-9-30 12:36
@@ -17897,7 +17897,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 继续大爆死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1308#       发表于 2020-9-30 12:38
@@ -17906,7 +17906,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 好！很有精神！
 
 
------
+*****
 
 ####  jzsgtx  
 ##### 1309#       发表于 2020-9-30 12:48
@@ -17917,7 +17917,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  iceprince10  
 ##### 1310#       发表于 2020-9-30 12:48
@@ -17926,7 +17926,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 淘宝卖7200，怕不是官价7499乃至7999
 
 
------
+*****
 
 ####  有口皆悲  
 ##### 1311#       发表于 2020-9-30 12:48
@@ -17935,7 +17935,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 索尼缺这300元吗，定个6999也好吧。
 
 
------
+*****
 
 ####  leystage  
 ##### 1312#       发表于 2020-9-30 13:13
@@ -17946,7 +17946,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 卖一台亏三百，索尼中国行货至少能卖一千台吧，那就是三十万啊（狗头
 
 
------
+*****
 
 ####  wizardasd  
 ##### 1313#       发表于 2020-9-30 13:19
@@ -17956,7 +17956,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 定啥价不也就是那三四位数的销量……
 
 
------
+*****
 
 ####  final007  
 ##### 1314#       发表于 2020-9-30 13:43
@@ -17965,7 +17965,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 比我想象的低啊，我以为铁定7999了呢
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1315#       发表于 2020-9-30 13:44
@@ -17976,7 +17976,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  oskneo  
 ##### 1316#       发表于 2020-9-30 13:47
@@ -17988,7 +17988,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  帕米克楠波特  
 ##### 1317#       发表于 2020-9-30 13:49
@@ -17997,7 +17997,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 这个定价。。。坐等iphone12背刺
 
 
------
+*****
 
 ####  血色黎明的绽放  
 ##### 1318#       发表于 2020-9-30 13:53
@@ -18008,7 +18008,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  zatsuza  
 ##### 1319#       发表于 2020-9-30 14:10
@@ -18020,7 +18020,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Realme RMX1901, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  leystage  
 ##### 1320#       发表于 2020-9-30 17:10
@@ -18036,7 +18036,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 其实我觉得索尼可以出个中国特供广告版，便宜两千，内置各种“可以关”的广告。不喜欢广告的人继续买现在这个价格的无广告版就是了
 
 
------
+*****
 
 ####  被雨困住的城市  
 ##### 1321#         楼主| 发表于 2020-10-5 19:23
@@ -18048,7 +18048,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  Cray  
 ##### 1322#       发表于 2020-10-5 19:25
@@ -18065,7 +18065,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1323#       发表于 2020-10-5 19:31
@@ -18078,7 +18078,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  iceprince10  
 ##### 1324#       发表于 2020-10-5 19:33
@@ -18087,7 +18087,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 双11预售？这到底是什么脑子
 
 
------
+*****
 
 ####  Cray  
 ##### 1325#       发表于 2020-10-5 19:59
@@ -18099,7 +18099,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  Cray  
 ##### 1326#       发表于 2020-10-5 20:03
@@ -18114,7 +18114,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  月神侠  
 ##### 1327#       发表于 2020-10-5 21:06
@@ -18123,7 +18123,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">马克兔跟Xperia 1一样内置谷歌框架，增加了微信指纹支付支持，移动5G支持，12G+256G，所以固件跟港版不一样
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1328#       发表于 2020-10-5 21:28
@@ -18136,7 +18136,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1329#       发表于 2020-10-5 21:48
@@ -18149,7 +18149,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Cray  
 ##### 1330#       发表于 2020-10-5 23:51
@@ -18164,7 +18164,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  Cray  
 ##### 1331#       发表于 2020-10-7 22:44
@@ -18176,7 +18176,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1332#       发表于 2020-10-9 11:38
@@ -18187,7 +18187,7 @@ Z3C后没买过日版，现在还有便宜大碗的日版索尼手机吗
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  月神侠  
 ##### 1333#       发表于 2020-10-9 15:21
@@ -18200,7 +18200,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 会在今年底或是明年初升级<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  利物浦  
 ##### 1334#       发表于 2020-10-9 15:50
@@ -18229,7 +18229,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 查看全部评分
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1335#       发表于 2020-10-9 16:39
@@ -18238,7 +18238,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">后天休息，我得等12号才能摸到机子了
 
 
------
+*****
 
 ####  linjia  
 ##### 1336#       发表于 2020-10-9 16:51
@@ -18247,7 +18247,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 国行12g内存是指 xp1 ii还是xp5 ii
 
 
------
+*****
 
 ####  月神侠  
 ##### 1337#       发表于 2020-10-9 16:55
@@ -18259,7 +18259,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 only 1M2
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1338#       发表于 2020-10-9 17:00
@@ -18276,7 +18276,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1339#       发表于 2020-10-9 20:39
@@ -18289,7 +18289,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  zhongjie  
 ##### 1340#       发表于 2020-10-9 20:41
@@ -18306,7 +18306,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 —— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1341#       发表于 2020-10-9 22:03
@@ -18321,7 +18321,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  月夜凝雪  
 ##### 1342#       发表于 2020-10-9 22:14
@@ -18333,7 +18333,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 应该是要连谷歌服务器的都不行(谁都知道要特殊办法），但不是必须连服务器的就没问题吧。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1343#       发表于 2020-10-10 00:36
@@ -18348,7 +18348,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  runningch  
 ##### 1344#       发表于 2020-10-10 00:45
@@ -18359,7 +18359,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  月神侠  
 ##### 1345#       发表于 2020-10-10 10:37
@@ -18384,7 +18384,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 这次有花呗 12 期分期，官网直营店都可以用，符合各位的换机周期。
 
 
------
+*****
 
 ####  有口皆悲  
 ##### 1346#       发表于 2020-10-10 10:44
@@ -18393,7 +18393,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 那么谷歌市场能用吗？我只有应用市场需要谷歌的。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1347#       发表于 2020-10-10 10:54
@@ -18408,7 +18408,7 @@ Google play我记得是可以的……如果只有Google 健身不行问题不�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  jzsgtx  
 ##### 1348#       发表于 2020-10-10 11:07
@@ -18436,7 +18436,7 @@ Google play我记得是可以的……如果只有Google 健身不行问题不�
 查看全部评分
 
 
------
+*****
 
 ####  Cray  
 ##### 1349#       发表于 2020-10-10 20:55
@@ -18448,7 +18448,7 @@ Google play我记得是可以的……如果只有Google 健身不行问题不�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  月神侠  
 ##### 1350#       发表于 2020-10-12 15:59
@@ -18477,7 +18477,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 <img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer"> 就是5m2的直接套上去
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 1351#       发表于 2020-10-12 18:24
@@ -18488,7 +18488,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1352#       发表于 2020-10-13 11:39
@@ -18502,7 +18502,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 那获得更新之后的1M2的刷新率和5M2的刷新率有什么区别么？
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1353#       发表于 2020-10-13 11:40
@@ -18538,7 +18538,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 6999hkd买首发，不值；半年后4500软再买，香！
 
 
------
+*****
 
 ####  deenyao  
 ##### 1354#       发表于 2020-10-13 13:20
@@ -18551,7 +18551,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 新Xperia可以用Xperia transfer 2这个应用
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1355#       发表于 2020-10-13 13:45
@@ -18563,7 +18563,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 恩，已经在谷歌市场下载了好了
 
 
------
+*****
 
 ####  封印之矢  
 ##### 1356#       发表于 2020-10-13 13:48
@@ -18577,7 +18577,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 谷歌相册是不是会自动备份到云端？像水果的相册那样？没怎么用过谷歌相册不是很懂。。。
 
 
------
+*****
 
 ####  linjia  
 ##### 1357#       发表于 2020-10-13 13:51
@@ -18591,7 +18591,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 港版吗， 可以使用中国移动5g么
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1358#       发表于 2020-10-13 13:53
@@ -18606,7 +18606,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 自动同步好像是在谷歌设置里面设置的，我应该是关了的，一会看看。
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1359#       发表于 2020-10-13 13:55
@@ -18617,7 +18617,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 我是联通的4G卡，港版。
 
 
------
+*****
 
 ####  封印之矢  
 ##### 1360#       发表于 2020-10-13 14:19
@@ -18633,7 +18633,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 索尼自家的相册APP是打算放弃的意思吗？
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1361#       发表于 2020-10-13 14:25
@@ -18645,7 +18645,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 不清楚，不过自家相册还蛮好用的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  封印之矢  
 ##### 1362#       发表于 2020-10-13 14:36
@@ -18657,7 +18657,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 同感觉自家的相册还蛮好用的，就是有一些图莫名其妙的说删不掉，好像是一些APP里面的缓存图。
 
 
------
+*****
 
 ####  linjia  
 ##### 1363#       发表于 2020-10-13 14:54
@@ -18669,7 +18669,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 淘宝上看了下，卖家说5g是否支持要等国行上市才知道
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1364#       发表于 2020-10-13 15:51
@@ -18691,7 +18691,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 2020-10-13 15:51 上传
 
 
------
+*****
 
 ####  deenyao  
 ##### 1365#       发表于 2020-10-13 16:52
@@ -18703,7 +18703,7 @@ Xperia 1 II 升级到 Android 11 会给 120Hz@2K高刷与240Hz触控采样率
 Google相册备份会给两个选项, 高清不占空间, 原图占空间. 就算备份也千万别释放空间, 一释放就把机器里的照片全删了
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1366#       发表于 2020-10-13 18:52
@@ -18718,7 +18718,7 @@ Google相册备份会给两个选项, 高清不占空间, 原图占空间. 就�
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1367#       发表于 2020-10-13 19:09
@@ -18732,7 +18732,7 @@ Google相册备份会给两个选项, 高清不占空间, 原图占空间. 就�
 除非新款摄像头没凸起，不然我还是挺香的，我就拿来打电话发微信，只看外观，8+256肯定够我把电板用爆。
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1368#       发表于 2020-10-13 19:21
@@ -18741,7 +18741,7 @@ Google相册备份会给两个选项, 高清不占空间, 原图占空间. 就�
 等半年真不如Xperia 1 III了，5 mark II感觉啥都好就是尺寸小了点
 
 
------
+*****
 
 ####  淡定君  
 ##### 1369#       发表于 2020-10-14 02:53
@@ -18756,7 +18756,7 @@ Google相册备份会给两个选项, 高清不占空间, 原图占空间. 就�
 总体来说，从平狗发布会大方向来看，马克三杜比4K跑不掉了，当然这种指标对十年内无所谓，支持今年索移国行马克2还是最佳选择。
 
 
------
+*****
 
 ####  Cray  
 ##### 1370#       发表于 2020-10-14 08:02
@@ -18772,7 +18772,7 @@ Google相册备份会给两个选项, 高清不占空间, 原图占空间. 就�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  封印之矢  
 ##### 1371#       发表于 2020-10-14 09:04
@@ -18784,7 +18784,7 @@ Google相册备份会给两个选项, 高清不占空间, 原图占空间. 就�
 可怕，其实不是太喜欢备份到云端，我还是继续用打大法自家的相册吧
 
 
------
+*****
 
 ####  lancelot9  
 ##### 1372#       发表于 2020-10-14 11:04
@@ -18798,7 +18798,7 @@ Google相册备份会给两个选项, 高清不占空间, 原图占空间. 就�
 我上一款也是xzp，用手机到现在为止手感最称手的就是xzp了，一直以为5马克兔屏幕尺寸和手感是跟xzp一个样才等到现在的，原来居然还更小了？！跟xzp尺寸比例有多少？1比0.8有吗？
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1373#       发表于 2020-10-14 11:38
@@ -18814,7 +18814,7 @@ xzp是 156x77x7.9mm
 对比图的话，晚上用旧设备拍一下
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1374#       发表于 2020-10-14 13:30
@@ -18823,7 +18823,7 @@ xzp是 156x77x7.9mm
 苹果手机全面往索尼手机路线靠拢，索尼路线领先苹果超过1年，我笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1375#       发表于 2020-10-14 14:10
@@ -18836,7 +18836,7 @@ xzp是 156x77x7.9mm
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  posion  
 ##### 1376#       发表于 2020-10-14 14:36
@@ -18857,7 +18857,7 @@ xzp是 156x77x7.9mm
 另外问问股东们那个工口场景力度控制（H.S. Power Control）的功能怎么开启的？
 
 
------
+*****
 
 ####  dllplayer  
 ##### 1377#       发表于 2020-10-14 15:19
@@ -18873,7 +18873,7 @@ xzp是 156x77x7.9mm
 之前说1II的5G会被更新给干掉?
 
 
------
+*****
 
 ####  藤原亮政  
 ##### 1378#       发表于 2020-10-14 15:22
@@ -18888,7 +18888,7 @@ xzp是 156x77x7.9mm
 打開遊戲時,遊戲增強器裡面選擇
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1379#       发表于 2020-10-14 18:22
@@ -18901,7 +18901,7 @@ xzp是 156x77x7.9mm
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1380#       发表于 2020-10-14 19:59
@@ -18921,7 +18921,7 @@ xzp是 156x77x7.9mm
 3:54
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1381#       发表于 2020-10-14 20:10
@@ -18933,7 +18933,7 @@ xzp是 156x77x7.9mm
 看了这个视频我才知道xperia 1 ii这个多任务界面做得挺好的，妈的索尼就不多点出来吹吹自己功能细节，宣传视频永远只会搞逼格，谁懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  楠芽吹  
 ##### 1382#       发表于 2020-10-14 21:18
@@ -18980,7 +18980,7 @@ xzp是 156x77x7.9mm
 查看全部评分
 
 
------
+*****
 
 ####  posion  
 ##### 1383#       发表于 2020-10-14 22:00
@@ -18999,7 +18999,7 @@ xzp是 156x77x7.9mm
 发现相机app有设置可以调去跳摄影大师，于是我调完后又把相机停了，之后按钮又没反应了！OTL
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1384#       发表于 2020-10-15 00:32
@@ -19016,7 +19016,7 @@ https://www.youtube.com/watch?v=fTCNzUF82cY</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Cray  
 ##### 1385#       发表于 2020-10-15 02:22
@@ -19031,7 +19031,7 @@ https://www.youtube.com/watch?v=fTCNzUF82cY</blockquote>
 他估计说的是硬件级的吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1386#       发表于 2020-10-15 06:05
@@ -19042,7 +19042,7 @@ https://www.youtube.com/watch?v=fTCNzUF82cY</blockquote>
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1387#       发表于 2020-10-15 08:01
@@ -19056,7 +19056,7 @@ https://www.youtube.com/watch?v=fTCNzUF82cY</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Cray  
 ##### 1388#       发表于 2020-10-15 08:26
@@ -19072,7 +19072,7 @@ https://www.youtube.com/watch?v=fTCNzUF82cY</blockquote>
 这种软件条的大概反而更容易触发吧。 毕竟位置可以自己选。
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1389#       发表于 2020-10-15 08:32
@@ -19088,7 +19088,7 @@ https://www.youtube.com/watch?v=fTCNzUF82cY</blockquote>
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Cray  
 ##### 1390#       发表于 2020-10-15 09:56
@@ -19103,7 +19103,7 @@ https://www.youtube.com/watch?v=fTCNzUF82cY</blockquote>
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  月神侠  
 ##### 1391#       发表于 2020-10-15 10:34
@@ -19121,7 +19121,7 @@ https://www.youtube.com/watch?v=fTCNzUF82cY</blockquote>
 2020-10-15 10:33 上传
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1392#       发表于 2020-10-15 12:34
@@ -19132,7 +19132,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 就是不知道具体什么时候能到手
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1393#       发表于 2020-10-15 14:16
@@ -19147,7 +19147,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1394#       发表于 2020-10-15 14:16
@@ -19160,7 +19160,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1395#       发表于 2020-10-15 16:36
@@ -19179,7 +19179,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1396#       发表于 2020-10-15 18:25
@@ -19196,7 +19196,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  leystage  
 ##### 1397#       发表于 2020-10-15 18:35
@@ -19211,7 +19211,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 据说微信支持，支付宝不行
 
 
------
+*****
 
 ####  Cray  
 ##### 1398#       发表于 2020-10-15 18:48
@@ -19228,7 +19228,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1399#       发表于 2020-10-15 18:56
@@ -19241,7 +19241,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1400#       发表于 2020-10-15 19:00
@@ -19254,7 +19254,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 [https://www.sonystyle.com.cn/act ... liveId=202010152001](https://www.sonystyle.com.cn/activity/livestream/live.html?liveId=202010152001)
 
 
------
+*****
 
 ####  tsounaiq  
 ##### 1401#       发表于 2020-10-15 20:10
@@ -19263,7 +19263,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 这个棒读介绍相机太拉跨了吧
 
 
------
+*****
 
 ####  jajajzz  
 ##### 1402#       发表于 2020-10-15 20:21
@@ -19272,7 +19272,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 居然还有定制颜色
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1403#       发表于 2020-10-15 20:22
@@ -19291,7 +19291,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 索尼中国里没广州和香港人吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wizardasd  
 ##### 1404#       发表于 2020-10-15 20:24
@@ -19300,7 +19300,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 这发布会有多久啊？回头谁给总结下？
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1405#       发表于 2020-10-15 20:25
@@ -19309,7 +19309,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 听口气，1 II首发只有绿和黑……？
 
 
------
+*****
 
 ####  月神侠  
 ##### 1406#       发表于 2020-10-15 20:29
@@ -19328,7 +19328,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月神侠  
 ##### 1407#       发表于 2020-10-15 20:34
@@ -19347,7 +19347,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 2020-10-15 20:34 上传
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1408#       发表于 2020-10-15 20:37
@@ -19356,7 +19356,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 1 II预购送sp700n或sp900？？？
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1409#       发表于 2020-10-15 20:39
@@ -19367,7 +19367,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 原来才开，京东预定蓝色5ii了，要11月才能拿机
 
 
------
+*****
 
 ####  szzyf7  
 ##### 1410#       发表于 2020-10-15 20:44
@@ -19378,7 +19378,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Rafale  
 ##### 1411#       发表于 2020-10-15 20:45
@@ -19389,7 +19389,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1412#       发表于 2020-10-15 20:52
@@ -19402,7 +19402,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Tochika  
 ##### 1413#       发表于 2020-10-15 20:56
@@ -19413,7 +19413,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 首发没有鬼灭版么……送的耳机都是万年库存货不太感兴趣啊
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1414#       发表于 2020-10-15 20:58
@@ -19424,7 +19424,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  iceprince10  
 ##### 1415#       发表于 2020-10-15 21:02
@@ -19434,7 +19434,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 另外也问一下，国行可以安装完整的google服务生态吗
 
 
------
+*****
 
 ####  提挈天地  
 ##### 1416#       发表于 2020-10-15 21:03
@@ -19445,7 +19445,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 —— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1417#       发表于 2020-10-15 21:03
@@ -19454,7 +19454,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 所以1 ii国行和港行的区别，除了两个指纹支付，还有啥吗……
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1418#       发表于 2020-10-15 21:05
@@ -19467,7 +19467,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Yukine_Chris  
 ##### 1419#       发表于 2020-10-15 21:25
@@ -19482,7 +19482,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 ？x1无印国行就支持的啊
 
 
------
+*****
 
 ####  月神侠  
 ##### 1420#       发表于 2020-10-15 21:26
@@ -19513,7 +19513,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 2020-10-15 21:25 上传
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1421#       发表于 2020-10-15 21:32
@@ -19522,7 +19522,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 订了国行黑色5M2，这么多年来第二次买国行索尼手机
 
 
------
+*****
 
 ####  EFSF  
 ##### 1422#       发表于 2020-10-15 21:39
@@ -19531,7 +19531,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 我要杀去王府井拿手里港行紫色换绿色！
 
 
------
+*****
 
 ####  月神侠  
 ##### 1423#       发表于 2020-10-15 21:58
@@ -19541,7 +19541,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 <img src="http://wx4.sinaimg.cn/large/5c92654cly1gjqd428aojj21400u0x6r.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  飞翔的兔子  
 ##### 1424#       发表于 2020-10-15 21:59
@@ -19553,7 +19553,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 现在很纠结是买紫色还是绿色……
 
 
------
+*****
 
 ####  逆袭的黑月  
 ##### 1425#       发表于 2020-10-15 22:03
@@ -19562,7 +19562,7 @@ Xperia 1 II 12+256GB毫无意外的7999了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想买个5 II,所以国行安装谷歌全家桶时有没有什么问题.能正常用GooglePlay就买了
 
 
------
+*****
 
 ####  我很费纸  
 ##### 1426#       发表于 2020-10-15 22:03
@@ -19577,7 +19577,7 @@ http://weibo.com/1748136774/Jp090rJFm
 —— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  サクラ  
 ##### 1427#       发表于 2020-10-15 22:04
@@ -19587,7 +19587,7 @@ http://weibo.com/1748136774/Jp090rJFm
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还是别送了
 
 
------
+*****
 
 ####  月神侠  
 ##### 1428#       发表于 2020-10-15 22:08
@@ -19611,7 +19611,7 @@ http://weibo.com/1748136774/Jp090rJFm
 2020-10-15 22:14 上传
 
 
------
+*****
 
 ####  wizardasd  
 ##### 1429#       发表于 2020-10-15 22:09
@@ -19622,7 +19622,7 @@ http://weibo.com/1748136774/Jp090rJFm
 话说京东5的免息分期还得抢？
 
 
------
+*****
 
 ####  EFSF  
 ##### 1430#       发表于 2020-10-15 22:12
@@ -19636,7 +19636,7 @@ http://weibo.com/1748136774/Jp090rJFm
 绿色，紫色颜色很浅的，玻璃一反光啥都看不出来。
 
 
------
+*****
 
 ####  萌臀  
 ##### 1431#       发表于 2020-10-15 22:16
@@ -19645,7 +19645,7 @@ http://weibo.com/1748136774/Jp090rJFm
 不是明明1是真旗舰吗？怎么反而1没有高刷，有没有索尼负责人解释一下
 
 
------
+*****
 
 ####  傘木希美  
 ##### 1432#       发表于 2020-10-15 22:22
@@ -19656,7 +19656,7 @@ http://weibo.com/1748136774/Jp090rJFm
 —— 来自 OPPO PDEM30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  傘木希美  
 ##### 1433#       发表于 2020-10-15 22:25
@@ -19669,7 +19669,7 @@ http://weibo.com/1748136774/Jp090rJFm
 —— 来自 OPPO PDEM30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Tochika  
 ##### 1434#       发表于 2020-10-15 22:34
@@ -19681,7 +19681,7 @@ http://weibo.com/1748136774/Jp090rJFm
 单独卖的么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  scstriker  
 ##### 1435#       发表于 2020-10-15 23:55
@@ -19692,7 +19692,7 @@ http://weibo.com/1748136774/Jp090rJFm
 已解决
 
 
------
+*****
 
 ####  EFSF  
 ##### 1436#       发表于 2020-10-16 00:11
@@ -19707,7 +19707,7 @@ http://weibo.com/1748136774/Jp090rJFm
 一个4K屏一个FHD，然后他们只给FHD做了120HZ高刷。
 
 
------
+*****
 
 ####  Cray  
 ##### 1437#       发表于 2020-10-16 00:18
@@ -19725,7 +19725,7 @@ http://weibo.com/1748136774/Jp090rJFm
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  好多大象啊  
 ##### 1438#       发表于 2020-10-16 00:18
@@ -19736,7 +19736,7 @@ http://weibo.com/1748136774/Jp090rJFm
 限制刷新率是soc能力和电池的考量？
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1439#       发表于 2020-10-16 00:27
@@ -19745,7 +19745,7 @@ http://weibo.com/1748136774/Jp090rJFm
 所以这支付宝指纹是横竖没有了咯？
 
 
------
+*****
 
 ####  Cray  
 ##### 1440#       发表于 2020-10-16 00:29
@@ -19762,7 +19762,7 @@ http://weibo.com/1748136774/Jp090rJFm
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  8400gs  
 ##### 1441#       发表于 2020-10-16 00:38
@@ -19777,7 +19777,7 @@ http://weibo.com/1748136774/Jp090rJFm
 大概就是这个样子吧，猜过去
 
 
------
+*****
 
 ####  淡定君  
 ##### 1442#       发表于 2020-10-16 00:44
@@ -19791,7 +19791,7 @@ http://weibo.com/1748136774/Jp090rJFm
 高刷无所谓，就是这亮度日光下很难用，这是唯一比较不满意的地方。
 
 
------
+*****
 
 ####  Khvarenah  
 ##### 1443#       发表于 2020-10-16 00:59
@@ -19800,7 +19800,7 @@ http://weibo.com/1748136774/Jp090rJFm
 1644p啥时候变成4k了
 
 
------
+*****
 
 ####  dllplayer  
 ##### 1444#       发表于 2020-10-16 01:00
@@ -19809,7 +19809,7 @@ http://weibo.com/1748136774/Jp090rJFm
 所以..5M2的话..国行和港行都支持支付宝和微信的指纹?
 
 
------
+*****
 
 ####  luguoyun  
 ##### 1445#       发表于 2020-10-16 01:44
@@ -19823,7 +19823,7 @@ http://weibo.com/1748136774/Jp090rJFm
 —— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  ut0  
 ##### 1446#       发表于 2020-10-16 02:06
@@ -19832,7 +19832,7 @@ http://weibo.com/1748136774/Jp090rJFm
 意思是5M2不支持移动5G吗？还有现在已经完整支持电信4G上网和通话了吗？
 
 
------
+*****
 
 ####  Cray  
 ##### 1447#       发表于 2020-10-16 06:20
@@ -19850,7 +19850,7 @@ http://weibo.com/1748136774/Jp090rJFm
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  Cray  
 ##### 1448#       发表于 2020-10-16 06:21
@@ -19865,7 +19865,7 @@ http://weibo.com/1748136774/Jp090rJFm
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  好多大象啊  
 ##### 1449#       发表于 2020-10-16 07:30
@@ -19878,7 +19878,7 @@ http://weibo.com/1748136774/Jp090rJFm
 我说的 x5m2不能240hz  x1m2不能90hz
 
 
------
+*****
 
 ####  好多大象啊  
 ##### 1450#       发表于 2020-10-16 07:34
@@ -19891,7 +19891,7 @@ http://weibo.com/1748136774/Jp090rJFm
 移动 nsa组网很少，反正 浙江 江苏现在已经都是sa全覆盖了。今年年初移动就不让 只有nsa的x50入网了。毕竟 nsa要同时连 lte，费电不说 基站还得再部署4g设备，老基站没问题，新增的5g覆盖基站越到后面搞nsa越亏。
 
 
------
+*****
 
 ####  asakura20005  
 ##### 1451#       发表于 2020-10-16 08:01
@@ -19902,7 +19902,7 @@ http://weibo.com/1748136774/Jp090rJFm
 —— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  串行总线  
 ##### 1452#       发表于 2020-10-16 08:08
@@ -19913,7 +19913,7 @@ http://weibo.com/1748136774/Jp090rJFm
 我看前面有说Google备份不能用，虽说我现在XZ2C的备份功能在升级Android10后就也抽风了，每次重启备份就丢失了。但这个备份App数据的功能还挺好用，重装App就能恢复设置。
 
 
------
+*****
 
 ####  黑爪爪  
 ##### 1453#       发表于 2020-10-16 08:10
@@ -19923,7 +19923,7 @@ http://weibo.com/1748136774/Jp090rJFm
 不知道实体店哪天能看到
 
 
------
+*****
 
 ####  雪地白狼  
 ##### 1454#       发表于 2020-10-16 08:14
@@ -19935,7 +19935,7 @@ http://weibo.com/1748136774/Jp090rJFm
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1455#       发表于 2020-10-16 08:21
@@ -19949,7 +19949,7 @@ http://weibo.com/1748136774/Jp090rJFm
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  leystage  
 ##### 1456#       发表于 2020-10-16 08:24
@@ -19960,7 +19960,7 @@ http://weibo.com/1748136774/Jp090rJFm
 也许这就是微信支持指纹支付的交换呢 XD
 
 
------
+*****
 
 ####  leystage  
 ##### 1457#       发表于 2020-10-16 08:26
@@ -19971,7 +19971,7 @@ http://weibo.com/1748136774/Jp090rJFm
 1无印国行至少在 Play 商店里是没有 PS4 remote 的，港版有。应该是设备地区问题
 
 
------
+*****
 
 ####  wizardasd  
 ##### 1458#       发表于 2020-10-16 08:55
@@ -19984,7 +19984,7 @@ http://weibo.com/1748136774/Jp090rJFm
 这个招行24期是怎么整的？
 
 
------
+*****
 
 ####  乃木坂裕人  
 ##### 1459#       发表于 2020-10-16 08:58
@@ -19993,7 +19993,7 @@ http://weibo.com/1748136774/Jp090rJFm
 到底是双卡双待还是单卡？
 
 
------
+*****
 
 ####  月神侠  
 ##### 1460#       发表于 2020-10-16 09:27
@@ -20006,7 +20006,7 @@ http://weibo.com/1748136774/Jp090rJFm
 看前面的回复，说是1M2升级11后就有
 
 
------
+*****
 
 ####  luguoyun  
 ##### 1461#       发表于 2020-10-16 09:37
@@ -20019,7 +20019,7 @@ http://weibo.com/1748136774/Jp090rJFm
 —— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  final007  
 ##### 1462#       发表于 2020-10-16 10:25
@@ -20029,7 +20029,7 @@ http://weibo.com/1748136774/Jp090rJFm
 这个绿色比官图看着亮好多啊，是反光色吗？
 
 
------
+*****
 
 ####  提挈天地  
 ##### 1463#       发表于 2020-10-16 10:44
@@ -20043,7 +20043,7 @@ http://weibo.com/1748136774/Jp090rJFm
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  8400gs  
 ##### 1464#       发表于 2020-10-16 10:48
@@ -20058,7 +20058,7 @@ http://weibo.com/1748136774/Jp090rJFm
 你要抠字眼的话，数字电影发行的标准里，4K也包括1.85：1和2.39：1两种长宽比，你可以去和SMPTE讨论下2.39：1的算不算4k
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1465#       发表于 2020-10-16 10:57
@@ -20070,7 +20070,7 @@ http://weibo.com/1748136774/Jp090rJFm
 双卡双待，5II 的移动5G支持貌似需要等软件更新
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1466#       发表于 2020-10-16 11:08
@@ -20082,7 +20082,7 @@ http://weibo.com/1748136774/Jp090rJFm
 UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索尼自己就是这个标准的主要制定者，在这个标准出来之前就已经量产了4K电视，所以一切都是索尼说了算<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月神侠  
 ##### 1467#       发表于 2020-10-16 11:35
@@ -20094,7 +20094,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 绿色是镜面<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  final007  
 ##### 1468#       发表于 2020-10-16 12:12
@@ -20104,7 +20104,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 想冲绿色<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1469#       发表于 2020-10-16 12:40
@@ -20113,7 +20113,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 怕掉漆的去贴个背膜就好了
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1470#       发表于 2020-10-16 13:15
@@ -20124,7 +20124,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  月神侠  
 ##### 1471#       发表于 2020-10-16 13:19
@@ -20158,7 +20158,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 2020-10-16 13:23 上传
 
 
------
+*****
 
 ####  szzyf7  
 ##### 1472#       发表于 2020-10-16 14:18
@@ -20169,7 +20169,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  wizardasd  
 ##### 1473#       发表于 2020-10-16 14:43
@@ -20184,7 +20184,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 打开看了下，居然只有1没有5，好悲伤……
 
 
------
+*****
 
 ####  无念  
 ##### 1474#       发表于 2020-10-16 15:05
@@ -20193,7 +20193,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">5II的24期啥时候刷新，我有点心动啊
 
 
------
+*****
 
 ####  Tochika  
 ##### 1475#       发表于 2020-10-16 15:16
@@ -20202,7 +20202,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 京东的以旧换新补贴活动只支持购买1马克兔，买5马克兔那么没人权的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  提挈天地  
 ##### 1476#       发表于 2020-10-16 15:22
@@ -20213,7 +20213,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 —— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  asakura20005  
 ##### 1477#       发表于 2020-10-16 15:52
@@ -20228,7 +20228,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 —— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  河野贵明  
 ##### 1478#       发表于 2020-10-16 16:01
@@ -20239,7 +20239,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">到现在为止京东上1 一台都没预订出去？
 
 
------
+*****
 
 ####  提挈天地  
 ##### 1479#       发表于 2020-10-16 16:06
@@ -20254,7 +20254,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  月神侠  
 ##### 1480#       发表于 2020-10-16 16:13
@@ -20267,7 +20267,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 21号出货，正在找供货商谈，可以压到6XXX<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  windsong  
 ##### 1481#       发表于 2020-10-16 16:29
@@ -20276,7 +20276,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 请问京东24期白条券是在哪里抢？好像没看到
 
 
------
+*****
 
 ####  月神侠  
 ##### 1482#       发表于 2020-10-16 16:29
@@ -20325,7 +20325,7 @@ UHD的4K定义就是横向像素点在4000个左右，横纵比不管的，索�
 2020-10-16 16:29 上传
 
 
------
+*****
 
 ####  提挈天地  
 ##### 1483#       发表于 2020-10-16 16:33
@@ -20344,7 +20344,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以
 —— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  垃圾网站上  
 ##### 1484#       发表于 2020-10-16 16:38
@@ -20356,7 +20356,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以
 不可能，我觉得1的页面隐藏了
 
 
------
+*****
 
 ####  MuAmUa  
 ##### 1485#       发表于 2020-10-16 17:03
@@ -20369,7 +20369,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1486#       发表于 2020-10-16 18:07
@@ -20381,7 +20381,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 不好意思，这个事情索尼说算就算。
 
 
------
+*****
 
 ####  逆袭的黑月  
 ##### 1487#       发表于 2020-10-16 18:37
@@ -20390,7 +20390,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">官方定了中文就叫马克兔吗。。。虽然早就习惯了感觉有点怪
 
 
------
+*****
 
 ####  scstriker  
 ##### 1488#       发表于 2020-10-16 19:01
@@ -20402,7 +20402,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 我是凌晨0:07的时候抢到的，然后睡前（两点左右）又看了下好像就没了。
 
 
------
+*****
 
 ####  Cray  
 ##### 1489#       发表于 2020-10-16 19:17
@@ -20414,7 +20414,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1490#       发表于 2020-10-16 19:36
@@ -20431,7 +20431,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  绚烂航迹云  
 ##### 1491#       发表于 2020-10-16 20:13
@@ -20443,7 +20443,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  月神侠  
 ##### 1492#       发表于 2020-10-16 20:27
@@ -20464,7 +20464,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 有兴趣的可以进渣渣的群预定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cray  
 ##### 1493#       发表于 2020-10-16 20:34
@@ -20479,7 +20479,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
------
+*****
 
 ####  无印凉粉  
 ##### 1494#       发表于 2020-10-16 20:59
@@ -20495,7 +20495,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 五兔有什么报价没？
 
 
------
+*****
 
 ####  leystage  
 ##### 1495#       发表于 2020-10-16 21:10
@@ -20508,7 +20508,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 4K 分辨率的 21:9 电影就是 3840*1644 了。全屏看电影效果挺好，显示面积比其它手机大不少
 
 
------
+*****
 
 ####  leystage  
 ##### 1496#       发表于 2020-10-16 21:11
@@ -20519,7 +20519,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 还做了个 马克兔 的微信表情包。。。
 
 
------
+*****
 
 ####  wizardasd  
 ##### 1497#       发表于 2020-10-16 21:38
@@ -20528,7 +20528,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 5.2 也提前到21号发售了啊？
 
 
------
+*****
 
 ####  狂风DKC  
 ##### 1498#       发表于 2020-10-16 22:05
@@ -20544,7 +20544,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我去这价格有点动心
 
 
------
+*****
 
 ####  kaiki_aiolos  
 ##### 1499#       发表于 2020-10-16 22:21
@@ -20556,7 +20556,7 @@ app里商品页面红色“查看”那里，1Ⅱ和5Ⅱ的都可以</blockquote
 我看了下港行价格，7K HKD···折合人民币不到6K···
 
 
------
+*****
 
 ####  MixRadio  
 ##### 1500#       发表于 2020-10-16 22:39

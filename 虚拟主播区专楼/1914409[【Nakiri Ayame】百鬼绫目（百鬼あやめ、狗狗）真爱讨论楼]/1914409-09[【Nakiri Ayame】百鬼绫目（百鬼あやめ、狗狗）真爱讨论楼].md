@@ -2,7 +2,7 @@
 
 
 
------
+*****
 
 ####  シナモンロール  
 ##### 12001#       发表于 2021-5-11 08:04
@@ -28,7 +28,7 @@
 鬼子误我！烂曲误我！跟风的绫总误我！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12002#       发表于 2021-5-11 11:39
@@ -37,7 +37,7 @@
 坏了，绫总的货太纯了
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12003#       发表于 2021-5-11 14:17
@@ -48,7 +48,7 @@
 唐突迫真zqsg给我整不会了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl b站mmr搬运越来越多虚空发情了 是不是现在这些年轻人没听过绫总与一群野男人的故事
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12004#       发表于 2021-5-11 19:23
@@ -57,7 +57,7 @@
 新观众，走程序还是直接<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12005#       发表于 2021-5-11 20:08
@@ -66,7 +66,7 @@
 腿被舔折了(×
 
 
------
+*****
 
 ####  Fami水  
 ##### 12006#       发表于 2021-5-11 20:13
@@ -75,7 +75,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想来想去也就只可能被舔折了吧
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12007#       发表于 2021-5-11 22:12
@@ -84,7 +84,7 @@
 绫总每天这么漂，骨头都是酥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12008#       发表于 2021-5-12 07:24
@@ -93,7 +93,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快150w了，绫总还报数吗
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12009#       发表于 2021-5-12 15:23
@@ -106,7 +106,7 @@
 不给其他人面子阿
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12010#       发表于 2021-5-12 15:33
@@ -117,7 +117,7 @@
 今天绫总是数w的一天
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12011#       发表于 2021-5-12 15:42
@@ -126,7 +126,7 @@
 有买香水的兄弟可以给说一声是什么味儿的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  bluebaby  
 ##### 12012#       发表于 2021-5-12 15:51
@@ -135,7 +135,7 @@
 樱花味，用厂商的说法叫天然萃取香
 
 
------
+*****
 
 ####  天悬星河  
 ##### 12013#       发表于 2021-5-12 16:19
@@ -146,7 +146,7 @@
 果味儿<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  寺川愛美  
 ##### 12014#       发表于 2021-5-12 21:49
@@ -155,7 +155,7 @@
 DFM出局了，反而開遊戲了，怪
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12015#       发表于 2021-5-12 22:26
@@ -164,7 +164,7 @@ DFM出局了，反而開遊戲了，怪
 绫总看到dfm这个怂包ad怒从心中起，直接备战S11
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12016#       发表于 2021-5-12 22:42
@@ -173,7 +173,7 @@ DFM出局了，反而開遊戲了，怪
 两把跌回金2<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12017#       发表于 2021-5-12 23:00
@@ -182,7 +182,7 @@ DFM出局了，反而開遊戲了，怪
 重铸LJL荣光！绫总义不容辞！
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12018#       发表于 2021-5-13 00:06
@@ -197,7 +197,7 @@ DFM出局了，反而開遊戲了，怪
 突然想起很久以前写的东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到过了一年LJL能赢两局了
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12019#       发表于 2021-5-13 01:39
@@ -208,7 +208,7 @@ DFM出局了，反而開遊戲了，怪
 现在都看不到怪绫书和发病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12020#       发表于 2021-5-13 01:55
@@ -217,7 +217,7 @@ DFM出局了，反而開遊戲了，怪
 好巧，这边也习惯了sc发病啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  某穆克拉  
 ##### 12021#       发表于 2021-5-13 01:56
@@ -229,7 +229,7 @@ DFM出局了，反而開遊戲了，怪
 探头探脑余
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12022#       发表于 2021-5-13 14:39
@@ -238,7 +238,7 @@ DFM出局了，反而開遊戲了，怪
 绫总不报数我还有点不习惯了，150w多好的数字啊
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12023#       发表于 2021-5-13 17:05
@@ -247,7 +247,7 @@ DFM出局了，反而開遊戲了，怪
 绫总报数楼友要说，结果绫总不报数了换楼友报数了，ybb<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12024#       发表于 2021-5-13 17:15
@@ -256,7 +256,7 @@ DFM出局了，反而開遊戲了，怪
 绫总报数报成了生活的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">）
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12025#       发表于 2021-5-13 18:07
@@ -265,7 +265,7 @@ DFM出局了，反而開遊戲了，怪
 绫总这典型的慢性病吧，平时不注意等发作了晚了呀……
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12026#       发表于 2021-5-13 19:08
@@ -274,7 +274,7 @@ DFM出局了，反而開遊戲了，怪
 这里建议先把网瘾戒了捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12027#       发表于 2021-5-13 19:10
@@ -283,7 +283,7 @@ DFM出局了，反而開遊戲了，怪
 让绫总戒网可太难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12028#       发表于 2021-5-13 19:19
@@ -292,7 +292,7 @@ DFM出局了，反而開遊戲了，怪
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">年纪轻轻这么多毛病，等到年纪大了怎么办。
 
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12029#       发表于 2021-5-13 20:15
@@ -301,7 +301,7 @@ DFM出局了，反而開遊戲了，怪
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又要秀你那全程气刃斩开刃的太刀了吗
 
 
------
+*****
 
 ####  nian1538  
 ##### 12030#       发表于 2021-5-13 20:15
@@ -317,7 +317,7 @@ DFM出局了，反而開遊戲了，怪
 
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12031#       发表于 2021-5-13 20:54
@@ -328,7 +328,7 @@ DFM出局了，反而開遊戲了，怪
 不就老样子 菜又不练又不能接受指示<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  天悬星河  
 ##### 12032#       发表于 2021-5-13 21:15
@@ -339,7 +339,7 @@ DFM出局了，反而開遊戲了，怪
 余さん可是切片评论看到不喜欢的都要指出来的啊，怎么能接受被粉训
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12033#       发表于 2021-5-13 21:34
@@ -348,7 +348,7 @@ DFM出局了，反而開遊戲了，怪
 真骨头硬能不能播lol啊 天天这么高樱花浓度的游戏好不安<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12034#       发表于 2021-5-13 21:36
@@ -360,7 +360,7 @@ DFM出局了，反而開遊戲了，怪
 syl新衣已经丢进垃圾堆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12035#       发表于 2021-5-13 21:41
@@ -370,7 +370,7 @@ syl新衣已经丢进垃圾堆了<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有新衣服这回事么
 
 
------
+*****
 
 ####  stedckk  
 ##### 12036#       发表于 2021-5-13 21:44
@@ -379,7 +379,7 @@ syl新衣已经丢进垃圾堆了<img src="https://static.saraba1st.com/image/sm
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新衣服展示之后一次都没用过吧。
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12037#       发表于 2021-5-13 21:46
@@ -391,7 +391,7 @@ syl新衣已经丢进垃圾堆了<img src="https://static.saraba1st.com/image/sm
 刚b站两条动态看麻了 鸽了直播还甩公告唬人 跟谁摆臭脸呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12038#       发表于 2021-5-13 21:51
@@ -400,7 +400,7 @@ syl新衣已经丢进垃圾堆了<img src="https://static.saraba1st.com/image/sm
 所以新衣服跟娜娜一起被绫总丢进了垃圾桶？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12039#       发表于 2021-5-13 21:52
@@ -414,7 +414,7 @@ syl新衣已经丢进垃圾堆了<img src="https://static.saraba1st.com/image/sm
 真就输出全靠操龙
 
 
------
+*****
 
 ####  nian1538  
 ##### 12040#       发表于 2021-5-13 22:11
@@ -430,7 +430,7 @@ syl新衣已经丢进垃圾堆了<img src="https://static.saraba1st.com/image/sm
 SYL：会限看电影用过一次
 
 
------
+*****
 
 ####  Fami水  
 ##### 12041#       发表于 2021-5-13 22:13
@@ -439,7 +439,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总 你手上就拿着迅龙太刀 就不要说出类似初见的话了吧
 
 
------
+*****
 
 ####  一仙  
 ##### 12042#       发表于 2021-5-13 22:27
@@ -451,7 +451,7 @@ SYL：会限看电影用过一次
 还等着娜娜介绍她的八个图案<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  寺川愛美  
 ##### 12043#       发表于 2021-5-13 22:34
@@ -460,7 +460,7 @@ SYL：会限看电影用过一次
 屠龍，不行，lol，行！<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  s32244153  
 ##### 12044#       发表于 2021-5-14 00:01
@@ -469,7 +469,7 @@ SYL：会限看电影用过一次
 还能越猫越上头的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12045#       发表于 2021-5-14 01:06
@@ -478,7 +478,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">怎么今天这么多人生日的。
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12046#       发表于 2021-5-15 14:33
@@ -487,7 +487,7 @@ SYL：会限看电影用过一次
 坏了，失踪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Nitro901  
 ##### 12047#       发表于 2021-5-15 20:23
@@ -496,7 +496,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12048#       发表于 2021-5-15 20:25
@@ -505,7 +505,7 @@ SYL：会限看电影用过一次
 这下熟悉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nian1538  
 ##### 12049#       发表于 2021-5-15 20:45
@@ -514,7 +514,7 @@ SYL：会限看电影用过一次
 主播躺平观众跟着躺就完事了
 
 
------
+*****
 
 ####  stedckk  
 ##### 12050#       发表于 2021-5-15 22:21
@@ -523,7 +523,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  寺川愛美  
 ##### 12051#       发表于 2021-5-16 01:02
@@ -534,7 +534,7 @@ SYL：会限看电影用过一次
 101，車隊又回來了
 
 
------
+*****
 
 ####  stedckk  
 ##### 12052#       发表于 2021-5-16 05:49
@@ -543,7 +543,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">打了一晚，lol版本要回归了么
 
 
------
+*****
 
 ####  s32244153  
 ##### 12053#       发表于 2021-5-16 10:11
@@ -553,7 +553,7 @@ SYL：会限看电影用过一次
 <img src="https://idanmu.net/2021/05/ec71bbc9609ef.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12054#       发表于 2021-5-16 10:49
@@ -563,7 +563,7 @@ SYL：会限看电影用过一次
 [https://twitter.com/amanekanatach/status/1393673890715496448](https://twitter.com/amanekanatach/status/1393673890715496448)
 
 
------
+*****
 
 ####  Fami水  
 ##### 12055#       发表于 2021-5-16 13:23
@@ -574,7 +574,7 @@ SYL：会限看电影用过一次
 能上白金就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12056#       发表于 2021-5-16 15:07
@@ -583,7 +583,7 @@ SYL：会限看电影用过一次
 就绫总这样子还养病？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">养出大病还差不多
 
 
------
+*****
 
 ####  stedckk  
 ##### 12057#       发表于 2021-5-16 17:13
@@ -592,7 +592,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是忍不住想打游戏，那咋办呢。
 
 
------
+*****
 
 ####  Vindicator  
 ##### 12058#       发表于 2021-5-16 17:15
@@ -601,7 +601,7 @@ SYL：会限看电影用过一次
 病（指网瘾
 
 
------
+*****
 
 ####  一仙  
 ##### 12059#       发表于 2021-5-16 17:22
@@ -613,7 +613,7 @@ SYL：会限看电影用过一次
 有楼友看了吗讲了啥
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12060#       发表于 2021-5-16 19:43
@@ -624,7 +624,7 @@ SYL：会限看电影用过一次
 
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12061#       发表于 2021-5-16 19:46
@@ -633,7 +633,7 @@ SYL：会限看电影用过一次
 坏了，又是怪猎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12062#       发表于 2021-5-16 19:58
@@ -644,7 +644,7 @@ SYL：会限看电影用过一次
 老卡SE的许可都发下来了播点别的啊
 
 
------
+*****
 
 ####  nian1538  
 ##### 12063#       发表于 2021-5-16 19:58
@@ -653,7 +653,7 @@ SYL：会限看电影用过一次
 今天也要手撕指示厨吗
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12064#       发表于 2021-5-16 23:59
@@ -662,7 +662,7 @@ SYL：会限看电影用过一次
 绫总你怎么穿新衣服了，不会来视奸这里了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12065#       发表于 2021-5-17 00:04
@@ -671,7 +671,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉只露上半身，这新衣服又还行了
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12066#       发表于 2021-5-17 00:07
@@ -680,7 +680,7 @@ SYL：会限看电影用过一次
 但是绫总这个头……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  s32244153  
 ##### 12067#       发表于 2021-5-17 00:08
@@ -689,7 +689,7 @@ SYL：会限看电影用过一次
 上半身+头发把肩膀遮住好像还可以?<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12068#       发表于 2021-5-17 18:13
@@ -701,7 +701,7 @@ SYL：会限看电影用过一次
 这饼画的有夸宝典中典哪味了
 
 
------
+*****
 
 ####  一仙  
 ##### 12069#       发表于 2021-5-17 19:57
@@ -713,7 +713,7 @@ SYL：会限看电影用过一次
 别是啥flag
 
 
------
+*****
 
 ####  stedckk  
 ##### 12070#       发表于 2021-5-17 21:33
@@ -722,7 +722,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">今天又跑mio妈的家去了吗
 
 
------
+*****
 
 ####  Fami水  
 ##### 12071#       发表于 2021-5-17 21:45
@@ -731,7 +731,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">阿绫啥时候能让她们来自己家联动
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12072#       发表于 2021-5-17 22:07
@@ -740,7 +740,7 @@ SYL：会限看电影用过一次
 这问题去年楼里的各位讨论过了，今年……绫总买的锅都烂了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12073#       发表于 2021-5-17 22:10
@@ -749,7 +749,7 @@ SYL：会限看电影用过一次
 搬大房子了应该有点机会了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12074#       发表于 2021-5-17 22:18
@@ -758,7 +758,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">锅应该有用的，只不过不是给同事用罢了。
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12075#       发表于 2021-5-17 22:25
@@ -767,7 +767,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">对劲了，熟悉的味道
 
 
------
+*****
 
 ####  Fami水  
 ##### 12076#       发表于 2021-5-17 22:35
@@ -776,7 +776,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">绫总不要啊
 
 
------
+*****
 
 ####  stedckk  
 ##### 12077#       发表于 2021-5-17 22:54
@@ -797,7 +797,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">有妈的孩子像个宝。
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12078#       发表于 2021-5-18 17:43
@@ -816,7 +816,7 @@ SYL：会限看电影用过一次
 2021-5-18 17:43 上传
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12079#       发表于 2021-5-18 18:51
@@ -825,7 +825,7 @@ SYL：会限看电影用过一次
 整个啥歌能200W的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12080#       发表于 2021-5-18 19:04
@@ -838,7 +838,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总又开始了，大伙快来舔。
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12081#       发表于 2021-5-18 19:14
@@ -849,7 +849,7 @@ SYL：会限看电影用过一次
                     ——绫总<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12082#       发表于 2021-5-18 19:39
@@ -861,7 +861,7 @@ SYL：会限看电影用过一次
 难得啊
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12083#       发表于 2021-5-18 21:50
@@ -870,7 +870,7 @@ SYL：会限看电影用过一次
 又舔了1700多条<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12084#       发表于 2021-5-19 04:00
@@ -904,7 +904,7 @@ SYL：会限看电影用过一次
 2021-5-19 04:00 上传
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12085#       发表于 2021-5-19 06:24
@@ -913,7 +913,7 @@ SYL：会限看电影用过一次
 但你余小姐好像是杏生活里唯一一个搁油管介绍框里写简体中文的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12086#       发表于 2021-5-19 16:47
@@ -922,7 +922,7 @@ SYL：会限看电影用过一次
 😅硬蹭是吧 绫总
 
 
------
+*****
 
 ####  stedckk  
 ##### 12087#       发表于 2021-5-19 17:16
@@ -931,7 +931,7 @@ SYL：会限看电影用过一次
 绫总开过的空头支票多了去了
 
 
------
+*****
 
 ####  天悬星河  
 ##### 12088#       发表于 2021-5-19 17:26
@@ -941,7 +941,7 @@ SYL：会限看电影用过一次
 不过好像确实有gakki粉人设来着
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12089#       发表于 2021-5-19 17:30
@@ -950,7 +950,7 @@ SYL：会限看电影用过一次
 不敢多想，绫总嫁人的那天<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12090#       发表于 2021-5-19 17:38
@@ -962,7 +962,7 @@ SYL：会限看电影用过一次
 
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12091#       发表于 2021-5-19 17:44
@@ -971,7 +971,7 @@ SYL：会限看电影用过一次
 是不是要不要包个大红包祝绫总早生贵子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soraku  
 ##### 12092#       发表于 2021-5-20 00:15
@@ -980,7 +980,7 @@ SYL：会限看电影用过一次
 “フォロリクは全てブロックしています”<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12093#       发表于 2021-5-20 10:47
@@ -989,7 +989,7 @@ SYL：会限看电影用过一次
 只能说你们绫人还不够扭曲，祭丝已经快进到带孩直播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://img.saraba1st.com/forum/202105/19/031647zeq3g1xbmr1qbi1q.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12094#       发表于 2021-5-20 14:04
@@ -1000,7 +1000,7 @@ SYL：会限看电影用过一次
 绫总带孩直播有啊，各种小小绫早玩过了，去年的了，你得往前翻个一两百页吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12095#       发表于 2021-5-20 18:22
@@ -1009,7 +1009,7 @@ SYL：会限看电影用过一次
 看完夸刚才的声明 再次觉得绫总真的天选之人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12096#       发表于 2021-5-20 18:32
@@ -1018,7 +1018,7 @@ SYL：会限看电影用过一次
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">咋了 看了一圈是被黑泥整破防了嘛
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12097#       发表于 2021-5-20 18:47
@@ -1030,7 +1030,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 所以说APEX真的碰不得啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12098#       发表于 2021-5-20 18:48
@@ -1042,7 +1042,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 那能不能快进到二代目holo孩子们同台<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12099#       发表于 2021-5-20 18:55
@@ -1057,7 +1057,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 百鬼众已经从出道开始就被绫总pua了 这种黑泥早就倒完了
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12100#       发表于 2021-5-20 18:59
@@ -1066,7 +1066,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 不光菜，我还打比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12101#       发表于 2021-5-20 19:00
@@ -1078,7 +1078,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 最近病情都不严重，以前最经典的我记得有一段绫总让自己孩子跟同事直播，自己摸鱼的段子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12102#       发表于 2021-5-20 20:22
@@ -1089,7 +1089,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 一句安慰都没有，建议crew把她冲了。
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12103#       发表于 2021-5-20 20:33
@@ -1098,7 +1098,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 绫总经验丰富脸皮厚得一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12104#       发表于 2021-5-20 20:59
@@ -1112,7 +1112,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 感觉病情减缓不少，或许是退化成了全肯定的纯良萌萌人，只要有声响就说好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12105#       发表于 2021-5-20 21:03
@@ -1121,7 +1121,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 谁不是呢，我也好久没发歌词了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12106#       发表于 2021-5-20 21:09
@@ -1131,7 +1131,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">话说你天天发推倒是播一下啊，现在彻底摆烂了是吧。
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12107#       发表于 2021-5-20 21:10
@@ -1150,7 +1150,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 2021-5-20 21:10 上传
 
 
------
+*****
 
 ####  nian1538  
 ##### 12108#       发表于 2021-5-20 21:16
@@ -1159,7 +1159,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 第一次最协之前吧
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12109#       发表于 2021-5-20 21:22
@@ -1168,7 +1168,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 那次没记错我记得卡爆了绫总就摆一个立绘的那次
 
 
------
+*****
 
 ####  Fami水  
 ##### 12110#       发表于 2021-5-20 21:34
@@ -1194,7 +1194,7 @@ APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
 查看全部评分
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12111#       发表于 2021-5-21 14:36
@@ -1216,7 +1216,7 @@ NYO}OCK)OATKYK_SU@FSOVP.png
 <img src="https://img.saraba1st.com/forum/202105/21/143604vwre4wzu2b2kwbxi.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12112#       发表于 2021-5-21 14:46
@@ -1225,7 +1225,7 @@ NYO}OCK)OATKYK_SU@FSOVP.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">训粉还是得绫总来
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12113#       发表于 2021-5-21 16:43
@@ -1245,7 +1245,7 @@ NYO}OCK)OATKYK_SU@FSOVP.png
 2021-5-21 16:43 上传
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12114#       发表于 2021-5-21 16:57
@@ -1267,7 +1267,7 @@ image.png
 <img src="https://img.saraba1st.com/forum/202105/21/165716acco5f04ryco80v6.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12115#       发表于 2021-5-21 18:43
@@ -1296,7 +1296,7 @@ image.png
 查看全部评分
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12116#       发表于 2021-5-21 18:49
@@ -1305,7 +1305,7 @@ image.png
 这是暗示阿绫去年9月被狐狸抓出来锤一顿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12117#       发表于 2021-5-21 19:16
@@ -1314,7 +1314,7 @@ image.png
 这歌是死神solo唱的啊 好牌面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12118#       发表于 2021-5-21 19:37
@@ -1323,7 +1323,7 @@ image.png
 大家都在热火朝天地聊PV，绫总跑出来提醒大家明天的翻唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  天悬星河  
 ##### 12119#       发表于 2021-5-21 20:01
@@ -1334,7 +1334,7 @@ image.png
 总之就是好想被咬一口<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12120#       发表于 2021-5-21 20:18
@@ -1345,7 +1345,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 
 
 
------
+*****
 
 ####  nian1538  
 ##### 12121#       发表于 2021-5-22 12:08
@@ -1354,7 +1354,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 又是グッバイ宣言
 
 
------
+*****
 
 ####  Fami水  
 ##### 12122#       发表于 2021-5-22 12:09
@@ -1363,7 +1363,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 蚌埠住了
 
 
------
+*****
 
 ####  Nitro901  
 ##### 12123#       发表于 2021-5-22 12:09
@@ -1372,7 +1372,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 居然和夸宝同一首翻唱吗，皆切抬头
 
 
------
+*****
 
 ####  17119854  
 ##### 12124#       发表于 2021-5-22 12:33
@@ -1381,7 +1381,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 万组的力量  集于一身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  天悬星河  
 ##### 12125#       发表于 2021-5-22 12:44
@@ -1390,7 +1390,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 卍组贴贴草
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12126#       发表于 2021-5-22 12:58
@@ -1404,7 +1404,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 结合夸宝讲梦的暗示很难不多想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12127#       发表于 2021-5-22 13:16
@@ -1417,7 +1417,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 然后被粉哄了两下想听就把这首也发出来了，然而这波并不看好能超过king
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12128#       发表于 2021-5-22 13:23
@@ -1428,7 +1428,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 有二十多天我从头联系画师和动画 自己用vocal扒谱调教都绰绰有余<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  a2276382  
 ##### 12129#       发表于 2021-5-22 19:41
@@ -1453,7 +1453,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 查看全部评分
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12130#       发表于 2021-5-22 19:44
@@ -1464,7 +1464,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 要超过夸宝就不太可能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12131#       发表于 2021-5-22 19:52
@@ -1473,7 +1473,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 草，这熟悉的改图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12132#       发表于 2021-5-22 20:06
@@ -1482,7 +1482,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 一如既往魔改级调音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  螺旋卷钩生  
 ##### 12133#       发表于 2021-5-22 20:06
@@ -1491,7 +1491,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 这调音麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12134#       发表于 2021-5-22 20:11
@@ -1502,7 +1502,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 这首歌是真的欣赏不来。
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12135#       发表于 2021-5-22 20:57
@@ -1511,7 +1511,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 不知道为啥绫总最近的行为让我想起宋丹丹赵本山白云黑土那个《月子1》《月子2》，村头厕所没纸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12136#       发表于 2021-5-22 22:43
@@ -1520,7 +1520,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 跟船阿姨这张是这个画师画的啊 怎么感觉先赏脸再约稿有点微妙 对面还好意思开正常价吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12137#       发表于 2021-5-23 08:24
@@ -1531,7 +1531,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 绫总又要膨胀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12138#       发表于 2021-5-23 11:17
@@ -1562,7 +1562,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 这次势要拿第一。
 
 
------
+*****
 
 ####  一仙  
 ##### 12139#       发表于 2021-5-23 11:57
@@ -1571,7 +1571,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 这次怎么不报数了，不会是还没起床吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12140#       发表于 2021-5-23 12:05
@@ -1580,7 +1580,7 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">歌的问题，这次换一样的歌 再来比过
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12141#       发表于 2021-5-23 13:30
@@ -1593,7 +1593,7 @@ syl任何一个有点进取心的歌手发现自己音源被高强度魔改都�
 抬一手画师然后该干啥干啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12142#       发表于 2021-5-23 13:39
@@ -1602,7 +1602,7 @@ syl任何一个有点进取心的歌手发现自己音源被高强度魔改都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">报数只会迟，但不会缺席。
 
 
------
+*****
 
 ####  stedckk  
 ##### 12143#       发表于 2021-5-24 20:02
@@ -1611,7 +1611,7 @@ syl任何一个有点进取心的歌手发现自己音源被高强度魔改都�
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">九十万都不播，还收不收钱了，嫌钱多是吧。
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12144#       发表于 2021-5-25 09:52
@@ -1625,7 +1625,7 @@ syl任何一个有点进取心的歌手发现自己音源被高强度魔改都�
 syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">」
 
 
------
+*****
 
 ####  Fami水  
 ##### 12145#       发表于 2021-5-25 10:31
@@ -1635,7 +1635,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">躺着都能涨那么快，还有王法么，还有天理么
 
 
------
+*****
 
 ####  一仙  
 ##### 12146#       发表于 2021-5-25 11:40
@@ -1649,7 +1649,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 一动不动的，不会想躺到一百万粉吧
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12147#       发表于 2021-5-25 12:14
@@ -1658,7 +1658,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 你们想看怪猎了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12148#       发表于 2021-5-25 12:34
@@ -1679,7 +1679,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 2021-5-25 12:32 上传
 
 
------
+*****
 
 ####  stedckk  
 ##### 12149#       发表于 2021-5-25 22:10
@@ -1690,7 +1690,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 话说好久没开歌回了。
 
 
------
+*****
 
 ####  一仙  
 ##### 12150#       发表于 2021-5-25 22:56
@@ -1704,7 +1704,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12151#       发表于 2021-5-26 19:31
@@ -1713,7 +1713,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 看了一下king195w了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12152#       发表于 2021-5-26 20:16
@@ -1722,7 +1722,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">姐姐 今天该打怪猎了
 
 
------
+*****
 
 ####  stedckk  
 ##### 12153#       发表于 2021-5-26 22:00
@@ -1731,7 +1731,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">你妈嗨彻底摆烂了。
 
 
------
+*****
 
 ####  一仙  
 ##### 12154#       发表于 2021-5-26 22:06
@@ -1742,7 +1742,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 五月二号的广播放出来了
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12155#       发表于 2021-5-26 22:34
@@ -1753,7 +1753,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 反正魔改调音也能数据那么高 还有什么练声乐技巧的必要吗 饮茶先啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12156#       发表于 2021-5-26 22:36
@@ -1762,7 +1762,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 熟悉的绫总回来了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12157#       发表于 2021-5-26 22:41
@@ -1775,7 +1775,7 @@ syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.sarab
 mio：？！
 
 
------
+*****
 
 ####  Fami水  
 ##### 12158#       发表于 2021-5-26 22:52
@@ -1784,7 +1784,7 @@ mio：？！
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">母女恩断义绝
 
 
------
+*****
 
 ####  nian1538  
 ##### 12159#       发表于 2021-5-26 23:08
@@ -1793,7 +1793,7 @@ mio：？！
 有电台有live还要搬家，不摸就会被工作压力和anti压倒变成阿夸了，一定是这样的，确信
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12160#       发表于 2021-5-27 00:12
@@ -1802,7 +1802,7 @@ mio：？！
 好累哦~~~~绫总<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Badwoman  
 ##### 12161#       发表于 2021-5-27 02:04
@@ -1839,7 +1839,7 @@ mio：？！
 查看全部评分
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12162#       发表于 2021-5-27 02:29
@@ -1848,7 +1848,7 @@ mio：？！
 太大了
 
 
------
+*****
 
 ####  一仙  
 ##### 12163#       发表于 2021-5-27 11:37
@@ -1857,7 +1857,7 @@ mio：？！
 又是十天没有开台直播了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12164#       发表于 2021-5-27 20:11
@@ -1871,7 +1871,7 @@ mio：？！
 还在搬家 错怪绫总了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12165#       发表于 2021-5-27 20:24
@@ -1880,7 +1880,7 @@ mio：？！
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">难道就能是皆切联手对抗holo的世界线么
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12166#       发表于 2021-5-27 21:07
@@ -1889,7 +1889,7 @@ mio：？！
 mhr都更新了该来了吧
 
 
------
+*****
 
 ####  nian1538  
 ##### 12167#       发表于 2021-5-27 21:07
@@ -1901,7 +1901,7 @@ mhr都更新了该来了吧
 下次还敢
 
 
------
+*****
 
 ####  stedckk  
 ##### 12168#       发表于 2021-5-27 21:52
@@ -1910,7 +1910,7 @@ mhr都更新了该来了吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不会学夸宝搬一个月吧。。。
 
 
------
+*****
 
 ####  一仙  
 ##### 12169#       发表于 2021-5-27 21:53
@@ -1919,7 +1919,7 @@ mhr都更新了该来了吧
 “没办法直播，大家去刷翻唱播放量吧”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12170#       发表于 2021-5-27 21:55
@@ -1930,7 +1930,7 @@ mhr都更新了该来了吧
 物似主人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12171#       发表于 2021-5-28 01:57
@@ -1939,7 +1939,7 @@ mhr都更新了该来了吧
 新歌145w，king199w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  aisakahammer  
 ##### 12172#       发表于 2021-5-28 09:20
@@ -1948,7 +1948,7 @@ mhr都更新了该来了吧
 摸余的声音真好听啊，上班听一会儿都能回血
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12173#       发表于 2021-5-29 16:00
@@ -1968,7 +1968,7 @@ mhr都更新了该来了吧
 2021-5-29 16:00 上传
 
 
------
+*****
 
 ####  Fami水  
 ##### 12174#       发表于 2021-5-29 19:48
@@ -1977,7 +1977,7 @@ mhr都更新了该来了吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">习惯就好了 摸余的日子要学会自己找药吃
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12175#       发表于 2021-5-29 19:50
@@ -1986,7 +1986,7 @@ mhr都更新了该来了吧
 不是说了去刷翻唱吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12176#       发表于 2021-5-29 22:13
@@ -1995,7 +1995,7 @@ mhr都更新了该来了吧
 把百鬼众不过是贡献数字的工具人罢了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12177#       发表于 2021-5-30 11:56
@@ -2004,7 +2004,7 @@ mhr都更新了该来了吧
 草 有时间自搜没时间发推是吧<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12178#       发表于 2021-5-30 14:13
@@ -2013,7 +2013,7 @@ mhr都更新了该来了吧
 不开台金盾耐久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12179#       发表于 2021-5-31 16:48
@@ -2022,7 +2022,7 @@ mhr都更新了该来了吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">杏摆烂第一人，我选绫总。
 
 
------
+*****
 
 ####  一仙  
 ##### 12180#       发表于 2021-5-31 17:51
@@ -2033,7 +2033,7 @@ mhr都更新了该来了吧
 
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12181#       发表于 2021-5-31 17:59
@@ -2052,7 +2052,7 @@ mhr都更新了该来了吧
 2021-5-31 17:58 上传
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12182#       发表于 2021-5-31 18:58
@@ -2061,7 +2061,7 @@ mhr都更新了该来了吧
 今年才买手机的是什么小学生啊 不学好的看管人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12183#       发表于 2021-5-31 19:49
@@ -2070,7 +2070,7 @@ mhr都更新了该来了吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小学生的钱都赚 绫总你的良心不会痛吗
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12184#       发表于 2021-5-31 22:48
@@ -2079,7 +2079,7 @@ mhr都更新了该来了吧
 LOL都不玩是多少含金量懂吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soraku  
 ##### 12185#       发表于 2021-6-1 02:43
@@ -2090,7 +2090,7 @@ LOL都不玩是多少含金量懂吧<img src="https://static.saraba1st.com/image
 阿绫的私人生活<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12186#       发表于 2021-6-1 10:14
@@ -2099,7 +2099,7 @@ LOL都不玩是多少含金量懂吧<img src="https://static.saraba1st.com/image
 绫总报数她来了
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12187#       发表于 2021-6-1 11:48
@@ -2108,7 +2108,7 @@ LOL都不玩是多少含金量懂吧<img src="https://static.saraba1st.com/image
 时隔五天发推只报数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12188#       发表于 2021-6-1 12:01
@@ -2123,7 +2123,7 @@ LOL都不玩是多少含金量懂吧<img src="https://static.saraba1st.com/image
 也可能是故意摸来拖慢涨速 不做出头鸟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stmule  
 ##### 12189#       发表于 2021-6-1 13:09
@@ -2138,7 +2138,7 @@ LOL都不玩是多少含金量懂吧<img src="https://static.saraba1st.com/image
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  stmule  
 ##### 12190#       发表于 2021-6-1 13:09
@@ -2151,7 +2151,7 @@ LOL都不玩是多少含金量懂吧<img src="https://static.saraba1st.com/image
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  stmule  
 ##### 12191#       发表于 2021-6-1 13:09
@@ -2164,7 +2164,7 @@ LOL都不玩是多少含金量懂吧<img src="https://static.saraba1st.com/image
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12192#       发表于 2021-6-1 17:46
@@ -2211,7 +2211,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 查看全部评分
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12193#       发表于 2021-6-1 19:16
@@ -2220,7 +2220,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 看到vvvv感到很害怕 不安了
 
 
------
+*****
 
 ####  一仙  
 ##### 12194#       发表于 2021-6-1 19:17
@@ -2232,7 +2232,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 这首歌比king要受欢迎这么多吗
 
 
------
+*****
 
 ####  stedckk  
 ##### 12195#       发表于 2021-6-1 20:26
@@ -2241,7 +2241,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">就离谱，增速比king快多了，是不是因为绫总不播导致百鬼众一天到晚在循环这首歌。
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12196#       发表于 2021-6-2 02:55
@@ -2250,7 +2250,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 翻唱每多一次播放，阿绫就会多摸鱼一秒。拯救百鬼众，拒绝刷翻唱！
 
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12197#       发表于 2021-6-2 12:48
@@ -2259,7 +2259,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 往年都是十月左右开始冬眠，今年怎么冬眠来的这么早，还是说这是冬眠前的开胃菜?<img src="https://static.saraba1st.com/image/smiley/face2017/249.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12198#       发表于 2021-6-2 19:23
@@ -2268,7 +2268,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 等250W再来报个数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12199#       发表于 2021-6-2 19:28
@@ -2277,7 +2277,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">目标 躺到金盾
 
 
------
+*****
 
 ####  stedckk  
 ##### 12200#       发表于 2021-6-2 23:46
@@ -2286,7 +2286,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">躺完记得播爆。
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12201#       发表于 2021-6-2 23:59
@@ -2295,7 +2295,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 绫总这人，金盾了不是更没压力了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12202#       发表于 2021-6-3 00:19
@@ -2304,7 +2304,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  寺川愛美  
 ##### 12203#       发表于 2021-6-3 01:54
@@ -2315,7 +2315,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 冬天要睡，夏天也要睡<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12204#       发表于 2021-6-3 03:03
@@ -2324,7 +2324,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 春困秋乏冬眠夏摸鱼
 
 
------
+*****
 
 ####  Fami水  
 ##### 12205#       发表于 2021-6-3 20:20
@@ -2333,7 +2333,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">半个月了 网线还没拉好么 绫总
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12206#       发表于 2021-6-4 01:15
@@ -2355,7 +2355,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://img.saraba1st.com/forum/202106/04/011447wb3lbkbkz8ta8tpm.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12207#       发表于 2021-6-4 12:41
@@ -2364,7 +2364,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为播得少，歌回频率显得高。
 
 
------
+*****
 
 ####  nian1538  
 ##### 12208#       发表于 2021-6-4 18:15
@@ -2373,7 +2373,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 能在漫画里帅几话呢
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12209#       发表于 2021-6-4 19:07
@@ -2382,7 +2382,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 我现在油管看完啥都会自动跳转到绫总的再见宣言，我可能知道250W播放是怎么来的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12210#       发表于 2021-6-5 11:57
@@ -2399,7 +2399,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
------
+*****
 
 ####  Fami水  
 ##### 12211#       发表于 2021-6-5 14:37
@@ -2410,7 +2410,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 
                                           
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12212#       发表于 2021-6-5 22:18
@@ -2419,7 +2419,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 乐了 辣辣去唱冻鳗ed<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12213#       发表于 2021-6-5 22:55
@@ -2433,7 +2433,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 最近改id改得好频繁。
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12214#       发表于 2021-6-5 23:50
@@ -2444,7 +2444,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 卍组的羁绊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12215#       发表于 2021-6-5 23:56
@@ -2453,7 +2453,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊夸也被anti骚扰，所以今年的大戏的卐组么
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12216#       发表于 2021-6-6 01:02
@@ -2462,7 +2462,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 一定是喵喵狐的阴谋<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">！不好意思错台了
 
 
------
+*****
 
 ####  Fami水  
 ##### 12217#       发表于 2021-6-6 18:58
@@ -2472,7 +2472,7 @@ PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face201
 白姨忙完了给点作用啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12218#       发表于 2021-6-6 19:32
@@ -2486,7 +2486,7 @@ syl夸明天回归 绫总家该搬完了吧
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12219#       发表于 2021-6-8 13:49
@@ -2497,7 +2497,7 @@ syl夸明天回归 绫总家该搬完了吧
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12220#       发表于 2021-6-8 14:07
@@ -2508,7 +2508,7 @@ syl夸明天回归 绫总家该搬完了吧
 
                                                  
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12221#       发表于 2021-6-8 15:25
@@ -2519,7 +2519,7 @@ syl夸明天回归 绫总家该搬完了吧
 
                                                  
 
------
+*****
 
 ####  一仙  
 ##### 12222#       发表于 2021-6-8 15:58
@@ -2533,7 +2533,7 @@ syl夸明天回归 绫总家该搬完了吧
 要三百万了，绫总可以出来报个数吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12223#       发表于 2021-6-8 16:14
@@ -2544,7 +2544,7 @@ syl夸明天回归 绫总家该搬完了吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">绫总一直不想发猫图就是为了在私人号发让野男人看是吧。
 
 
------
+*****
 
 ####  Fami水  
 ##### 12224#       发表于 2021-6-8 16:33
@@ -2555,7 +2555,7 @@ syl夸明天回归 绫总家该搬完了吧
 病情要控制不住了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12225#       发表于 2021-6-8 16:47
@@ -2566,7 +2566,7 @@ syl夸明天回归 绫总家该搬完了吧
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12226#       发表于 2021-6-8 17:56
@@ -2579,7 +2579,7 @@ syl夸明天回归 绫总家该搬完了吧
 爬楼爬到这里不禁笑出了声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12227#       发表于 2021-6-8 18:21
@@ -2588,7 +2588,7 @@ syl夸明天回归 绫总家该搬完了吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12228#       发表于 2021-6-8 18:35
@@ -2607,7 +2607,7 @@ syl夸明天回归 绫总家该搬完了吧
 bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊，有点厉害的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12229#       发表于 2021-6-8 18:56
@@ -2618,7 +2618,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12230#       发表于 2021-6-8 19:52
@@ -2627,7 +2627,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">lol都不打了，更不用说打枪了
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12231#       发表于 2021-6-8 20:06
@@ -2636,7 +2636,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 确实，仿佛戒网现充了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12232#       发表于 2021-6-8 20:34
@@ -2645,7 +2645,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 电竞魂，凋零！
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12233#       发表于 2021-6-8 20:37
@@ -2660,7 +2660,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12234#       发表于 2021-6-8 21:18
@@ -2672,7 +2672,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12235#       发表于 2021-6-8 22:07
@@ -2683,7 +2683,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12236#       发表于 2021-6-9 09:34
@@ -2694,7 +2694,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12237#       发表于 2021-6-9 11:41
@@ -2703,7 +2703,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 乐子了 你绫总总是大烟花时候不在 装糊涂的高手啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12238#       发表于 2021-6-9 11:42
@@ -2714,7 +2714,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12239#       发表于 2021-6-9 12:37
@@ -2723,7 +2723,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下注意力完全被转移了，难道这就是绫总的大智慧
 
 
------
+*****
 
 ####  s32244153  
 ##### 12240#       发表于 2021-6-9 12:40
@@ -2736,7 +2736,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12241#       发表于 2021-6-9 12:41
@@ -2747,7 +2747,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                 
 
------
+*****
 
 ####  因为你不会  
 ##### 12242#       发表于 2021-6-9 13:17
@@ -2756,7 +2756,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 绫总第五层
 
 
------
+*****
 
 ####  屑屑代沟尼亚  
 ##### 12243#       发表于 2021-6-9 13:27
@@ -2767,7 +2767,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12244#       发表于 2021-6-9 14:59
@@ -2791,7 +2791,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 <img src="https://img.saraba1st.com/forum/202106/09/151416wcz30yo9ytxpjooo.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12245#       发表于 2021-6-9 15:04
@@ -2802,7 +2802,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  一仙  
 ##### 12246#       发表于 2021-6-9 15:42
@@ -2811,7 +2811,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 好几次大事件人都不在，还都有很合理的理由，到底是运气还是绫总在第五层<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12247#       发表于 2021-6-9 15:51
@@ -2820,7 +2820,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 夸发推了 现在压力落到绫总这来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12248#       发表于 2021-6-9 15:52
@@ -2829,7 +2829,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 绫总在搬家，上不了网呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12249#       发表于 2021-6-9 15:57
@@ -2838,7 +2838,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪来的压力
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12250#       发表于 2021-6-9 15:58
@@ -2847,7 +2847,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 绫总lol都不打了，数都不报了，谁管你蝗是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12251#       发表于 2021-6-9 16:00
@@ -2856,7 +2856,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 悼念一下正常，不发也合理。全看余心情
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12252#       发表于 2021-6-9 16:02
@@ -2867,7 +2867,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12253#       发表于 2021-6-10 00:21
@@ -2876,7 +2876,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 隔壁怎么又在玩什么大逃杀2.0了，绫总轻松进入决赛圈啊这，无败二冠稳了啊
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12254#       发表于 2021-6-10 00:43
@@ -2892,7 +2892,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12255#       发表于 2021-6-10 02:20
@@ -2913,7 +2913,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12256#       发表于 2021-6-10 10:27
@@ -2922,7 +2922,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为了掩饰脖子太细长 所以把头画大了是么
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12257#       发表于 2021-6-10 10:32
@@ -2933,7 +2933,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 看样子回旋难度还不小的 要两面不是人力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12258#       发表于 2021-6-10 10:56
@@ -2944,7 +2944,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12259#       发表于 2021-6-10 10:58
@@ -2959,7 +2959,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 这下没绫总在摸余的证据了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12260#       发表于 2021-6-10 11:38
@@ -2970,7 +2970,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12261#       发表于 2021-6-10 11:56
@@ -2979,7 +2979,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 要不跟龙女士一起毕业吧 这杏不待也罢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12262#       发表于 2021-6-10 12:05
@@ -2990,7 +2990,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12263#       发表于 2021-6-10 14:52
@@ -3001,7 +3001,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  soraku  
 ##### 12264#       发表于 2021-6-10 20:49
@@ -3012,7 +3012,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12265#       发表于 2021-6-10 20:51
@@ -3021,7 +3021,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 你这剧本是虚拟版《变身》???<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12266#       发表于 2021-6-10 21:02
@@ -3032,7 +3032,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  alexmax1  
 ##### 12267#       发表于 2021-6-10 23:00
@@ -3043,7 +3043,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  寺川愛美  
 ##### 12268#       发表于 2021-6-11 02:10
@@ -3058,7 +3058,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12269#       发表于 2021-6-11 13:53
@@ -3069,7 +3069,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12270#       发表于 2021-6-11 16:30
@@ -3080,7 +3080,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12271#       发表于 2021-6-11 16:51
@@ -3091,7 +3091,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                 
 
------
+*****
 
 ####  Fami水  
 ##### 12272#       发表于 2021-6-11 17:15
@@ -3100,7 +3100,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">上次是消失了多久来着
 
 
------
+*****
 
 ####  一仙  
 ##### 12273#       发表于 2021-6-11 17:18
@@ -3109,7 +3109,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 希望阿绫的孩子是一个继承了绫的可爱还很勤奋的好孩子<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12274#       发表于 2021-6-11 17:23
@@ -3120,7 +3120,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  Nitro901  
 ##### 12275#       发表于 2021-6-11 17:34
@@ -3129,7 +3129,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">趁乱加倍摸余这是
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12276#       发表于 2021-6-11 17:34
@@ -3142,7 +3142,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 兄弟们再见我去看虹人了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12277#       发表于 2021-6-11 18:02
@@ -3151,7 +3151,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 梦回去年弃用魂帐彻底逍遥法外<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12278#       发表于 2021-6-11 18:06
@@ -3160,7 +3160,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 你最好是来看虹人，然后会发现更多的apex，虽然我已经习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12279#       发表于 2021-6-11 18:09
@@ -3171,7 +3171,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12280#       发表于 2021-6-11 18:49
@@ -3206,7 +3206,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12281#       发表于 2021-6-11 21:11
@@ -3217,7 +3217,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12282#       发表于 2021-6-12 14:13
@@ -3226,7 +3226,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 绫总能不能也出个翻唱吸血鬼 我要看到卍组内斗阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12283#       发表于 2021-6-12 14:13
@@ -3237,7 +3237,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  FCCHua  
 ##### 12284#       发表于 2021-6-12 14:57
@@ -3246,7 +3246,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 这个月有可能见到吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12285#       发表于 2021-6-12 15:17
@@ -3255,7 +3255,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12286#       发表于 2021-6-12 15:27
@@ -3266,7 +3266,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12287#       发表于 2021-6-12 15:48
@@ -3277,7 +3277,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12288#       发表于 2021-6-12 17:01
@@ -3288,7 +3288,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12289#       发表于 2021-6-12 18:47
@@ -3297,7 +3297,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 <img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">活了 活了 活了
 
 
------
+*****
 
 ####  一仙  
 ##### 12290#       发表于 2021-6-12 18:50
@@ -3308,7 +3308,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 因为拉不到人当盾了吗
 
 
------
+*****
 
 ####  Fami水  
 ##### 12291#       发表于 2021-6-12 18:58
@@ -3317,7 +3317,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都沉浸在蝗毕业的悲伤中，不好拉盾挡伤害
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12292#       发表于 2021-6-12 18:59
@@ -3326,7 +3326,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 好快的复活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  天悬星河  
 ##### 12293#       发表于 2021-6-12 19:17
@@ -3335,7 +3335,7 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 不会真的是断网了吧🧐
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12294#       发表于 2021-6-12 19:21
@@ -3349,7 +3349,7 @@ syl V帐活了 什么时候要弄新的魂帐
 
                                                  
 
------
+*****
 
 ####  soraku  
 ##### 12295#       发表于 2021-6-12 19:40
@@ -3360,7 +3360,7 @@ syl V帐活了 什么时候要弄新的魂帐
 
                                                  
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12296#       发表于 2021-6-12 21:11
@@ -3371,7 +3371,7 @@ syl V帐活了 什么时候要弄新的魂帐
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12297#       发表于 2021-6-12 21:58
@@ -3380,7 +3380,7 @@ syl V帐活了 什么时候要弄新的魂帐
 绫总又不是nt<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12298#       发表于 2021-6-12 21:59
@@ -3389,7 +3389,7 @@ syl V帐活了 什么时候要弄新的魂帐
 没上会员的人<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12299#       发表于 2021-6-12 22:02
@@ -3400,7 +3400,7 @@ syl V帐活了 什么时候要弄新的魂帐
 
                                                  
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12300#       发表于 2021-6-12 22:27
@@ -3413,7 +3413,7 @@ syl V帐活了 什么时候要弄新的魂帐
 
 
 
------
+*****
 
 ####  alexmax1  
 ##### 12301#       发表于 2021-6-12 22:32
@@ -3422,7 +3422,7 @@ syl V帐活了 什么时候要弄新的魂帐
 会员能看到更可爱的绫总吗？能的话就不亏
 
 
------
+*****
 
 ####  Fami水  
 ##### 12302#       发表于 2021-6-12 22:35
@@ -3436,7 +3436,7 @@ syl V帐活了 什么时候要弄新的魂帐
 等到最后就一个音声，老Pua了
 
 
------
+*****
 
 ####  stedckk  
 ##### 12303#       发表于 2021-6-12 23:28
@@ -3445,7 +3445,7 @@ syl V帐活了 什么时候要弄新的魂帐
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真正的电竞女孩已经在隔壁杯赛夺冠了，而虚假的电竞女孩还在这耍粉呢。
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12304#       发表于 2021-6-12 23:33
@@ -3456,7 +3456,7 @@ syl V帐活了 什么时候要弄新的魂帐
 新麦调的跟tc一样糊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12305#       发表于 2021-6-12 23:33
@@ -3467,7 +3467,7 @@ syl V帐活了 什么时候要弄新的魂帐
 
                                                 
 
------
+*****
 
 ####  天悬星河  
 ##### 12306#       发表于 2021-6-12 23:55
@@ -3479,7 +3479,7 @@ syl V帐活了 什么时候要弄新的魂帐
 刚刚那一声哇也太可爱了
 
 
------
+*****
 
 ####  Fami水  
 ##### 12307#       发表于 2021-6-13 00:07
@@ -3488,7 +3488,7 @@ syl V帐活了 什么时候要弄新的魂帐
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总在自己的领域里杂谈 没捡几个评论
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12308#       发表于 2021-6-13 00:11
@@ -3499,7 +3499,7 @@ syl V帐活了 什么时候要弄新的魂帐
 但只字不提龙女士 装糊涂的高手<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12309#       发表于 2021-6-13 00:13
@@ -3508,7 +3508,7 @@ syl V帐活了 什么时候要弄新的魂帐
 断网生活变规律了草
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12310#       发表于 2021-6-13 00:45
@@ -3517,7 +3517,7 @@ syl V帐活了 什么时候要弄新的魂帐
 前两天还去本社做过收录 这都没被运营抓住发哭丧吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12311#       发表于 2021-6-13 01:03
@@ -3528,7 +3528,7 @@ syl V帐活了 什么时候要弄新的魂帐
 有人心虚了 但我不说是谁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12312#       发表于 2021-6-13 01:25
@@ -3537,7 +3537,7 @@ syl V帐活了 什么时候要弄新的魂帐
 绫总说goodbye宣言这翻唱发布的timing很棒 指网线<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12313#       发表于 2021-6-13 01:28
@@ -3547,7 +3547,7 @@ syl V帐活了 什么时候要弄新的魂帐
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">天天不播让绫人循环翻唱就可以萌混过关，真是聪明呢
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12314#       发表于 2021-6-13 01:34
@@ -3558,7 +3558,7 @@ syl V帐活了 什么时候要弄新的魂帐
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12315#       发表于 2021-6-13 01:45
@@ -3567,7 +3567,7 @@ syl V帐活了 什么时候要弄新的魂帐
 饥饿营销这块属实玩明白了
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12316#       发表于 2021-6-13 01:53
@@ -3580,7 +3580,7 @@ syl V帐活了 什么时候要弄新的魂帐
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12317#       发表于 2021-6-13 19:44
@@ -3591,7 +3591,7 @@ syl V帐活了 什么时候要弄新的魂帐
 要跟夸宝撞台了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12318#       发表于 2021-6-13 20:32
@@ -3604,7 +3604,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12319#       发表于 2021-6-13 20:47
@@ -3615,7 +3615,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 紫宝说了啥
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12320#       发表于 2021-6-13 21:03
@@ -3626,7 +3626,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12321#       发表于 2021-6-14 11:19
@@ -3639,7 +3639,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12322#       发表于 2021-6-14 11:44
@@ -3648,7 +3648,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 不会不练还是不要去自取其辱了吧
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12323#       发表于 2021-6-14 11:45
@@ -3657,7 +3657,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 她还打apex吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12324#       发表于 2021-6-14 12:07
@@ -3668,7 +3668,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12325#       发表于 2021-6-14 19:14
@@ -3679,7 +3679,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12326#       发表于 2021-6-14 19:47
@@ -3692,7 +3692,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12327#       发表于 2021-6-15 08:36
@@ -3703,7 +3703,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12328#       发表于 2021-6-15 09:34
@@ -3712,7 +3712,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 绫总都明着摆烂了谁管你啊，上班陪观众是业余爱好罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12329#       发表于 2021-6-15 09:52
@@ -3725,7 +3725,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 还有夸宝那剪辑坦着呢
 
 
------
+*****
 
 ####  Fami水  
 ##### 12330#       发表于 2021-6-15 09:58
@@ -3736,7 +3736,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
 
 
------
+*****
 
 ####  alexmax1  
 ##### 12331#       发表于 2021-6-15 10:29
@@ -3747,7 +3747,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12332#       发表于 2021-6-15 11:13
@@ -3767,7 +3767,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12333#       发表于 2021-6-15 14:15
@@ -3776,7 +3776,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一眼看到马夫
 
 
------
+*****
 
 ####  ylssb10438  
 ##### 12334#       发表于 2021-6-15 14:26
@@ -3787,7 +3787,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12335#       发表于 2021-6-15 22:55
@@ -3798,7 +3798,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12336#       发表于 2021-6-15 23:52
@@ -3809,7 +3809,7 @@ syl紫宝这个我不厚道的笑了<img src="https://static.saraba1st.com/image
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12337#       发表于 2021-6-16 11:41
@@ -3826,7 +3826,7 @@ syl 再见宣言播放明天就会超过夸宝了<img src="https://static.saraba
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12338#       发表于 2021-6-16 12:49
@@ -3837,7 +3837,7 @@ syl 再见宣言播放明天就会超过夸宝了<img src="https://static.saraba
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12339#       发表于 2021-6-16 14:07
@@ -3846,7 +3846,7 @@ syl 再见宣言播放明天就会超过夸宝了<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">网通了吗，看来这网瘾是戒不掉了
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12340#       发表于 2021-6-16 14:07
@@ -3857,7 +3857,7 @@ apex gkd
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12341#       发表于 2021-6-16 21:17
@@ -3870,7 +3870,7 @@ apex gkd
 
                                                  
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12342#       发表于 2021-6-16 22:32
@@ -3879,7 +3879,7 @@ apex gkd
 怎么老跟着mio啊  老阿姨给龙女士哭丧最狠要说没有梁木是不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12343#       发表于 2021-6-16 22:46
@@ -3888,7 +3888,7 @@ apex gkd
 买票看4人的大杂烩还是算了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12344#       发表于 2021-6-16 23:00
@@ -3902,7 +3902,7 @@ apex gkd
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12345#       发表于 2021-6-17 21:38
@@ -3911,7 +3911,7 @@ apex gkd
 明天去找西西了
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12346#       发表于 2021-6-17 21:39
@@ -3921,7 +3921,7 @@ apex gkd
 大福，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12347#       发表于 2021-6-17 21:54
@@ -3932,7 +3932,7 @@ apex gkd
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12348#       发表于 2021-6-17 22:36
@@ -3941,7 +3941,7 @@ apex gkd
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">社内没盾了 找社外的
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12349#       发表于 2021-6-17 23:35
@@ -3952,7 +3952,7 @@ apex gkd
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12350#       发表于 2021-6-18 07:46
@@ -3963,7 +3963,7 @@ apex gkd
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12351#       发表于 2021-6-18 16:01
@@ -3972,7 +3972,7 @@ apex gkd
 绫总这是起床继续撸?回来了，都回来了
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12352#       发表于 2021-6-18 16:26
@@ -3990,7 +3990,7 @@ syl 再见宣言400万了，不报数刺激下夸宝吗<img src="https://static.
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12353#       发表于 2021-6-18 17:34
@@ -3999,7 +3999,7 @@ syl 再见宣言400万了，不报数刺激下夸宝吗<img src="https://static.
 又不播 怎么还买新麦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12354#       发表于 2021-6-18 18:01
@@ -4008,7 +4008,7 @@ syl 再见宣言400万了，不报数刺激下夸宝吗<img src="https://static.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夸宝已经报新翻唱了，绫总要不要跟上
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12355#       发表于 2021-6-18 18:06
@@ -4019,7 +4019,7 @@ syl 再见宣言400万了，不报数刺激下夸宝吗<img src="https://static.
 
                                                  
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12356#       发表于 2021-6-18 22:06
@@ -4028,7 +4028,7 @@ syl 再见宣言400万了，不报数刺激下夸宝吗<img src="https://static.
 新麦还行 客场比大福清楚多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12357#       发表于 2021-6-18 22:16
@@ -4043,7 +4043,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
                                                  
 
------
+*****
 
 ####  a37356205  
 ##### 12358#       发表于 2021-6-18 22:27
@@ -4052,7 +4052,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏女人直说了，观众都是全肯定民，被宠得越来越任性，真是太爽了
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12359#       发表于 2021-6-18 22:40
@@ -4061,7 +4061,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 算了啊 就这同接数 绫人真不能处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12360#       发表于 2021-6-18 22:56
@@ -4072,7 +4072,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
 
 
------
+*****
 
 ####  nian1538  
 ##### 12361#       发表于 2021-6-18 22:57
@@ -4081,7 +4081,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 喜欢什么颜色：粉红和水色
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12362#       发表于 2021-6-18 22:58
@@ -4090,7 +4090,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 这堆问答可真是装糊涂的高手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12363#       发表于 2021-6-18 23:01
@@ -4099,7 +4099,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 喜欢ポニテ<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12364#       发表于 2021-6-18 23:05
@@ -4108,7 +4108,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 喜欢有自己想法而且能坚持去做的type捏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12365#       发表于 2021-6-18 23:27
@@ -4142,7 +4142,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
                                                 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12366#       发表于 2021-6-18 23:36
@@ -4153,7 +4153,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12367#       发表于 2021-6-21 17:17
@@ -4164,7 +4164,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12368#       发表于 2021-6-21 18:24
@@ -4173,7 +4173,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 盼绫归
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12369#       发表于 2021-6-21 18:33
@@ -4184,7 +4184,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12370#       发表于 2021-6-21 20:20
@@ -4201,7 +4201,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12371#       发表于 2021-6-21 21:41
@@ -4210,7 +4210,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 盼绫归<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12372#       发表于 2021-6-21 22:14
@@ -4221,7 +4221,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
                                                  
 
------
+*****
 
 ####  一仙  
 ##### 12373#       发表于 2021-6-21 22:32
@@ -4230,7 +4230,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 没有好起来<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12374#       发表于 2021-6-21 22:32
@@ -4242,7 +4242,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">串场了
 
 
------
+*****
 
 ####  天悬星河  
 ##### 12375#       发表于 2021-6-21 22:45
@@ -4253,7 +4253,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
                                                  
 
------
+*****
 
 ####  aisakahammer  
 ##### 12376#       发表于 2021-6-22 00:12
@@ -4262,7 +4262,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 今天apex遇到个 百鬼组摸余 笑死
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12377#       发表于 2021-6-22 00:15
@@ -4273,7 +4273,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12378#       发表于 2021-6-22 11:20
@@ -4293,7 +4293,7 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
                                                  
 
------
+*****
 
 ####  soraku  
 ##### 12379#       发表于 2021-6-22 14:34
@@ -4304,7 +4304,7 @@ YO~YO~夏だ余！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12380#       发表于 2021-6-22 18:35
@@ -4313,7 +4313,7 @@ YO~YO~夏だ余！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 绫总播mhr的时候我还没买mhr，现在我天彗都solo掉了你还播不播了
 
 
------
+*****
 
 ####  nian1538  
 ##### 12381#       发表于 2021-6-22 18:54
@@ -4325,7 +4325,7 @@ YO~YO~夏だ余！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 apex
 
 
------
+*****
 
 ####  Fami水  
 ##### 12382#       发表于 2021-6-22 19:08
@@ -4337,7 +4337,7 @@ apex
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12383#       发表于 2021-6-22 20:08
@@ -4348,7 +4348,7 @@ apex
 
                                                  
 
------
+*****
 
 ####  寺川愛美  
 ##### 12384#       发表于 2021-6-23 20:30
@@ -4361,7 +4361,7 @@ apex
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12385#       发表于 2021-6-23 23:42
@@ -4372,7 +4372,7 @@ apex
 
                                                  
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12386#       发表于 2021-6-24 01:40
@@ -4381,7 +4381,7 @@ apex
 怕不是准备摸到100W
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12387#       发表于 2021-6-24 01:59
@@ -4390,7 +4390,7 @@ apex
 说不定等再见宣言破五百万播放就会回来播了呢（自我欺骗）
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12388#       发表于 2021-6-24 01:59
@@ -4403,7 +4403,7 @@ apex
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12389#       发表于 2021-6-24 10:39
@@ -4412,7 +4412,7 @@ apex
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是祭丝压中了 带货回 
 
 
------
+*****
 
 ####  nian1538  
 ##### 12390#       发表于 2021-6-24 10:58
@@ -4423,7 +4423,7 @@ apex
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12391#       发表于 2021-6-24 16:03
@@ -4432,7 +4432,7 @@ apex
 又在下午LOL了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12392#       发表于 2021-6-24 16:17
@@ -4441,7 +4441,7 @@ apex
 烂得透彻
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12393#       发表于 2021-6-24 16:22
@@ -4452,7 +4452,7 @@ bsyl，这把看id是被狙击了吧，要死了
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12394#       发表于 2021-6-24 16:30
@@ -4461,7 +4461,7 @@ bsyl，这把看id是被狙击了吧，要死了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是真爱啊，这才第二把，看到就去排了么
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12395#       发表于 2021-6-24 16:40
@@ -4470,7 +4470,7 @@ bsyl，这把看id是被狙击了吧，要死了
 给绫总杀爆了她怕不是更不想播了
 
 
------
+*****
 
 ####  stedckk  
 ##### 12396#       发表于 2021-6-24 17:14
@@ -4502,7 +4502,7 @@ bsyl，这把看id是被狙击了吧，要死了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这，看了一下是nga那边的人开4黑狙击
 
 
------
+*****
 
 ####  Fami水  
 ##### 12397#       发表于 2021-6-24 17:15
@@ -4513,7 +4513,7 @@ bsyl，这把看id是被狙击了吧，要死了
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12398#       发表于 2021-6-24 17:58
@@ -4522,7 +4522,7 @@ bsyl，这把看id是被狙击了吧，要死了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赢两把奖励一把狐狸是吧。
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12399#       发表于 2021-6-24 18:00
@@ -4533,7 +4533,7 @@ bsyl，这把看id是被狙击了吧，要死了
 一两个月没转播 刚讲完在LOL就去狙
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12400#       发表于 2021-6-24 18:10
@@ -4542,7 +4542,7 @@ bsyl，这把看id是被狙击了吧，要死了
 这是怎么狙到的，日服没人玩的是吧
 
 
------
+*****
 
 ####  yuandi0120  
 ##### 12401#       发表于 2021-6-24 18:15
@@ -4553,7 +4553,7 @@ bsyl，这把看id是被狙击了吧，要死了
 
                                                  
 
------
+*****
 
 ####  ylssb10438  
 ##### 12402#       发表于 2021-6-24 18:31
@@ -4562,7 +4562,7 @@ bsyl，这把看id是被狙击了吧，要死了
 日服大部分都是中国人吧
 
 
------
+*****
 
 ####  Fami水  
 ##### 12403#       发表于 2021-6-24 18:39
@@ -4571,7 +4571,7 @@ bsyl，这把看id是被狙击了吧，要死了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就人少 还组排 那就更容易匹到了
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12404#       发表于 2021-6-24 18:50
@@ -4580,7 +4580,7 @@ bsyl，这把看id是被狙击了吧，要死了
 了解，现在就去jp服开号
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12405#       发表于 2021-6-24 18:51
@@ -4602,7 +4602,7 @@ QQ图片20210624185048.jpg
 <img src="https://img.saraba1st.com/forum/202106/24/185118ez47hzab7a4yeh2x.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12406#       发表于 2021-6-24 18:53
@@ -4611,7 +4611,7 @@ QQ图片20210624185048.jpg
 不摆烂装死难道跟夸宝太紫那样里外不是人吗 老实等好不好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nian1538  
 ##### 12407#       发表于 2021-6-24 19:00
@@ -4621,7 +4621,7 @@ QQ图片20210624185048.jpg
 而且装死一样会被愤怒（）干爆，还是指望夸宝盾挡到这波结束吧
 
 
------
+*****
 
 ####  天悬星河  
 ##### 12408#       发表于 2021-6-24 19:04
@@ -4632,7 +4632,7 @@ QQ图片20210624185048.jpg
 
                                                  
 
------
+*****
 
 ####  soraku  
 ##### 12409#       发表于 2021-6-24 19:35
@@ -4641,7 +4641,7 @@ QQ图片20210624185048.jpg
 她就算私推没了还有好多种私联方式，我好<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12410#       发表于 2021-6-24 19:43
@@ -4652,7 +4652,7 @@ QQ图片20210624185048.jpg
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12411#       发表于 2021-6-24 20:45
@@ -4661,7 +4661,7 @@ QQ图片20210624185048.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">估计转去玩discord群了，现在连目标都没有了，估计以后就这样一直摆烂吧。
 
 
------
+*****
 
 ####  yuandi0120  
 ##### 12412#       发表于 2021-6-24 20:53
@@ -4682,7 +4682,7 @@ QQ图片20210624185048.jpg
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12413#       发表于 2021-6-25 16:01
@@ -4691,7 +4691,7 @@ QQ图片20210624185048.jpg
 说不定用Line私联<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12414#       发表于 2021-6-25 16:24
@@ -4700,7 +4700,7 @@ QQ图片20210624185048.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">联就联吧，反正没人管得了，姐姐到底什么时候才开播。
 
 
------
+*****
 
 ####  Nitro901  
 ##### 12415#       发表于 2021-6-25 16:29
@@ -4711,7 +4711,7 @@ QQ图片20210624185048.jpg
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12416#       发表于 2021-6-25 16:37
@@ -4720,7 +4720,7 @@ QQ图片20210624185048.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">所有ling人的结局都是一样一样滴
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12417#       发表于 2021-6-25 16:43
@@ -4731,7 +4731,7 @@ QQ图片20210624185048.jpg
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12418#       发表于 2021-6-25 19:43
@@ -4744,7 +4744,7 @@ QQ图片20210624185048.jpg
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12419#       发表于 2021-6-25 22:15
@@ -4755,7 +4755,7 @@ QQ图片20210624185048.jpg
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12420#       发表于 2021-6-26 18:38
@@ -4766,7 +4766,7 @@ QQ图片20210624185048.jpg
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12421#       发表于 2021-6-26 20:21
@@ -4779,7 +4779,7 @@ QQ图片20210624185048.jpg
 
                                                  
 
------
+*****
 
 ####  Nitro901  
 ##### 12422#       发表于 2021-6-27 15:56
@@ -4790,7 +4790,7 @@ yagoo回绫总推了，这是老板亲自问候啊，绫总你动一动啊<img s
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12423#       发表于 2021-6-27 17:30
@@ -4801,7 +4801,7 @@ yagoo回绫总推了，这是老板亲自问候啊，绫总你动一动啊<img s
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12424#       发表于 2021-6-28 18:04
@@ -4812,7 +4812,7 @@ yagoo回绫总推了，这是老板亲自问候啊，绫总你动一动啊<img s
 身心健康但就是不开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12425#       发表于 2021-6-28 18:06
@@ -4821,7 +4821,7 @@ yagoo回绫总推了，这是老板亲自问候啊，绫总你动一动啊<img s
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">麦好了，电脑好了，网也好了，身体也没事，就是不开播，唯一的解释就是公司发的ip11掉了吧
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 12426#       发表于 2021-6-28 18:07
@@ -4832,7 +4832,7 @@ yagoo回绫总推了，这是老板亲自问候啊，绫总你动一动啊<img s
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12427#       发表于 2021-6-28 19:57
@@ -4843,7 +4843,7 @@ yagoo回绫总推了，这是老板亲自问候啊，绫总你动一动啊<img s
 
                                                  
 
------
+*****
 
 ####  Badwoman  
 ##### 12428#       发表于 2021-6-28 20:48
@@ -4854,7 +4854,7 @@ yagoo回绫总推了，这是老板亲自问候啊，绫总你动一动啊<img s
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12429#       发表于 2021-6-28 22:11
@@ -4865,7 +4865,7 @@ yagoo回绫总推了，这是老板亲自问候啊，绫总你动一动啊<img s
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12430#       发表于 2021-6-28 23:11
@@ -4876,7 +4876,7 @@ yagoo回绫总推了，这是老板亲自问候啊，绫总你动一动啊<img s
 
                                                  
 
------
+*****
 
 ####  天悬星河  
 ##### 12431#       发表于 2021-6-29 02:09
@@ -4890,7 +4890,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12432#       发表于 2021-6-29 10:38
@@ -4899,7 +4899,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 宣言500万了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  a37356205  
 ##### 12433#       发表于 2021-6-29 11:03
@@ -4910,7 +4910,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12434#       发表于 2021-6-29 13:16
@@ -4921,7 +4921,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
                                                  
 
------
+*****
 
 ####  takitaki  
 ##### 12435#       发表于 2021-6-29 18:05
@@ -4930,7 +4930,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 绫总马上躺到金盾了
 
 
------
+*****
 
 ####  Fami水  
 ##### 12436#       发表于 2021-6-29 18:26
@@ -4941,7 +4941,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12437#       发表于 2021-6-29 18:42
@@ -4952,7 +4952,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
                                                  
 
------
+*****
 
 ####  Nitro901  
 ##### 12438#       发表于 2021-6-29 22:24
@@ -4965,7 +4965,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12439#       发表于 2021-6-30 18:10
@@ -4974,7 +4974,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">头痛捏，不想播捏
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12440#       发表于 2021-6-30 18:44
@@ -4983,7 +4983,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 明天再随便找个理由躲送别会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12441#       发表于 2021-6-30 18:58
@@ -4992,7 +4992,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 低气压捏  明天消失<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12442#       发表于 2021-6-30 20:05
@@ -5001,7 +5001,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 不对劲，你们怎么捏起来了？？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12443#       发表于 2021-6-30 20:05
@@ -5012,7 +5012,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12444#       发表于 2021-7-1 19:24
@@ -5021,7 +5021,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然没装死。
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12445#       发表于 2021-7-1 19:25
@@ -5030,7 +5030,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 竟然有去预录毕业回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12446#       发表于 2021-7-1 19:31
@@ -5039,7 +5039,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 一年多以后在毕业会道歉，各种意义上都有点了不起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12447#       发表于 2021-7-1 19:34
@@ -5057,7 +5057,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 2021-7-1 19:33 上传
 
 
------
+*****
 
 ####  stedckk  
 ##### 12448#       发表于 2021-7-1 19:40
@@ -5069,7 +5069,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别尬黑，7点前打完的，都是因为忍不住手，现在已经专心在看了。
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12449#       发表于 2021-7-1 19:44
@@ -5080,7 +5080,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 阿绫一定是边LOL边看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12450#       发表于 2021-7-1 19:45
@@ -5091,7 +5091,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
 
 
------
+*****
 
 ####  Klience  
 ##### 12451#       发表于 2021-7-1 19:46
@@ -5100,7 +5100,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 绫总：LOL塔诺西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12452#       发表于 2021-7-1 19:50
@@ -5111,7 +5111,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反转了，余居然还在打。
 
 
------
+*****
 
 ####  stedckk  
 ##### 12453#       发表于 2021-7-1 20:11
@@ -5130,7 +5130,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死我啦
 
 
------
+*****
 
 ####  Nitro901  
 ##### 12454#       发表于 2021-7-1 20:18
@@ -5141,7 +5141,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 —— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  Klience  
 ##### 12455#       发表于 2021-7-1 20:20
@@ -5150,7 +5150,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 妈的 露露0/4输了 都怪这人发推干扰绫总发挥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12456#       发表于 2021-7-1 20:31
@@ -5162,7 +5162,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 这位粉丝请不要干扰主播训练！<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12457#       发表于 2021-7-1 21:44
@@ -5171,7 +5171,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 首先是犯下懒惰之罪的百鬼绫目<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Badwoman  
 ##### 12458#       发表于 2021-7-1 21:55
@@ -5180,7 +5180,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 出星界驱弛啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12459#       发表于 2021-7-1 21:56
@@ -5191,7 +5191,7 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
                                                 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12460#       发表于 2021-7-1 22:54
@@ -5215,7 +5215,7 @@ QQ图片20210701222833.jpg
 <img src="https://img.saraba1st.com/forum/202107/01/225255cb6n5oln6zddanla.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12461#       发表于 2021-7-1 23:16
@@ -5224,7 +5224,7 @@ QQ图片20210701222833.jpg
 只能说真不熟，爹亲娘亲不如游戏亲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12462#       发表于 2021-7-1 23:19
@@ -5237,7 +5237,7 @@ QQ图片20210701222833.jpg
 
                                                  
 
------
+*****
 
 ####  一仙  
 ##### 12463#       发表于 2021-7-1 23:49
@@ -5277,7 +5277,7 @@ QQ图片20210701222833.jpg
 2021-7-1 23:48 上传
 
 
------
+*****
 
 ####  nian1538  
 ##### 12464#       发表于 2021-7-1 23:51
@@ -5287,7 +5287,7 @@ QQ图片20210701222833.jpg
 不能让她这么舒服躺到百万
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12465#       发表于 2021-7-1 23:56
@@ -5296,7 +5296,7 @@ QQ图片20210701222833.jpg
 差不多得了， 那这帮人想咋地，让绫总在家里穿黑西装黑长裙黑丝袜cosplay未亡人摆上虚拟骨灰盒声泪俱下开追悼会？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12466#       发表于 2021-7-1 23:57
@@ -5305,7 +5305,7 @@ QQ图片20210701222833.jpg
 可能是避开毕业直播的时间段吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12467#       发表于 2021-7-2 00:13
@@ -5314,7 +5314,7 @@ QQ图片20210701222833.jpg
 嗯炎了属于是 整个一个录播还得让人断网装直播是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nian1538  
 ##### 12468#       发表于 2021-7-2 00:14
@@ -5323,7 +5323,7 @@ QQ图片20210701222833.jpg
 这么屁大点事也能炎起来的吗
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12469#       发表于 2021-7-2 00:16
@@ -5334,7 +5334,7 @@ QQ图片20210701222833.jpg
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12470#       发表于 2021-7-2 00:56
@@ -5345,7 +5345,7 @@ QQ图片20210701222833.jpg
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12471#       发表于 2021-7-2 02:22
@@ -5360,7 +5360,7 @@ QQ图片20210701222833.jpg
 
                                                  
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12472#       发表于 2021-7-2 03:34
@@ -5375,7 +5375,7 @@ QQ图片20210701222833.jpg
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12473#       发表于 2021-7-2 05:38
@@ -5388,7 +5388,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 
                                                  
 
------
+*****
 
 ####  ylssb10438  
 ##### 12474#       发表于 2021-7-2 10:40
@@ -5397,7 +5397,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 虫蝗什么寄吧吊东西，就打撸怎么了
 
 
------
+*****
 
 ####  stedckk  
 ##### 12475#       发表于 2021-7-2 11:11
@@ -5410,7 +5410,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 不过说实话也就那样了，又不能真的怎样。
 
 
------
+*****
 
 ####  Fami水  
 ##### 12476#       发表于 2021-7-2 11:31
@@ -5419,7 +5419,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">该播了吧 
 
 
------
+*****
 
 ####  nian1538  
 ##### 12477#       发表于 2021-7-2 11:39
@@ -5428,7 +5428,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 和硬不硬倒是没什么关系,绫总只是单纯的不在乎而已
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12478#       发表于 2021-7-2 11:40
@@ -5439,7 +5439,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 七月继续摆烂算了呀，被人炎上了不是正好装死吗，完美配合绫总摸鱼好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12479#       发表于 2021-7-2 11:41
@@ -5448,7 +5448,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 <img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">真不在乎那就开播呀。
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12480#       发表于 2021-7-2 11:43
@@ -5459,7 +5459,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12481#       发表于 2021-7-2 11:51
@@ -5468,7 +5468,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 绫向来是没所谓的！
 
 
------
+*****
 
 ####  Nitro901  
 ##### 12482#       发表于 2021-7-2 11:56
@@ -5479,7 +5479,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 —— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  stedckk  
 ##### 12483#       发表于 2021-7-2 12:07
@@ -5488,7 +5488,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">还是欠缺了社会的毒打
 
 
------
+*****
 
 ####  一仙  
 ##### 12484#       发表于 2021-7-2 12:28
@@ -5501,7 +5501,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 不管怎么说，真是自由啊
 
 
------
+*****
 
 ####  Fami水  
 ##### 12485#       发表于 2021-7-2 12:33
@@ -5512,7 +5512,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 
                                                 
 
------
+*****
 
 ####  nian1538  
 ##### 12486#       发表于 2021-7-2 12:35
@@ -5521,7 +5521,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 三才阿姨已经比亲妈还要亲了
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12487#       发表于 2021-7-2 12:43
@@ -5530,7 +5530,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 今天有发推了 不要太不满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12488#       发表于 2021-7-2 13:01
@@ -5551,7 +5551,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12489#       发表于 2021-7-2 15:43
@@ -5562,7 +5562,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 绫还是很给同事面子的，点了个赞
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12490#       发表于 2021-7-2 15:54
@@ -5571,7 +5571,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 是不是绫总上的号这都不好说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12491#       发表于 2021-7-2 16:06
@@ -5582,7 +5582,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 运营上号不得来个回复
 
 
------
+*****
 
 ####  天悬星河  
 ##### 12492#       发表于 2021-7-2 16:27
@@ -5593,7 +5593,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 
                                                  
 
------
+*****
 
 ####  寺川愛美  
 ##### 12493#       发表于 2021-7-2 22:27
@@ -5602,7 +5602,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 哎，鴨鴨慶祝100萬她有沒有去?
 
 
------
+*****
 
 ####  nian1538  
 ##### 12494#       发表于 2021-7-2 22:29
@@ -5615,7 +5615,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 但是也没有打lol
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12495#       发表于 2021-7-2 22:59
@@ -5624,7 +5624,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 那坏了，不打LOL是给面子，那 打 LOL就是等于…………<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘿嘿
 
 
------
+*****
 
 ####  Klience  
 ##### 12496#       发表于 2021-7-2 23:02
@@ -5635,7 +5635,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 
                                                  
 
------
+*****
 
 ####  soraku  
 ##### 12497#       发表于 2021-7-2 23:51
@@ -5644,7 +5644,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 看到enako和r6电竞选手宣布交往的新闻突然想到小肥绫<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12498#       发表于 2021-7-3 00:12
@@ -5704,7 +5704,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 ——李圣杰《手放开》<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12499#       发表于 2021-7-3 00:20
@@ -5717,7 +5717,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 说得好听点叫自由，不好听就是不负责任。
 
 
------
+*****
 
 ####  nian1538  
 ##### 12500#       发表于 2021-7-3 00:30
@@ -5726,7 +5726,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 被三才宠成废人了，等狐修仙归来估计要和紫宝一起被扭送去当偶像
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12501#       发表于 2021-7-3 00:33
@@ -5739,7 +5739,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 
                                                  
 
------
+*****
 
 ####  Nitro901  
 ##### 12502#       发表于 2021-7-3 13:18
@@ -5750,7 +5750,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12503#       发表于 2021-7-3 13:31
@@ -5759,7 +5759,7 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是冷无缺
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12504#       发表于 2021-7-3 14:16
@@ -5775,7 +5775,7 @@ syl阿绫打死不开我猜是不知道要播什么
 MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
 
------
+*****
 
 ####  Fami水  
 ##### 12505#       发表于 2021-7-3 14:23
@@ -5786,7 +5786,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 但是金盾前总要播一下灭下火的吧，不然金盾纪念就变成炎上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Nitro901  
 ##### 12506#       发表于 2021-7-3 14:34
@@ -5795,7 +5795,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 金盾道歉直播<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12507#       发表于 2021-7-3 14:44
@@ -5804,7 +5804,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 谁说金盾就一定要纪念的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12508#       发表于 2021-7-3 14:49
@@ -5817,7 +5817,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12509#       发表于 2021-7-3 15:34
@@ -5828,7 +5828,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
                                                  
 
------
+*****
 
 ####  一仙  
 ##### 12510#       发表于 2021-7-3 19:33
@@ -5841,7 +5841,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12511#       发表于 2021-7-3 19:41
@@ -5850,7 +5850,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 好消息：搬完家了，最近应该会直播  坏消息：“最近”“应该”
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12512#       发表于 2021-7-3 19:42
@@ -5859,7 +5859,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 绫总的最近先算一个星期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12513#       发表于 2021-7-3 19:48
@@ -5868,7 +5868,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这会播不怕被大家庭粉和蝗粉冲吗
 
 
------
+*****
 
 ####  Fami水  
 ##### 12514#       发表于 2021-7-3 19:52
@@ -5877,7 +5877,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早冲晚冲的区别吧 躲又躲不掉的
 
 
------
+*****
 
 ####  nian1538  
 ##### 12515#       发表于 2021-7-3 19:54
@@ -5890,7 +5890,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
                                                 
 
------
+*****
 
 ####  stedckk  
 ##### 12516#       发表于 2021-7-3 21:48
@@ -5899,7 +5899,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次又找谁做盾啊
 
 
------
+*****
 
 ####  Fami水  
 ##### 12517#       发表于 2021-7-3 21:52
@@ -5908,7 +5908,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">找个最近风评好点的 又有时间的 还在绫总交友圈的 选择有点少了吧
 
 
------
+*****
 
 ####  stmule  
 ##### 12518#       发表于 2021-7-3 22:01
@@ -5921,7 +5921,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  stedckk  
 ##### 12519#       发表于 2021-7-3 22:05
@@ -5932,7 +5932,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12520#       发表于 2021-7-3 22:59
@@ -5943,7 +5943,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12521#       发表于 2021-7-4 12:42
@@ -5952,7 +5952,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 绫总的生活：一年上一百天班，财富自由，天天玩猫打游戏
 
 
------
+*****
 
 ####  stedckk  
 ##### 12522#       发表于 2021-7-4 12:46
@@ -5961,7 +5961,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">好气，我也想当yhm
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12523#       发表于 2021-7-4 12:52
@@ -5972,7 +5972,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
                                                  
 
------
+*****
 
 ####  nowaki  
 ##### 12524#       发表于 2021-7-4 13:29
@@ -5984,7 +5984,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你确定有100天？
 
 
------
+*****
 
 ####  心垂万刃  
 ##### 12525#       发表于 2021-7-4 14:02
@@ -5993,7 +5993,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">终于动了
 
 
------
+*****
 
 ####  stedckk  
 ##### 12526#       发表于 2021-7-4 14:29
@@ -6002,7 +6002,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6号复活，有几率摸
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12527#       发表于 2021-7-4 14:35
@@ -6011,7 +6011,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 这个月的任务完成一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12528#       发表于 2021-7-4 14:44
@@ -6025,7 +6025,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 先猜破500踩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12529#       发表于 2021-7-4 15:00
@@ -6036,7 +6036,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
                                                  
 
------
+*****
 
 ####  s32244153  
 ##### 12530#       发表于 2021-7-4 15:31
@@ -6050,7 +6050,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12531#       发表于 2021-7-4 18:43
@@ -6060,7 +6060,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 见到狐皇了，还有大家
 
 
------
+*****
 
 ####  Fami水  
 ##### 12532#       发表于 2021-7-4 18:57
@@ -6069,7 +6069,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然是被狐姨抓了吧
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12533#       发表于 2021-7-4 19:01
@@ -6080,7 +6080,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12534#       发表于 2021-7-4 19:35
@@ -6089,7 +6089,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 这次摸了好像有五十天了？
 
 
------
+*****
 
 ####  Fami水  
 ##### 12535#       发表于 2021-7-4 19:43
@@ -6098,7 +6098,7 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">16天吧 最近一次不是在西西那边出现过了么
 
 
------
+*****
 
 ####  nian1538  
 ##### 12536#       发表于 2021-7-4 19:59
@@ -6119,7 +6119,7 @@ E. TUBEOUT: 6月26日，8天
 
                                                  
 
------
+*****
 
 ####  水城雪风_Z  
 ##### 12537#       发表于 2021-7-4 22:37
@@ -6130,7 +6130,7 @@ E. TUBEOUT: 6月26日，8天
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12538#       发表于 2021-7-5 12:42
@@ -6148,7 +6148,7 @@ E. TUBEOUT: 6月26日，8天
 2021-7-5 12:41 上传
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12539#       发表于 2021-7-5 12:58
@@ -6189,7 +6189,7 @@ E. TUBEOUT: 6月26日，8天
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12540#       发表于 2021-7-5 13:29
@@ -6200,7 +6200,7 @@ E. TUBEOUT: 6月26日，8天
 
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12541#       发表于 2021-7-5 13:38
@@ -6209,7 +6209,7 @@ E. TUBEOUT: 6月26日，8天
 绫总对LOL很敏感的 之前就有4v被拉黑过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nian1538  
 ##### 12542#       发表于 2021-7-5 13:43
@@ -6223,7 +6223,7 @@ E. TUBEOUT: 6月26日，8天
 编辑：回复时不把绫总@上还有一线生机，@了那必死无疑了
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12543#       发表于 2021-7-5 13:50
@@ -6232,7 +6232,7 @@ E. TUBEOUT: 6月26日，8天
 真不该陪那个b臊皮的，狗狗，没了你我可怎么活啊狗狗😭😭😭哦我小号还能看啊🤤
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12544#       发表于 2021-7-5 14:03
@@ -6243,7 +6243,7 @@ E. TUBEOUT: 6月26日，8天
 小年轻，胆子大，绫总都敢惹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12545#       发表于 2021-7-5 14:06
@@ -6252,7 +6252,7 @@ E. TUBEOUT: 6月26日，8天
 #这是在干什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Vindicator  
 ##### 12546#       发表于 2021-7-5 14:36
@@ -6263,7 +6263,7 @@ E. TUBEOUT: 6月26日，8天
 
                                                 
 
------
+*****
 
 ####  nian1538  
 ##### 12547#       发表于 2021-7-5 17:15
@@ -6273,7 +6273,7 @@ E. TUBEOUT: 6月26日，8天
 很多人还以为绫总还跟那搬家没网可用呢
 
 
------
+*****
 
 ####  Nitro901  
 ##### 12548#       发表于 2021-7-5 18:07
@@ -6282,7 +6282,7 @@ E. TUBEOUT: 6月26日，8天
 <img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">嘛，也算是一种互动了
 
 
------
+*****
 
 ####  stedckk  
 ##### 12549#       发表于 2021-7-5 18:23
@@ -6291,7 +6291,7 @@ E. TUBEOUT: 6月26日，8天
 这清絮我有点印象，以前是喵喵狐吧，杏退出cn之后成了破防人好像。
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12550#       发表于 2021-7-5 18:31
@@ -6302,7 +6302,7 @@ E. TUBEOUT: 6月26日，8天
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12551#       发表于 2021-7-6 14:34
@@ -6313,7 +6313,7 @@ E. TUBEOUT: 6月26日，8天
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12552#       发表于 2021-7-6 17:35
@@ -6322,7 +6322,7 @@ E. TUBEOUT: 6月26日，8天
 紧张是吧，骗人的吧，求轻踩才是真的吧
 
 
------
+*****
 
 ####  nian1538  
 ##### 12553#       发表于 2021-7-6 18:01
@@ -6333,7 +6333,7 @@ E. TUBEOUT: 6月26日，8天
 估计踩过不了500
 
 
------
+*****
 
 ####  Fami水  
 ##### 12554#       发表于 2021-7-6 18:05
@@ -6342,7 +6342,7 @@ E. TUBEOUT: 6月26日，8天
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">六期生百鬼绫目初配信
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12555#       发表于 2021-7-6 18:15
@@ -6351,7 +6351,7 @@ E. TUBEOUT: 6月26日，8天
 这么阳间时间开 很难不相信是被安排的
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12556#       发表于 2021-7-6 18:46
@@ -6362,7 +6362,7 @@ E. TUBEOUT: 6月26日，8天
 那天，绫总点了份KFC，然后……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12557#       发表于 2021-7-6 18:55
@@ -6371,7 +6371,7 @@ E. TUBEOUT: 6月26日，8天
 前几天的推好像说会在公司播吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12558#       发表于 2021-7-6 19:03
@@ -6380,7 +6380,7 @@ E. TUBEOUT: 6月26日，8天
 所以说拘留了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12559#       发表于 2021-7-6 19:04
@@ -6389,7 +6389,7 @@ E. TUBEOUT: 6月26日，8天
 op没上一个行
 
 
------
+*****
 
 ####  一仙  
 ##### 12560#       发表于 2021-7-6 19:04
@@ -6398,7 +6398,7 @@ op没上一个行
 新op 还是井佬的画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12561#       发表于 2021-7-6 19:05
@@ -6407,7 +6407,7 @@ op没上一个行
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新op
 
 
------
+*****
 
 ####  Fami水  
 ##### 12562#       发表于 2021-7-6 19:08
@@ -6416,7 +6416,7 @@ op没上一个行
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">要不顺势耐久到金盾吧
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12563#       发表于 2021-7-6 19:11
@@ -6425,7 +6425,7 @@ op没上一个行
 我看行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12564#       发表于 2021-7-6 19:15
@@ -6434,7 +6434,7 @@ op没上一个行
 才五百踩，洒洒水啦。新会员收麻了已经
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12565#       发表于 2021-7-6 19:17
@@ -6443,7 +6443,7 @@ op没上一个行
 所以新麦调整到底搁哪呢 现在这声开音效优化都救不回来<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12566#       发表于 2021-7-6 19:21
@@ -6454,7 +6454,7 @@ op没上一个行
 
                                                  
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12567#       发表于 2021-7-6 19:24
@@ -6463,7 +6463,7 @@ op没上一个行
 好mc <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12568#       发表于 2021-7-6 19:31
@@ -6472,7 +6472,7 @@ op没上一个行
 马内甲好换<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12569#       发表于 2021-7-6 19:38
@@ -6481,7 +6481,7 @@ op没上一个行
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌单都不换是吧
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12570#       发表于 2021-7-6 19:38
@@ -6492,7 +6492,7 @@ op没上一个行
 
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12571#       发表于 2021-7-6 19:41
@@ -6501,7 +6501,7 @@ op没上一个行
 今天能唱几首<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12572#       发表于 2021-7-6 19:52
@@ -6510,7 +6510,7 @@ op没上一个行
 99.2万 干脆耐久到百万吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12573#       发表于 2021-7-6 20:14
@@ -6519,7 +6519,7 @@ op没上一个行
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">附议
 
 
------
+*****
 
 ####  a37356205  
 ##### 12574#       发表于 2021-7-6 20:40
@@ -6530,7 +6530,7 @@ op没上一个行
 
                                                 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12575#       发表于 2021-7-6 21:14
@@ -6541,7 +6541,7 @@ op没上一个行
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12576#       发表于 2021-7-6 21:39
@@ -6550,7 +6550,7 @@ op没上一个行
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始乱唱了
 
 
------
+*****
 
 ####  Fami水  
 ##### 12577#       发表于 2021-7-6 21:40
@@ -6561,7 +6561,7 @@ op没上一个行
 可能在公司心态不一样吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12578#       发表于 2021-7-6 21:42
@@ -6575,7 +6575,7 @@ OP还是原来的字幕组做的啊<img src="https://static.saraba1st.com/image/
 竟然还能再联系上给PV
 
 
------
+*****
 
 ####  a37356205  
 ##### 12579#       发表于 2021-7-6 21:43
@@ -6584,7 +6584,7 @@ OP还是原来的字幕组做的啊<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，被锁在直播室了，不播到马内甲满意不开门
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12580#       发表于 2021-7-6 21:48
@@ -6596,7 +6596,7 @@ OP还是原来的字幕组做的啊<img src="https://static.saraba1st.com/image/
 syl 这是第几次把画面填满了，差不多将近三个小时，16首歌，本质杂谈捏
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12581#       发表于 2021-7-6 21:50
@@ -6605,7 +6605,7 @@ syl 这是第几次把画面填满了，差不多将近三个小时，16首歌�
 播了三小时，很难不是被裹挟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12582#       发表于 2021-7-6 21:52
@@ -6614,7 +6614,7 @@ syl 这是第几次把画面填满了，差不多将近三个小时，16首歌�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好家伙 OPED全换了
 
 
------
+*****
 
 ####  stedckk  
 ##### 12583#       发表于 2021-7-6 21:54
@@ -6625,7 +6625,7 @@ syl 这是第几次把画面填满了，差不多将近三个小时，16首歌�
 
                                                  
 
------
+*****
 
 ####  alexmax1  
 ##### 12584#       发表于 2021-7-6 23:00
@@ -6636,7 +6636,7 @@ syl 这是第几次把画面填满了，差不多将近三个小时，16首歌�
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12585#       发表于 2021-7-7 10:22
@@ -6645,7 +6645,7 @@ syl 这是第几次把画面填满了，差不多将近三个小时，16首歌�
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">踩超过1600了，怎么还越来越多的。
 
 
------
+*****
 
 ####  nian1538  
 ##### 12586#       发表于 2021-7-7 10:24
@@ -6654,7 +6654,7 @@ syl 这是第几次把画面填满了，差不多将近三个小时，16首歌�
 这下皆切了
 
 
------
+*****
 
 ####  ching921217  
 ##### 12587#       发表于 2021-7-7 10:24
@@ -6663,7 +6663,7 @@ syl 这是第几次把画面填满了，差不多将近三个小时，16首歌�
 笑死
 
 
------
+*****
 
 ####  Fami水  
 ##### 12588#       发表于 2021-7-7 11:30
@@ -6674,7 +6674,7 @@ syl 这是第几次把画面填满了，差不多将近三个小时，16首歌�
 
                                                  
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12589#       发表于 2021-7-7 18:05
@@ -6696,7 +6696,7 @@ qq_pic_merged_1625652211944.jpg
 <img src="https://img.saraba1st.com/forum/202107/07/180420j38me99amffffjsj.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12590#       发表于 2021-7-7 18:12
@@ -6705,7 +6705,7 @@ qq_pic_merged_1625652211944.jpg
 很难不一起摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12591#       发表于 2021-7-7 18:15
@@ -6716,7 +6716,7 @@ qq_pic_merged_1625652211944.jpg
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12592#       发表于 2021-7-7 18:39
@@ -6725,7 +6725,7 @@ qq_pic_merged_1625652211944.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一起摆烂
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12593#       发表于 2021-7-7 18:48
@@ -6734,7 +6734,7 @@ qq_pic_merged_1625652211944.jpg
 我现在怀疑绫总所谓的针灸是不是烫烟头的黑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12594#       发表于 2021-7-7 18:54
@@ -6745,7 +6745,7 @@ qq_pic_merged_1625652211944.jpg
 
                                                  
 
------
+*****
 
 ####  飞姆托  
 ##### 12595#       发表于 2021-7-8 03:22
@@ -6756,7 +6756,7 @@ qq_pic_merged_1625652211944.jpg
 
                                                  
 
------
+*****
 
 ####  Badwoman  
 ##### 12596#       发表于 2021-7-8 09:30
@@ -6765,7 +6765,7 @@ qq_pic_merged_1625652211944.jpg
 哇哇哇哇 金盾了happy
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12597#       发表于 2021-7-8 09:32
@@ -6783,7 +6783,7 @@ qq_pic_merged_1625652211944.jpg
 2021-7-8 09:31 上传
 
 
------
+*****
 
 ####  Fami水  
 ##### 12598#       发表于 2021-7-8 09:44
@@ -6792,7 +6792,7 @@ qq_pic_merged_1625652211944.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">躺到金盾第一人
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12599#       发表于 2021-7-8 09:54
@@ -6803,7 +6803,7 @@ qq_pic_merged_1625652211944.jpg
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12600#       发表于 2021-7-8 10:04
@@ -6814,7 +6814,7 @@ qq_pic_merged_1625652211944.jpg
 
 
 
------
+*****
 
 ####  Fami水  
 ##### 12601#       发表于 2021-7-8 10:10
@@ -6823,7 +6823,7 @@ qq_pic_merged_1625652211944.jpg
 想恰，但又不想恰
 
 
------
+*****
 
 ####  aisakahammer  
 ##### 12602#       发表于 2021-7-8 10:12
@@ -6832,7 +6832,7 @@ qq_pic_merged_1625652211944.jpg
 绫总牛逼啊，就这么金盾了。
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12603#       发表于 2021-7-8 10:19
@@ -6844,7 +6844,7 @@ qq_pic_merged_1625652211944.jpg
 syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 12604#       发表于 2021-7-8 10:22
@@ -6855,7 +6855,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 
                                                 
 
------
+*****
 
 ####  因为你不会  
 ##### 12605#       发表于 2021-7-8 11:42
@@ -6864,7 +6864,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 绫总的意思是过阵子·来恰烂钱
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12606#       发表于 2021-7-8 11:56
@@ -6873,7 +6873,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 看不懂这么明显的摆烂是在图个啥 运营割韭菜没割爽 观众看的也很难觉得有意思 她自己打个游戏还天天惦记着被评论
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12607#       发表于 2021-7-8 12:01
@@ -6884,7 +6884,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12608#       发表于 2021-7-8 13:28
@@ -6895,7 +6895,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 反正不吃资源 放养当吉祥物<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12609#       发表于 2021-7-8 13:51
@@ -6904,7 +6904,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这种上班真幸福啊  我也想要
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12610#       发表于 2021-7-8 14:56
@@ -6915,7 +6915,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12611#       发表于 2021-7-8 15:28
@@ -6924,7 +6924,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 恭喜绫呀，话说百万了不考虑搞个大赦天下什么的把我大号从小黑屋里放出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12612#       发表于 2021-7-8 16:02
@@ -6936,7 +6936,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 绫总这么懒的人，都拉进黑名单了你还能指望她来监狱看一眼吗，别想了，/remake吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12613#       发表于 2021-7-8 16:12
@@ -6959,7 +6959,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12614#       发表于 2021-7-8 19:51
@@ -6970,7 +6970,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12615#       发表于 2021-7-8 21:02
@@ -6979,7 +6979,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100w都不开纪念真的说不过去。
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12616#       发表于 2021-7-8 21:03
@@ -7045,7 +7045,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 查看全部评分
 
 
------
+*****
 
 ####  Fami水  
 ##### 12617#       发表于 2021-7-8 21:21
@@ -7056,7 +7056,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12618#       发表于 2021-7-8 21:37
@@ -7067,7 +7067,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 真的是手机掉了么
 
 
------
+*****
 
 ####  stedckk  
 ##### 12619#       发表于 2021-7-8 21:37
@@ -7076,7 +7076,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">直接不动了，直播环境有这么差吗
 
 
------
+*****
 
 ####  a37356205  
 ##### 12620#       发表于 2021-7-8 21:41
@@ -7085,7 +7085,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">狗狗：余寻思至少再躺一个月才能躺到100w的吧
 
 
------
+*****
 
 ####  nian1538  
 ##### 12621#       发表于 2021-7-8 21:42
@@ -7094,7 +7094,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 “粉涨太快了，我和manager都惊呆了”
 
 
------
+*****
 
 ####  心垂万刃  
 ##### 12622#       发表于 2021-7-8 21:51
@@ -7103,7 +7103,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 这么摸还能每天都涨，确实惊呆了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12623#       发表于 2021-7-8 22:00
@@ -7112,7 +7112,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 这说啥呢这是 无语.jpg
 
 
------
+*****
 
 ####  一仙  
 ##### 12624#       发表于 2021-7-8 22:15
@@ -7123,7 +7123,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12625#       发表于 2021-7-8 22:50
@@ -7132,7 +7132,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 这百万纪念都纪念了个啥啊
 
 
------
+*****
 
 ####  Fami水  
 ##### 12626#       发表于 2021-7-8 22:53
@@ -7143,7 +7143,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 这杂谈不是应该放在会限么
 
 
------
+*****
 
 ####  一仙  
 ##### 12627#       发表于 2021-7-8 22:54
@@ -7157,7 +7157,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 感觉绫总上次工商也是很久很久之前了，还是和粉丝一起摆烂吧。
 
 
------
+*****
 
 ####  Fami水  
 ##### 12628#       发表于 2021-7-8 23:04
@@ -7170,7 +7170,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 大锅饭的时候有绫总一口吃的就行
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12629#       发表于 2021-7-8 23:06
@@ -7179,7 +7179,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 太嗯聊了 上面定了时长是吧
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12630#       发表于 2021-7-8 23:20
@@ -7190,7 +7190,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 
 
 
------
+*****
 
 ####  nian1538  
 ##### 12631#       发表于 2021-7-8 23:20
@@ -7203,7 +7203,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 有资源的夸夸天天跟那高强度996，绫总愿不愿意都不好说吧
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12632#       发表于 2021-7-8 23:24
@@ -7216,7 +7216,7 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 原创曲就无所谓了 poyoyo玩偶我是真的很想要<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一仙  
 ##### 12633#       发表于 2021-7-8 23:26
@@ -7232,7 +7232,7 @@ syl，还记得以前绫总说的目标是原创曲和sololive，最近说的愿
 poyoyo确实，也期待好久了，个人最想要的是余T。
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12634#       发表于 2021-7-8 23:35
@@ -7245,7 +7245,7 @@ poyoyo确实，也期待好久了，个人最想要的是余T。
 
                                                 
 
------
+*****
 
 ####  心垂万刃  
 ##### 12635#       发表于 2021-7-9 00:21
@@ -7256,7 +7256,7 @@ poyoyo确实，也期待好久了，个人最想要的是余T。
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12636#       发表于 2021-7-9 01:04
@@ -7267,7 +7267,7 @@ poyoyo这么适合出玩偶抱枕的形象居然都不商品化
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12637#       发表于 2021-7-9 04:37
@@ -7279,7 +7279,7 @@ poyoyo这么适合出玩偶抱枕的形象居然都不商品化
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12638#       发表于 2021-7-9 10:03
@@ -7290,7 +7290,7 @@ poyoyo这么适合出玩偶抱枕的形象居然都不商品化
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12639#       发表于 2021-7-9 11:00
@@ -7311,7 +7311,7 @@ poyoyo这么适合出玩偶抱枕的形象居然都不商品化
 
                                                  
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12640#       发表于 2021-7-9 11:52
@@ -7322,7 +7322,7 @@ poyoyo这么适合出玩偶抱枕的形象居然都不商品化
 yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12641#       发表于 2021-7-9 12:15
@@ -7333,7 +7333,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12642#       发表于 2021-7-9 16:47
@@ -7344,7 +7344,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  stmule  
 ##### 12643#       发表于 2021-7-9 20:59
@@ -7359,7 +7359,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  飞姆托  
 ##### 12644#       发表于 2021-7-10 12:23
@@ -7372,7 +7372,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12645#       发表于 2021-7-10 15:27
@@ -7383,7 +7383,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12646#       发表于 2021-7-10 18:09
@@ -7398,7 +7398,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 今月中には投稿出来ると思うので暫しお待ちを…🥺💦
 
 
------
+*****
 
 ####  一仙  
 ##### 12647#       发表于 2021-7-10 18:14
@@ -7407,7 +7407,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 为啥一个翻唱投稿都要和运营确认一下
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12648#       发表于 2021-7-10 18:17
@@ -7420,7 +7420,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12649#       发表于 2021-7-10 20:18
@@ -7431,7 +7431,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12650#       发表于 2021-7-10 20:40
@@ -7442,7 +7442,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  一仙  
 ##### 12651#       发表于 2021-7-11 14:25
@@ -7453,7 +7453,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12652#       发表于 2021-7-12 01:12
@@ -7474,7 +7474,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  飞姆托  
 ##### 12653#       发表于 2021-7-12 03:24
@@ -7489,7 +7489,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12654#       发表于 2021-7-13 01:18
@@ -7510,7 +7510,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  飞姆托  
 ##### 12655#       发表于 2021-7-13 04:30
@@ -7523,7 +7523,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12656#       发表于 2021-7-13 08:26
@@ -7532,7 +7532,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 还能怎么爆呢，难道绫总的车队其实一直都是她点的高级陪玩?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12657#       发表于 2021-7-13 09:18
@@ -7543,7 +7543,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  飞姆托  
 ##### 12658#       发表于 2021-7-13 10:14
@@ -7554,7 +7554,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12659#       发表于 2021-7-13 10:27
@@ -7570,7 +7570,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
                                                  
 
------
+*****
 
 ####  バーチャルS1er  
 ##### 12660#       发表于 2021-7-13 10:44
@@ -7581,7 +7581,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
 
 
------
+*****
 
 ####  星尘的杨桃精  
 ##### 12661#       发表于 2021-7-13 10:47
@@ -7593,7 +7593,7 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 syl一个日本母人每天跟一群拆腻子通宵 现实生活得多不如意
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12662#       发表于 2021-7-13 11:28
@@ -7604,7 +7604,7 @@ syl一个日本母人每天跟一群拆腻子通宵 现实生活得多不如意
 
                                                 
 
------
+*****
 
 ####  一仙  
 ##### 12663#       发表于 2021-7-13 11:35
@@ -7615,7 +7615,7 @@ syl一个日本母人每天跟一群拆腻子通宵 现实生活得多不如意
 不过一起打的是debu助小姐<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12664#       发表于 2021-7-13 11:41
@@ -7624,7 +7624,7 @@ syl一个日本母人每天跟一群拆腻子通宵 现实生活得多不如意
 每个人都有机会在lol中狙击到主播，人人平等捏
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12665#       发表于 2021-7-13 11:44
@@ -7635,7 +7635,7 @@ syl一个日本母人每天跟一群拆腻子通宵 现实生活得多不如意
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12666#       发表于 2021-7-13 14:31
@@ -7661,7 +7661,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 查看全部评分
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12667#       发表于 2021-7-13 15:14
@@ -7680,7 +7680,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12668#       发表于 2021-7-13 18:51
@@ -7689,7 +7689,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来这个月又要在摆烂中度过了
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12669#       发表于 2021-7-13 19:01
@@ -7700,7 +7700,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12670#       发表于 2021-7-13 19:24
@@ -7709,7 +7709,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">学生生涯的最后一个暑假就应该在挥霍青春中度过
 
 
------
+*****
 
 ####  stedckk  
 ##### 12671#       发表于 2021-7-13 19:27
@@ -7720,7 +7720,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 12672#       发表于 2021-7-14 09:25
@@ -7731,7 +7731,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 不开播的时候居然还去教学了润润APEX
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12673#       发表于 2021-7-14 09:28
@@ -7740,7 +7740,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 她还记得apex就好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12674#       发表于 2021-7-14 09:35
@@ -7751,7 +7751,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  stedckk  
 ##### 12675#       发表于 2021-7-14 19:53
@@ -7773,7 +7773,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cctvyt1  
 ##### 12676#       发表于 2021-7-14 20:27
@@ -7784,7 +7784,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12677#       发表于 2021-7-14 20:47
@@ -7793,7 +7793,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">人都确认没了 
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12678#       发表于 2021-7-14 21:14
@@ -7805,7 +7805,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  allenz3  
 ##### 12679#       发表于 2021-7-15 12:49
@@ -7816,7 +7816,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  allenz3  
 ##### 12680#       发表于 2021-7-15 12:49
@@ -7829,7 +7829,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  Fami水  
 ##### 12681#       发表于 2021-7-15 18:09
@@ -7839,7 +7839,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 日本效率再评价
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12682#       发表于 2021-7-15 18:15
@@ -7850,7 +7850,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  allenz3  
 ##### 12683#       发表于 2021-7-15 19:03
@@ -7861,7 +7861,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12684#       发表于 2021-7-15 19:22
@@ -7872,7 +7872,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 12685#       发表于 2021-7-16 10:17
@@ -7883,7 +7883,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  cctvyt1  
 ##### 12686#       发表于 2021-7-16 16:56
@@ -7892,7 +7892,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 今天不会再是静止画了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fami水  
 ##### 12687#       发表于 2021-7-16 17:20
@@ -7901,7 +7901,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公司配信能蹭个3d搞搞么
 
 
------
+*****
 
 ####  一仙  
 ##### 12688#       发表于 2021-7-16 17:22
@@ -7912,7 +7912,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 时间线瞬间被狂暴鸿儒了
 
 
------
+*****
 
 ####  nian1538  
 ##### 12689#       发表于 2021-7-16 17:25
@@ -7923,7 +7923,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
                                                  
 
------
+*****
 
 ####  因为你不会  
 ##### 12690#       发表于 2021-7-16 17:39
@@ -7936,7 +7936,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
 
 
------
+*****
 
 ####  因为你不会  
 ##### 12691#       发表于 2021-7-16 17:39
@@ -7945,7 +7945,7 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 念sc是什么意思，开个发票是吧
 
 
------
+*****
 
 ####  Fami水  
 ##### 12692#       发表于 2021-7-16 17:43

@@ -1,7 +1,7 @@
 > ## **本文件最后更新于2020-02-13 16:24** 
 
 
------
+*****
 
 ####  macroth  
 ##### 21001#       发表于 2011-1-23 18:06
@@ -11,7 +11,7 @@
 之前在漫区外面就觉着这OP楼怎么那么多人回复 今天是不是有活动
 
 
------
+*****
 
 ####  伍  
 ##### 21002#       发表于 2011-1-23 18:06
@@ -21,7 +21,7 @@
 一亿五千万的时候有奖不囧
 
 
------
+*****
 
 ####  ymfss  
 ##### 21003#       发表于 2011-1-23 18:07
@@ -31,7 +31,7 @@
 剃头剃头剃了个头～
 
 
------
+*****
 
 ####  rushsword  
 ##### 21004#       发表于 2011-1-23 18:07
@@ -40,7 +40,7 @@
 40亿+的楼 我来啦～
 
 
------
+*****
 
 ####  Ryo  
 ##### 21005#       发表于 2011-1-23 18:12
@@ -49,7 +49,7 @@
 这个楼层到底是怎么回事- -<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  酷酷的棍兔  
 ##### 21006#       发表于 2011-1-23 18:13
@@ -58,7 +58,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">围观
 
 
------
+*****
 
 ####  Feena  
 ##### 21007#       发表于 2011-1-23 18:14
@@ -67,7 +67,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">这个数字是怎么回事...全世界人民都刷s1了吗
 
 
------
+*****
 
 ####  shadow001  
 ##### 21008#       发表于 2011-1-23 18:15
@@ -79,7 +79,7 @@
 這樓發生什麼事?
 
 
------
+*****
 
 ####  MY_MiNA  
 ##### 21009#       发表于 2011-1-23 18:18
@@ -88,7 +88,7 @@
 饿。。围观bug<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">143165577
 
 
------
+*****
 
 ####  ffcloudy12  
 ##### 21010#       发表于 2011-1-23 18:18
@@ -97,7 +97,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer"> S1娘终于被玩坏了吗
 
 
------
+*****
 
 ####  户川清春  
 ##### 21011#       发表于 2011-1-23 18:19
@@ -106,7 +106,7 @@
 这突破天际的页数<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mr.s  
 ##### 21012#       发表于 2011-1-23 18:20
@@ -115,7 +115,7 @@
 ...留名.......留名<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 21013#       发表于 2011-1-23 18:21
@@ -124,7 +124,7 @@
 留名，这爆表的战斗力…………
 
 
------
+*****
 
 ####  yth329  
 ##### 21014#       发表于 2011-1-23 18:21
@@ -133,7 +133,7 @@
 马上就要超过地球年龄了呢，加油盖楼啊
 
 
------
+*****
 
 ####  pc1003  
 ##### 21015#       发表于 2011-1-23 18:28
@@ -142,7 +142,7 @@
 蹭面子 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  米利安  
 ##### 21016#       发表于 2011-1-23 18:30
@@ -151,7 +151,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">果断地按爪
 
 
------
+*****
 
 ####  pisces505  
 ##### 21017#       发表于 2011-1-23 18:31
@@ -160,7 +160,7 @@
 留名~留名~<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  asuka.  
 ##### 21018#       发表于 2011-1-23 18:32
@@ -169,7 +169,7 @@
 共143165577页
 
 
------
+*****
 
 ####  ltc-szk  
 ##### 21019#       发表于 2011-1-23 18:33
@@ -178,7 +178,7 @@
 这怎么统计的？
 
 
------
+*****
 
 ####  roger_hunter  
 ##### 21020#       发表于 2011-1-23 18:33
@@ -188,7 +188,7 @@
 突破天际了啊
 
 
------
+*****
 
 ####  一群海棠  
 ##### 21021#       发表于 2011-1-23 18:35
@@ -197,7 +197,7 @@
 历史性时刻留名！
 
 
------
+*****
 
 ####  查内姆  
 ##### 21022#       发表于 2011-1-23 18:35
@@ -207,7 +207,7 @@
 这倒是是怎么回事
 
 
------
+*****
 
 ####  rubicon  
 ##### 21023#       发表于 2011-1-23 18:36
@@ -216,7 +216,7 @@
 这数字太狂霸太时毛了
 
 
------
+*****
 
 ####  idoggy  
 ##### 21024#       发表于 2011-1-23 18:40
@@ -225,7 +225,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">这是怎么回事？
 
 
------
+*****
 
 ####  萝卜roto  
 ##### 21025#       发表于 2011-1-23 18:44
@@ -235,7 +235,7 @@
 老爹你是最牛的..
 
 
------
+*****
 
 ####  毒品  
 ##### 21026#       发表于 2011-1-23 18:47
@@ -244,7 +244,7 @@
 留名，，，，，，<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新垣绫濑  
 ##### 21027#       发表于 2011-1-23 18:50
@@ -253,7 +253,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">這樓層太時髦了..
 
 
------
+*****
 
 ####  bibleman  
 ##### 21028#       发表于 2011-1-23 18:51
@@ -262,7 +262,7 @@
 我说怎么这么多人回帖……<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">×42！
 
 
------
+*****
 
 ####  dab23  
 ##### 21029#       发表于 2011-1-23 18:55
@@ -271,7 +271,7 @@
 突破天际了
 
 
------
+*****
 
 ####  lblbzjw  
 ##### 21030#       发表于 2011-1-23 18:58
@@ -280,7 +280,7 @@
 40+亿帖无压力
 
 
------
+*****
 
 ####  城管  
 ##### 21031#       发表于 2011-1-23 18:59
@@ -289,7 +289,7 @@
 这贴数实在是太霸气了<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  aniba  
 ##### 21032#       发表于 2011-1-23 19:01
@@ -298,7 +298,7 @@
 我要按爪<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ξ小笨猪φ  
 ##### 21033#       发表于 2011-1-23 19:03
@@ -307,7 +307,7 @@
 中间一大段空的囧
 
 
------
+*****
 
 ####  csy2994  
 ##### 21034#       发表于 2011-1-23 19:03
@@ -316,7 +316,7 @@
 留名留名<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  renious  
 ##### 21035#       发表于 2011-1-23 19:04
@@ -332,7 +332,7 @@
 留证据
 
 
------
+*****
 
 ####  ★草泥马★  
 ##### 21036#       发表于 2011-1-23 19:05
@@ -341,7 +341,7 @@
 我以为只有我一个人眼花了<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  peach_tian  
 ##### 21037#       发表于 2011-1-23 19:05
@@ -350,7 +350,7 @@
 围观爱撕衣史上最高楼，这bug真可怕
 
 
------
+*****
 
 ####  津田隆利  
 ##### 21038#       发表于 2011-1-23 19:05
@@ -366,7 +366,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  darkid  
 ##### 21039#       发表于 2011-1-23 19:07
@@ -375,7 +375,7 @@
 卧槽这个必须留名
 
 
------
+*****
 
 ####  囧.スミス  
 ##### 21040#       发表于 2011-1-23 19:08
@@ -384,7 +384,7 @@
 這。。。終於是被玩壞掉了嗎<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  轟木みい  
 ##### 21041#       发表于 2011-1-23 19:09
@@ -393,7 +393,7 @@
 这里怎么了<img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hyuy  
 ##### 21042#       发表于 2011-1-23 19:12
@@ -402,7 +402,7 @@
 我觉得应该留个念
 
 
------
+*****
 
 ####  saberutopia  
 ##### 21043#       发表于 2011-1-23 19:12
@@ -411,7 +411,7 @@
 坏掉了，来看看<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  infinite  
 ##### 21044#       发表于 2011-1-23 19:13
@@ -420,7 +420,7 @@
 OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  萍踪已逝  
 ##### 21045#       发表于 2011-1-23 19:14
@@ -429,7 +429,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 我这是穿越到多少年后的是s1了啊。。。
 
 
------
+*****
 
 ####  alexanderp  
 ##### 21046#       发表于 2011-1-23 19:14
@@ -438,7 +438,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 留了个名
 
 
------
+*****
 
 ####  calm  
 ##### 21047#       发表于 2011-1-23 19:18
@@ -447,7 +447,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 试试看
 
 
------
+*****
 
 ####  pppofe  
 ##### 21048#       发表于 2011-1-23 19:20
@@ -456,7 +456,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 此等大事件，不得不留名<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  x2018854  
 ##### 21049#       发表于 2011-1-23 19:20
@@ -465,7 +465,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer"> 纪念下
 
 
------
+*****
 
 ####  杨叫兽  
 ##### 21050#       发表于 2011-1-23 19:21
@@ -474,7 +474,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 大事件！
 
 
------
+*****
 
 ####  ccavfun  
 ##### 21051#       发表于 2011-1-23 19:23
@@ -483,7 +483,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">幻觉……你们这些家伙没有办法吓到我的！！！
 
 
------
+*****
 
 ####  kidxiang  
 ##### 21052#       发表于 2011-1-23 19:27
@@ -492,7 +492,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 这是连接到火星的桥梁吗？
 
 
------
+*****
 
 ####  gdx9900  
 ##### 21053#       发表于 2011-1-23 19:34
@@ -501,7 +501,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 战斗力143,165,577<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  寒蝉  
 ##### 21054#       发表于 2011-1-23 19:38
@@ -510,7 +510,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 发生什么了？？？
 
 
------
+*****
 
 ####  smileboom  
 ##### 21055#       发表于 2011-1-23 19:40
@@ -519,7 +519,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 我艹，这页数怎么回事……
 
 
------
+*****
 
 ####  aizen  
 ##### 21056#       发表于 2011-1-23 19:41
@@ -530,7 +530,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 个十百千万....亿了啊- -
 
 
------
+*****
 
 ####  Yimo  
 ##### 21057#       发表于 2011-1-23 19:46
@@ -539,7 +539,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 转楼坏掉了。。。
 
 
------
+*****
 
 ####  talentmanger  
 ##### 21058#       发表于 2011-1-23 19:47
@@ -548,7 +548,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 作为40亿分一，我留个名
 
 
------
+*****
 
 ####  65535  
 ##### 21059#       发表于 2011-1-23 19:48
@@ -557,7 +557,7 @@ OP楼突破天际了，留名留名<img src="https://static.saraba1st.com/image/
 OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  楼主很直接  
 ##### 21060#       发表于 2011-1-23 19:49
@@ -566,7 +566,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 我去！太牛B了。。。
 
 
------
+*****
 
 ####  MAYUMI  
 ##### 21061#       发表于 2011-1-23 19:52
@@ -575,7 +575,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">这楼数是什么情况
 
 
------
+*****
 
 ####  nonononono  
 ##### 21062#       发表于 2011-1-23 19:56
@@ -584,7 +584,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 我真的还想再活五百年<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  000988  
 ##### 21063#       发表于 2011-1-23 19:56
@@ -593,7 +593,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 留名留名
 
 
------
+*****
 
 ####  superzj87  
 ##### 21064#       发表于 2011-1-23 19:59
@@ -602,7 +602,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 这。。。这是通天塔么。。。
 
 
------
+*****
 
 ####  李林顺  
 ##### 21065#       发表于 2011-1-23 19:59
@@ -611,7 +611,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 赶快留名。<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  M27MD  
 ##### 21066#       发表于 2011-1-23 20:00
@@ -620,7 +620,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer"> 这数字！！！！你是吓不到我的！！
 
 
------
+*****
 
 ####  grant  
 ##### 21067#       发表于 2011-1-23 20:01
@@ -630,7 +630,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 还不爆么
 
 
------
+*****
 
 ####  嘎巴  
 ##### 21068#       发表于 2011-1-23 20:02
@@ -639,7 +639,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 占座
 
 
------
+*****
 
 ####  Morel  
 ##### 21069#       发表于 2011-1-23 20:02
@@ -648,7 +648,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 高楼层围观
 
 
------
+*****
 
 ####  云狼  
 ##### 21070#       发表于 2011-1-23 20:03
@@ -657,7 +657,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 时髦值突破天际！
 
 
------
+*****
 
 ####  ds006425  
 ##### 21071#       发表于 2011-1-23 20:04
@@ -666,7 +666,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face/132.gif" referrerpolicy="no-referrer">这高度
 
 
------
+*****
 
 ####  Futanari  
 ##### 21072#       发表于 2011-1-23 20:06
@@ -675,7 +675,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">   这个楼怎么这样了，。。。。。。
 
 
------
+*****
 
 ####  avatar  
 ##### 21073#       发表于 2011-1-23 20:07
@@ -684,7 +684,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">突破天際了
 
 
------
+*****
 
 ####  zsyf  
 ##### 21074#       发表于 2011-1-23 20:09
@@ -693,7 +693,7 @@ OP的战斗力突破天际了口牙<img src="https://static.saraba1st.com/image/
 S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不住冒个泡，留下记号纪念一下。
 
 
------
+*****
 
 ####  火云邪神  
 ##### 21075#       发表于 2011-1-23 20:13
@@ -702,7 +702,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 我操，这个必须留名，OP的战斗力从未被超越，从未！
 
 
------
+*****
 
 ####  lefteyelisa  
 ##### 21076#       发表于 2011-1-23 20:14
@@ -711,7 +711,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">神马情况
 
 
------
+*****
 
 ####  btqzq  
 ##### 21077#       发表于 2011-1-23 20:15
@@ -720,7 +720,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 怎么变成这样了…………
 
 
------
+*****
 
 ####  agumon  
 ##### 21078#       发表于 2011-1-23 20:16
@@ -729,7 +729,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">喝茶围观高楼的
 
 
------
+*****
 
 ####  夜游的树  
 ##### 21079#       发表于 2011-1-23 20:16
@@ -738,7 +738,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">我还以为我看错了，原来是真的
 
 
------
+*****
 
 ####  yforyan  
 ##### 21080#       发表于 2011-1-23 20:17
@@ -747,7 +747,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 <img src="https://static.saraba1st.com/image/smiley/face/163.gif" referrerpolicy="no-referrer">太惊人了
 
 
------
+*****
 
 ####  KuSo之神  
 ##### 21081#       发表于 2011-1-23 20:19
@@ -756,7 +756,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 <img src="https://static.saraba1st.com/image/smiley/face/163.gif" referrerpolicy="no-referrer">哇，如此高楼！战斗力破表了
 
 
------
+*****
 
 ####  lzh777  
 ##### 21082#       发表于 2011-1-23 20:24
@@ -765,7 +765,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 太妖孽了……留名<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  8aa8aa8aa  
 ##### 21083#       发表于 2011-1-23 20:24
@@ -774,7 +774,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">赶快露面～
 
 
------
+*****
 
 ####  cdyzzl  
 ##### 21084#       发表于 2011-1-23 20:28
@@ -783,7 +783,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">我以为我穿越了...
 
 
------
+*****
 
 ####  zzzsu  
 ##### 21085#       发表于 2011-1-23 20:31
@@ -792,7 +792,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 怎么样都好，但是不要弄得需要把整栋楼砍掉啊…
 
 
------
+*****
 
 ####  keledou  
 ##### 21086#       发表于 2011-1-23 20:32
@@ -801,7 +801,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 我靠点进来还是这么高
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21087#       发表于 2011-1-23 20:34
@@ -810,7 +810,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 原来中间是空的
 
 
------
+*****
 
 ####  stopkill88  
 ##### 21088#       发表于 2011-1-23 20:40
@@ -819,7 +819,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 纳尼！！！1亿多 液！！！  液！！！！！！！！！！！！！
 
 
------
+*****
 
 ####  zzfzz  
 ##### 21089#       发表于 2011-1-23 20:42
@@ -828,7 +828,7 @@ S1娘如此重大的历史时刻，即便是作为深水潜水党的我也忍不
 OP专楼坏了
 
 
------
+*****
 
 ####  wingzerocos  
 ##### 21090#       发表于 2011-1-23 20:49
@@ -837,7 +837,7 @@ OP专楼坏了
 神楼必须留名
 
 
------
+*****
 
 ####  kofwindy  
 ##### 21091#       发表于 2011-1-23 20:50
@@ -846,7 +846,7 @@ OP专楼坏了
 42亿楼留面子！
 
 
------
+*****
 
 ####  asaon  
 ##### 21092#       发表于 2011-1-23 20:51
@@ -855,7 +855,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer"> 糕层留名
 
 
------
+*****
 
 ####  不败之狼  
 ##### 21093#       发表于 2011-1-23 20:52
@@ -864,7 +864,7 @@ OP专楼坏了
 这个楼层能不能敌得过山口山吧的各种高楼？
 
 
------
+*****
 
 ####  贝贝熊  
 ##### 21094#       发表于 2011-1-23 20:54
@@ -873,7 +873,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer"> 怎麼回事呀這是
 
 
------
+*****
 
 ####  wingzerocos  
 ##### 21095#       发表于 2011-1-23 20:57
@@ -885,7 +885,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer"> 这个表情是不是该进化了
 
 
------
+*****
 
 ####  虚空魔法师  
 ##### 21096#       发表于 2011-1-23 20:58
@@ -894,7 +894,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  宇墨  
 ##### 21097#       发表于 2011-1-23 21:04
@@ -903,7 +903,7 @@ OP专楼坏了
 |= =||| 這樓什麼展開？|
 
 
------
+*****
 
 ####  finallyeva  
 ##### 21098#       发表于 2011-1-23 21:05
@@ -912,7 +912,7 @@ OP专楼坏了
 这这?????????????????
 
 
------
+*****
 
 ####  Mufasa  
 ##### 21099#       发表于 2011-1-23 21:05
@@ -922,7 +922,7 @@ OP专楼坏了
 明天上班来看看是怎么回事
 
 
------
+*****
 
 ####  Bamind  
 ##### 21100#       发表于 2011-1-23 21:53
@@ -935,7 +935,7 @@ OP专楼坏了
 <[img src="http://i.imgur.com/HUTWY.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qubely  
 ##### 21101#       发表于 2011-1-23 22:09
@@ -944,7 +944,7 @@ OP专楼坏了
 老爹的实力已经突破天际了
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21102#       发表于 2011-1-23 22:10
@@ -953,7 +953,7 @@ OP专楼坏了
 巨大战舰的声音有点失望
 
 
------
+*****
 
 ####  Bamind  
 ##### 21103#       发表于 2011-1-24 17:01
@@ -968,7 +968,7 @@ OP专楼坏了
 貌似旧楼问题还没有解决<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  龙骑将  
 ##### 21104#       发表于 2011-1-24 17:03
@@ -977,7 +977,7 @@ OP专楼坏了
 老爹连三次元都能战翻了
 
 
------
+*****
 
 ####  xzx3321  
 ##### 21105#       发表于 2011-1-24 17:11
@@ -986,7 +986,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hispeed  
 ##### 21106#       发表于 2011-1-24 17:39
@@ -995,7 +995,7 @@ OP专楼坏了
 啊哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  虚空魔法师  
 ##### 21107#       发表于 2011-1-26 14:29
@@ -1004,7 +1004,7 @@ OP专楼坏了
 555那高楼一去不复返了<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Bamind  
 ##### 21108#       发表于 2011-1-26 15:30
@@ -1078,7 +1078,7 @@ OP专楼坏了
 还在上面跳
 
 
------
+*****
 
 ####  flll  
 ##### 21109#       发表于 2011-1-26 15:33
@@ -1091,7 +1091,7 @@ OP专楼坏了
 这是神马情况？！女帝调教的？
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21110#       发表于 2011-1-26 15:39
@@ -1103,7 +1103,7 @@ OP专楼坏了
 这意味着罩杯惊人？
 
 
------
+*****
 
 ####  qubely  
 ##### 21111#       发表于 2011-1-26 15:42
@@ -1112,7 +1112,7 @@ OP专楼坏了
 所以说，我越来越讨厌路飞这个小畜生了
 
 
------
+*****
 
 ####  shadow001  
 ##### 21112#       发表于 2011-1-26 15:47
@@ -1121,7 +1121,7 @@ OP专楼坏了
 噗!路飛你這傢伙 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戦人  
 ##### 21113#       发表于 2011-1-26 15:52
@@ -1130,7 +1130,7 @@ OP专楼坏了
 山治翻身无望了，果然是注定人妖命啊<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Bamind  
 ##### 21114#       发表于 2011-1-26 16:02
@@ -1139,7 +1139,7 @@ OP专楼坏了
 烧死路飞<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wingchau  
 ##### 21115#       发表于 2011-1-26 16:42
@@ -1153,7 +1153,7 @@ OP专楼坏了
 情报说人鱼公主很可爱不过体型很大.
 
 
------
+*****
 
 ####  DGIL  
 ##### 21116#       发表于 2011-1-26 16:43
@@ -1181,7 +1181,7 @@ OP专楼坏了
 <img src="https://img.saraba1st.com/forum/pw/Mon_1101/6_19076_3d41ee72e86afc0.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Bamind  
 ##### 21117#       发表于 2011-1-26 17:16
@@ -1190,7 +1190,7 @@ OP专楼坏了
 旧楼应该还在，只是成危楼了<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mj_lm  
 ##### 21118#       发表于 2011-1-26 17:25
@@ -1200,7 +1200,7 @@ OP专楼坏了
 红狗必须死 话说老楼怎么了
 
 
------
+*****
 
 ####  DGIL  
 ##### 21119#       发表于 2011-1-26 17:28
@@ -1222,7 +1222,7 @@ OP专楼坏了
 <img src="https://img.saraba1st.com/forum/pw/Mon_1101/6_19076_0113a680108e8f1.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  肩上的乌鸦  
 ##### 21120#       发表于 2011-1-26 17:38
@@ -1234,7 +1234,7 @@ OP专楼坏了
 看OP也要被闪<img src="https://static.saraba1st.com/image/smiley/face/125.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  银辉神父  
 ##### 21121#       发表于 2011-1-26 17:41
@@ -1243,7 +1243,7 @@ OP专楼坏了
 海贼王是要开后宫的吗……
 
 
------
+*****
 
 ####  戦人  
 ##### 21122#       发表于 2011-1-26 17:48
@@ -1254,7 +1254,7 @@ OP专楼坏了
 <[img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wingchau  
 ##### 21123#       发表于 2011-1-26 21:04
@@ -1276,7 +1276,7 @@ OP专楼坏了
 <img src="https://img.saraba1st.com/forum/pw/Mon_1101/6_104957_cbbd2e5dc31cd2f.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白诘草  
 ##### 21124#       发表于 2011-1-26 21:10
@@ -1285,7 +1285,7 @@ OP专楼坏了
 这体型真大
 
 
------
+*****
 
 ####  yuyifeng  
 ##### 21125#       发表于 2011-1-26 21:12
@@ -1294,7 +1294,7 @@ OP专楼坏了
 人鱼公主会不会上船呢。。。。被人追杀这个梗，吃个缩小药什么的。。。
 
 
------
+*****
 
 ####  qixinno1  
 ##### 21126#       发表于 2011-1-26 21:12
@@ -1303,7 +1303,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer"> 我去 这么大 G秋叶也比不过啊
 
 
------
+*****
 
 ####  戦人  
 ##### 21127#       发表于 2011-1-26 21:19
@@ -1312,7 +1312,7 @@ OP专楼坏了
 3档的真正意义你们明白了吧
 
 
------
+*****
 
 ####  yangxu  
 ##### 21128#       发表于 2011-1-26 21:21
@@ -1324,7 +1324,7 @@ OP专楼坏了
 这不就是NAMI套上了鱼尾吗？<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luffyplus  
 ##### 21129#       发表于 2011-1-26 21:42
@@ -1338,7 +1338,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21130#       发表于 2011-1-26 21:48
@@ -1347,7 +1347,7 @@ OP专楼坏了
 哇，人鱼公主超可爱
 
 
------
+*****
 
 ####  flll  
 ##### 21131#       发表于 2011-1-26 21:59
@@ -1359,7 +1359,7 @@ OP专楼坏了
 路飞这一路下来收集的不是女王就是王女啊
 
 
------
+*****
 
 ####  阿拉伯土豆  
 ##### 21132#       发表于 2011-1-26 22:01
@@ -1369,7 +1369,7 @@ OP专楼坏了
 估计尾田的意思是路痴还是没变，但现在的索隆总是能歪打正着第一个
 
 
------
+*****
 
 ####  fengzhiwai  
 ##### 21133#       发表于 2011-1-26 23:07
@@ -1378,7 +1378,7 @@ OP专楼坏了
 嘛的赤犬不被碎尸我很不满
 
 
------
+*****
 
 ####  Snaky  
 ##### 21134#       发表于 2011-1-27 01:01
@@ -1388,7 +1388,7 @@ OP专楼坏了
 这脸真的不是娜美<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  萝卜roto  
 ##### 21135#       发表于 2011-1-27 03:07
@@ -1399,7 +1399,7 @@ OP专楼坏了
     路飞的三档终于能发挥最大用途了..
 
 
------
+*****
 
 ####  edlose  
 ##### 21136#       发表于 2011-1-27 07:47
@@ -1408,7 +1408,7 @@ OP专楼坏了
 乃们这些糟糕货,那话儿里没骨吧,怎么气球<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21137#       发表于 2011-1-27 07:56
@@ -1420,7 +1420,7 @@ OP专楼坏了
 事实上是有软骨的。
 
 
------
+*****
 
 ####  qubely  
 ##### 21138#       发表于 2011-1-27 08:22
@@ -1430,7 +1430,7 @@ OP专楼坏了
 不过人鱼公主体型这么大，不知道同人本会怎么画呢<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 21139#       发表于 2011-1-27 08:38
@@ -1441,7 +1441,7 @@ OP专楼坏了
 这话进展也太慢了……有点拖
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21140#       发表于 2011-1-27 09:04
@@ -1452,7 +1452,7 @@ OP专楼坏了
 不过，就算不用3档，不是也有这类的动作片可以参考吗
 
 
------
+*****
 
 ####  tgl10  
 ##### 21141#       发表于 2011-1-27 09:11
@@ -1461,7 +1461,7 @@ OP专楼坏了
 同问旧楼怎么了?
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21142#       发表于 2011-1-27 09:20
@@ -1472,7 +1472,7 @@ OP专楼坏了
 汉化已出
 
 
------
+*****
 
 ####  龙骑将  
 ##### 21143#       发表于 2011-1-27 09:33
@@ -1481,7 +1481,7 @@ OP专楼坏了
 人鱼公主的这表情，好像在说那里...不要碰那里...
 
 
------
+*****
 
 ####  luffyzhou  
 ##### 21144#       发表于 2011-1-27 09:48
@@ -1490,7 +1490,7 @@ OP专楼坏了
 虽然好可爱，但是好大……<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mufasa  
 ##### 21145#       发表于 2011-1-27 09:50
@@ -1500,7 +1500,7 @@ OP专楼坏了
 你们快谢谢老年痴呆狗
 
 
------
+*****
 
 ####  Mufasa  
 ##### 21146#       发表于 2011-1-27 09:51
@@ -1510,7 +1510,7 @@ OP专楼坏了
 这贴别回了
 
 
------
+*****
 
 ####  snoopys  
 ##### 21147#       发表于 2011-1-27 09:53
@@ -1519,7 +1519,7 @@ OP专楼坏了
 看看好了没
 
 
------
+*****
 
 ####  kaori  
 ##### 21148#       发表于 2011-1-27 09:55
@@ -1528,7 +1528,7 @@ OP专楼坏了
 似乎是好了
 
 
------
+*****
 
 ####  囧神  
 ##### 21149#       发表于 2011-1-27 09:55
@@ -1537,7 +1537,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer"> 狗叔万岁！
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 21150#       发表于 2011-1-27 10:02
@@ -1547,7 +1547,7 @@ OP专楼坏了
 谢北狗神拳！
 
 
------
+*****
 
 ####  毒品  
 ##### 21151#       发表于 2011-1-27 10:06
@@ -1556,7 +1556,7 @@ OP专楼坏了
 狗叔威武<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21152#       发表于 2011-1-27 10:06
@@ -1565,7 +1565,7 @@ OP专楼坏了
 狗叔V5
 
 
------
+*****
 
 ####  bill910  
 ##### 21153#       发表于 2011-1-27 10:07
@@ -1574,7 +1574,7 @@ OP专楼坏了
 谢谢史老比
 
 
------
+*****
 
 ####  莫愁  
 ##### 21154#       发表于 2011-1-27 10:09
@@ -1583,7 +1583,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer"> 狗叔我爱你
 
 
------
+*****
 
 ####  境宗久  
 ##### 21155#       发表于 2011-1-27 10:11
@@ -1592,7 +1592,7 @@ OP专楼坏了
 狗叔威武 <img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  龙意识  
 ##### 21156#       发表于 2011-1-27 10:21
@@ -1601,7 +1601,7 @@ OP专楼坏了
 恭喜危楼维修成功<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  chesaking  
 ##### 21157#       发表于 2011-1-27 10:23
@@ -1610,7 +1610,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer"> 狗叔万岁
 
 
------
+*****
 
 ####  贰叁叁  
 ##### 21158#       发表于 2011-1-27 10:24
@@ -1619,7 +1619,7 @@ OP专楼坏了
 是什么原因导致的？。
 
 
------
+*****
 
 ####  恋妖壶  
 ##### 21159#       发表于 2011-1-27 10:25
@@ -1637,7 +1637,7 @@ OP专楼坏了
 2011-1-27 10:25 上传
 
 
------
+*****
 
 ####  DeniumMKII  
 ##### 21160#       发表于 2011-1-27 10:28
@@ -1649,7 +1649,7 @@ OP专楼坏了
 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>“大”萌啊。。。
 
 
------
+*****
 
 ####  革新  
 ##### 21161#       发表于 2011-1-27 10:29
@@ -1658,7 +1658,7 @@ OP专楼坏了
 路飞怎么又触发公主flag了,,难道也要追随个后宫团才好么
 
 
------
+*****
 
 ####  lf180362866  
 ##### 21162#       发表于 2011-1-27 10:41
@@ -1669,7 +1669,7 @@ OP专楼坏了
 什么！怎么到处都在说路飞用三档？
 
 
------
+*****
 
 ####  luffyzhou  
 ##### 21163#       发表于 2011-1-27 10:44
@@ -1680,7 +1680,7 @@ OP专楼坏了
 看起来毁灭鱼人岛的事儿起因没准就是卡里布绑架人鱼惹起来的
 
 
------
+*****
 
 ####  sakuraop  
 ##### 21164#       发表于 2011-1-27 10:56
@@ -1689,7 +1689,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">激萌了，让我这潜水忍不住登陆
 
 
------
+*****
 
 ####  qixinno1  
 ##### 21165#       发表于 2011-1-27 11:00
@@ -1698,7 +1698,7 @@ OP专楼坏了
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">好萌的妹子
 
 
------
+*****
 
 ####  yellowboat  
 ##### 21166#       发表于 2011-1-27 11:11
@@ -1709,7 +1709,7 @@ OP专楼坏了
 但是他说王兄？之前出场的那几位王子是公主的哥哥吗？可是体型跟一般人类好像差不多呀。
 
 
------
+*****
 
 ####  市杵宍姫命  
 ##### 21167#       发表于 2011-1-27 11:28
@@ -1718,7 +1718,7 @@ OP专楼坏了
 人魚公主和蛇姬會上演金庸小說搶主角的事么
 
 
------
+*****
 
 ####  65535  
 ##### 21168#       发表于 2011-1-27 11:46
@@ -1728,7 +1728,7 @@ OP专楼坏了
 [strike]太高了不好推啊[/strike]<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  finallyeva  
 ##### 21169#       发表于 2011-1-27 11:51
@@ -1737,7 +1737,7 @@ OP专楼坏了
 LUFFY你快用三档吧.....
 
 
------
+*****
 
 ####  tgl10  
 ##### 21170#       发表于 2011-1-27 11:56
@@ -1748,7 +1748,7 @@ op专楼本来就这么高我记得
 人鱼公主美貌度一般啦,当年鲁宾出场时最高,后来的七五海则杀必死,这个人鱼公主目前看来还无法和他们相比
 
 
------
+*****
 
 ####  lxzyufeng  
 ##### 21171#       发表于 2011-1-27 12:10
@@ -1757,7 +1757,7 @@ op专楼本来就这么高我记得
 蛇女有flag，现在鱼女也有flag，尾田应该是顺应了后宫潮流，遗憾的是沙漠篇太早，王女没flag。
 
 
------
+*****
 
 ####  シャル  
 ##### 21172#       发表于 2011-1-27 12:22
@@ -1766,7 +1766,7 @@ op专楼本来就这么高我记得
 泥沼果实能不能克制岩浆果实？<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zero33333  
 ##### 21173#       发表于 2011-1-27 12:33
@@ -1775,7 +1775,7 @@ op专楼本来就这么高我记得
 快出同人<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  joelyoung  
 ##### 21174#       发表于 2011-1-27 12:34
@@ -1787,7 +1787,7 @@ op专楼本来就这么高我记得
 人鱼公主美貌度一般啦,当年鲁宾出场时最高,后来的七五海则杀必死,这个人鱼公主目前看来还无法和他们相比 <[img src="https://static.saraba1st.com/image/smiley/face/170.gif" referrerpolicy="no-referrer">你错过了一些东西
 
 
------
+*****
 
 ####  rubicon  
 ##### 21175#       发表于 2011-1-27 12:53
@@ -1796,7 +1796,7 @@ op专楼本来就这么高我记得
 龙宫城出现的一刹那我有一种在看龙球的感觉<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flll  
 ##### 21176#       发表于 2011-1-27 12:57
@@ -1808,7 +1808,7 @@ op专楼本来就这么高我记得
 话说路飞这段时间主角光环越开越大了，其他团员都没啥表现机会了
 
 
------
+*****
 
 ####  银辉神父  
 ##### 21177#       发表于 2011-1-27 13:32
@@ -1817,7 +1817,7 @@ op专楼本来就这么高我记得
 这楼层好正常……真可惜
 
 
------
+*****
 
 ####  yario  
 ##### 21178#       发表于 2011-1-27 18:44
@@ -1827,7 +1827,7 @@ op专楼本来就这么高我记得
 人鱼公主果然 “大”而“萌”
 
 
------
+*****
 
 ####  gpx234  
 ##### 21179#       发表于 2011-1-27 19:14
@@ -1838,7 +1838,7 @@ op专楼本来就这么高我记得
 卡里布的泥浆也能做流星泥火山这样的效果吧
 
 
------
+*****
 
 ####  zephyr3  
 ##### 21180#       发表于 2011-1-27 19:45
@@ -1847,7 +1847,7 @@ op专楼本来就这么高我记得
 就知道WT会拿人鱼公主开涮<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gdx9900  
 ##### 21181#       发表于 2011-1-27 19:50
@@ -1858,7 +1858,7 @@ op专楼本来就这么高我记得
 难怪会养头鲨鱼做宠物了
 
 
------
+*****
 
 ####  hispeed  
 ##### 21182#       发表于 2011-1-27 20:11
@@ -1867,7 +1867,7 @@ op专楼本来就这么高我记得
 萌大奶
 
 
------
+*****
 
 ####  Bamind  
 ##### 21183#       发表于 2011-1-27 20:18
@@ -1878,7 +1878,7 @@ op专楼本来就这么高我记得
 狗叔威武<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  风听雨  
 ##### 21184#       发表于 2011-1-27 20:53
@@ -1890,7 +1890,7 @@ op专楼本来就这么高我记得
 话说这岩浆果实满满的H漫剧情感是怎么回事。。。。
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21185#       发表于 2011-1-28 09:53
@@ -1901,7 +1901,7 @@ op专楼本来就这么高我记得
 除了流星泥火山，还可以做到类似暗暗果实的黑暗地道和解放的效果？
 
 
------
+*****
 
 ####  シャル  
 ##### 21186#       发表于 2011-1-28 10:14
@@ -1912,7 +1912,7 @@ op专楼本来就这么高我记得
 泥浆果实也该是土系上位，克老沙的吧
 
 
------
+*****
 
 ####  hispeed  
 ##### 21187#       发表于 2011-1-28 12:10
@@ -1921,7 +1921,7 @@ op专楼本来就这么高我记得
 果实很强，可惜人太废
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21188#       发表于 2011-1-28 12:31
@@ -1932,7 +1932,7 @@ op专楼本来就这么高我记得
 好歹值2亿，就等路飞拿它刷时髦值了。
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21189#       发表于 2011-1-28 13:28
@@ -1941,7 +1941,7 @@ op专楼本来就这么高我记得
 吵着要卡里布上船的人呢？
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21190#       发表于 2011-1-28 14:01
@@ -1950,7 +1950,7 @@ op专楼本来就这么高我记得
 这话的感觉好奇怪。。。
 
 
------
+*****
 
 ####  Noel  
 ##### 21191#       发表于 2011-1-28 15:44
@@ -1959,7 +1959,7 @@ op专楼本来就这么高我记得
 你不喜欢大奶么
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21192#       发表于 2011-1-28 15:48
@@ -1968,7 +1968,7 @@ op专楼本来就这么高我记得
 这乳量突破天际了。。。
 
 
------
+*****
 
 ####  nstxy  
 ##### 21193#       发表于 2011-1-28 15:54
@@ -1977,7 +1977,7 @@ op专楼本来就这么高我记得
 这楼现在感觉好矮哦<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  琼恩·雪诺  
 ##### 21194#       发表于 2011-1-28 15:58
@@ -1986,7 +1986,7 @@ op专楼本来就这么高我记得
 人鱼公主像娜美巨大版完全比不上女帝嘛。
 
 
------
+*****
 
 ####  DGIL  
 ##### 21195#       发表于 2011-1-28 17:11
@@ -1996,7 +1996,7 @@ op专楼本来就这么高我记得
 只是因为名气都大都有世界最美头衔。。所以世人所搞出来的八卦？
 
 
------
+*****
 
 ####  yunluo  
 ##### 21196#       发表于 2011-1-28 17:15
@@ -2005,7 +2005,7 @@ op专楼本来就这么高我记得
 比我萌的没我大，比我大的没我萌，世界第一<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qubely  
 ##### 21197#       发表于 2011-1-28 17:17
@@ -2014,7 +2014,7 @@ op专楼本来就这么高我记得
 公主的出场完全没有女帝惊艳啊
 
 
------
+*****
 
 ####  戦人  
 ##### 21198#       发表于 2011-1-28 17:22
@@ -2027,7 +2027,7 @@ op专楼本来就这么高我记得
 只是因为名气都大都有世界最美头衔。。所以世人所搞出来的八卦？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>女帝和人鱼公主有纠结过吗？
 
 
------
+*****
 
 ####  DGIL  
 ##### 21199#       发表于 2011-1-28 17:33
@@ -2049,7 +2049,7 @@ op专楼本来就这么高我记得
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">不过人鱼公主世界第一“大”美女没错了
 
 
------
+*****
 
 ####  黄昏的祈祷  
 ##### 21200#       发表于 2011-1-28 18:30
@@ -2059,7 +2059,7 @@ op专楼本来就这么高我记得
 而人鱼公主出场一页就把我萌到了……
 
 
------
+*****
 
 ####  08ms  
 ##### 21201#       发表于 2011-1-28 18:34
@@ -2068,7 +2068,7 @@ op专楼本来就这么高我记得
 我在想香吉看到这个人鱼公主后会怎么办。。
 
 
------
+*****
 
 ####  白河亜紀  
 ##### 21202#       发表于 2011-1-28 19:43
@@ -2078,7 +2078,7 @@ op专楼本来就这么高我记得
 要是自然界的东西都是自然系的话，橡胶也是自然系了。
 
 
------
+*****
 
 ####  nuoer  
 ##### 21203#       发表于 2011-1-28 19:54
@@ -2087,7 +2087,7 @@ op专楼本来就这么高我记得
 我记得这丫自己说过是自然系 顺便橡胶是人造的吧
 
 
------
+*****
 
 ####  stormblade  
 ##### 21204#       发表于 2011-1-28 20:07
@@ -2096,7 +2096,7 @@ op专楼本来就这么高我记得
 南亚橡胶园里割啊割流出来白白的，黏黏的液体。。。
 
 
------
+*****
 
 ####  gpx234  
 ##### 21205#       发表于 2011-1-28 20:25
@@ -2105,7 +2105,7 @@ op专楼本来就这么高我记得
 泥沼是超人系的话，岩浆也是超人系了 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rubicon  
 ##### 21206#       发表于 2011-1-28 20:59
@@ -2114,7 +2114,7 @@ op专楼本来就这么高我记得
 又要来了么<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  champion71  
 ##### 21207#       发表于 2011-1-28 21:07
@@ -2123,7 +2123,7 @@ op专楼本来就这么高我记得
 公主好巨型啊,路飞的新后宫?<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wingchau  
 ##### 21208#       发表于 2011-1-28 21:17
@@ -2132,7 +2132,7 @@ op专楼本来就这么高我记得
 难道路飞是隐藏型自然系,以后能化成液体橡胶...<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  雅格特  
 ##### 21209#       发表于 2011-1-28 21:34
@@ -2143,7 +2143,7 @@ op专楼本来就这么高我记得
 路飞直接上垒。。。。。。。。。突破天际的运势。。。。
 
 
------
+*****
 
 ####  JC_AR  
 ##### 21210#       发表于 2011-1-28 22:09
@@ -2152,7 +2152,7 @@ op专楼本来就这么高我记得
 我覺得人魚公主比漢庫克好看
 
 
------
+*****
 
 ####  ナミ  
 ##### 21211#       发表于 2011-1-28 22:50
@@ -2161,7 +2161,7 @@ op专楼本来就这么高我记得
 我也是这样觉得～<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  =D_BOY=Damned  
 ##### 21212#       发表于 2011-1-29 04:17
@@ -2171,7 +2171,7 @@ op专楼本来就这么高我记得
 另外这乳量可与MF的可萝可御一战否？
 
 
------
+*****
 
 ####  风听雨  
 ##### 21213#       发表于 2011-1-29 04:20
@@ -2180,7 +2180,7 @@ op专楼本来就这么高我记得
 可罗可御大概连鲸鱼都比不过吧
 
 
------
+*****
 
 ####  edlose  
 ##### 21214#       发表于 2011-1-29 07:11
@@ -2189,7 +2189,7 @@ op专楼本来就这么高我记得
 几天没来错过史上第一高楼了<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ckz1211  
 ##### 21215#       发表于 2011-1-29 11:33
@@ -2198,7 +2198,7 @@ op专楼本来就这么高我记得
 路飛 表示 三檔 解決一切size上的問題……
 
 
------
+*****
 
 ####  雅格特  
 ##### 21216#       发表于 2011-1-29 11:37
@@ -2209,7 +2209,7 @@ op专楼本来就这么高我记得
 必然是飞跃颠峰2~~大nono~
 
 
------
+*****
 
 ####  查内姆  
 ##### 21217#       发表于 2011-1-29 13:34
@@ -2218,7 +2218,7 @@ op专楼本来就这么高我记得
 路飞也算是摸过青春的奶的人生赢家了.....
 
 
------
+*****
 
 ####  Bamind  
 ##### 21218#       发表于 2011-1-30 09:12
@@ -2227,7 +2227,7 @@ op专楼本来就这么高我记得
 刚看完直播的表示本周动画必看
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21219#       发表于 2011-1-30 09:15
@@ -2236,7 +2236,7 @@ op专楼本来就这么高我记得
 本周动画只能晚上再看了
 
 
------
+*****
 
 ####  yario  
 ##### 21220#       发表于 2011-1-30 18:32
@@ -2245,7 +2245,7 @@ op专楼本来就这么高我记得
 经典的一集。樱花下的双雄的对谈，白胡子的遗言。。。。<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Bamind  
 ##### 21221#       发表于 2011-1-30 18:47
@@ -2263,7 +2263,7 @@ op专楼本来就这么高我记得
 不过似乎 BGM 本可以更给力一些。。。
 
 
------
+*****
 
 ####  @shtshs@  
 ##### 21222#       发表于 2011-1-30 20:11
@@ -2272,7 +2272,7 @@ op专楼本来就这么高我记得
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">这人鱼 真是看着眼馋不能食用啊
 
 
------
+*****
 
 ####  yario  
 ##### 21223#       发表于 2011-1-30 20:19
@@ -2287,7 +2287,7 @@ op专楼本来就这么高我记得
 ....... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>这个樱花会是某驯鹿的伏笔么？
 
 
------
+*****
 
 ####  Bamind  
 ##### 21224#       发表于 2011-1-30 20:28
@@ -2305,7 +2305,7 @@ op专楼本来就这么高我记得
 但是又说不清少的是什么。。。
 
 
------
+*****
 
 ####  hispeed  
 ##### 21225#       发表于 2011-1-30 21:01
@@ -2318,7 +2318,7 @@ op专楼本来就这么高我记得
 不过艾斯便当那回还是整整郁闷了一个星期<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  通宵熬夜  
 ##### 21226#       发表于 2011-1-30 21:04
@@ -2327,7 +2327,7 @@ op专楼本来就这么高我记得
 路飞的3档终于有用武之地了<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yario  
 ##### 21227#       发表于 2011-1-30 22:35
@@ -2342,7 +2342,7 @@ op专楼本来就这么高我记得
 ....... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>是onepiece本身变的沉重了。罗宾的遭遇+艾斯的落幕+白胡子的陨落，政府，海贼，目田。。。。。
 
 
------
+*****
 
 ####  8aa8aa8aa  
 ##### 21228#       发表于 2011-1-30 23:24
@@ -2351,7 +2351,7 @@ op专楼本来就这么高我记得
 目田……今天也要努力黑学姐系列？<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  肩上的乌鸦  
 ##### 21229#       发表于 2011-1-30 23:41
@@ -2366,7 +2366,7 @@ op专楼本来就这么高我记得
 我觉得是旁枝末节的信息量太多,挤掉了主角团队性格感情的描写.
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 21230#       发表于 2011-1-31 08:39
@@ -2376,7 +2376,7 @@ op专楼本来就这么高我记得
 我记得这丫自己说过是自然系 顺便橡胶是人造的吧 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>他自己没说，是假草帽一伙和弗兰克说的
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21231#       发表于 2011-1-31 10:19
@@ -2389,7 +2389,7 @@ op专楼本来就这么高我记得
 巨大战舰又打了一话酱油
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21232#       发表于 2011-2-2 16:34
@@ -2398,7 +2398,7 @@ op专楼本来就这么高我记得
 情报有了，出来个吃了恶魔果实的鱼人，终于出来不能游泳的鱼人了，哈哈哈。
 
 
------
+*****
 
 ####  65535  
 ##### 21233#       发表于 2011-2-2 17:50
@@ -2408,7 +2408,7 @@ op专楼本来就这么高我记得
 情报有了，出来个吃了恶魔果实的鱼人，终于出来不能游泳的鱼人了，哈哈哈。 <[img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21234#       发表于 2011-2-2 18:50
@@ -2417,7 +2417,7 @@ op专楼本来就这么高我记得
 上船的都是那个岛最怪的，难道吃恶魔果实的鱼人要……
 
 
------
+*****
 
 ####  戦人  
 ##### 21235#       发表于 2011-2-3 01:16
@@ -2426,7 +2426,7 @@ op专楼本来就这么高我记得
 看到肉了，白星果然是个娇生惯养的大小姐啊<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21236#       发表于 2011-2-3 01:24
@@ -2435,7 +2435,7 @@ op专楼本来就这么高我记得
 英文版的出来了。
 
 
------
+*****
 
 ####  faiths  
 ##### 21237#       发表于 2011-2-3 02:13
@@ -2446,7 +2446,7 @@ op专楼本来就这么高我记得
 这你妈是要上船了呀我嘞个擦
 
 
------
+*****
 
 ####  清十狼  
 ##### 21238#       发表于 2011-2-3 06:08
@@ -2455,7 +2455,7 @@ op专楼本来就这么高我记得
 <img src="https://static.saraba1st.com/image/smiley/face/57.gif" referrerpolicy="no-referrer"> 要上船的是鱼人还是白星！？
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21239#       发表于 2011-2-3 06:30
@@ -2466,7 +2466,7 @@ op专楼本来就这么高我记得
 不过还没连载这么多呢...现在立马下结论也不太好=.=
 
 
------
+*****
 
 ####  清十狼  
 ##### 21240#       发表于 2011-2-3 06:59
@@ -2476,7 +2476,7 @@ op专楼本来就这么高我记得
 白星太他喵的可爱了　<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yuyifeng  
 ##### 21241#       发表于 2011-2-3 08:10
@@ -2485,7 +2485,7 @@ op专楼本来就这么高我记得
 这人鱼公主难道要上船了？
 
 
------
+*****
 
 ####  hispeed  
 ##### 21242#       发表于 2011-2-3 08:20
@@ -2494,7 +2494,7 @@ op专楼本来就这么高我记得
 我家乌索普不可能这么帅！
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21243#       发表于 2011-2-3 08:28
@@ -2503,7 +2503,7 @@ op专楼本来就这么高我记得
 说起来 黑胡子那边有个巨大战舰  然后对应的角色就是草帽这边的人鱼公主 WT难道你...
 
 
------
+*****
 
 ####  hispeed  
 ##### 21244#       发表于 2011-2-3 08:31
@@ -2515,7 +2515,7 @@ op专楼本来就这么高我记得
 巨大战舰可是比两个奥兹还大啊，更别说公主根本不能打了
 
 
------
+*****
 
 ####  浮生门众罗  
 ##### 21245#       发表于 2011-2-3 08:38
@@ -2529,7 +2529,7 @@ op专楼本来就这么高我记得
 目前为止···路飞想要的船员还没登场呢·肯定的··
 
 
------
+*****
 
 ####  lenin  
 ##### 21246#       发表于 2011-2-3 09:25
@@ -2539,7 +2539,7 @@ op专楼本来就这么高我记得
 以为这里是Macross么
 
 
------
+*****
 
 ####  Dracule·Mihawk  
 ##### 21247#       发表于 2011-2-3 09:32
@@ -2549,7 +2549,7 @@ op专楼本来就这么高我记得
 罗罗诺亚你要让他们明白这点。
 
 
------
+*****
 
 ####  wingchau  
 ##### 21248#       发表于 2011-2-3 10:40
@@ -2558,7 +2558,7 @@ op专楼本来就这么高我记得
 看路飞调戏公主太过瘾了~<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 21249#       发表于 2011-2-3 10:42
@@ -2567,7 +2567,7 @@ op专楼本来就这么高我记得
 范德戴肯是“粑粑”果实啊<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ds006425  
 ##### 21250#       发表于 2011-2-3 11:30
@@ -2576,7 +2576,7 @@ op专楼本来就这么高我记得
 乌索普你什么时候这么帅了！
 
 
------
+*****
 
 ####  rubicon  
 ##### 21251#       发表于 2011-2-3 12:20
@@ -2585,7 +2585,7 @@ op专楼本来就这么高我记得
 这次好看了,要在海里和鱼人干上了
 
 
------
+*****
 
 ####  DGIL  
 ##### 21252#       发表于 2011-2-3 12:24
@@ -2597,7 +2597,7 @@ op专楼本来就这么高我记得
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">人鱼岛要有一场打到岛都崩坏掉的战斗呢。。不知道对手是什么高人！
 
 
------
+*****
 
 ####  lenin  
 ##### 21253#       发表于 2011-2-3 12:44
@@ -2608,7 +2608,7 @@ op专楼本来就这么高我记得
 罗罗诺亚你要让他们明白这点。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>人家没用刀 你放心吧
 
 
------
+*****
 
 ####  戦人  
 ##### 21254#       发表于 2011-2-3 12:52
@@ -2621,7 +2621,7 @@ op专楼本来就这么高我记得
 等黑幕明确，主角队集结反攻时就会开始有感觉了，大概
 
 
------
+*****
 
 ####  faiths  
 ##### 21255#       发表于 2011-2-3 14:06
@@ -2630,7 +2630,7 @@ op专楼本来就这么高我记得
 这么违规卖萌卖肉满满公主病的大号公主摆明了是要上船的嘛。。。嘛
 
 
------
+*****
 
 ####  黄昏的祈祷  
 ##### 21256#       发表于 2011-2-3 14:07
@@ -2639,7 +2639,7 @@ op专楼本来就这么高我记得
 好像有新赏金了……
 
 
------
+*****
 
 ####  finallyeva  
 ##### 21257#       发表于 2011-2-3 14:11
@@ -2648,7 +2648,7 @@ op专楼本来就这么高我记得
 乌索普好帅啊!!
 
 
------
+*****
 
 ####  芍药  
 ##### 21258#       发表于 2011-2-3 14:24
@@ -2657,7 +2657,7 @@ op专楼本来就这么高我记得
 新封面短编开始了
 
 
------
+*****
 
 ####  Bamind  
 ##### 21259#       发表于 2011-2-3 14:40
@@ -2666,7 +2666,7 @@ op专楼本来就这么高我记得
 小乌你果然没让我失望<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  雅格特  
 ##### 21260#       发表于 2011-2-3 15:01
@@ -2678,7 +2678,7 @@ op专楼本来就这么高我记得
 新篇章暗流涌动啊。。。船员还没集合。。但是显然最有可能的是不会集合，尾田应该已经摆脱那种捉对厮杀的少漫套路了。。。罗宾、山治、弗兰克等人都是包袱啊。。总体来说，这个新篇章的开头，应该是路飞一伙集合后最新的试炼。。。。对手都是鲨鱼鱼人。。。够格。。。
 
 
------
+*****
 
 ####  rubicon  
 ##### 21261#       发表于 2011-2-3 15:08
@@ -2687,7 +2687,7 @@ op专楼本来就这么高我记得
 你们怎么看见一个有特点的就要人家上船
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21262#       发表于 2011-2-3 15:54
@@ -2696,7 +2696,7 @@ op专楼本来就这么高我记得
 目前对巨大战舰最合适的明显是库拉肯啊！还萌！
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21263#       发表于 2011-2-3 15:55
@@ -2705,7 +2705,7 @@ op专楼本来就这么高我记得
 果然粑粑果实的鱼人不能游泳了，最后的图里很清楚的还带着泡膜呢。
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21264#       发表于 2011-2-3 16:02
@@ -2714,7 +2714,7 @@ op专楼本来就这么高我记得
 <img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">其实我想看路飞打掉big mama习得ゴムゴムのCQC（殴
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21265#       发表于 2011-2-3 16:48
@@ -2723,7 +2723,7 @@ op专楼本来就这么高我记得
 这是最大众的猜测吧：带白星出去逛，坐实绑架人鱼的罪名，同时和海王星，新人鱼，荷兰人交战？
 
 
------
+*****
 
 ####  狮子歌歌  
 ##### 21266#       发表于 2011-2-3 17:24
@@ -2735,7 +2735,7 @@ op专楼本来就这么高我记得
 以后还会有理亏的和骚利达斯 嗯，是吧，肯定是这样的吧<img src="https://static.saraba1st.com/image/smiley/face/157.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  查内姆  
 ##### 21267#       发表于 2011-2-3 17:53
@@ -2744,7 +2744,7 @@ op专楼本来就这么高我记得
 这话乌索普三人的时髦好高
 
 
------
+*****
 
 ####  caster  
 ##### 21268#       发表于 2011-2-3 20:32
@@ -2756,7 +2756,7 @@ op专楼本来就这么高我记得
 话说如果拥有者逃跑能力很强 碰你一下就跑 然后一直丢东西 就是自然系也要疯吧 XD
 
 
------
+*****
 
 ####  rubicon  
 ##### 21269#       发表于 2011-2-3 20:43
@@ -2765,7 +2765,7 @@ op专楼本来就这么高我记得
 丢情书<img src="https://static.saraba1st.com/image/smiley/face/201.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nstxy  
 ##### 21270#       发表于 2011-2-3 21:05
@@ -2774,7 +2774,7 @@ op专楼本来就这么高我记得
 我想起了小时侯看郑渊洁的什么童话，里边就有个生活在大咪咪之间的小人
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21271#       发表于 2011-2-3 21:40
@@ -2783,7 +2783,7 @@ op专楼本来就这么高我记得
 这能力不就是幽白里面的那个么=_=
 
 
------
+*****
 
 ####  flll  
 ##### 21272#       发表于 2011-2-3 21:49
@@ -2794,7 +2794,7 @@ op专楼本来就这么高我记得
 于是，尾田的大混战又要来了
 
 
------
+*****
 
 ####  李剡s  
 ##### 21273#       发表于 2011-2-4 15:21
@@ -2803,7 +2803,7 @@ op专楼本来就这么高我记得
 鲨鱼不能说话，好像战斗力也不怎么地，不会上船吧
 
 
------
+*****
 
 ####  果子夹心  
 ##### 21274#       发表于 2011-2-5 00:34
@@ -2812,7 +2812,7 @@ op专楼本来就这么高我记得
 路飞调教妹子很有一手啊<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  革新  
 ##### 21275#       发表于 2011-2-5 05:24
@@ -2821,7 +2821,7 @@ op专楼本来就这么高我记得
 路飞又拉出手妹子上船了。 先欺负对方让后在伸手帮助。
 
 
------
+*****
 
 ####  sandrock  
 ##### 21276#       发表于 2011-2-5 21:58
@@ -2830,7 +2830,7 @@ op专楼本来就这么高我记得
 粑粑果实给无索普不错
 
 
------
+*****
 
 ####  阿拉伯土豆  
 ##### 21277#       发表于 2011-2-5 23:46
@@ -2839,7 +2839,7 @@ op专楼本来就这么高我记得
 剧情很给力，讲故事比以前更牛逼了
 
 
------
+*****
 
 ####  qubely  
 ##### 21278#       发表于 2011-2-6 13:16
@@ -2858,7 +2858,7 @@ op专楼本来就这么高我记得
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stun  
 ##### 21279#       发表于 2011-2-6 13:33
@@ -2867,7 +2867,7 @@ op专楼本来就这么高我记得
 好巨型的路飞.....
 
 
------
+*****
 
 ####  DGIL  
 ##### 21280#       发表于 2011-2-6 13:50
@@ -2881,7 +2881,7 @@ op专楼本来就这么高我记得
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">但是后面为什么有一大堆的、、汉库克呢。。
 
 
------
+*****
 
 ####  通宵熬夜  
 ##### 21281#       发表于 2011-2-6 13:55
@@ -2895,7 +2895,7 @@ op专楼本来就这么高我记得
 各种PLAY
 
 
------
+*****
 
 ####  Dracule·Mihawk  
 ##### 21282#       发表于 2011-2-6 16:53
@@ -2904,7 +2904,7 @@ op专楼本来就这么高我记得
 同样都是75海，受到的待遇差距怎么这么大。<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Hancock  
 ##### 21283#       发表于 2011-2-7 10:03
@@ -2914,7 +2914,7 @@ op专楼本来就这么高我记得
 同样都是75海，受到的待遇差距怎么这么大。<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cheir  
 ##### 21284#       发表于 2011-2-7 10:13
@@ -2924,7 +2924,7 @@ op专楼本来就这么高我记得
 路飞还处在长高的年纪，当然可以更高~
 
 
------
+*****
 
 ####  tgl10  
 ##### 21285#       发表于 2011-2-7 13:16
@@ -2933,7 +2933,7 @@ op专楼本来就这么高我记得
 我靠路飞成传教士了,尾田你悠着点啊
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21286#       发表于 2011-2-9 11:01
@@ -2987,7 +2987,7 @@ op专楼本来就这么高我记得
 这帮海贼
 
 
------
+*****
 
 ####  65535  
 ##### 21287#       发表于 2011-2-9 11:55
@@ -2997,7 +2997,7 @@ op专楼本来就这么高我记得
 草帽团的诸位终于学会怎么当一个合格的海贼了，我很欣慰<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wingchau  
 ##### 21288#       发表于 2011-2-9 19:20
@@ -3006,7 +3006,7 @@ op专楼本来就这么高我记得
 看详细情报说白星公主进了宠物鲨鱼的口里准备与路飞出外,公主难道能缩小?WT这是为白星上床设好条件吗?<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  bvbrother  
 ##### 21289#       发表于 2011-2-9 19:28
@@ -3016,7 +3016,7 @@ op专楼本来就这么高我记得
 谁干的！
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21290#       发表于 2011-2-9 19:32
@@ -3025,7 +3025,7 @@ op专楼本来就这么高我记得
 难道还能把自己扔过来？<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 21291#       发表于 2011-2-9 19:41
@@ -3034,7 +3034,7 @@ op专楼本来就这么高我记得
 这情报似乎不是熊猫那儿专门发布的……
 
 
------
+*****
 
 ####  nstxy  
 ##### 21292#       发表于 2011-2-10 04:08
@@ -3043,7 +3043,7 @@ op专楼本来就这么高我记得
 <img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer"> 乔巴新形态我不能接受
 
 
------
+*****
 
 ####  faiths  
 ##### 21293#       发表于 2011-2-10 04:40
@@ -3052,7 +3052,7 @@ op专楼本来就这么高我记得
 <img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">3亿6000万的卓利！
 
 
------
+*****
 
 ####  faiths  
 ##### 21294#       发表于 2011-2-10 04:44
@@ -3061,7 +3061,7 @@ op专楼本来就这么高我记得
 。。。我这就去把受伤的乔巴手办都销毁
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21295#       发表于 2011-2-10 07:41
@@ -3071,7 +3071,7 @@ op专楼本来就这么高我记得
 顺便同情下鲨鱼<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hispeed  
 ##### 21296#       发表于 2011-2-10 08:37
@@ -3080,7 +3080,7 @@ op专楼本来就这么高我记得
 只有我觉得乔巴新形态还挺萌的么？
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21297#       发表于 2011-2-10 09:21
@@ -3091,7 +3091,7 @@ op专楼本来就这么高我记得
 现在正常人只有乌索普了
 
 
------
+*****
 
 ####  finallyeva  
 ##### 21298#       发表于 2011-2-10 09:38
@@ -3100,7 +3100,7 @@ op专楼本来就这么高我记得
 人鱼公主太萌了.....
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21299#       发表于 2011-2-10 09:46
@@ -3111,7 +3111,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 如果真是翻错了，这绝对是故意的<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  亚雷斯  
 ##### 21300#       发表于 2011-2-10 10:56
@@ -3120,7 +3120,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 话说不是人鱼老了会变成双鳍么？怎么感觉尼普顿还是一条尾巴？
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 21301#       发表于 2011-2-10 11:31
@@ -3132,7 +3132,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 如果真是翻错了，这绝对是故意的<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer"></blockquote>用不着找原版图……等其他组的出来了看一下不就知道了……
 
 
------
+*****
 
 ####  wingchau  
 ##### 21302#       发表于 2011-2-10 11:39
@@ -3141,7 +3141,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 路飞闯监狱劫法场还被爆出是革命家的儿子,搞出这么多事才3亿涨到4亿,卓洛这一下子就翻了三倍??这两年究竟干了什么罪恶滔天的事啊,我表示接受不能...<img src="https://static.saraba1st.com/image/smiley/face/134.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  taehw  
 ##### 21303#       发表于 2011-2-10 11:59
@@ -3156,7 +3156,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 外人看来涨价很正常啊
 
 
------
+*****
 
 ####  chaoslee  
 ##### 21304#       发表于 2011-2-10 12:16
@@ -3165,7 +3165,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 以鹰眼那种无聊了灭个大舰队的个性和ZORO坐错了就把人家的船给一砍为二的做法，这两个人在一起呆两年要只是安分守己在岛上练剑法我觉得才是不正常<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  1603344  
 ##### 21305#       发表于 2011-2-10 12:52
@@ -3176,7 +3176,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 翻译错误了
 
 
------
+*****
 
 ####  wingchau  
 ##### 21306#       发表于 2011-2-10 13:01
@@ -3198,7 +3198,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 <img src="https://img.saraba1st.com/forum/pw/Mon_1102/6_104957_df0f835cd05d877.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21307#       发表于 2011-2-10 13:06
@@ -3207,7 +3207,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 是阿 实在不能想象熊猫会犯这样的低级错误 所以我只能理解为翻译者是故意的- -
 
 
------
+*****
 
 ####  yario  
 ##### 21308#       发表于 2011-2-10 13:21
@@ -3216,7 +3216,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 个人觉得乔巴的新形态很好。
 
 
------
+*****
 
 ####  flll  
 ##### 21309#       发表于 2011-2-10 13:36
@@ -3226,7 +3226,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 赏金原来没涨啊
 
 
------
+*****
 
 ####  Snaky  
 ##### 21310#       发表于 2011-2-10 15:10
@@ -3235,7 +3235,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 只有我觉得乔巴的新形态像多啦A梦么
 
 
------
+*****
 
 ####  yzxdc  
 ##### 21311#       发表于 2011-2-10 16:04
@@ -3245,7 +3245,7 @@ ZERO的赏金是不是打错了？？谁发个原版图看看
 ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，否则不足以支撑自身体重，那个磕药的大白鲨根本不够看得
 
 
------
+*****
 
 ####  6zking  
 ##### 21312#       发表于 2011-2-10 17:39
@@ -3256,7 +3256,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 谁来科普下鲨鱼嘴里的构造……
 
 
------
+*****
 
 ####  Futanari  
 ##### 21313#       发表于 2011-2-10 18:38
@@ -3265,7 +3265,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 公主已经被路飞攻略了八成了 山治估计会气死吧
 
 
------
+*****
 
 ####  虚空魔法师  
 ##### 21314#       发表于 2011-2-11 18:11
@@ -3274,7 +3274,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 这话太喜感了<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  taichiY  
 ##### 21315#       发表于 2011-2-12 01:29
@@ -3283,7 +3283,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 白星公主超软<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Loony  
 ##### 21316#       发表于 2011-2-12 03:15
@@ -3292,7 +3292,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 鲨鱼学会了路飞的三档
 
 
------
+*****
 
 ####  =D_BOY=Damned  
 ##### 21317#       发表于 2011-2-12 05:12
@@ -3303,7 +3303,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 求最好是国内番组翻译的OP漫画打包下载，台湾的翻译有时候真有点让人燃不起来的感觉……
 
 
------
+*****
 
 ####  sta777  
 ##### 21318#       发表于 2011-2-12 09:27
@@ -3312,7 +3312,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 終於像個海賊團了，劍士綁架了國王，航海士洗劫寶庫，船長進里屋劫色     這樣才對嘛！
 
 
------
+*****
 
 ####  cloudhp7777  
 ##### 21319#       发表于 2011-2-12 11:12
@@ -3326,7 +3326,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 同求 但前面的估计没有吧 都拉HMM的
 
 
------
+*****
 
 ####  hispeed  
 ##### 21320#       发表于 2011-2-12 13:29
@@ -3335,7 +3335,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 刚看完熊猫翻译的绿本……不得不感叹WT的知识面真的太广了，整一人肉百科全书啊
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21321#       发表于 2011-2-12 13:40
@@ -3344,7 +3344,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 球绿本
 
 
------
+*****
 
 ####  aosng007  
 ##### 21322#       发表于 2011-2-13 16:09
@@ -3354,7 +3354,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 終於像個海賊團了，劍士綁架了國王，航海士洗劫寶庫，船長進里屋劫色     這樣才對嘛！ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>哈哈哈
 
 
------
+*****
 
 ####  bonbonfox  
 ##### 21323#       发表于 2011-2-13 17:07
@@ -3363,7 +3363,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 从船长到各队长，赤犬单挑白胡子全团，被干到满脸狗血还死不放过路飞，可惜没青鸡关系硬，这样都做不成元帅真是没天理，我说你为的啥…
 
 
------
+*****
 
 ####  yario  
 ##### 21324#       发表于 2011-2-13 17:21
@@ -3372,7 +3372,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 让他做元帅？整个海军就不是维护世界和平了，而是杀人机器了。更何况杀敌1000 必然自损800，到时候世界更乱。。。五老星和空元帅没那么傻。
 
 
------
+*****
 
 ####  bonbonfox  
 ##### 21325#       发表于 2011-2-13 17:57
@@ -3381,7 +3381,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 连p孩柯比都上战场杀敌来了，作为海军最高战力面对世界头号威胁不赶尽杀绝难道还要放虎归山？赤犬在巅峰战场上是最尽职的一个，重创白胡子，擒杀艾斯，追击路飞，负伤单挑各队队长…
 
 
------
+*****
 
 ####  AD  
 ##### 21326#       发表于 2011-2-13 18:27
@@ -3390,7 +3390,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 赤犬性格太冷酷，过于不择手段，对自己人也没有丝毫感情可言，光能打能杀就能做元帅，海军还不四分五裂。他做个尽忠职守的杀人机器刚好，还能发挥最大价值。战国不是傻子，一个冷血一个爱打酱油，也就剩青鸡可推荐了。
 
 
------
+*****
 
 ####  luokobe  
 ##### 21327#       发表于 2011-2-14 10:08
@@ -3401,7 +3401,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 大熊唐吉珂德这些2亿的秒他都是坨坨的
 
 
------
+*****
 
 ####  DGIL  
 ##### 21328#       发表于 2011-2-14 10:46
@@ -3420,7 +3420,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 各方面的数据路飞都比不过汉库克啊~~（除了关系网。。。）
 
 
------
+*****
 
 ####  BartholemewKuma  
 ##### 21329#       发表于 2011-2-14 10:50
@@ -3431,7 +3431,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 没办法，因为哀家实在是太美了<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer"></blockquote>……
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21330#       发表于 2011-2-14 11:05
@@ -3444,7 +3444,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 只能说是赏金=实力这个思想在作怪而已。
 
 
------
+*****
 
 ####  rubicon  
 ##### 21331#       发表于 2011-2-14 11:12
@@ -3453,7 +3453,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 赏金不是战斗力,赏金是对政府的危险度
 
 
------
+*****
 
 ####  taichiY  
 ##### 21332#       发表于 2011-2-14 11:35
@@ -3462,7 +3462,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 作为龙的儿子，4亿一点水分都没有<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21333#       发表于 2011-2-14 11:40
@@ -3471,7 +3471,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 怎么现在还有人质疑这个问题阿  被封为7武海之后 等于就是不被通缉了赏金自然也就停止追加了
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21334#       发表于 2011-2-14 11:48
@@ -3480,7 +3480,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 那按照这样说可以稍微对罗宾的赏金产生下困惑么？
 
 
------
+*****
 
 ####  碎南瓜  
 ##### 21335#       发表于 2011-2-14 12:00
@@ -3490,7 +3490,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 刚看完熊猫翻译的绿本……不得不感叹WT的知识面真的太广了，整一人肉百科全书啊 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>漫画画到这个份上，后面的团队策划可不光是几个人这么简单
 
 
------
+*****
 
 ####  oemff  
 ##### 21336#       发表于 2011-2-14 12:10
@@ -3506,7 +3506,7 @@ ps，简单算算就知道白星公主的腕力至少是普通人类的100倍，
 ps:感谢熊猫汉化.
 
 
------
+*****
 
 ####  dab23  
 ##### 21337#       发表于 2011-2-14 13:19
@@ -3515,7 +3515,7 @@ ps:感谢熊猫汉化.
 谁还记得那个红发派过去找白胡子的新人是多少赏金的
 
 
------
+*****
 
 ####  ksks  
 ##### 21338#       发表于 2011-2-14 13:51
@@ -3524,7 +3524,7 @@ ps:感谢熊猫汉化.
 依稀是9400w或者98？
 
 
------
+*****
 
 ####  臙条巴  
 ##### 21339#       发表于 2011-2-14 15:31
@@ -3535,7 +3535,7 @@ ps:感谢熊猫汉化.
 其实WT有点把草帽团的赏金提的太快了...像刚灭完老沙时1E的时候就应该缓缓..现在zoro的赏金给路飞还凑合
 
 
------
+*****
 
 ####  ksks  
 ##### 21340#       发表于 2011-2-14 17:55
@@ -3544,7 +3544,7 @@ ps:感谢熊猫汉化.
 刚才去确认下，是9400w没错。
 
 
------
+*****
 
 ####  kvkv  
 ##### 21341#       发表于 2011-2-14 19:54
@@ -3564,7 +3564,7 @@ ps:感谢熊猫汉化.
 或者你还是认为赏金=武力?
 
 
------
+*****
 
 ####  Dracule·Mihawk  
 ##### 21342#       发表于 2011-2-14 20:46
@@ -3576,7 +3576,7 @@ ps:感谢熊猫汉化.
 其实我的赏金已经破表了
 
 
------
+*****
 
 ####  兆悲  
 ##### 21343#       发表于 2011-2-14 21:37
@@ -3585,7 +3585,7 @@ ps:感谢熊猫汉化.
 七武海赏金低说明他们还处于新人上升期的时候就无节操的接受封号停止追加赏金了
 
 
------
+*****
 
 ####  臙条巴  
 ##### 21344#       发表于 2011-2-14 22:22
@@ -3602,7 +3602,7 @@ ps:感谢熊猫汉化.
 还有现在凡是拿基德举例子的就要说他是杀杀平民就升到no.1的么,当时超新星那段就有人说了,这些人都是有着各自的经历,只不过读者的视角一直都是在跟着草帽而已...其他人虽然没有7武什么的给练级,但是经历不见得会比草帽团的经历少多少
 
 
------
+*****
 
 ####  DGIL  
 ##### 21345#       发表于 2011-2-16 12:50
@@ -3617,7 +3617,7 @@ ps:感谢熊猫汉化.
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">或者换下沙鳄，或者莫利亚换个黑胡子进去
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21346#       发表于 2011-2-16 13:42
@@ -3631,7 +3631,7 @@ ps:感谢熊猫汉化.
 如果第2组能干掉赤犬 那基本就能拿下了
 
 
------
+*****
 
 ####  Loony  
 ##### 21347#       发表于 2011-2-16 14:07
@@ -3640,7 +3640,7 @@ ps:感谢熊猫汉化.
 七武海就和黄金圣斗士一样，虽然也有表现的特别水，但从设定上他们是一个量级的。吧。。。。应该
 
 
------
+*****
 
 ####  DGIL  
 ##### 21348#       发表于 2011-2-16 14:17
@@ -3656,7 +3656,7 @@ ps:感谢熊猫汉化.
 <img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">好战略~比我的排法胜率高得多~
 
 
------
+*****
 
 ####  兰蒂斯  
 ##### 21349#       发表于 2011-2-16 14:44
@@ -3665,7 +3665,7 @@ ps:感谢熊猫汉化.
 竞技场打33，结果对面来了7个，5个集火1个……
 
 
------
+*****
 
 ####  JC_AR  
 ##### 21350#       发表于 2011-2-16 16:18
@@ -3675,7 +3675,7 @@ ps:感谢熊猫汉化.
 竞技场打33，结果对面来了7个，5个集火1个…… <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>应该说是3个85的打7个80的，5个急火1个
 
 
------
+*****
 
 ####  Crazy_Knife  
 ##### 21351#       发表于 2011-2-16 17:49
@@ -3684,7 +3684,7 @@ ps:感谢熊猫汉化.
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 共143165577页这贴又开始穿越了么……
 
 
------
+*****
 
 ####  ksks  
 ##### 21352#       发表于 2011-2-16 17:50
@@ -3693,7 +3693,7 @@ ps:感谢熊猫汉化.
 又开始了。
 
 
------
+*****
 
 ####  asuka.  
 ##### 21353#       发表于 2011-2-16 17:51
@@ -3704,7 +3704,7 @@ ps:感谢熊猫汉化.
 留名
 
 
------
+*****
 
 ####  czp88  
 ##### 21354#       发表于 2011-2-16 17:52
@@ -3713,7 +3713,7 @@ ps:感谢熊猫汉化.
 快43億的樓...留名
 
 
------
+*****
 
 ####  qubely  
 ##### 21355#       发表于 2011-2-16 17:53
@@ -3722,7 +3722,7 @@ ps:感谢熊猫汉化.
 又抽风了
 
 
------
+*****
 
 ####  Godless  
 ##### 21356#       发表于 2011-2-16 17:53
@@ -3731,7 +3731,7 @@ ps:感谢熊猫汉化.
 OP的帖子怎么40亿层- -。。。
 
 
------
+*****
 
 ####  7424994  
 ##### 21357#       发表于 2011-2-16 17:55
@@ -3740,7 +3740,7 @@ OP的帖子怎么40亿层- -。。。
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">某种意义上真是个神帖……
 
 
------
+*****
 
 ####  Entropy  
 ##### 21358#       发表于 2011-2-16 17:55
@@ -3749,7 +3749,7 @@ OP的帖子怎么40亿层- -。。。
 哈哈哈哈，这论坛系统彻底傻逼了
 
 
------
+*****
 
 ####  dawn34  
 ##### 21359#       发表于 2011-2-16 17:57
@@ -3758,7 +3758,7 @@ OP的帖子怎么40亿层- -。。。
 又是1亿4了，OP真有 面子
 
 
------
+*****
 
 ####  wuxiaojie  
 ##### 21360#       发表于 2011-2-16 18:00
@@ -3768,7 +3768,7 @@ OP的帖子怎么40亿层- -。。。
 再次留名。<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  赤色彗星SE  
 ##### 21361#       发表于 2011-2-16 18:02
@@ -3777,7 +3777,7 @@ OP的帖子怎么40亿层- -。。。
 怎么又越界了这帖
 
 
------
+*****
 
 ####  qixinno1  
 ##### 21362#       发表于 2011-2-16 18:02
@@ -3786,7 +3786,7 @@ OP的帖子怎么40亿层- -。。。
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">又抽风了么
 
 
------
+*****
 
 ####  aricks  
 ##### 21363#       发表于 2011-2-16 18:03
@@ -3795,7 +3795,7 @@ OP的帖子怎么40亿层- -。。。
 留念<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ALUCARD0079  
 ##### 21364#       发表于 2011-2-16 18:03
@@ -3804,7 +3804,7 @@ OP的帖子怎么40亿层- -。。。
 又出现了,留个名
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21365#       发表于 2011-2-16 18:04
@@ -3813,7 +3813,7 @@ OP的帖子怎么40亿层- -。。。
 一圈回来 又破亿了 不愧是S1第一高
 
 
------
+*****
 
 ####  btqzq  
 ##### 21366#       发表于 2011-2-16 18:04
@@ -3822,7 +3822,7 @@ OP的帖子怎么40亿层- -。。。
 怎么回事……又这样了？
 
 
------
+*****
 
 ####  MK4  
 ##### 21367#       发表于 2011-2-16 18:06
@@ -3831,7 +3831,7 @@ OP的帖子怎么40亿层- -。。。
 高 真是高<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gpx234  
 ##### 21368#       发表于 2011-2-16 18:07
@@ -3840,7 +3840,7 @@ OP的帖子怎么40亿层- -。。。
 亿万留念
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 21369#       发表于 2011-2-16 18:08
@@ -3850,7 +3850,7 @@ OP的帖子怎么40亿层- -。。。
 再次留名……
 
 
------
+*****
 
 ####  yunluo  
 ##### 21370#       发表于 2011-2-16 18:08
@@ -3859,7 +3859,7 @@ OP的帖子怎么40亿层- -。。。
 <img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">又来了
 
 
------
+*****
 
 ####  lst  
 ##### 21371#       发表于 2011-2-16 18:09
@@ -3868,7 +3868,7 @@ OP的帖子怎么40亿层- -。。。
 这贴太神了，留名...............
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21372#       发表于 2011-2-16 18:11
@@ -3877,7 +3877,7 @@ OP的帖子怎么40亿层- -。。。
 我草！必须留名呀！好op，不来一发么
 
 
------
+*****
 
 ####  梅花刺青  
 ##### 21373#       发表于 2011-2-16 18:11
@@ -3887,7 +3887,7 @@ OP的帖子怎么40亿层- -。。。
 留名……
 
 
------
+*****
 
 ####  hispeed  
 ##### 21374#       发表于 2011-2-16 18:12
@@ -3896,7 +3896,7 @@ OP的帖子怎么40亿层- -。。。
 偶也，太爽了！！！！！！
 
 
------
+*****
 
 ####  wsuccom  
 ##### 21375#       发表于 2011-2-16 18:14
@@ -3905,7 +3905,7 @@ OP的帖子怎么40亿层- -。。。
 <img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LostWater  
 ##### 21376#       发表于 2011-2-16 18:29
@@ -3914,7 +3914,7 @@ OP的帖子怎么40亿层- -。。。
 上次没留成，这次必须的
 
 
------
+*****
 
 ####  银辉神父  
 ##### 21377#       发表于 2011-2-16 18:35
@@ -3923,7 +3923,7 @@ OP的帖子怎么40亿层- -。。。
 见证天元突破的第一高楼
 
 
------
+*****
 
 ####  kvkv  
 ##### 21378#       发表于 2011-2-16 19:21
@@ -3934,7 +3934,7 @@ OP的帖子怎么40亿层- -。。。
 刚巧我来迟了?
 
 
------
+*****
 
 ####  kasua  
 ##### 21379#       发表于 2011-2-16 20:11
@@ -3943,7 +3943,7 @@ OP的帖子怎么40亿层- -。。。
 再次留名<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dyoumi  
 ##### 21380#       发表于 2011-2-16 21:32
@@ -3952,7 +3952,7 @@ OP的帖子怎么40亿层- -。。。
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">又抽了留名
 
 
------
+*****
 
 ####  不败之狼  
 ##### 21381#       发表于 2011-2-16 21:45
@@ -3961,7 +3961,7 @@ OP的帖子怎么40亿层- -。。。
 都抽完了你们留什么名啊
 
 
------
+*****
 
 ####  finallyeva  
 ##### 21382#       发表于 2011-2-16 21:52
@@ -3970,7 +3970,7 @@ OP的帖子怎么40亿层- -。。。
 卧槽?又抽风?
 
 
------
+*****
 
 ####  flll  
 ##### 21383#       发表于 2011-2-16 22:23
@@ -3979,7 +3979,7 @@ OP的帖子怎么40亿层- -。。。
 又抽了？又好了……
 
 
------
+*****
 
 ####  dab23  
 ##### 21384#       发表于 2011-2-16 22:46
@@ -3988,7 +3988,7 @@ OP的帖子怎么40亿层- -。。。
 只是21417楼 ，没上亿么，难道又好了？
 
 
------
+*****
 
 ####  yario  
 ##### 21385#       发表于 2011-2-17 00:02
@@ -4003,7 +4003,7 @@ OP的帖子怎么40亿层- -。。。
 个人感觉有点靠谱
 
 
------
+*****
 
 ####  sasagill  
 ##### 21386#       发表于 2011-2-17 00:21
@@ -4014,7 +4014,7 @@ OP的帖子怎么40亿层- -。。。
 已经证实了，这是真的&amp;gt;&amp;lt;
 
 
------
+*****
 
 ####  水千秋  
 ##### 21387#       发表于 2011-2-17 03:17
@@ -4023,7 +4023,7 @@ OP的帖子怎么40亿层- -。。。
 可能是因為剛重開連載的說= =總覺得現在進入新世界好茫然啊。。。
 
 
------
+*****
 
 ####  geroooo  
 ##### 21388#       发表于 2011-2-17 05:20
@@ -4033,7 +4033,7 @@ OP的帖子怎么40亿层- -。。。
 又错过了！<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zealotssas  
 ##### 21389#       发表于 2011-2-17 06:06
@@ -4043,7 +4043,7 @@ OP的帖子怎么40亿层- -。。。
 螺丝、刀。。最后丢了个卡车
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 21390#       发表于 2011-2-17 09:46
@@ -4052,7 +4052,7 @@ OP的帖子怎么40亿层- -。。。
 刃雾要的能力是把物体变成子弹的效果，瞄准还是要靠自己的
 
 
------
+*****
 
 ####  yzxdc  
 ##### 21391#       发表于 2011-2-18 01:10
@@ -4061,7 +4061,7 @@ OP的帖子怎么40亿层- -。。。
 擦，没人讨论下人鱼王妃长什么样？
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21392#       发表于 2011-2-18 01:35
@@ -4072,7 +4072,7 @@ OP的帖子怎么40亿层- -。。。
 我记得是在浦饭身上留下了几个标靶，然后就可以随便扔东西了……都带自动追踪的。
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21393#       发表于 2011-2-18 04:49
@@ -4081,7 +4081,7 @@ OP的帖子怎么40亿层- -。。。
 <img src="https://static.saraba1st.com/image/smiley/face/180.gif" referrerpolicy="no-referrer"> 10年没洗手的执念............
 
 
------
+*****
 
 ####  兆悲  
 ##### 21394#       发表于 2011-2-18 06:54
@@ -4090,7 +4090,7 @@ OP的帖子怎么40亿层- -。。。
 路飞没遇到新鱼人团啊，难道鱼人团要被山治和卓洛灭了么...刚好两个船长一人收拾一个
 
 
------
+*****
 
 ####  hwt1737  
 ##### 21395#       发表于 2011-2-18 08:17
@@ -4100,7 +4100,7 @@ OP的帖子怎么40亿层- -。。。
 路飞没遇到新鱼人团啊，难道鱼人团要被山治和卓洛灭了么...刚好两个船长一人收拾一个 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>卓洛应该战豹藏吧，这俩船长都是小角色。
 
 
------
+*****
 
 ####  cloudhp7777  
 ##### 21396#       发表于 2011-2-18 09:27
@@ -4111,7 +4111,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY2OTMy.html
 又来了 onepiece王
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21397#       发表于 2011-2-18 09:47
@@ -4124,7 +4124,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY2OTMy.html
 有
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21398#       发表于 2011-2-18 09:53
@@ -4133,7 +4133,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY2OTMy.html
 话说有人看了名侦探小剧场吗
 
 
------
+*****
 
 ####  luffyzhou  
 ##### 21399#       发表于 2011-2-18 09:56
@@ -4142,7 +4142,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY2OTMy.html
 粑粑果实估计要跟船长对吧，都不能游泳
 
 
------
+*****
 
 ####  qilang02  
 ##### 21400#       发表于 2011-2-18 09:59
@@ -4151,7 +4151,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY2OTMy.html
 范尼戴肯貌似一点都不强，路飞1个人就可以搞定，丢东西路飞有防御武装色，刀剑弓箭基本打不伤路飞，攻击武装色以和平守护者一拳搞定的攻击力打戴肯一轮机关枪就行了
 
 
------
+*****
 
 ####  阿耨多罗  
 ##### 21401#       发表于 2011-2-18 10:02
@@ -4160,7 +4160,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY2OTMy.html
 WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21402#       发表于 2011-2-18 10:10
@@ -4169,7 +4169,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 霍迪琼斯和范德戴肯看起来一点儿都不能打。感觉豹藏比那俩牛逼多了，而且还担心路飞的生命，会不会是甚平的卧底啊。
 
 
------
+*****
 
 ####  yzxdc  
 ##### 21403#       发表于 2011-2-18 10:37
@@ -4180,7 +4180,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 而且如果像冒烟男那种一头带海楼石的武器的话，哪怕你是自然系也不得安宁
 
 
------
+*****
 
 ####  yzxdc  
 ##### 21404#       发表于 2011-2-18 10:40
@@ -4189,7 +4189,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 而且海军貌似有一种抓捕用的海楼石作的网，只要你是能力者，被网抓捕住了任你多强都没用
 
 
------
+*****
 
 ####  faust123  
 ##### 21405#       发表于 2011-2-18 10:57
@@ -4200,7 +4200,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 很强的能力，差点把幽助弄死
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21406#       发表于 2011-2-18 11:09
@@ -4209,7 +4209,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 刃雾应该比这货强吧，这货貌似只能有两个target，不知道以后那四只脚会不会也能开发出来。
 
 
------
+*****
 
 ####  邦小邦  
 ##### 21407#       发表于 2011-2-18 11:27
@@ -4218,7 +4218,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 范德戴肯： 太爽了！传下去！
 
 
------
+*****
 
 ####  niconicomanga  
 ##### 21408#       发表于 2011-2-18 13:22
@@ -4227,7 +4227,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 如果这个粑粑果实扔出去几人份的海水，是不是路飞直接死翘翘了。。。。
 
 
------
+*****
 
 ####  niconicomanga  
 ##### 21409#       发表于 2011-2-18 13:25
@@ -4236,7 +4236,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 另外，这个果实的具体能力内容不清，因为毕竟那些人都没有直接打到在塔内的公主，所以他如果扔出去武器啥的话，对于杂鱼还有点威胁，主人公团基本无视，来什么打烂什么便是，按照海水对果实人的效果来看，不没全身的话就不会无力，那么他也可以每次扔出去半个身体的水淹死对方。。。当然路飞可以拿个澡盆挡着。。
 
 
------
+*****
 
 ####  jxz  
 ##### 21410#       发表于 2011-2-18 13:40
@@ -4246,7 +4246,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 刃雾应该比这货强吧，这货貌似只能有两个target，不知道以后那四只脚会不会也能开发出来。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>那个要在能力范围内才有用，好像才半径200米，随时被人家找到先干掉。
 
 
------
+*****
 
 ####  Futanari  
 ##### 21411#       发表于 2011-2-18 13:43
@@ -4256,7 +4256,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 这个家伙距离是多少？
 
 
------
+*****
 
 ####  qilang02  
 ##### 21412#       发表于 2011-2-18 13:56
@@ -4276,7 +4276,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 戴肯第一次碰路飞，路飞就可以一下子用武装色橡皮机关枪搞定戴肯
 
 
------
+*****
 
 ####  rubicon  
 ##### 21413#       发表于 2011-2-18 13:59
@@ -4285,7 +4285,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 妈的,鱼人怎么能打的那么少,以前太阳海贼团的干部都死哪里去了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yzxdc  
 ##### 21414#       发表于 2011-2-18 15:33
@@ -4303,7 +4303,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 第三我说过了人总有松懈的时候，不可能一天到晚都绷紧，何况还有你和强手正面交锋的时候，难道还有空防备不知道什么地方，什么时候来的攻击？除非呆在密闭的房间里面，不然永无宁日够让人头痛了
 
 
------
+*****
 
 ####  rubicon  
 ##### 21415#       发表于 2011-2-18 15:40
@@ -4312,7 +4312,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 刀刃不是路飞天敌么,再说霸气哪来那么强,练了就百毒不侵刀枪不入么,本来就是为了日自然系这个bug弄出来的补丁,结果又弄出来个bug么<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yzxdc  
 ##### 21416#       发表于 2011-2-18 15:41
@@ -4323,7 +4323,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 渔人本来就没什么特别强的，小八之前不就说过他是渔人岛剑术第二高手么，其他人的水准可想而知。甚平应该是第一高手了
 
 
------
+*****
 
 ####  gooas  
 ##### 21417#       发表于 2011-2-18 15:43
@@ -4332,7 +4332,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 破坏投递物就行了 跟躲拳头没任何区别
 
 
------
+*****
 
 ####  rubicon  
 ##### 21418#       发表于 2011-2-18 15:48
@@ -4345,7 +4345,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>除了海贼王,其他都是银牌选手!
 
 
------
+*****
 
 ####  i20001381  
 ##### 21419#       发表于 2011-2-18 15:49
@@ -4360,7 +4360,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 咱也不需要日后时时提防，逮住之后让他的左右双手合掌，困一起扎紧送去海军那里领赏
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21420#       发表于 2011-2-18 16:14
@@ -4374,7 +4374,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 剑术第一是豹藏，甚平又不是剑客。
 
 
------
+*****
 
 ####  aosng007  
 ##### 21421#       发表于 2011-2-18 16:17
@@ -4383,7 +4383,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 人家可是会嗑强走嗑鬼人嗑硬化啊....
 
 
------
+*****
 
 ####  不败之狼  
 ##### 21422#       发表于 2011-2-18 16:30
@@ -4392,7 +4392,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 两年前悬赏2000W的阿龙居然有这么高的地位= =
 
 
------
+*****
 
 ####  PATLABOR  
 ##### 21423#       发表于 2011-2-18 18:41
@@ -4402,7 +4402,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 现在这帮小鬼能干什么     <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21424#       发表于 2011-2-18 21:02
@@ -4413,7 +4413,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 算上路飞飞冒险的时间，应该不止两年了吧？
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 21425#       发表于 2011-2-18 21:15
@@ -4423,7 +4423,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 两年前悬赏2000W的阿龙居然有这么高的地位= = <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>其实阿龙到东海后，收买了当地的海军，赏金应该也多年没涨过
 
 
------
+*****
 
 ####  不败之狼  
 ##### 21426#       发表于 2011-2-18 21:19
@@ -4435,7 +4435,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 算上路飞飞冒险的时间，应该不止两年了吧？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>路飞飞冒险又不到一年……看设定年龄都没有变
 
 
------
+*****
 
 ####  不败之狼  
 ##### 21427#       发表于 2011-2-18 21:22
@@ -4452,7 +4452,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 而且打完阿龙的下一个大BOSS就是克罗克，之间路飞成长很小。也就是说侥幸打败了克罗克的路飞不是特别轻松的打败了阿龙……
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 21428#       发表于 2011-2-18 21:28
@@ -4462,7 +4462,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 瞎猜一下，带肯用能力把自己拍飞到海之森，琼斯领鱼人海贼团杀到龙宫城。带肯被路飞收拾，鱼人海贼团被草帽团全灭。
 
 
------
+*****
 
 ####  jk0823  
 ##### 21429#       发表于 2011-2-18 21:43
@@ -4472,7 +4472,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 两年前悬赏2000W的阿龙居然有这么高的地位= = <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>阿龙这么被推崇是因为他的思想啊，跟实力没关系
 
 
------
+*****
 
 ####  wingchau  
 ##### 21430#       发表于 2011-2-18 21:49
@@ -4481,7 +4481,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 鱼嘴里的人鱼公主好萌...<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  maydayl  
 ##### 21431#       发表于 2011-2-18 22:37
@@ -4490,7 +4490,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 用手碰一下就切換目標了...那扔到硬殼塔的人類海賊不是應該都被切換成目標的才對么....
 
 
------
+*****
 
 ####  Snaky  
 ##### 21432#       发表于 2011-2-18 23:04
@@ -4501,7 +4501,7 @@ WT补bug补得好痛苦好勉强<img src="https://static.saraba1st.com/image/smi
 WT你这家伙对妈妈究竟有着多深的怨念啊
 
 
------
+*****
 
 ####  CwC1st  
 ##### 21433#       发表于 2011-2-19 00:41
@@ -4512,7 +4512,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊
 有个握手要带上手套的细节
 
 
------
+*****
 
 ####  Futanari  
 ##### 21434#       发表于 2011-2-19 00:54
@@ -4521,7 +4521,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊
 阿龙真不成 绿藻头不敌完全是和鹰眼战斗损伤未愈，山治也是刚经历一场大战。
 
 
------
+*****
 
 ####  =D_BOY=Damned  
 ##### 21435#       发表于 2011-2-19 03:36
@@ -4530,7 +4530,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊
 你们这些说2个BOSS会被秒的，没想过预言姐姐的预言吗？这必然不会是被秒被刷时髦这么简单就结束的战斗
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21436#       发表于 2011-2-19 03:48
@@ -4539,7 +4539,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊
 <img src="https://static.saraba1st.com/image/smiley/face/08.gif" referrerpolicy="no-referrer">有没有想过扔海楼石会不会自己先没力气...
 
 
------
+*****
 
 ####  sinbad  
 ##### 21437#       发表于 2011-2-19 03:53
@@ -4549,7 +4549,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊
 我上次看漫画看到了，路飞进入监狱塔去救他哥，然后在塔中遇见了人妖和以前的敌人（会四分五裂的家伙），然后继续往下走。我记得上次漫画就看到这里，这大概是多少话啊，我攒够了想继续看了
 
 
------
+*****
 
 ####  dab23  
 ##### 21438#       发表于 2011-2-19 09:00
@@ -4560,7 +4560,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊
 你自己看看是后面的哪话吧
 
 
------
+*****
 
 ####  PATLABOR  
 ##### 21439#       发表于 2011-2-19 09:35
@@ -4576,7 +4576,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊
 自己去翻。
 
 
------
+*****
 
 ####  李剡s  
 ##### 21440#       发表于 2011-2-19 12:57
@@ -4596,7 +4596,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊 <[img src="http://images/b
 于是乎！风车村那个美女酒馆侍应，叫什么来着，他怀里孩子是谁的，看她那一副替丈夫抚养孩子的坚定表情，其孩子的父亲肯定也是海贼！难道是红发！？可是小孩头发颜色又不对，本 贝克曼？
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21441#       发表于 2011-2-19 13:04
@@ -4613,7 +4613,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊 <[img src="http://images/b
 其实那是艾斯留下的种~
 
 
------
+*****
 
 ####  李剡s  
 ##### 21442#       发表于 2011-2-19 13:11
@@ -4626,7 +4626,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊 <[img src="http://images/b
 另外，艾斯死亡，卡普回到村子的时候，反倒是卡莉比较伤心，那个女的好像连眼泪都没流，还能过去劝卡莉
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21443#       发表于 2011-2-19 13:29
@@ -4640,7 +4640,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊 <[img src="http://images/b
 另外，艾斯死亡，卡普回到村子的时候，反倒是卡莉比较伤心，那个女的好像连眼泪都没流，还能过去劝卡莉 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>也就大个4、5岁 姐弟恋阿
 
 
------
+*****
 
 ####  李剡s  
 ##### 21444#       发表于 2011-2-19 13:34
@@ -4651,7 +4651,7 @@ WT你这家伙对妈妈究竟有着多深的怨念啊 <[img src="http://images/b
 唔，艾斯追击黑胡子的时候可能回东海过。因为他路过磁鼓王国，后来又往回走到了雪花石膏
 
 
------
+*****
 
 ####  osk666  
 ##### 21445#       发表于 2011-2-19 13:53
@@ -4677,7 +4677,7 @@ LF跟克里克的第一次接触就秒掉克里克，
 看场面看上去LF是在苦战。
 
 
------
+*****
 
 ####  8aa8aa8aa  
 ##### 21446#       发表于 2011-2-19 14:31
@@ -4700,7 +4700,7 @@ LF纠结了不少东西才能赢。
 第一次真正遇到比路飞强的应该是在罗格镇的那个烟男
 
 
------
+*****
 
 ####  magicled  
 ##### 21447#       发表于 2011-2-19 15:46
@@ -4709,7 +4709,7 @@ LF纠结了不少东西才能赢。
 现在这帮人鱼也就阿龙水平啊，他们战斗不都靠磕药能力10倍么，连之前打杂鱼都是磕药啊
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21448#       发表于 2011-2-19 15:53
@@ -4719,7 +4719,7 @@ LF纠结了不少东西才能赢。
 如果鱼人岛那批新鱼人海贼团就阿龙的水平 那即使吃那什么药也没什么了不起的 这后面肯定有着更强大的对手存在 我觉得至少也得是盘踞在鱼人岛的四皇手下的首席战力 也就是相当于不死鸟级别的人物
 
 
------
+*****
 
 ####  renious  
 ##### 21449#       发表于 2011-2-19 16:22
@@ -4728,7 +4728,7 @@ LF纠结了不少东西才能赢。
 荷兰人感觉很烂啊，这破能力有毛用
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21450#       发表于 2011-2-19 16:29
@@ -4737,7 +4737,7 @@ LF纠结了不少东西才能赢。
 打补丁很辛苦的，就设定路飞在水之都前都是同样的战斗力，这很说的通，看其他人的战斗感觉有升级，路飞看不出，这么一来阿龙就觉得强很多了吧
 
 
------
+*****
 
 ####  osk666  
 ##### 21451#       发表于 2011-2-19 17:02
@@ -4747,7 +4747,7 @@ LF纠结了不少东西才能赢。
 不知道那里阿龙水平的有多少= =
 
 
------
+*****
 
 ####  dowei  
 ##### 21452#       发表于 2011-2-19 17:26
@@ -4756,7 +4756,7 @@ LF纠结了不少东西才能赢。
 太具体了忘了，但是阿龙抓了娜美画海图，就这份野心也值得尊敬啊。
 
 
------
+*****
 
 ####  yario  
 ##### 21453#       发表于 2011-2-19 17:31
@@ -4765,7 +4765,7 @@ LF纠结了不少东西才能赢。
 明天动画总帅出场，期待啊。
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21454#       发表于 2011-2-19 18:29
@@ -4776,7 +4776,7 @@ LF纠结了不少东西才能赢。
 不知道那里阿龙水平的有多少= = <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>阿龙的水平撑死也就T骨大佐那个档次了 极限了
 
 
------
+*****
 
 ####  南宮太平  
 ##### 21455#       发表于 2011-2-19 18:41
@@ -4788,7 +4788,7 @@ LF纠结了不少东西才能赢。
 除了阿龍還有那個Boss 需要弱化主角團那麼多才來戰的.........
 
 
------
+*****
 
 ####  ナミ  
 ##### 21456#       发表于 2011-2-19 18:46
@@ -4797,7 +4797,7 @@ LF纠结了不少东西才能赢。
 能不能不要再提起这个人了啊……<img src="https://static.saraba1st.com/image/smiley/face/08.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  李剡s  
 ##### 21457#       发表于 2011-2-19 20:52
@@ -4810,7 +4810,7 @@ LF纠结了不少东西才能赢。
 到时候岛毁了，霍迪趴了，草帽仍然站在那里。只要奸人挑拨一下，就要开干呀。
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 21458#       发表于 2011-2-19 20:53
@@ -4819,7 +4819,7 @@ LF纠结了不少东西才能赢。
 刚才看完了GREEN发现……瓦波尔才是真正的赢家啊！白手起家---&amp;gt;暴发户----&amp;gt;成立公司------&amp;gt;迎娶世界环球小姐<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dds2ming  
 ##### 21459#       发表于 2011-2-19 21:05
@@ -4831,7 +4831,7 @@ LF纠结了不少东西才能赢。
 阿龙那靠着鱼人身体优势发难的家伙哪可能是那个档次
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21460#       发表于 2011-2-19 21:22
@@ -4846,7 +4846,7 @@ LF纠结了不少东西才能赢。
 当然了，路飞打的不累
 
 
------
+*****
 
 ####  8aa8aa8aa  
 ##### 21461#       发表于 2011-2-19 21:30
@@ -4861,7 +4861,7 @@ LF纠结了不少东西才能赢。
 要不，老爹临终前的那句：“哪怕血缘断绝，他们的火焰也绝不会消失，像这样从很久的过去开始脉脉相承并继承下来”<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">白喊了
 
 
------
+*****
 
 ####  Snaky  
 ##### 21462#       发表于 2011-2-19 23:47
@@ -4871,7 +4871,7 @@ LF纠结了不少东西才能赢。
 刚才看完了GREEN发现……瓦波尔才是真正的赢家啊！白手起家---&amp;gt;暴发户----&amp;gt;成立公司------&amp;gt;迎娶世界环球小姐<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">人家本来可是国王好不好
 
 
------
+*****
 
 ####  maydayl  
 ##### 21463#       发表于 2011-2-20 00:54
@@ -4882,7 +4882,7 @@ LF纠结了不少东西才能赢。
 有个握手要带上手套的细节 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>投擲的時候需要拿掉手套的吧...
 
 
------
+*****
 
 ####  nstxy  
 ##### 21464#       发表于 2011-2-20 02:23
@@ -4893,7 +4893,7 @@ LF纠结了不少东西才能赢。
 不需要啊，这话就有个扔刀子的特写戴着手套
 
 
------
+*****
 
 ####  Futanari  
 ##### 21465#       发表于 2011-2-20 10:36
@@ -4902,7 +4902,7 @@ LF纠结了不少东西才能赢。
 烟男挺悲剧开始听nb结果的实力还是不够沙漠那段被鳄鱼抓住。 救艾斯的时候被女王压制。我担心他早晚本科比追上。
 
 
------
+*****
 
 ####  DGIL  
 ##### 21466#       发表于 2011-2-20 10:59
@@ -4921,7 +4921,7 @@ LF纠结了不少东西才能赢。
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lenin  
 ##### 21467#       发表于 2011-2-20 11:03
@@ -4930,7 +4930,7 @@ LF纠结了不少东西才能赢。
 科比都有影主角的潜质了 你们还担心他的实力？
 
 
------
+*****
 
 ####  DGIL  
 ##### 21468#       发表于 2011-2-20 11:08
@@ -4946,7 +4946,7 @@ LF纠结了不少东西才能赢。
 ~科比以后对应什么角色呢？
 
 
------
+*****
 
 ####  lenin  
 ##### 21469#       发表于 2011-2-20 11:35
@@ -4955,7 +4955,7 @@ LF纠结了不少东西才能赢。
 如果都一一对应的话 op不就是重写罗杰的故事了嘛  历史这次肯定是要被还原的，和罗杰一样玩转一圈故事就没个完啊
 
 
------
+*****
 
 ####  DGIL  
 ##### 21470#       发表于 2011-2-20 11:42
@@ -4971,7 +4971,7 @@ LF纠结了不少东西才能赢。
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">不过国家为重也没有办法啊。
 
 
------
+*****
 
 ####  wingchau  
 ##### 21471#       发表于 2011-2-20 12:16
@@ -4986,7 +4986,7 @@ LF纠结了不少东西才能赢。
 ....... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>路飞早就能震晕肥牛了啊.
 
 
------
+*****
 
 ####  yario  
 ##### 21472#       发表于 2011-2-20 13:06
@@ -4995,7 +4995,7 @@ LF纠结了不少东西才能赢。
 488，总帅的声音，气势太足了。。
 
 
------
+*****
 
 ####  fifman  
 ##### 21473#       发表于 2011-2-20 13:51
@@ -5006,7 +5006,7 @@ LF纠结了不少东西才能赢。
 其实真正深藏不露的是小丑巴基啊。路飞其实没打赢他，是靠娜美使诈……
 
 
------
+*****
 
 ####  jsyyyz  
 ##### 21474#       发表于 2011-2-20 14:01
@@ -5023,7 +5023,7 @@ LF纠结了不少东西才能赢。
 他估计都得被忘了
 
 
------
+*****
 
 ####  dab23  
 ##### 21475#       发表于 2011-2-20 14:02
@@ -5040,7 +5040,7 @@ LF纠结了不少东西才能赢。
 路飞出海时的实力就在东海之上了，应该达到了伟大航道前半段的平均水平。出海后升级两次，第一次是战青雉之后领悟2挡3挡，第二次就是最近的这两年修炼了。
 
 
------
+*****
 
 ####  Futanari  
 ##### 21476#       发表于 2011-2-20 14:07
@@ -5049,7 +5049,7 @@ LF纠结了不少东西才能赢。
 路飞是未来的海贼王，那么巴基就是未来的金狮子（虽然想说是白胡子但是明显性格差太多了）
 
 
------
+*****
 
 ####  Dracule·Mihawk  
 ##### 21477#       发表于 2011-2-20 15:05
@@ -5058,7 +5058,7 @@ LF纠结了不少东西才能赢。
 红发终于登场了<img src="https://static.saraba1st.com/image/smiley/face/95.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21478#       发表于 2011-2-20 16:15
@@ -5071,7 +5071,7 @@ LF纠结了不少东西才能赢。
 到时候岛毁了，霍迪趴了，草帽仍然站在那里。只要奸人挑拨一下，就要开干呀。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>看后续发展吧 我觉得新人鱼海贼团这条线在画15话左右差不多会引出这次海底之旅真正的敌人出场了
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21479#       发表于 2011-2-20 16:20
@@ -5085,7 +5085,7 @@ T骨砍海列车及巨大海王类犹如切菜一样简单，实力至少也比M
 不要忘记路飞和阿龙PK的场地是在陆地上  如果是在海域作战的话阿龙还是有能力和T骨一战的，不说打赢但T骨想干掉阿龙不会轻松的
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21480#       发表于 2011-2-20 16:30
@@ -5101,7 +5101,7 @@ T骨砍海列车及巨大海王类犹如切菜一样简单，实力至少也比M
 如果说黑胡子是代表着与路飞理念所对立的另一种理念同时也是海贼势力里路飞必须战胜的宿命对手 那么科比就扮演着海军势力里与生为海贼的路飞同一时间出道从默默无闻到将来威震四方的好敌手 虽然这个对手目前还很弱小但他总有一天会成为路飞必须竭尽全力与之抗衡的海军本部大将
 
 
------
+*****
 
 ####  rubicon  
 ##### 21481#       发表于 2011-2-20 17:02
@@ -5110,7 +5110,7 @@ T骨砍海列车及巨大海王类犹如切菜一样简单，实力至少也比M
 对应路飞的白胡子或者金狮子因该是死亡外科医生才对,多么基情的一幕
 
 
------
+*****
 
 ####  不知火时  
 ##### 21482#       发表于 2011-2-21 00:50
@@ -5124,7 +5124,7 @@ T骨砍海列车及巨大海王类犹如切菜一样简单，实力至少也比M
 CP9的指枪你都躲了。
 
 
------
+*****
 
 ####  qubely  
 ##### 21483#       发表于 2011-2-21 01:00
@@ -5135,7 +5135,7 @@ CP9的指枪你都躲了。
 不就是个老相好嘛，怎么不能提了，难不成心里有鬼？<img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  日向超  
 ##### 21484#       发表于 2011-2-21 01:09
@@ -5149,7 +5149,7 @@ CP9的指枪你都躲了。
 ....... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>我不信
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21485#       发表于 2011-2-21 02:46
@@ -5159,7 +5159,7 @@ CP9的指枪你都躲了。
 我觉得烟男以后大概相当于现在的卡普（数次将路飞逼入绝境的男人=_=）,科比的话，应该像青雉，受烟男不少照顾之类的，离顶点的男人还有那么点距离……
 
 
------
+*****
 
 ####  bvbrother  
 ##### 21486#       发表于 2011-2-21 06:34
@@ -5176,7 +5176,7 @@ CP9的指枪你都躲了。
 你看他们都戴眼镜的呢<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  葵井巫女子  
 ##### 21487#       发表于 2011-2-21 07:33
@@ -5185,7 +5185,7 @@ CP9的指枪你都躲了。
 科比要想在可以预见的范围内追上路飞 那得得到什么神仙指点啊
 
 
------
+*****
 
 ####  cloudhp7777  
 ##### 21488#       发表于 2011-2-21 09:03
@@ -5194,7 +5194,7 @@ CP9的指枪你都躲了。
 科比能听到万物的声音（疑似），海贼王的能力啊
 
 
------
+*****
 
 ####  rubicon  
 ##### 21489#       发表于 2011-2-21 10:26
@@ -5204,7 +5204,7 @@ CP9的指枪你都躲了。
 我觉得还是最后这样发展很不错,最终战烟男要逮到草帽了,这时候罗又来救场,让草帽能去对黑胡子
 
 
------
+*****
 
 ####  hispeed  
 ##### 21490#       发表于 2011-2-21 10:42
@@ -5216,7 +5216,7 @@ CP9的指枪你都躲了。
 其实从开卷到水之都，科比的成长要比路飞快的，第一卷他就是个渣吧（战斗意义上），到了水之都都能露两手了
 
 
------
+*****
 
 ####  臙条巴  
 ##### 21491#       发表于 2011-2-21 10:54
@@ -5225,7 +5225,7 @@ CP9的指枪你都躲了。
 话说还有人记得力克海贼团里那个阿坚么 貌似还算是个伏笔<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rubicon  
 ##### 21492#       发表于 2011-2-21 11:06
@@ -5235,7 +5235,7 @@ CP9的指枪你都躲了。
 话说还有人记得力克海贼团里那个阿坚么 貌似还算是个伏笔<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer"></blockquote>鬼人！纯爷们！
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21493#       发表于 2011-2-21 12:15
@@ -5246,7 +5246,7 @@ CP9的指枪你都躲了。
 到时候科比做个元帅，路飞做个海贼王，俩人一起对付黑胡子和被藏起来的历史。
 
 
------
+*****
 
 ####  rubicon  
 ##### 21494#       发表于 2011-2-21 12:20
@@ -5255,7 +5255,7 @@ CP9的指枪你都躲了。
 科比做元帅?何德何能?
 
 
------
+*****
 
 ####  南宮太平  
 ##### 21495#       发表于 2011-2-21 13:00
@@ -5266,7 +5266,7 @@ CP9的指枪你都躲了。
 不被槍斃已經是撿到了, 還當元帥? <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21496#       发表于 2011-2-21 13:14
@@ -5279,7 +5279,7 @@ CP9的指枪你都躲了。
 至于顶头老大放水什么的更是搞笑，关他屌事。
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21497#       发表于 2011-2-21 13:22
@@ -5289,7 +5289,7 @@ CP9的指枪你都躲了。
 也就是说，某些人津津乐道的红犬，才是海军的祸害。
 
 
------
+*****
 
 ####  tombo  
 ##### 21498#       发表于 2011-2-21 13:52
@@ -5301,7 +5301,7 @@ CP9的指枪你都躲了。
 其实真正深藏不露的是小丑巴基啊。路飞其实没打赢他，是靠娜美使诈…… <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>巴基才是未来四皇的首选候补啊
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21499#       发表于 2011-2-21 15:01
@@ -5314,7 +5314,7 @@ CP9的指枪你都躲了。
 不过克里克怎么看都是个面瓜……感觉混不远啊，阿坚迟早要跳槽的吧。
 
 
------
+*****
 
 ####  lblqkgklf  
 ##### 21500#       发表于 2011-2-21 16:34
@@ -5325,7 +5325,7 @@ CP9的指枪你都躲了。
 这代表什么？WT是准备解释恶魔果实的遗传系统规则了吗？
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21501#       发表于 2011-2-21 19:34
@@ -5334,7 +5334,7 @@ CP9的指枪你都躲了。
 对于鱼人来说，不能游泳还不就是诅咒么。而且之前的传说也没有说初代荷兰人有恶魔果实能力吧。
 
 
------
+*****
 
 ####  054A  
 ##### 21502#       发表于 2011-2-21 19:53
@@ -5350,7 +5350,7 @@ CP9的指枪你都躲了。
 动画版更明显，给足了海贼方面子，海军就算赤犬都比漫画耸了一个级别。
 
 
------
+*****
 
 ####  rubicon  
 ##### 21503#       发表于 2011-2-21 20:04
@@ -5359,7 +5359,7 @@ CP9的指枪你都躲了。
 我倒很喜欢赤犬,不择手段的正义,而且菅原文太确实帅
 
 
------
+*****
 
 ####  lblqkgklf  
 ##### 21504#       发表于 2011-2-21 20:25
@@ -5370,7 +5370,7 @@ CP9的指枪你都躲了。
 注意“也”字，我的意思就是“诅咒=恶魔果实”，也被诅咒了就是说祖先也是能力者？他的能力是直接遗传的？
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21505#       发表于 2011-2-21 20:48
@@ -5385,7 +5385,7 @@ Re:回 21534楼(纵死侠骨香) 的帖子
 更何况，都九代目了，那么长的时间下来，以讹传讹是民间传承的常态，谁知道当时是怎么回事儿呢。
 
 
------
+*****
 
 ####  传说中的  
 ##### 21506#       发表于 2011-2-22 00:05
@@ -5394,7 +5394,7 @@ Re:回 21534楼(纵死侠骨香) 的帖子
 应该就是一直都有吃果实的一家吧.
 
 
------
+*****
 
 ####  迪奧  
 ##### 21507#       发表于 2011-2-22 23:49
@@ -5403,7 +5403,7 @@ Re:回 21534楼(纵死侠骨香) 的帖子
 愚人什么的战斗力只有<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  opdconan  
 ##### 21508#       发表于 2011-2-23 00:13
@@ -5414,7 +5414,7 @@ Re:回 21534楼(纵死侠骨香) 的帖子
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">对了，说起鱼人，没记错，鱼人以前的亮相都是在逆境里（陆地上）的，这次有主场大环境，而且还是能力者死穴的环境，没准有搞头呢？
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21509#       发表于 2011-2-23 10:12
@@ -5423,7 +5423,7 @@ Re:回 21534楼(纵死侠骨香) 的帖子
 其实我真搞不懂 黑胡子在顶上之战的时候嚣张些什么 如果红发不来的话 说实话他别想活着离开那里 干掉路飞他们之后 红狗 赤犬 黄猿3个人里只要有一个去助战战国和卡普 那么绝对可以在短时间内把黑胡子干掉
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21510#       发表于 2011-2-23 14:19
@@ -5439,7 +5439,7 @@ Re:回 21534楼(纵死侠骨香) 的帖子
 霍地琼斯是原王宫士兵。
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21511#       发表于 2011-2-23 14:51
@@ -5448,7 +5448,7 @@ Re:回 21534楼(纵死侠骨香) 的帖子
 看完全版感觉还是不错啊
 
 
------
+*****
 
 ####  dawn34  
 ##### 21512#       发表于 2011-2-23 15:39
@@ -5458,7 +5458,7 @@ Re:回 21534楼(纵死侠骨香) 的帖子
 其实我真搞不懂 黑胡子在顶上之战的时候嚣张些什么 如果红发不来的话 说实话他别想活着离开那里 干掉路飞他们之后 红狗 赤犬 黄猿3个人里只要有一个去助战战国和卡普 那么绝对可以在短时间内把黑胡子干掉   <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>赤犬连续干掉艾斯跟路飞还想在卡普手下活命么
 
 
------
+*****
 
 ####  葵井巫女子  
 ##### 21513#       发表于 2011-2-23 16:24
@@ -5477,7 +5477,7 @@ vivi要轰的那个有xx年历史的宫殿前就有胡狼和隼的雕刻
 我记得尾田在bbs里说过要贝加班克出来解释恶魔果实详情 可惜现在还没出来
 
 
------
+*****
 
 ####  日向超  
 ##### 21514#       发表于 2011-2-23 17:23
@@ -5488,7 +5488,7 @@ vivi要轰的那个有xx年历史的宫殿前就有胡狼和隼的雕刻
 赤犬连续干掉艾斯跟路飞还想在卡普手下活命么 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>显然不可能
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21515#       发表于 2011-2-23 17:37
@@ -5497,7 +5497,7 @@ vivi要轰的那个有xx年历史的宫殿前就有胡狼和隼的雕刻
 绿本里说萨波死了啊，也不知道算不算官方认定。。
 
 
------
+*****
 
 ####  yario  
 ##### 21516#       发表于 2011-2-23 19:30
@@ -5508,7 +5508,7 @@ vivi要轰的那个有xx年历史的宫殿前就有胡狼和隼的雕刻
 这话的信息量很大，看来要等全文出来。
 
 
------
+*****
 
 ####  nuoer  
 ##### 21517#       发表于 2011-2-23 19:43
@@ -5517,7 +5517,7 @@ vivi要轰的那个有xx年历史的宫殿前就有胡狼和隼的雕刻
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 男的人鱼...
 
 
------
+*****
 
 ####  日向超  
 ##### 21518#       发表于 2011-2-23 19:58
@@ -5527,7 +5527,7 @@ vivi要轰的那个有xx年历史的宫殿前就有胡狼和隼的雕刻
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"></blockquote>三个王子，剑士豹藏都是人鱼啊
 
 
------
+*****
 
 ####  dowei  
 ##### 21519#       发表于 2011-2-23 20:18
@@ -5543,7 +5543,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 更何况，都九代目了，那么长的时间下来，以讹传讹是民间传承的常态，谁知道当时是怎么回事儿呢。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>既然说是诅咒那肯定是不把果实能力当成什么很满意的事了。一个无论如何都逃不掉吃恶魔果实的家族么？
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21520#       发表于 2011-2-23 20:22
@@ -5552,7 +5552,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 <img src="https://static.saraba1st.com/image/smiley/face/08.gif" referrerpolicy="no-referrer"> 男的人鱼怎么了...海神出来都这么久了...
 
 
------
+*****
 
 ####  迪奧  
 ##### 21521#       发表于 2011-2-23 23:30
@@ -5561,7 +5561,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 小鸡鸡藏在哪里
 
 
------
+*****
 
 ####  Clark Steel  
 ##### 21522#       发表于 2011-2-23 23:38
@@ -5573,7 +5573,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 能说出这台词的反派boss，说不定是个不错的家伙。
 
 
------
+*****
 
 ####  faiths  
 ##### 21523#       发表于 2011-2-23 23:46
@@ -5584,7 +5584,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 楼上的 要是有个家伙冲你扔了10年斧子然后跟你说这种话你是啥反应啊。。。
 
 
------
+*****
 
 ####  Clark Steel  
 ##### 21524#       发表于 2011-2-24 00:00
@@ -5597,7 +5597,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 一个执着的变态。看以后的剧情发展吧，我预感霍迪·琼斯有点儿像艾尼路。
 
 
------
+*****
 
 ####  gooas  
 ##### 21525#       发表于 2011-2-24 00:09
@@ -5608,7 +5608,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 赤犬连续干掉艾斯跟路飞还想在卡普手下活命么 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>卡普想干掉赤犬 战国肯吗 世界政府肯吗
 
 
------
+*****
 
 ####  gooas  
 ##### 21526#       发表于 2011-2-24 00:14
@@ -5623,7 +5623,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 ....... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>要按雷利对霸气的解说来看 科比这种缩卵能拥有霸气简直不可思议
 
 
------
+*****
 
 ####  kidthief  
 ##### 21527#       发表于 2011-2-24 00:49
@@ -5634,7 +5634,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 要按雷利对霸气的解说来看 科比这种缩卵能拥有霸气简直不可思议 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>只要你有一颗仁慈的心。。。。。
 
 
------
+*****
 
 ####  opdconan  
 ##### 21528#       发表于 2011-2-24 01:05
@@ -5645,7 +5645,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">货滴穷死和高得碍你路哪里像了
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 21529#       发表于 2011-2-24 09:02
@@ -5665,7 +5665,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 为啥没有机器人我要看机器人！！！
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21530#       发表于 2011-2-24 09:41
@@ -5675,7 +5675,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 这话三王子去哪了？
 
 
------
+*****
 
 ####  rubicon  
 ##### 21531#       发表于 2011-2-24 12:06
@@ -5684,7 +5684,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 鱼人里就算是有人戴了绿帽也不知道吧<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rubicon  
 ##### 21532#       发表于 2011-2-24 12:07
@@ -5694,7 +5694,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 绿本里说萨波死了啊，也不知道算不算官方认定。。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>我不信啊,不是说萨波被路过的革命军救了么
 
 
------
+*****
 
 ####  rubicon  
 ##### 21533#       发表于 2011-2-24 12:08
@@ -5703,7 +5703,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 相信我,如果赤犬是海贼的话肯定是人气角色
 
 
------
+*****
 
 ####  faiths  
 ##### 21534#       发表于 2011-2-24 12:34
@@ -5714,7 +5714,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 一个执着的变态。看以后的剧情发展吧，我预感霍迪·琼斯有点儿像艾尼路。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>你的用女人的心态看这事儿
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21535#       发表于 2011-2-24 13:25
@@ -5723,7 +5723,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 霍迪琼斯的战斗力在艾尼路面前连渣都不如。
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21536#       发表于 2011-2-24 13:28
@@ -5738,7 +5738,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 变态就算了还执着，不杀了还留着等做什么更愚蠢的事么，也就是一个海贼王是少年向而已，否则早被切成块了。
 
 
------
+*****
 
 ####  wingchau  
 ##### 21537#       发表于 2011-2-24 14:32
@@ -5754,7 +5754,7 @@ Re:Re:回 21534楼(纵死侠骨香) 的帖子
 ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 
------
+*****
 
 ####  dawn34  
 ##### 21538#       发表于 2011-2-24 15:54
@@ -5769,7 +5769,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 ....... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>不会单挑的
 
 
------
+*****
 
 ####  风听雨  
 ##### 21539#       发表于 2011-2-24 17:03
@@ -5780,7 +5780,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 准备引出新人物么。。比如某失踪人士
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21540#       发表于 2011-2-24 17:07
@@ -5789,7 +5789,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer"> 话说人鱼如果被ntr了怎么办...
 
 
------
+*****
 
 ####  不败之狼  
 ##### 21541#       发表于 2011-2-24 17:14
@@ -5800,7 +5800,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 不过也不好说，因为看起来甚平自己也没有独自搞定局势的能力，路飞成长得再多也就和甚平一个等级，如果甚平都不能轻松搞定的事情，草帽团也很难。
 
 
------
+*****
 
 ####  y虫  
 ##### 21542#       发表于 2011-2-24 17:18
@@ -5811,7 +5811,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 要按雷利对霸气的解说来看 科比这种缩卵能拥有霸气简直不可思议 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>那么缩的一个人敢在赤犬面前那么叫唤，有霸气就不出奇
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21543#       发表于 2011-2-24 17:41
@@ -5824,7 +5824,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 莫妲，在艾斯的封面故事里出现过的小女孩儿。
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21544#       发表于 2011-2-24 17:45
@@ -5839,7 +5839,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 就现在这几块料，反正看着是挺不能打的。我倒是很希望看到卓洛一个人轰杀所有。
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21545#       发表于 2011-2-24 17:46
@@ -5848,7 +5848,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 这一批对手感觉路飞根本不用亲自出手 嘛正好可以看看草帽团整体的战斗力进步了多少
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 21546#       发表于 2011-2-24 17:56
@@ -5860,7 +5860,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 莫妲，在艾斯的封面故事里出现过的小女孩儿。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>是利卡啊，汉化版已经写的很明白了
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21547#       发表于 2011-2-24 18:00
@@ -5874,7 +5874,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 不过这个利卡之前有出现过么？
 
 
------
+*****
 
 ####  outrage  
 ##### 21548#       发表于 2011-2-24 18:03
@@ -5883,7 +5883,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer"> 期待修炼后 第一战 感觉这里的戏刚开始啊 有10年前、历史文本。。。期待展开
 
 
------
+*****
 
 ####  风听雨  
 ##### 21549#       发表于 2011-2-24 18:03
@@ -5898,7 +5898,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 我推测会引出萨波
 
 
------
+*****
 
 ####  rubicon  
 ##### 21550#       发表于 2011-2-24 18:04
@@ -5907,7 +5907,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 艾斯短篇里的那个牛奶妹?不是浅头发的么?记得脸上还有麻子
 
 
------
+*****
 
 ####  chaoslee  
 ##### 21551#       发表于 2011-2-24 18:06
@@ -5922,7 +5922,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 蒙卡事件里给ZORO送饭团吃
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21552#       发表于 2011-2-24 18:10
@@ -5935,7 +5935,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 另外萨波难吧，绿本里都说死了，很绝望啊。
 
 
------
+*****
 
 ####  PATLABOR  
 ##### 21553#       发表于 2011-2-24 18:44
@@ -5944,7 +5944,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 谁能阻甚平入城？？
 
 
------
+*****
 
 ####  gooas  
 ##### 21554#       发表于 2011-2-24 18:46
@@ -5953,7 +5953,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 娜米跟骗人布越来越有夫妻象了
 
 
------
+*****
 
 ####  jsyyyz  
 ##### 21555#       发表于 2011-2-24 19:05
@@ -5962,7 +5962,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">当年的小ｌｏｌｉ都长的亭亭玉立了啊
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 21556#       发表于 2011-2-24 20:17
@@ -5972,7 +5972,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 谁能阻甚平入城？？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>甚平自己不愿连累鱼人岛
 
 
------
+*****
 
 ####  你们都去死  
 ##### 21557#       发表于 2011-2-24 20:33
@@ -5984,7 +5984,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 赞同
 
 
------
+*****
 
 ####  =D_BOY=Damned  
 ##### 21558#       发表于 2011-2-24 21:34
@@ -5993,7 +5993,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 这架势，新渔人被ZORO秒，戴肯被路飞秒吗？始终觉得不对劲，一边觉得这些人物无法成为草帽团的试金石，一边又觉得战斗不艰苦的话如何对上预言巫婆的预言咧……
 
 
------
+*****
 
 ####  葵井巫女子  
 ##### 21559#       发表于 2011-2-24 22:08
@@ -6002,7 +6002,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 回忆篇里龙不是救了一个人么 那个不就是萨波么？
 
 
------
+*****
 
 ####  champion71  
 ##### 21560#       发表于 2011-2-24 22:19
@@ -6011,7 +6011,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 还是不能接受那只十年没洗过的黑手<img src="https://static.saraba1st.com/image/smiley/face/03.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lblqkgklf  
 ##### 21561#       发表于 2011-2-24 23:27
@@ -6020,7 +6020,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 范德·彪肯 踢珊瑚，扔珊瑚，踩珊瑚，外加那小胡子……尾田又找机会给鸟山明致敬了
 
 
------
+*****
 
 ####  莫吉  
 ##### 21562#       发表于 2011-2-24 23:39
@@ -6030,7 +6030,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 除非甚平对霍地
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21563#       发表于 2011-2-24 23:56
@@ -6042,7 +6042,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 卓洛：你们一起上
 
 
------
+*****
 
 ####  =D_BOY=Damned  
 ##### 21564#       发表于 2011-2-25 00:02
@@ -6051,7 +6051,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 我觉得ZORO单挑这么一个团不过分-_,-
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21565#       发表于 2011-2-25 00:13
@@ -6060,7 +6060,7 @@ ps:为什么大家认定大将一定是能力者? <[img src="http://images/back.
 zoro把这些鱼人全收拾了+1.
 
 
------
+*****
 
 ####  yzxdc  
 ##### 21566#       发表于 2011-2-25 01:16
@@ -6069,7 +6069,7 @@ zoro把这些鱼人全收拾了+1.
 大家已经吧那个2亿新人给忘了么
 
 
------
+*****
 
 ####  小带鱼  
 ##### 21567#       发表于 2011-2-25 01:30
@@ -6078,7 +6078,7 @@ zoro把这些鱼人全收拾了+1.
 - -这个不是明显索隆单挑霍地一群人嘛
 
 
------
+*****
 
 ####  Dracule·Mihawk  
 ##### 21568#       发表于 2011-2-25 07:11
@@ -6087,7 +6087,7 @@ zoro把这些鱼人全收拾了+1.
 罗罗诺亚：你们一起上
 
 
------
+*****
 
 ####  jojojo2  
 ##### 21569#       发表于 2011-2-25 13:21
@@ -6108,7 +6108,7 @@ http://v.youku.com/v_show/id_XMjMxMjU3MDE2.html
 http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 
 
------
+*****
 
 ####  =D_BOY=Damned  
 ##### 21570#       发表于 2011-2-25 17:50
@@ -6117,7 +6117,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 这个艺人界OP KING要看AVFUN的吐槽版~~
 
 
------
+*****
 
 ####  Snaky  
 ##### 21571#       发表于 2011-2-25 18:41
@@ -6127,7 +6127,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 范德·彪肯 踢珊瑚，扔珊瑚，踩珊瑚，外加那小胡子……尾田又找机会给鸟山明致敬了 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>我说怎么有种似曾相识的感觉
 
 
------
+*****
 
 ####  gooas  
 ##### 21572#       发表于 2011-2-25 19:28
@@ -6141,7 +6141,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 ....... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>看了下发现微微原来有被路飞打过脸啊 路飞果然也很时髦
 
 
------
+*****
 
 ####  bvbrother  
 ##### 21573#       发表于 2011-2-25 19:31
@@ -6150,7 +6150,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 只要踢打可爱就行了<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  faiths  
 ##### 21574#       发表于 2011-2-25 20:12
@@ -6163,7 +6163,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 更希望进入新世界以后再详细的画玩霸气的战斗
 
 
------
+*****
 
 ####  flll  
 ##### 21575#       发表于 2011-2-25 21:52
@@ -6172,7 +6172,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 每次涨赏金貌似都是因为对海军或相关机构造成打击，目前看来鱼人岛没海军什么事啊，当然或许之后会出现海军幕后操作什么的也说不定
 
 
------
+*****
 
 ####  虚空魔法师  
 ##### 21576#       发表于 2011-3-5 13:46
@@ -6181,7 +6181,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 本周又没有啊……<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21577#       发表于 2011-3-6 14:11
@@ -6192,7 +6192,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 好想买顶草帽
 
 
------
+*****
 
 ####  dongch007  
 ##### 21578#       发表于 2011-3-6 14:19
@@ -6202,7 +6202,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 不然父子俩都是最牛的狙击手还都活着有点冲突啊.........
 
 
------
+*****
 
 ####  yario  
 ##### 21579#       发表于 2011-3-6 14:51
@@ -6211,7 +6211,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 总帅+红发。。。绝配啊。。。
 
 
------
+*****
 
 ####  李剡s  
 ##### 21580#       发表于 2011-3-6 14:53
@@ -6220,7 +6220,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 红发的确酷，那个带猴子的是不是跟游骑士多玛有些亲缘关系呀
 
 
------
+*****
 
 ####  luffyplus  
 ##### 21581#       发表于 2011-3-6 16:42
@@ -6229,7 +6229,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 看到这楼出现，还以为情报出来了<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Dracule·Mihawk  
 ##### 21582#       发表于 2011-3-6 16:57
@@ -6238,7 +6238,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 结束了，回家睡觉打徒弟。
 
 
------
+*****
 
 ####  gooas  
 ##### 21583#       发表于 2011-3-6 17:22
@@ -6249,7 +6249,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 不然父子俩都是最牛的狙击手还都活着有点冲突啊......... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>骗人布已经不单是阻击手了他已经是植物召唤攻击系的了
 
 
------
+*****
 
 ####  8aa8aa8aa  
 ##### 21584#       发表于 2011-3-6 17:55
@@ -6260,7 +6260,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 不然父子俩都是最牛的狙击手还都活着有点冲突啊......... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>乌索普的目标是成为勇敢的海上战士，不是成为最厉害的狙击手
 
 
------
+*****
 
 ####  雅格特  
 ##### 21585#       发表于 2011-3-6 23:19
@@ -6273,7 +6273,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 红发超级酷啊。。。动画的气氛做得很好。。酷毙了~~
 
 
------
+*****
 
 ####  outrage  
 ##### 21586#       发表于 2011-3-7 00:11
@@ -6282,7 +6282,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 红发时髦值啊。。。不过黑胡子 想想就可怕啊 终极boss之类么。。。<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yzxdc  
 ##### 21587#       发表于 2011-3-7 01:17
@@ -6291,7 +6291,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 话说这集红发海贼团河黑胡子海贼团都一一配对了啊，以后要打一场？
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21588#       发表于 2011-3-8 18:34
@@ -6303,7 +6303,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 这要真打的话…红发得全灭吧！黑胡子灭的只剩主角队人数船员……否则主角怎么去干黑胡子呀
 
 
------
+*****
 
 ####  Crazy_Knife  
 ##### 21589#       发表于 2011-3-8 19:40
@@ -6315,7 +6315,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 这要真打的话…红发得全灭吧！黑胡子灭的只剩主角队人数船员……否则主角怎么去干黑胡子呀 <[img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AD  
 ##### 21590#       发表于 2011-3-8 20:16
@@ -6324,7 +6324,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 看到红狗就跑难道不是为了少惹麻烦上身还不到时候么，暗暗加震震加原战斗力要连红狗都打不过，还争啥海贼王
 
 
------
+*****
 
 ####  yario  
 ##### 21591#       发表于 2011-3-8 23:43
@@ -6334,7 +6334,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 结束了，回家睡觉打徒弟。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>看了下漫画，似乎还有好多集才能打上徒弟啊。
 
 
------
+*****
 
 ####  流浪的翅膀  
 ##### 21592#       发表于 2011-3-9 10:02
@@ -6343,7 +6343,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 本周还没情报么...
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21593#       发表于 2011-3-9 10:07
@@ -6353,7 +6353,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 以前〇酱不是说过恶魔果实的能力会按照使用次数跟方法提升的么...黑胡子估计觉得刚入手震震果实还没有完全摸透没自信打过红狗才闪人的吧...
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21594#       发表于 2011-3-9 10:33
@@ -6362,7 +6362,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 匪徒见了警察习惯性的跑路有啥奇怪的，但是认为这就代表匪徒干不过来抓他的警察就大错特错了。
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21595#       发表于 2011-3-9 11:51
@@ -6373,7 +6373,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 两年了，黑胡子和红狗之间不知怎样啦，也许笔锋一转，红狗被黑胡子做掉了…
 
 
------
+*****
 
 ####  dab23  
 ##### 21596#       发表于 2011-3-9 14:27
@@ -6386,7 +6386,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 山治再次悲剧
 
 
------
+*****
 
 ####  叉和圈的ELF  
 ##### 21597#       发表于 2011-3-9 14:47
@@ -6427,7 +6427,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 贴过来好了
 
 
------
+*****
 
 ####  moonmooncat  
 ##### 21598#       发表于 2011-3-9 15:07
@@ -6436,7 +6436,7 @@ http://v.youku.com/v_show/id_XMjQ0MDY4OTQ4.html
 SANJI以后就准备这么悲剧下去了吗<img src="https://static.saraba1st.com/image/smiley/face/190.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Nuriko  
 ##### 21599#       发表于 2011-3-9 15:12
@@ -6445,7 +6445,7 @@ SANJI以后就准备这么悲剧下去了吗<img src="https://static.saraba1st.c
 直接对霍迪啊，那豹藏呢。
 
 
------
+*****
 
 ####  aosng007  
 ##### 21600#       发表于 2011-3-9 15:16
@@ -6455,7 +6455,7 @@ SANJI以后就准备这么悲剧下去了吗<img src="https://static.saraba1st.c
 索隆必须一挑多啊<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21601#       发表于 2011-3-9 16:06
@@ -6464,7 +6464,7 @@ SANJI以后就准备这么悲剧下去了吗<img src="https://static.saraba1st.c
 索隆还用的一刀流 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21602#       发表于 2011-3-9 16:06
@@ -6473,7 +6473,7 @@ SANJI以后就准备这么悲剧下去了吗<img src="https://static.saraba1st.c
 索隆无双！
 
 
------
+*****
 
 ####  Snaky  
 ##### 21603#       发表于 2011-3-9 18:37
@@ -6483,7 +6483,7 @@ SANJI以后就准备这么悲剧下去了吗<img src="https://static.saraba1st.c
 看点集中在王宫和海之森了 不知道啥时候出回忆
 
 
------
+*****
 
 ####  小带鱼  
 ##### 21604#       发表于 2011-3-9 19:32
@@ -6492,7 +6492,7 @@ SANJI以后就准备这么悲剧下去了吗<img src="https://static.saraba1st.c
 - -基本除了秒杀霍地。。不然索隆换气绝对是个严重的问题
 
 
------
+*****
 
 ####  雲軒  
 ##### 21605#       发表于 2011-3-9 19:36
@@ -6501,7 +6501,7 @@ SANJI以后就准备这么悲剧下去了吗<img src="https://static.saraba1st.c
 乔巴让山治千万别回头看 不然会没命的（笑）
 
 
------
+*****
 
 ####  yario  
 ##### 21606#       发表于 2011-3-9 19:39
@@ -6510,7 +6510,7 @@ SANJI以后就准备这么悲剧下去了吗<img src="https://static.saraba1st.c
 海中战索隆行么？
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 21607#       发表于 2011-3-9 19:51
@@ -6519,7 +6519,7 @@ SANJI以后就准备这么悲剧下去了吗<img src="https://static.saraba1st.c
 SANJI已经进入人生走马灯状态了吗……
 
 
------
+*****
 
 ####  不败之狼  
 ##### 21608#       发表于 2011-3-9 19:51
@@ -6528,7 +6528,7 @@ SANJI已经进入人生走马灯状态了吗……
 果然为了平衡实力，把战场放到水地下了么。佐罗看来无法轻松获胜了
 
 
------
+*****
 
 ####  yario  
 ##### 21609#       发表于 2011-3-9 19:53
@@ -6537,7 +6537,7 @@ SANJI已经进入人生走马灯状态了吗……
 娜美一不做二不休，直接雷击的话会怎么样呢？
 
 
------
+*****
 
 ####  65535  
 ##### 21610#       发表于 2011-3-9 20:02
@@ -6548,7 +6548,7 @@ SANJI已经进入人生走马灯状态了吗……
 <[img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  西北偏北  
 ##### 21611#       发表于 2011-3-10 05:41
@@ -6559,7 +6559,7 @@ SANJI已经进入人生走马灯状态了吗……
 .
 
 
------
+*****
 
 ####  风听雨  
 ##### 21612#       发表于 2011-3-10 06:35
@@ -6571,7 +6571,7 @@ SANJI已经进入人生走马灯状态了吗……
 水中战的话索隆一VSN估计不太可能了，混战可能性更大
 
 
------
+*****
 
 ####  臙条巴  
 ##### 21613#       发表于 2011-3-10 07:44
@@ -6580,7 +6580,7 @@ SANJI已经进入人生走马灯状态了吗……
 是不是大家都把草帽团战力想像太高了...怎么觉得zoro要苦战
 
 
------
+*****
 
 ####  yingxshua  
 ##### 21614#       发表于 2011-3-10 07:52
@@ -6591,7 +6591,7 @@ SANJI已经进入人生走马灯状态了吗……
 是这新鱼人海贼团给人很水的感觉...
 
 
------
+*****
 
 ####  dab23  
 ##### 21615#       发表于 2011-3-10 08:41
@@ -6600,7 +6600,7 @@ SANJI已经进入人生走马灯状态了吗……
 估计战戴肯的是山治
 
 
------
+*****
 
 ####  faust123  
 ##### 21616#       发表于 2011-3-10 09:28
@@ -6609,7 +6609,7 @@ SANJI已经进入人生走马灯状态了吗……
 鲨鱼老大脑子很好的样子
 
 
------
+*****
 
 ####  coolcoolma  
 ##### 21617#       发表于 2011-3-10 12:08
@@ -6621,7 +6621,7 @@ SANJI已经进入人生走马灯状态了吗……
 这么下去 豹藏很有可能对上骷髅啊 毕竟骷髅也是用剑的 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>而且骷髅还有百毒不侵的外挂。。。
 
 
------
+*****
 
 ####  Snaky  
 ##### 21618#       发表于 2011-3-10 12:34
@@ -6633,7 +6633,7 @@ SANJI已经进入人生走马灯状态了吗……
 SANJI你就好好去找卡里布洗刷自己的冤屈吧 顺便夺还3位美丽的人鱼小姐
 
 
------
+*****
 
 ####  opdconan  
 ##### 21619#       发表于 2011-3-10 12:41
@@ -6642,7 +6642,7 @@ SANJI你就好好去找卡里布洗刷自己的冤屈吧 顺便夺还3位美丽�
 <img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">所以也许可能给索隆两格再出场就是回忆怎么溺掉的也说不定……
 
 
------
+*****
 
 ####  lxaihlj  
 ##### 21620#       发表于 2011-3-10 12:54
@@ -6651,7 +6651,7 @@ SANJI你就好好去找卡里布洗刷自己的冤屈吧 顺便夺还3位美丽�
 这一话笑点不少啊<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rubicon  
 ##### 21621#       发表于 2011-3-10 13:06
@@ -6660,7 +6660,7 @@ SANJI你就好好去找卡里布洗刷自己的冤屈吧 顺便夺还3位美丽�
 医生和厨师的FLAG立起来了<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dab23  
 ##### 21622#       发表于 2011-3-10 13:15
@@ -6669,7 +6669,7 @@ SANJI你就好好去找卡里布洗刷自己的冤屈吧 顺便夺还3位美丽�
 路飞都碰到山治了，肯定是山治战戴肯，索隆战霍迪，路飞战白星<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  布鲁克  
 ##### 21623#       发表于 2011-3-10 13:49
@@ -6680,7 +6680,7 @@ SANJI你就好好去找卡里布洗刷自己的冤屈吧 顺便夺还3位美丽�
 而且骷髅还有百毒不侵的外挂。。。 <[img src="https://static.saraba1st.com/image/smiley/face/118.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alecwong  
 ##### 21624#       发表于 2011-3-10 13:51
@@ -6691,7 +6691,7 @@ zoro时髦值爆棚了
 <img src="http://i.imgur.com/EG5qE.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  梅花刺青  
 ##### 21625#       发表于 2011-3-10 13:55
@@ -6701,7 +6701,7 @@ zoro时髦值爆棚了
 另，熊猫又上不去了，唉……
 
 
------
+*****
 
 ####  nstxy  
 ##### 21626#       发表于 2011-3-10 15:09
@@ -6710,7 +6710,7 @@ zoro时髦值爆棚了
 我觉得索罗会被凯米救<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  outrage  
 ##### 21627#       发表于 2011-3-10 15:28
@@ -6719,7 +6719,7 @@ zoro时髦值爆棚了
 <img src="https://static.saraba1st.com/image/smiley/face/79.gif" referrerpolicy="no-referrer"> 山治你不能辜负群众们的期望啊 一定要回头啊。。。
 
 
------
+*****
 
 ####  阿耨多罗  
 ##### 21628#       发表于 2011-3-10 15:33
@@ -6728,7 +6728,7 @@ zoro时髦值爆棚了
 OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gooas  
 ##### 21629#       发表于 2011-3-10 15:48
@@ -6737,7 +6737,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 厨师不是应该把戴肯轰飞才对的吗
 
 
------
+*****
 
 ####  luffyplus  
 ##### 21630#       发表于 2011-3-10 15:48
@@ -6746,7 +6746,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 霍地这大肚子。。。一点都不霸气啊<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  PFP  
 ##### 21631#       发表于 2011-3-10 16:07
@@ -6755,7 +6755,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 说起来，熊猫论坛挂了？
 
 
------
+*****
 
 ####  zephyr3  
 ##### 21632#       发表于 2011-3-10 16:28
@@ -6764,7 +6764,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 草帽团变强以后果然要先放在水里吃瘪。。。熊猫今天确实上不去，明明昨天还好好的<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  PFP  
 ##### 21633#       发表于 2011-3-10 17:07
@@ -6773,7 +6773,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 我昨天想上去看情报就已经上不去了……
 
 
------
+*****
 
 ####  周濑唯架  
 ##### 21634#       发表于 2011-3-10 17:15
@@ -6782,7 +6782,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 索隆在水里能打吗？
 
 
------
+*****
 
 ####  qubely  
 ##### 21635#       发表于 2011-3-10 17:21
@@ -6791,7 +6791,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 索隆水战要是打不赢不嗑药的霍迪，那他也别去新世界了，也别说他是鹰眼的徒弟<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nuoer  
 ##### 21636#       发表于 2011-3-10 17:23
@@ -6800,7 +6800,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 索隆这是要一人战一堆了 霍迪后面还好多人呢
 
 
------
+*****
 
 ####  nuoer  
 ##### 21637#       发表于 2011-3-10 17:26
@@ -6809,7 +6809,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 话说在水下就没法用三刀流了
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21638#       发表于 2011-3-10 17:49
@@ -6818,7 +6818,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 最早和熊猫一个家伙讨论的时候还坚定的感觉霍迪要上船的：总归有个鱼人/人鱼上船才比较好，毕竟这是一个自由的海贼团，平等的海贼团，一个被歧视的种族上船更能体现这点。结果情报一出来霍地这逼——我没看错的拿手下的【鱼人】做了盾牌挡住索隆的气斩。傻逼霍地，你死定了，背叛伙伴的一定会被插死，这是铁律，草帽团也不可能会让一个无视自己下属的人上船。
 
 
------
+*****
 
 ####  DNA  
 ##### 21639#       发表于 2011-3-10 20:37
@@ -6827,7 +6827,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 娜美干啥去了呢？
 
 
------
+*****
 
 ####  yario  
 ##### 21640#       发表于 2011-3-10 22:21
@@ -6836,7 +6836,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 第九人除了甚平还有别人像么？
 
 
------
+*****
 
 ####  传说中的  
 ##### 21641#       发表于 2011-3-10 22:52
@@ -6846,7 +6846,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 娜美干啥去了呢？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>埋陷阱把鱼人一次给秒了?
 
 
------
+*****
 
 ####  南宮太平  
 ##### 21642#       发表于 2011-3-10 22:53
@@ -6858,7 +6858,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 他們還是趁早散伙回家洗洗睡了算吧 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  传说中的  
 ##### 21643#       发表于 2011-3-10 22:56
@@ -6868,7 +6868,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 索罗用一口气的时间把他给砍了. 然后娜美触发最后一击剧情.
 
 
------
+*****
 
 ####  kvkv  
 ##### 21644#       发表于 2011-3-10 22:56
@@ -6877,7 +6877,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 霍迪不就是拿来展示新招式的么  <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21645#       发表于 2011-3-10 23:29
@@ -6888,7 +6888,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 +1
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 21646#       发表于 2011-3-11 00:02
@@ -6897,7 +6897,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 这几个boss都没啥好感，灭了吧
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21647#       发表于 2011-3-11 00:13
@@ -6908,7 +6908,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 霍迪上船还不如卡里布上船靠谱儿呢，“总归有个鱼人/人鱼上船”和“总归有个自然系上船”在理论上根本就没有本质区别。
 
 
------
+*****
 
 ####  rubicon  
 ##### 21648#       发表于 2011-3-11 00:15
@@ -6917,7 +6917,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 因为现在看见一个新角色就想让他上船
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21649#       发表于 2011-3-11 00:33
@@ -6931,7 +6931,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 至于卡布里？这才是最逗的，卡布里从开始杀海军的时候开始，就已经是个十足的混球垃圾了，草帽团可能有”坏“人，可没有混球和垃圾。
 
 
------
+*****
 
 ####  传说中的  
 ##### 21650#       发表于 2011-3-11 00:53
@@ -6940,7 +6940,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 鱼人不是很牛B么,为什么之前被一直虐的?
 
 
------
+*****
 
 ####  yzxdc  
 ##### 21651#       发表于 2011-3-11 01:46
@@ -6949,7 +6949,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 新伙伴很明显是那只章鱼么，还用猜？
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21652#       发表于 2011-3-11 02:51
@@ -6958,7 +6958,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 杀海军怎么就成混蛋了，大航线外的海军还能说维持一方治安，海军总部周围的海军可是直接给奴隶贩子当帮凶的。
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21653#       发表于 2011-3-11 02:53
@@ -6971,7 +6971,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 看看漫区有没有人突破下限。
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21654#       发表于 2011-3-11 06:35
@@ -6981,7 +6981,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 还有说索隆不能水下战的，库拉肯一个触手是被几刀流什么招砍掉的还记得么ww
 
 
------
+*****
 
 ####  风听雨  
 ##### 21655#       发表于 2011-3-11 06:39
@@ -6990,7 +6990,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 恶龙这次时髦值刷的有点过高了，感觉WT考虑的还是不太周全。。。。
 
 
------
+*****
 
 ####  hispeed  
 ##### 21656#       发表于 2011-3-11 08:28
@@ -6999,7 +6999,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 感觉山治迟些要对上那个扔东西的变态佬（名字忘了）
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21657#       发表于 2011-3-11 14:56
@@ -7013,7 +7013,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 至于某楼我就懒得说了，“杀海军怎么就成了坏人”如果你能理解这是一部少漫，你就能理解为什么杀海军（还是个小卒子）的行为是“坏”。
 
 
------
+*****
 
 ####  rubicon  
 ##### 21658#       发表于 2011-3-11 15:07
@@ -7022,7 +7022,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 阿龙根正苗红的革命好青年,跟他的人怎么会不对?
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21659#       发表于 2011-3-11 16:40
@@ -7038,7 +7038,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 好好看看现在的这些伙伴，有哪个是挑头张罗着毁灭国家这种“理想”的？更何况尼普顿的国家看起来也还挺稳定的。
 
 
------
+*****
 
 ####  Nuriko  
 ##### 21660#       发表于 2011-3-11 17:02
@@ -7055,7 +7055,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 复杂点说么霍迪可能与王妃的死有所关联……
 
 
------
+*****
 
 ####  Cheir  
 ##### 21661#       发表于 2011-3-11 21:11
@@ -7064,7 +7064,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 布鲁克的威能还没彻底爆过……现在还一直很废……
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21662#       发表于 2011-3-11 21:27
@@ -7073,7 +7073,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 布鲁克是用来笑的
 
 
------
+*****
 
 ####  cloudhp7777  
 ##### 21663#       发表于 2011-3-11 21:45
@@ -7082,7 +7082,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 今天看来，拥有震震果实的白胡子，果然是最强男人
 
 
------
+*****
 
 ####  renious  
 ##### 21664#       发表于 2011-3-11 23:19
@@ -7091,7 +7091,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 的确，有地震了，海啸火灾各种奇怪自然灾害都来了
 
 
------
+*****
 
 ####  传说中的  
 ##### 21665#       发表于 2011-3-12 00:47
@@ -7100,7 +7100,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 同事说最暴力的就是用能力把山治丢白星上........
 
 
------
+*****
 
 ####  DJC  
 ##### 21666#       发表于 2011-3-12 00:51
@@ -7109,7 +7109,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 山治一回头血就喷光了吧........
 
 
------
+*****
 
 ####  dabowe  
 ##### 21667#       发表于 2011-3-12 05:08
@@ -7125,7 +7125,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 难道理由就是……霍地其实是甚平之前口中所说的那位王妃的私生子什么的？所以不想路飞伤害他？（无责任猜想！）
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21668#       发表于 2011-3-12 05:22
@@ -7138,7 +7138,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 <[img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">这什么狗血剧情...
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21669#       发表于 2011-3-12 07:51
@@ -7148,7 +7148,7 @@ OP所有事件都是一天内解决的<img src="https://static.saraba1st.com/ima
 算了，果然是下限突破，连人口贩子和帮凶都要洗地。
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21670#       发表于 2011-3-12 08:29
@@ -7168,7 +7168,7 @@ ps，回复楼上的朋友，乔巴的存在对磁鼓国以外的人来说——
 pps，为了非要整一个人上船是来源自最早的一个“假传言”，如果你还有印象的话，那个传言说“海贼王将来会死掉路飞的一个亲戚，船上将凑满10个（即是路飞刚出海时他自己喊的人数“等等，所有人都认为是假消息，结果一一成真。所以假设这个传言真，那么船上该再来一个成员了，猜测这个成员的过程也蛮有意思。
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21671#       发表于 2011-3-12 08:50
@@ -7181,7 +7181,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 真看不懂。<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21672#       发表于 2011-3-12 08:56
@@ -7190,7 +7190,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 不能因为漫画表现手法是揍飞就理解为海贼杀海军就是恶棍啊...真要说的话罗杰白胡子红发他们会少杀过海军么？
 
 
------
+*****
 
 ####  hispeed  
 ##### 21673#       发表于 2011-3-12 08:59
@@ -7199,7 +7199,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 对了 这次地震尾田大人没事吧？怕怕
 
 
------
+*****
 
 ####  不败之狼  
 ##### 21674#       发表于 2011-3-12 10:55
@@ -7209,7 +7209,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 对了 这次地震尾田大人没事吧？怕怕 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>这就是白胡子的力量啊！
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21675#       发表于 2011-3-12 10:58
@@ -7218,7 +7218,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 燃夜郎君其实很喜欢天龙人吧，因为每次都很好用
 
 
------
+*****
 
 ####  南宮太平  
 ##### 21676#       发表于 2011-3-12 11:52
@@ -7230,7 +7230,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 因為她們幫助四處引發騷動惡名昭彰的草帽一行人, 所以死了活該? <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  faiths  
 ##### 21677#       发表于 2011-3-12 12:08
@@ -7239,7 +7239,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 你们丫看漫画就好好看漫画 想讨论傻逼价值观移步去外野那里大把的人跟你们丫扯淡 别来糟蹋这楼
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21678#       发表于 2011-3-12 12:23
@@ -7253,7 +7253,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 其实我也觉得奇怪，泥浆人抓人鱼他们不管，反而看到泥浆人杀海军这种和海贼天然对手，就一下high得不行。
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21679#       发表于 2011-3-12 13:26
@@ -7263,7 +7263,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 这是什么情况？不会又来斯科特那贴的：我就是说反话引你们出来这招吧
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21680#       发表于 2011-3-12 13:29
@@ -7273,7 +7273,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 卡布里明显就是一个杂鱼相的坏人么。
 
 
------
+*****
 
 ####  opdconan  
 ##### 21681#       发表于 2011-3-12 16:38
@@ -7291,7 +7291,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">算了，打了很多字，不想打了，就这样吧
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21682#       发表于 2011-3-12 17:47
@@ -7303,7 +7303,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 我记得这个传言当初就确认是采访时候尾田亲自说的吧。
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21683#       发表于 2011-3-12 18:07
@@ -7312,7 +7312,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 <img src="https://static.saraba1st.com/image/smiley/face/152.gif" referrerpolicy="no-referrer"> 话说老板娘那算不算见闻色的变种...
 
 
------
+*****
 
 ####  arcturus  
 ##### 21684#       发表于 2011-3-12 18:48
@@ -7321,7 +7321,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 尾田你不能有事啊！！！
 
 
------
+*****
 
 ####  白河亜紀  
 ##### 21685#       发表于 2011-3-13 09:09
@@ -7330,7 +7330,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 霍迪或许是王妃和肾贫的爱情结晶<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lblqkgklf  
 ##### 21686#       发表于 2011-3-13 14:09
@@ -7339,7 +7339,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 尾田在想方设法给恶龙刷时髦值，不过恶龙出场太早了，而且东海的水准跟伟大航道差距太大，又是最弱的海，更别提现在都快进“新世界”了。霍迪说恶龙从东海开始统治世界这说法实在是太搞笑了，东海那破地方，进了伟大航道后没人还会稀罕
 
 
------
+*****
 
 ####  jsyyyz  
 ##### 21687#       发表于 2011-3-13 14:17
@@ -7352,7 +7352,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 进伟大航路一下就会被斯莫格打趴
 
 
------
+*****
 
 ####  yunluo  
 ##### 21688#       发表于 2011-3-13 14:33
@@ -7363,7 +7363,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 参照大灾变，下一个版本四海实力升级。除了东海和伟大航道，其他地方还没去过，怎么能算全世界最自由的海贼？最后应该回归四海的吧
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21689#       发表于 2011-3-13 15:07
@@ -7375,7 +7375,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 尽管当时的路飞还没升级，但砂鳄的补丁打起来就方便得多。
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21690#       发表于 2011-3-13 17:28
@@ -7393,7 +7393,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 恶龙确实是比较面
 
 
------
+*****
 
 ####  opdconan  
 ##### 21691#       发表于 2011-3-13 18:02
@@ -7405,7 +7405,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 沙鳄和艾尼路绝对是这漫画黑暗期，不跑出来照势走下去就完了，就像时髦漫……好在WT越来越会找理由和找结果，沙鳄以后，艾尼路就写成boss傲慢自大蔑视路飞一伙只是想回到神该回去的地方，到了莫莉亚就开始弱化boss（七武海时髦值毁于一旦，没错，就是一旦……），强化主角，然后boss自爆，再然后还要重创主角队伍找下平衡，最后干脆团灭洗牌升级，同时成功拉回海军（3+2）七武海（女帝吉贝尔）新世界海贼（各种）的时髦值。时髦神和太子忍就在光环的照耀下越走越远，结果……
 
 
------
+*****
 
 ####  雅格特  
 ##### 21692#       发表于 2011-3-13 18:26
@@ -7416,7 +7416,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 最大的问题是转身。。。。鲨鱼啊！！！！海中之王。。。。zoro这完全游泳状态能打赢霍迪。。。那觉得无敌天下了。。。
 
 
------
+*****
 
 ####  ff1982  
 ##### 21693#       发表于 2011-3-13 19:04
@@ -7425,7 +7425,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 其实2龙才是最终BOSS
 
 
------
+*****
 
 ####  DGIL  
 ##### 21694#       发表于 2011-3-13 22:24
@@ -7434,7 +7434,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">恶龙、、？打得过弹簧人贝米拉么。。
 
 
------
+*****
 
 ####  白河亜紀  
 ##### 21695#       发表于 2011-3-13 22:55
@@ -7444,7 +7444,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer"></blockquote>不下水的话，贝拉米还是有希望的
 
 
------
+*****
 
 ####  faiths  
 ##### 21696#       发表于 2011-3-13 23:16
@@ -7453,7 +7453,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 <img src="https://static.saraba1st.com/image/smiley/face/08.gif" referrerpolicy="no-referrer">1500万的巴基都要当上七武海了 2000万的恶龙刷刷时髦值也没啥的。。。
 
 
------
+*****
 
 ####  flll  
 ##### 21697#       发表于 2011-3-13 23:23
@@ -7462,7 +7462,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 这是要让东海翻身了吗？
 
 
------
+*****
 
 ####  日向超  
 ##### 21698#       发表于 2011-3-13 23:23
@@ -7473,7 +7473,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 你不能这样硬套啊！搞得好像弗利萨的悬赏才53万一样
 
 
------
+*****
 
 ####  wingchau  
 ##### 21699#       发表于 2011-3-15 17:28
@@ -7525,7 +7525,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 两&amp;quot;BOSS&amp;quot;被秒杀.<img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21700#       发表于 2011-3-15 19:03
@@ -7534,7 +7534,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 山治好样的！真男人！
 
 
------
+*****
 
 ####  zzzsu  
 ##### 21701#       发表于 2011-3-15 21:21
@@ -7543,7 +7543,7 @@ pps，为了非要整一个人上船是来源自最早的一个“假传言”�
 sanji果然是真绅士
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21702#       发表于 2011-3-15 23:14
@@ -7552,7 +7552,7 @@ sanji果然是真绅士
 感觉很假啊……
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21703#       发表于 2011-3-16 00:41
@@ -7561,7 +7561,7 @@ sanji果然是真绅士
 这个情报是真的，已经各方都认证了。
 
 
------
+*****
 
 ####  aosng007  
 ##### 21704#       发表于 2011-3-16 10:22
@@ -7577,7 +7577,7 @@ sanji果然是真绅士
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flll  
 ##### 21705#       发表于 2011-3-16 11:01
@@ -7587,7 +7587,7 @@ sanji果然是真绅士
 坐等真BOSS出场
 
 
------
+*****
 
 ####  luffyplus  
 ##### 21706#       发表于 2011-3-16 12:09
@@ -7596,7 +7596,7 @@ sanji果然是真绅士
 卧槽哦，这泥马难道是传说中的一击必杀。。。。<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qubely  
 ##### 21707#       发表于 2011-3-16 17:37
@@ -7605,7 +7605,7 @@ sanji果然是真绅士
 一击必杀才合理
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 21708#       发表于 2011-3-16 22:10
@@ -7614,7 +7614,7 @@ sanji果然是真绅士
 他俩不会这么不济的，人鱼岛的战斗才刚刚开始
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21709#       发表于 2011-3-16 23:33
@@ -7626,7 +7626,7 @@ sanji果然是真绅士
 不过也没准，大海海底如此广阔，也难保没有远超我估计的强者。
 
 
------
+*****
 
 ####  勇卡斯  
 ##### 21710#       发表于 2011-3-17 00:54
@@ -7638,7 +7638,7 @@ sanji果然是真绅士
 其实我也觉得奇怪，泥浆人抓人鱼他们不管，反而看到泥浆人杀海军这种和海贼天然对手，就一下high得不行。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>为什么我每次看到这ID都是在和别人战……
 
 
------
+*****
 
 ####  qubely  
 ##### 21711#       发表于 2011-3-17 05:05
@@ -7647,7 +7647,7 @@ sanji果然是真绅士
 目前鱼人岛登场的高手只有吉贝尔和豹藏，这两个人基本不会和草帽发生大冲突
 
 
------
+*****
 
 ####  hispeed  
 ##### 21712#       发表于 2011-3-17 08:01
@@ -7656,7 +7656,7 @@ sanji果然是真绅士
 名副其实的“杂鱼”
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 21713#       发表于 2011-3-17 09:06
@@ -7665,7 +7665,7 @@ sanji果然是真绅士
 汉化看完，618两个boss都不太给力，靠这两位恐怕验不出草帽团的战斗力
 
 
------
+*****
 
 ####  aosng007  
 ##### 21714#       发表于 2011-3-17 10:18
@@ -7674,7 +7674,7 @@ sanji果然是真绅士
 绿藻头战斗力逆天了呀~~~~~~~~~~
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21715#       发表于 2011-3-17 10:38
@@ -7692,7 +7692,7 @@ sanji果然是真绅士
 索隆的时髦值已经涨到爆了，而且目前看起来还远远没有到顶……
 
 
------
+*****
 
 ####  DJC  
 ##### 21716#       发表于 2011-3-17 10:58
@@ -7701,7 +7701,7 @@ sanji果然是真绅士
 那绳子有那么牢么，按路飞的实力不应该一下就爆掉么........
 
 
------
+*****
 
 ####  钢の魂  
 ##### 21717#       发表于 2011-3-17 11:03
@@ -7710,7 +7710,7 @@ sanji果然是真绅士
 大号版娜美真爱哭啊
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21718#       发表于 2011-3-17 11:44
@@ -7720,7 +7720,7 @@ sanji果然是真绅士
 晚饭前回家的女孩子最好了<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  232844781  
 ##### 21719#       发表于 2011-3-17 12:42
@@ -7730,7 +7730,7 @@ sanji果然是真绅士
 那绳子有那么牢么，按路飞的实力不应该一下就爆掉么........ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>“你别以为我打不过你，我只是不想伤及无辜”
 
 
------
+*****
 
 ####  232844781  
 ##### 21720#       发表于 2011-3-17 12:43
@@ -7741,7 +7741,7 @@ sanji果然是真绅士
 但是看到他们被秒杀之后又总觉得不对劲呢？
 
 
------
+*****
 
 ####  不知火时  
 ##### 21721#       发表于 2011-3-17 12:45
@@ -7753,7 +7753,7 @@ sanji果然是真绅士
 什么！！你讲的是公主！！！
 
 
------
+*****
 
 ####  Snaky  
 ##### 21722#       发表于 2011-3-17 13:33
@@ -7766,7 +7766,7 @@ sanji果然是真绅士
 甚平作为了解整个鱼人岛10年来龙去脉之人 应该能在未来3话内告诉读者答案
 
 
------
+*****
 
 ####  Loony  
 ##### 21723#       发表于 2011-3-17 13:54
@@ -7775,7 +7775,7 @@ sanji果然是真绅士
 你们都说恶龙前后BUG，现在不BUG了吧
 
 
------
+*****
 
 ####  山德士上校  
 ##### 21724#       发表于 2011-3-17 14:49
@@ -7785,7 +7785,7 @@ sanji果然是真绅士
 你们都说恶龙前后BUG，现在不BUG了吧 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>+1
 
 
------
+*****
 
 ####  jsyyyz  
 ##### 21725#       发表于 2011-3-17 15:06
@@ -7800,7 +7800,7 @@ sanji果然是真绅士
 这回你主场,把你彻底轰杀,你还有啥好说得<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lblqkgklf  
 ##### 21726#       发表于 2011-3-17 15:10
@@ -7818,7 +7818,7 @@ sanji果然是真绅士
 莫利亚的设定也很有意思，虽然从莫利亚开始，七武海的时髦值突然暴跌，不过漫画里提到过莫利亚曾经跟四皇死磕过，但是堂吉诃德提到手刃莫利亚的语气轻松惬意，并且还对ZF表达了不屑一顾，只要有这个“伏笔”/“补丁”，七武海的时髦值随时都能暴涨。而且这个“伏笔”可以看出在尾田的设定里，四皇和七武海的实力都是参差不齐的，白胡子是世界第一，其余的四皇未必也很强，莫利亚太菜可以说是过气，也可以说是七武海实力差距很大。不得不说尾田在剧情的严谨性上还是狠下了一番功夫的。
 
 
------
+*****
 
 ####  兰蒂斯  
 ##### 21727#       发表于 2011-3-17 15:46
@@ -7827,7 +7827,7 @@ sanji果然是真绅士
 第三类里少了毒龙，个人还是满喜欢毒龙的
 
 
------
+*****
 
 ####  hispeed  
 ##### 21728#       发表于 2011-3-17 16:52
@@ -7836,7 +7836,7 @@ sanji果然是真绅士
 烟男前期属于第三类，后期应该在第二类
 
 
------
+*****
 
 ####  ナミ  
 ##### 21729#       发表于 2011-3-17 17:24
@@ -7847,7 +7847,7 @@ sanji果然是真绅士
 这算是间接的赞美吗<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yario  
 ##### 21730#       发表于 2011-3-17 17:46
@@ -7856,7 +7856,7 @@ sanji果然是真绅士
 可以宣布路飞进入顶级高手级别，只不过离传说级还有很大距离。
 
 
------
+*****
 
 ####  传说中的  
 ##### 21731#       发表于 2011-3-17 23:03
@@ -7866,7 +7866,7 @@ sanji果然是真绅士
 话说那个荷兰人怎么那么耐打?路飞没想杀他?
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21732#       发表于 2011-3-17 23:22
@@ -7876,7 +7876,7 @@ sanji果然是真绅士
 恶龙应该算是一流到一流强之间的boss……
 
 
------
+*****
 
 ####  日向超  
 ##### 21733#       发表于 2011-3-17 23:44
@@ -7885,7 +7885,7 @@ sanji果然是真绅士
 客观的讲就是现在的路飞在不爆种的情况就能和路奇平分秋色了吧
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 21734#       发表于 2011-3-18 00:42
@@ -7894,7 +7894,7 @@ sanji果然是真绅士
 这话路飞的攻击都没缠上霸气吧
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21735#       发表于 2011-3-18 01:02
@@ -7905,7 +7905,7 @@ sanji果然是真绅士
 现在的路奇已经不够看了吧，当然估计还是可以过过招的。
 
 
------
+*****
 
 ####  jsyyyz  
 ##### 21736#       发表于 2011-3-18 06:23
@@ -7918,7 +7918,7 @@ sanji果然是真绅士
 现在不开档估计是很占上风,开了档直接秒了吧
 
 
------
+*****
 
 ####  muderx  
 ##### 21737#       发表于 2011-3-18 06:36
@@ -7927,7 +7927,7 @@ sanji果然是真绅士
 鱼人岛的大boss和黑手可能是4皇之一的那个保护鱼人岛的家伙，这2杂鱼的背后也应该是她。所以路飞被警告不要对这2个杂鱼出手，可能是因为不想让路飞惹上4皇之一。当然鱼人岛不太可能就和4皇之一决战，但是肯定要留下伏笔。
 
 
------
+*****
 
 ####  舰载型美羽  
 ##### 21738#       发表于 2011-3-18 17:55
@@ -7936,7 +7936,7 @@ sanji果然是真绅士
 我觉得那个四皇有可能是个搞笑的角色啊
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21739#       发表于 2011-3-18 18:45
@@ -7949,7 +7949,7 @@ sanji果然是真绅士
 感觉甚平那句话，这个原因最靠谱了。
 
 
------
+*****
 
 ####  opdconan  
 ##### 21740#       发表于 2011-3-18 19:19
@@ -7960,7 +7960,7 @@ sanji果然是真绅士
 <img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">）。不过那感觉好像又会反过来有大把大把人类悲剧……（咦？）话说这不是问题的关键……（也许？）
 
 
------
+*****
 
 ####  Dracule·Mihawk  
 ##### 21741#       发表于 2011-3-18 20:56
@@ -7969,7 +7969,7 @@ sanji果然是真绅士
 作为以最强剑士为目标的罗罗诺亚，地形适性必须要达到全S。
 
 
------
+*****
 
 ####  outrage  
 ##### 21742#       发表于 2011-3-18 21:17
@@ -7978,7 +7978,7 @@ sanji果然是真绅士
 <img src="https://static.saraba1st.com/image/smiley/face/10.gif" referrerpolicy="no-referrer"> ls的项上人头可能啥时候就被搬了
 
 
------
+*****
 
 ####  咩酱  
 ##### 21743#       发表于 2011-3-18 21:50
@@ -7987,7 +7987,7 @@ sanji果然是真绅士
 花了几十个小时把700多层楼爬完了,虽然看的不咋仔细还是好累啊.留念
 
 
------
+*****
 
 ####  传说中的  
 ##### 21744#       发表于 2011-3-18 23:30
@@ -7996,7 +7996,7 @@ sanji果然是真绅士
 索罗是这2年修行中,老师是最强的吧
 
 
------
+*****
 
 ####  gbbbbbbbbbb  
 ##### 21745#       发表于 2011-3-19 00:31
@@ -8005,7 +8005,7 @@ sanji果然是真绅士
 楼上,你当冥王是神马
 
 
------
+*****
 
 ####  tgl10  
 ##### 21746#       发表于 2011-3-19 00:50
@@ -8014,7 +8014,7 @@ sanji果然是真绅士
 还期望索隆吃瘪?一个眼都搭进去了
 
 
------
+*****
 
 ####  玻璃蔷薇  
 ##### 21747#       发表于 2011-3-19 00:50
@@ -8026,7 +8026,7 @@ sanji果然是真绅士
 堂吉诃德的星辰傀儡线就是暗杀用能力，就连沙鳄也是一不小心就被他无声无息砍掉脑袋，要不是自然系身体等于被秒杀了。他对月光是直接偷袭重创本体，不是明杀，当然轻松，世界第一的老爹也挡不住背后被人捅刀啊。
 
 
------
+*****
 
 ####  传说中的  
 ##### 21748#       发表于 2011-3-19 02:11
@@ -8036,7 +8036,7 @@ sanji果然是真绅士
 楼上,你当冥王是神马 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>冥王就一个老头子咯,既然他是用剑的,鹰眼已经称第一剑豪了,他的时代早过去了.
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21749#       发表于 2011-3-19 02:52
@@ -8048,7 +8048,7 @@ sanji果然是真绅士
 <img src="https://static.saraba1st.com/image/smiley/face/129.gif" referrerpolicy="no-referrer">再还有鸽子男说不定3年里面自学修得石破天惊拳跟长颈鹿学了斩空天翔剑抢了一台强弩兵什么的（拖
 
 
------
+*****
 
 ####  森田美位子  
 ##### 21750#       发表于 2011-3-19 05:55
@@ -8057,7 +8057,7 @@ sanji果然是真绅士
 只有我一个人觉得，索隆的那只左眼不是真正的瞎了，只是暂时封印起来的吗？
 
 
------
+*****
 
 ####  szrxs  
 ##### 21751#       发表于 2011-3-19 06:15
@@ -8066,7 +8066,7 @@ sanji果然是真绅士
 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">所谓很危险就是肯定有后路吧……不过这时毛值刷得太厉害了啊
 
 
------
+*****
 
 ####  拾下拾下仔  
 ##### 21752#       发表于 2011-3-19 06:24
@@ -8078,7 +8078,7 @@ sanji果然是真绅士
 话说,疯子扔的斧头上面的花纹怎么觉得有点眼熟?是前几话提过还是什么来的?
 
 
------
+*****
 
 ####  拾下拾下仔  
 ##### 21753#       发表于 2011-3-19 06:27
@@ -8089,7 +8089,7 @@ sanji果然是真绅士
 zoro好像 很少用鬼彻一刀流的哦?
 
 
------
+*****
 
 ####  zealotssas  
 ##### 21754#       发表于 2011-3-19 06:30
@@ -8099,7 +8099,7 @@ zoro好像 很少用鬼彻一刀流的哦?
 花了几十个小时把700多层楼爬完了,虽然看的不咋仔细还是好累啊.留念 <[img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">这就是满满的爱呀
 
 
------
+*****
 
 ####  肥某人  
 ##### 21755#       发表于 2011-3-19 07:14
@@ -8108,7 +8108,7 @@ zoro好像 很少用鬼彻一刀流的哦?
 话说每次只要提到失落的百年和大战争这两个要素，就会有超古代兵器出现，这次也不会例外吧。感觉奈美和罗宾的反应都在暗示这一点。
 
 
------
+*****
 
 ####  PATLABOR  
 ##### 21756#       发表于 2011-3-19 08:19
@@ -8121,7 +8121,7 @@ zoro好像 很少用鬼彻一刀流的哦?
 zoro 是 处女座的么？
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21757#       发表于 2011-3-19 09:06
@@ -8130,7 +8130,7 @@ zoro 是 处女座的么？
 <img src="https://static.saraba1st.com/image/smiley/face/118.gif" referrerpolicy="no-referrer"> 那不是传统意义上的中二邪气眼设定么？
 
 
------
+*****
 
 ####  Futanari  
 ##### 21758#       发表于 2011-3-19 09:34
@@ -8139,7 +8139,7 @@ zoro 是 处女座的么？
 人鱼公主被路飞训的服服帖帖的。。。 山治石化了 可怜的山治待遇太差了
 
 
------
+*****
 
 ####  Cheir  
 ##### 21759#       发表于 2011-3-19 09:55
@@ -8149,7 +8149,7 @@ zoro 是 处女座的么？
 你们都说恶龙前后BUG，现在不BUG了吧 <[img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">鱼人混混都是自大狂呢
 
 
------
+*****
 
 ####  Cheir  
 ##### 21760#       发表于 2011-3-19 09:59
@@ -8158,7 +8158,7 @@ zoro 是 处女座的么？
 看到他们现在这么强，我又想起了熊君，真是用心良苦、心思细密而忠诚巨人。好想念熊啊……<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cheir  
 ##### 21761#       发表于 2011-3-19 10:03
@@ -8168,7 +8168,7 @@ zoro 是 处女座的么？
 鱼人岛的大boss和黑手可能是4皇之一的那个保护鱼人岛的家伙，这2杂鱼的背后也应该是她。所以路飞被警告不要对这2个杂鱼出手，可能是因为不想让路飞惹上4皇之一。当然鱼人岛不太可能就和4皇之一决战，但是肯定要留下伏笔。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>那个黑色style的人鱼的预言貌似很劲爆，所以我觉得还真有可能跟大人物磕上一回啊。
 
 
------
+*****
 
 ####  dawn34  
 ##### 21762#       发表于 2011-3-19 10:20
@@ -8179,7 +8179,7 @@ zoro 是 处女座的么？
 从剧情上来说，有个叫做陆奥天斗跟柳生十兵卫的人
 
 
------
+*****
 
 ####  wingchau  
 ##### 21763#       发表于 2011-3-19 11:34
@@ -8190,7 +8190,7 @@ zoro 是 处女座的么？
 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>这么推的话那红发也打不过鹰眼了.
 
 
------
+*****
 
 ####  kvkv  
 ##### 21764#       发表于 2011-3-19 13:11
@@ -8202,7 +8202,7 @@ zoro 是 处女座的么？
 不是同一时代的人，怎么比啊？
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21765#       发表于 2011-3-19 13:28
@@ -8214,7 +8214,7 @@ zoro 是 处女座的么？
 闭眼时拘束器
 
 
------
+*****
 
 ####  Yimo  
 ##### 21766#       发表于 2011-3-19 14:14
@@ -8223,7 +8223,7 @@ zoro 是 处女座的么？
 睁开是鹰眼吗？<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不败之狼  
 ##### 21767#       发表于 2011-3-19 14:24
@@ -8232,7 +8232,7 @@ zoro 是 处女座的么？
 是写轮眼，可以找到正确的路
 
 
------
+*****
 
 ####  luffyplus  
 ##### 21768#       发表于 2011-3-19 15:27
@@ -8243,7 +8243,7 @@ op还能有这桥，哈哈
 <img src="http://ww4.sinaimg.cn/large/62946a52jw6dfe01mbmxwj.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21769#       发表于 2011-3-19 16:26
@@ -8259,7 +8259,7 @@ op还能有这桥，哈哈
 “如果只是瞎了一只眼睛就输的话，说明我也不过如此。”如果有人问索隆瞎了会有什么问题，丫一定会这么回答。
 
 
------
+*****
 
 ####  =D_BOY=Damned  
 ##### 21770#       发表于 2011-3-19 17:36
@@ -8270,7 +8270,7 @@ op还能有这桥，哈哈
 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>有哪里可以证明鹰眼强过红发的吗？因为鹰眼是最强剑豪，红发是用剑的，所以鹰眼大于红发吗？其实白胡子也用刀呢，不知道有没有一个“刀士”界…
 
 
------
+*****
 
 ####  Futanari  
 ##### 21771#       发表于 2011-3-19 17:38
@@ -8279,7 +8279,7 @@ op还能有这桥，哈哈
 鹰眼是最强剑豪并不是最强人，使用剑的他是最强的但是真打起来并就是最厉害的
 
 
------
+*****
 
 ####  Dracule·Mihawk  
 ##### 21772#       发表于 2011-3-19 19:05
@@ -8289,7 +8289,7 @@ op还能有这桥，哈哈
 鹰眼是最强剑豪并不是最强人，使用剑的他是最强的但是真打起来并就是最厉害的 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>不错，要是碰上什么地震果实、岩浆果实什么的能力者，打起来有一定难度。大事件中印象最深的就是那个红鼻子。下次碰到他要挂霸气了。
 
 
------
+*****
 
 ####  kvkv  
 ##### 21773#       发表于 2011-3-19 19:10
@@ -8306,7 +8306,7 @@ op还能有这桥，哈哈
 大概....<img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  日向超  
 ##### 21774#       发表于 2011-3-19 19:34
@@ -8318,7 +8318,7 @@ op还能有这桥，哈哈
 不然你找红头发决斗的时候怎么会没看见过他的好伙伴红鼻子呢
 
 
------
+*****
 
 ####  Hancock  
 ##### 21775#       发表于 2011-3-19 20:06
@@ -8329,7 +8329,7 @@ op还能有这桥，哈哈
 不错，要是碰上什么地震果实、岩浆果实什么的能力者，打起来有一定难度。大事件中印象最深的就是那个红鼻子。下次碰到他要挂霸气了。 <[img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  吉黑尽阵  
 ##### 21776#       发表于 2011-3-19 21:48
@@ -8338,7 +8338,7 @@ op还能有这桥，哈哈
 吉：四分五裂果实是锁定技，霸气也封不住吧？
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21777#       发表于 2011-3-19 21:55
@@ -8351,7 +8351,7 @@ op还能有这桥，哈哈
 突然觉得boss真可怜
 
 
------
+*****
 
 ####  南宮太平  
 ##### 21778#       发表于 2011-3-19 22:10
@@ -8360,7 +8360,7 @@ op还能有这桥，哈哈
 四皇.巴基才不是區區一個七武海能應付的!!!
 
 
------
+*****
 
 ####  faust123  
 ##### 21779#       发表于 2011-3-19 22:18
@@ -8372,7 +8372,7 @@ op还能有这桥，哈哈
 一般一见面就吃瘪的敌人都是为了先抑后扬
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21780#       发表于 2011-3-20 19:58
@@ -8383,7 +8383,7 @@ op还能有这桥，哈哈
 感觉不错
 
 
------
+*****
 
 ####  白河亜紀  
 ##### 21781#       发表于 2011-3-20 20:05
@@ -8396,7 +8396,7 @@ op还能有这桥，哈哈
 一般一见面就吃瘪的敌人都是为了先抑后扬 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>莫利亚对草帽团的时候，目的是活捉，不是赶尽杀绝。而草帽团可是为了生存拼上命了。
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 21782#       发表于 2011-3-20 20:10
@@ -8407,7 +8407,7 @@ op还能有这桥，哈哈
 莫利亚对草帽团的时候，目的是活捉，不是赶尽杀绝。而草帽团可是为了生存拼上命了。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>为了保留草帽团影子的作用，打他们的时候可是都留力了的。
 
 
------
+*****
 
 ####  Raistlin.Majere  
 ##### 21783#       发表于 2011-3-23 20:50
@@ -8416,7 +8416,7 @@ op还能有这桥，哈哈
 这周停刊么？
 
 
------
+*****
 
 ####  opdconan  
 ##### 21784#       发表于 2011-3-23 20:57
@@ -8428,7 +8428,7 @@ op还能有这桥，哈哈
 1 周刊少年JUMP17号（3月28日发售），延期至4月4日（星期一），以后预订每周星期一发售。
 
 
------
+*****
 
 ####  ckz1211  
 ##### 21785#       发表于 2011-3-23 23:19
@@ -8439,7 +8439,7 @@ op还能有这桥，哈哈
 这个有希望战OP
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21786#       发表于 2011-3-24 17:09
@@ -8450,7 +8450,7 @@ op还能有这桥，哈哈
 上面那楼说的延期那个周刊少年JUMP17号是本来这周该出来的么？
 
 
------
+*****
 
 ####  arcturus  
 ##### 21787#       发表于 2011-3-24 21:39
@@ -8459,7 +8459,7 @@ op还能有这桥，哈哈
 本周果然还是受到影响了么<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mayahs  
 ##### 21788#       发表于 2011-3-24 21:53
@@ -8468,7 +8468,7 @@ op还能有这桥，哈哈
 还是休刊么
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21789#       发表于 2011-3-25 09:31
@@ -8484,7 +8484,7 @@ op还能有这桥，哈哈
 戴着3D眼镜虽然很累，但是路飞的拳头伸过来的时候，的确有一瞬间想要躲开，哈哈
 
 
------
+*****
 
 ####  rayalynx  
 ##### 21790#       发表于 2011-3-25 09:34
@@ -8493,7 +8493,7 @@ op还能有这桥，哈哈
 又休了？
 
 
------
+*****
 
 ####  hispeed  
 ##### 21791#       发表于 2011-3-26 22:05
@@ -8503,7 +8503,7 @@ op还能有这桥，哈哈
 安室奈美惠 Fight Together <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  thanX  
 ##### 21792#       发表于 2011-3-26 22:30
@@ -8512,7 +8512,7 @@ op还能有这桥，哈哈
 JUMP延期一周吧
 
 
------
+*****
 
 ####  fenss  
 ##### 21793#       发表于 2011-3-26 22:49
@@ -8522,7 +8522,7 @@ JUMP延期一周吧
 只有我一个人觉得，索隆的那只左眼不是真正的瞎了，只是暂时封印起来的吗？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>你不是一個人
 
 
------
+*****
 
 ####  Bamind  
 ##### 21794#       发表于 2011-3-27 08:55
@@ -8536,7 +8536,7 @@ JUMP延期一周吧
 正在看直播，主题曲还是 One Day
 
 
------
+*****
 
 ####  flll  
 ##### 21795#       发表于 2011-3-27 15:21
@@ -8550,7 +8550,7 @@ JUMP延期一周吧
 正在看直播，主题曲还是 One Day <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>唉，又有多等一周了
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21796#       发表于 2011-3-29 17:34
@@ -8559,7 +8559,7 @@ JUMP延期一周吧
 这周能有了么？
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21797#       发表于 2011-3-30 16:56
@@ -8596,7 +8596,7 @@ N尼普頓最先察覺到這跡象。
 2.三治對女人的反應已經回到從前的樣子(應該就是回到那個好色又不會噴鼻血的三治吧?)
 
 
------
+*****
 
 ####  65535  
 ##### 21798#       发表于 2011-3-30 18:08
@@ -8605,7 +8605,7 @@ N尼普頓最先察覺到這跡象。
 到最后索隆也没法秒杀霍迪么。。。
 
 
------
+*****
 
 ####  yario  
 ##### 21799#       发表于 2011-3-30 19:13
@@ -8615,7 +8615,7 @@ N尼普頓最先察覺到這跡象。
 如果今后几话开始的回忆是以甚平为主角的话  第九人快了
 
 
------
+*****
 
 ####  opdconan  
 ##### 21800#       发表于 2011-3-30 19:15
@@ -8624,7 +8624,7 @@ N尼普頓最先察覺到這跡象。
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">早期阿龙和吉贝尔那句一家一个翻译的句子终于要明晰了么……
 
 
------
+*****
 
 ####  yario  
 ##### 21801#       发表于 2011-3-30 19:20
@@ -8633,7 +8633,7 @@ N尼普頓最先察覺到這跡象。
 尾田果然不想让草帽3大战力都出手。。。。ZORO被抓。。。为了平衡 sanji恢复正常。。
 
 
------
+*****
 
 ####  拾下拾下仔  
 ##### 21802#       发表于 2011-3-30 22:28
@@ -8643,7 +8643,7 @@ N尼普頓最先察覺到這跡象。
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DGIL  
 ##### 21803#       发表于 2011-3-31 02:29
@@ -8652,7 +8652,7 @@ N尼普頓最先察覺到這跡象。
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">鹰眼的面子。。。再怎么样也别被抓呀~~
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21804#       发表于 2011-3-31 09:32
@@ -8661,7 +8661,7 @@ N尼普頓最先察覺到這跡象。
 =-=甚平颜艺真好玩...
 
 
------
+*****
 
 ####  hispeed  
 ##### 21805#       发表于 2011-3-31 09:34
@@ -8670,7 +8670,7 @@ N尼普頓最先察覺到這跡象。
 zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wingchau  
 ##### 21806#       发表于 2011-3-31 10:18
@@ -8680,7 +8680,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 不知道弗兰奇在水底能不能打持久战.(不沉的话...)
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 21807#       发表于 2011-3-31 10:55
@@ -8689,7 +8689,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 期待弗兰奇水中战，不知道会不会出个螺旋桨啥的
 
 
------
+*****
 
 ####  ch_ch  
 ##### 21808#       发表于 2011-3-31 11:17
@@ -8698,7 +8698,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 没有泡泡给zoro戴么<img src="https://static.saraba1st.com/image/smiley/face/03.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  strygwyr  
 ##### 21809#       发表于 2011-3-31 11:24
@@ -8707,7 +8707,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">不过话说索隆水适应性真低...打水战果然还是得靠厨师...
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21810#       发表于 2011-3-31 12:13
@@ -8716,7 +8716,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 封面那只狗是哪段儿里的来着？
 
 
------
+*****
 
 ####  jsyyyz  
 ##### 21811#       发表于 2011-3-31 12:14
@@ -8727,7 +8727,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 小狗咻咻和镇长
 
 
------
+*****
 
 ####  qubely  
 ##### 21812#       发表于 2011-3-31 12:15
@@ -8738,7 +8738,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 打巴基海贼团
 
 
------
+*****
 
 ####  flll  
 ##### 21813#       发表于 2011-3-31 13:12
@@ -8747,7 +8747,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 这次封面连载要让所有人物总动员一次了吗？
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21814#       发表于 2011-3-31 14:33
@@ -8756,7 +8756,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 下一话是宝箱大叔？
 
 
------
+*****
 
 ####  cloudhp7777  
 ##### 21815#       发表于 2011-3-31 14:53
@@ -8765,7 +8765,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 甚平也会那个表情了<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  吖玖  
 ##### 21816#       发表于 2011-3-31 15:38
@@ -8774,7 +8774,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 没人讨论一下我们的人鱼王会用冲击波么<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  =D_BOY=Damned  
 ##### 21817#       发表于 2011-4-2 12:41
@@ -8783,7 +8783,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 很奇怪为什么布鲁克和长鼻子有泡泡ZORO却没有？是ZORO自己拒绝带泡泡吗……
 
 
------
+*****
 
 ####  opdconan  
 ##### 21818#       发表于 2011-4-2 12:57
@@ -8792,7 +8792,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 418乌索普观战时，他和骷髅已经快不行了，那时还没泡，419时应该是乌索普不知道从哪弄来的泡，先把脑袋罩住了，骷髅除了脑袋还是浸海水状态，所以乌索普在拉着他往尼普顿身上靠。索隆砍完霍迪迅速上浮换气。然后就是逃跑了。索隆没泡是比较正常的，乌索普这么短时间从哪变出来的泡才是问题……<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  www151007  
 ##### 21819#       发表于 2011-4-2 12:58
@@ -8801,7 +8801,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 这贴今年能翻800不 看看隔壁的小原脸。。太凶残了啊。
 
 
------
+*****
 
 ####  鷲巣巌  
 ##### 21820#       发表于 2011-4-2 12:59
@@ -8810,7 +8810,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 骷髅这死人带什么泡啊，赶紧给佐罗啦
 
 
------
+*****
 
 ####  yunluo  
 ##### 21821#       发表于 2011-4-2 13:48
@@ -8821,7 +8821,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 +1，骷髅本来就是在海底泡烂的啊
 
 
------
+*****
 
 ####  Febird  
 ##### 21822#       发表于 2011-4-2 14:07
@@ -8831,7 +8831,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 现在到底是星期几更新？
 
 
------
+*****
 
 ####  Nuriko  
 ##### 21823#       发表于 2011-4-2 15:36
@@ -8842,7 +8842,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 翻了一页，<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 21824#       发表于 2011-4-2 15:40
@@ -8851,7 +8851,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 现在很期待副船长到底是谁<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  arcturus  
 ##### 21825#       发表于 2011-4-2 15:45
@@ -8860,7 +8860,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 甚平！上船！甚平！上船！
 
 
------
+*****
 
 ####  スカー  
 ##### 21826#       发表于 2011-4-2 15:52
@@ -8875,7 +8875,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 骷髅路飞罗宾乔巴 --
 
 
------
+*****
 
 ####  HEILAST  
 ##### 21827#       发表于 2011-4-2 15:55
@@ -8884,7 +8884,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer"> 看到甚平那样子，又想起艾尼路了
 
 
------
+*****
 
 ####  普贤  
 ##### 21828#       发表于 2011-4-2 15:59
@@ -8893,7 +8893,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 为毛甚平也走搞笑路线了。。。
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 21829#       发表于 2011-4-2 16:34
@@ -8902,7 +8902,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 为什么厨师水适应性会那么高？
 
 
------
+*****
 
 ####  iaie  
 ##### 21830#       发表于 2011-4-2 16:44
@@ -8911,7 +8911,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 大概是肯酷拉那段表现出来的厨子再海里的实力
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21831#       发表于 2011-4-2 16:48
@@ -8920,7 +8920,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 甚平搞笑线不好笑啊
 
 
------
+*****
 
 ####  collincollin  
 ##### 21832#       发表于 2011-4-2 16:52
@@ -8932,7 +8932,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 至于这次，当是冷笑话看好了
 
 
------
+*****
 
 ####  Yeaha123  
 ##### 21833#       发表于 2011-4-2 16:56
@@ -8941,7 +8941,7 @@ zoro这么快就吃瘪了<img src="https://static.saraba1st.com/image/smiley/fac
 WT老是刻意去搞笑的习惯改一改的话，op会更好看
 
 
------
+*****
 
 ####  opdconan  
 ##### 21834#       发表于 2011-4-2 16:56
@@ -8950,7 +8950,7 @@ WT老是刻意去搞笑的习惯改一改的话，op会更好看
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">山治变回来了，甚平被传染了
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21835#       发表于 2011-4-2 17:08
@@ -8959,7 +8959,7 @@ WT老是刻意去搞笑的习惯改一改的话，op会更好看
 看OP就是看搞笑来的
 
 
------
+*****
 
 ####  g020911  
 ##### 21836#       发表于 2011-4-2 17:33
@@ -8968,7 +8968,7 @@ WT老是刻意去搞笑的习惯改一改的话，op会更好看
 ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 
 
------
+*****
 
 ####  suika  
 ##### 21837#       发表于 2011-4-2 18:01
@@ -8977,7 +8977,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 要是给索罗气泡，经验值就都被他一个人拿走了……没路飞他们什么事情了
 
 
------
+*****
 
 ####  布鲁克  
 ##### 21838#       发表于 2011-4-2 18:11
@@ -8986,7 +8986,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 <img src="https://static.saraba1st.com/image/smiley/face/104.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  宇墨  
 ##### 21839#       发表于 2011-4-2 18:22
@@ -8995,7 +8995,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer"> ZORO還沒能發力啊
 
 
------
+*****
 
 ####  alecwong  
 ##### 21840#       发表于 2011-4-2 18:58
@@ -9004,7 +9004,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 又和n年前的剧情联系起来了，WT给力<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nstxy  
 ##### 21841#       发表于 2011-4-2 21:28
@@ -9013,7 +9013,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 怎么不给索罗也弄个泡泡
 
 
------
+*****
 
 ####  stun  
 ##### 21842#       发表于 2011-4-3 00:25
@@ -9022,7 +9022,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 某鱼人大叔开始有脸谱变化了.......是会加入的先兆么
 
 
------
+*****
 
 ####  革新  
 ##### 21843#       发表于 2011-4-3 00:34
@@ -9031,7 +9031,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 正常估算 佛兰奇才是水里最后战斗力的
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21844#       发表于 2011-4-3 00:42
@@ -9047,7 +9047,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 这分级的根据呢？
 
 
------
+*****
 
 ####  Loony  
 ##### 21845#       发表于 2011-4-3 03:12
@@ -9056,7 +9056,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 龟人会龟派气功，鱼人原来会鱼派气功么。
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21846#       发表于 2011-4-3 09:29
@@ -9067,7 +9067,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 这么多年了，还是有很多人没有接受你
 
 
------
+*****
 
 ####  nstxy  
 ##### 21847#       发表于 2011-4-5 15:59
@@ -9076,7 +9076,7 @@ ZORO水战又不差，在水里比鱼人还快。没气了换sanji也是死啊
 op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈哈哈，情何以堪啊<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ナミ  
 ##### 21848#       发表于 2011-4-6 15:10
@@ -9087,7 +9087,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 不要难过，至少我们都已经接受你啦～<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yario  
 ##### 21849#       发表于 2011-4-6 16:18
@@ -9096,7 +9096,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 回忆始，甚平主角
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21850#       发表于 2011-4-6 16:19
@@ -9107,7 +9107,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 情何以堪+1
 
 
------
+*****
 
 ####  yario  
 ##### 21851#       发表于 2011-4-6 17:28
@@ -9156,7 +9156,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 完
 
 
------
+*****
 
 ####  スカー  
 ##### 21852#       发表于 2011-4-6 17:44
@@ -9184,7 +9184,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 战斗力依然要乘以自身实力的。
 
 
------
+*****
 
 ####  スカー  
 ##### 21853#       发表于 2011-4-6 17:51
@@ -9198,7 +9198,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 3.路飞能在水战发挥多少实力
 
 
------
+*****
 
 ####  Snaky  
 ##### 21854#       发表于 2011-4-6 17:56
@@ -9208,7 +9208,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 话说当年的甚平好时髦
 
 
------
+*****
 
 ####  Zcjy023  
 ##### 21855#       发表于 2011-4-6 18:19
@@ -9217,7 +9217,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 填坑开始了，对这段回忆很感兴趣<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  洛可可骑士  
 ##### 21856#       发表于 2011-4-6 18:45
@@ -9233,7 +9233,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 鱼叔这种外表内在都严重超龄的是一定不会入的吧
 
 
------
+*****
 
 ####  yario  
 ##### 21857#       发表于 2011-4-6 18:54
@@ -9249,7 +9249,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 在我看来现在甚平入团概率已经很高了。
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21858#       发表于 2011-4-6 19:26
@@ -9258,7 +9258,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 会是谁重伤费舍尔·泰格？年轻时的赤犬？
 
 
------
+*****
 
 ####  gjd198692  
 ##### 21859#       发表于 2011-4-6 19:30
@@ -9267,7 +9267,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 山治和ZERO的实力真的相仿吗。。  我觉得这两个人自从CP9之战之后实力的差距就越来越大了。。。 希望2年后的现在两人的差距能够缩小吧
 
 
------
+*****
 
 ####  yario  
 ##### 21860#       发表于 2011-4-6 19:59
@@ -9277,7 +9277,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 会是谁重伤费舍尔·泰格？年轻时的赤犬？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>强弩之末的可能性大巴。毕竟是单人独闯圣地 1VN
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21861#       发表于 2011-4-6 20:02
@@ -9288,7 +9288,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 闯圣地→救奴隶→组太阳海贼团→现在回忆中在海上逛，发现海军→？→死掉
 
 
------
+*****
 
 ####  小带鱼  
 ##### 21862#       发表于 2011-4-6 20:17
@@ -9298,7 +9298,7 @@ op还没说要两年后在香波群岛相聚，被银他妈抢先说了．．哈
 山治和ZERO的实力真的相仿吗。。  我觉得这两个人自从CP9之战之后实力的差距就越来越大了。。。 希望2年后的现在两人的差距能够缩小吧 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>CP9就2个人对战对手的道力来看2200 2180也只是20而已，而且2个人各自找到了破解对方铁块的方法。(嘛虽然索隆在沙漠就会了。。那时候不是很熟练
 
 
------
+*****
 
 ####  yario  
 ##### 21863#       发表于 2011-4-6 20:28
@@ -9310,7 +9310,7 @@ Re:回 21893楼(yario) 的帖子
 闯圣地→救奴隶→组太阳海贼团→现在回忆中在海上逛，发现海军→？→死掉 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>这个顺序要等现在的回忆确定吧。
 
 
------
+*****
 
 ####  日向超  
 ##### 21864#       发表于 2011-4-6 21:19
@@ -9321,7 +9321,7 @@ Re:回 21893楼(yario) 的帖子
 不 卡库在2200的时候吃了颗果实  而且他自己也承认虽然不好看但真的更强了
 
 
------
+*****
 
 ####  小带鱼  
 ##### 21865#       发表于 2011-4-6 21:29
@@ -9332,7 +9332,7 @@ Re:回 21893楼(yario) 的帖子
 那狼也说了，2180是没变身的情况下。。打斗还有恶魔果实加成的。。虽然卡酷是比狼强，不过也不会很过分毕竟他们修炼的不同，一个岚脚，一个全身铁块
 
 
------
+*****
 
 ####  xiaolw  
 ##### 21866#       发表于 2011-4-6 21:34
@@ -9356,7 +9356,7 @@ c6c1643ca487c1bd15cecb88.JPG
 <img src="https://img.saraba1st.com/forum/pw/Mon_1104/6_21860_b4cbed79e6ab49c.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  日向超  
 ##### 21867#       发表于 2011-4-6 21:39
@@ -9365,7 +9365,7 @@ c6c1643ca487c1bd15cecb88.JPG
 老实说干部甚平无论气势还是时髦都不如干部恶龙
 
 
------
+*****
 
 ####  LostWater  
 ##### 21868#       发表于 2011-4-6 21:49
@@ -9376,7 +9376,7 @@ c6c1643ca487c1bd15cecb88.JPG
 年轻的女帝了吗！！！！！
 
 
------
+*****
 
 ####  opdconan  
 ##### 21869#       发表于 2011-4-6 22:01
@@ -9386,7 +9386,7 @@ c6c1643ca487c1bd15cecb88.JPG
 大概
 
 
------
+*****
 
 ####  faiths  
 ##### 21870#       发表于 2011-4-6 23:26
@@ -9395,7 +9395,7 @@ c6c1643ca487c1bd15cecb88.JPG
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">这话最后一张图恶龙的时髦值一下就上来了啊
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21871#       发表于 2011-4-6 23:27
@@ -9406,7 +9406,7 @@ c6c1643ca487c1bd15cecb88.JPG
 不过，这算谁的回忆
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21872#       发表于 2011-4-7 01:44
@@ -9415,7 +9415,7 @@ c6c1643ca487c1bd15cecb88.JPG
 本帖700楼的讨论充分展示了s1年龄层的变化已经水平的退步。
 
 
------
+*****
 
 ####  日向超  
 ##### 21873#       发表于 2011-4-7 02:02
@@ -9426,7 +9426,7 @@ c6c1643ca487c1bd15cecb88.JPG
 700楼讨论的是罗宾的插图，有时髦问题？
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21874#       发表于 2011-4-7 09:09
@@ -9437,7 +9437,7 @@ c6c1643ca487c1bd15cecb88.JPG
 估计是“层”和“以及”
 
 
------
+*****
 
 ####  stomy  
 ##### 21875#       发表于 2011-4-7 09:26
@@ -9448,7 +9448,7 @@ c6c1643ca487c1bd15cecb88.JPG
 我还以为有人会提这个呢……<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21876#       发表于 2011-4-7 09:34
@@ -9465,7 +9465,7 @@ c6c1643ca487c1bd15cecb88.JPG
 2、用户水平的下降
 
 
------
+*****
 
 ####  jsyyyz  
 ##### 21877#       发表于 2011-4-7 09:37
@@ -9476,7 +9476,7 @@ c6c1643ca487c1bd15cecb88.JPG
 现在只喜欢看了
 
 
------
+*****
 
 ####  well  
 ##### 21878#       发表于 2011-4-7 11:01
@@ -9487,7 +9487,7 @@ c6c1643ca487c1bd15cecb88.JPG
 为什么不是女帝或公主上船呢
 
 
------
+*****
 
 ####  rubicon  
 ##### 21879#       发表于 2011-4-7 11:04
@@ -9496,7 +9496,7 @@ c6c1643ca487c1bd15cecb88.JPG
 太阳海贼团！！！干部都好有型！！回忆真棒！！
 
 
------
+*****
 
 ####  opdconan  
 ##### 21880#       发表于 2011-4-7 12:05
@@ -9505,7 +9505,7 @@ c6c1643ca487c1bd15cecb88.JPG
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">跳着爬了下，没什么变化啊，08年六月的帖子，现在是11年4月，700页帖的分布大概是100、300、200+、100-，蛮平均的……内容也基本就是有设定战设定有战斗就战战斗力，水水喊喊叫一叫，没啥变化的感觉（内容很大程度上受漫画内容影响）
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21881#       发表于 2011-4-7 12:13
@@ -9518,7 +9518,7 @@ c6c1643ca487c1bd15cecb88.JPG
 我说的是整个700多楼的发展。。
 
 
------
+*****
 
 ####  flll  
 ##### 21882#       发表于 2011-4-7 12:35
@@ -9530,7 +9530,7 @@ c6c1643ca487c1bd15cecb88.JPG
 我还以为有人会提这个呢……<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer"></blockquote>不知道为什么看到这扉页首先想到了爆漫的中井
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21883#       发表于 2011-4-7 13:12
@@ -9539,7 +9539,7 @@ c6c1643ca487c1bd15cecb88.JPG
 这话虽说救人不是十万火急，但开始讲故事还是太悠闲了点吧
 
 
------
+*****
 
 ####  普贤  
 ##### 21884#       发表于 2011-4-7 15:43
@@ -9549,7 +9549,7 @@ c6c1643ca487c1bd15cecb88.JPG
 新新团员大概没女帝什么事了。。。
 
 
------
+*****
 
 ####  迪奧  
 ##### 21885#       发表于 2011-4-7 15:48
@@ -9558,7 +9558,7 @@ c6c1643ca487c1bd15cecb88.JPG
 恶龙悔过自新以后加入
 
 
------
+*****
 
 ####  homuhomu  
 ##### 21886#       发表于 2011-4-7 15:52
@@ -9571,7 +9571,7 @@ c6c1643ca487c1bd15cecb88.JPG
 以前还偶尔在OPBBS发发分析贴什么的，难道真的是老了么。
 
 
------
+*****
 
 ####  hispeed  
 ##### 21887#       发表于 2011-4-7 16:08
@@ -9580,7 +9580,7 @@ c6c1643ca487c1bd15cecb88.JPG
 山治的口气好拽啊，似乎有自信和七武海一拼<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Snaky  
 ##### 21888#       发表于 2011-4-7 16:17
@@ -9590,7 +9590,7 @@ c6c1643ca487c1bd15cecb88.JPG
 恶龙悔过自新以后加入  <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>娜美的戏服何在
 
 
------
+*****
 
 ####  迪奧  
 ##### 21889#       发表于 2011-4-7 16:27
@@ -9599,7 +9599,7 @@ c6c1643ca487c1bd15cecb88.JPG
 鳄鱼神马的上船的呼声也很高的嘛
 
 
------
+*****
 
 ####  yario  
 ##### 21890#       发表于 2011-4-7 16:27
@@ -9608,7 +9608,7 @@ c6c1643ca487c1bd15cecb88.JPG
 这话娜美端着茶给路飞喝的画面让我这路娜党<img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 21891#       发表于 2011-4-7 16:30
@@ -9617,7 +9617,7 @@ c6c1643ca487c1bd15cecb88.JPG
 不是路飞自己凑上去然后娜美顺手给他吗<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wingchau  
 ##### 21892#       发表于 2011-4-7 16:32
@@ -9626,7 +9626,7 @@ c6c1643ca487c1bd15cecb88.JPG
 我还以为转过头山治就会看到山治扁路飞呢,结果没有.<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hobbes  
 ##### 21893#       发表于 2011-4-7 16:43
@@ -9635,7 +9635,7 @@ c6c1643ca487c1bd15cecb88.JPG
 恶龙那么弱凭啥和甚平都是干部
 
 
------
+*****
 
 ####  Zcjy023  
 ##### 21894#       发表于 2011-4-7 16:46
@@ -9649,7 +9649,7 @@ c6c1643ca487c1bd15cecb88.JPG
 看完这话YY了以上
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 21895#       发表于 2011-4-7 16:48
@@ -9659,7 +9659,7 @@ c6c1643ca487c1bd15cecb88.JPG
 恶龙那么弱凭啥和甚平都是干部 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>想一下巴基和红发
 
 
------
+*****
 
 ####  opdconan  
 ##### 21896#       发表于 2011-4-7 16:50
@@ -9668,7 +9668,7 @@ c6c1643ca487c1bd15cecb88.JPG
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">人靠衣装，干部套装和混混套装对于人物加成是不一样的，恶龙一定是在某次战斗中丢失了圣衣和斩魄刀不得已只能做一个叛忍
 
 
------
+*****
 
 ####  米蕾妮娅  
 ##### 21897#       发表于 2011-4-7 16:53
@@ -9679,7 +9679,7 @@ c6c1643ca487c1bd15cecb88.JPG
 想一下巴基和红发 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>巴基大人可是四皇候选
 
 
------
+*****
 
 ####  ナミ  
 ##### 21898#       发表于 2011-4-7 17:15
@@ -9691,7 +9691,7 @@ c6c1643ca487c1bd15cecb88.JPG
 但如果是恶龙那就必须把贝尔梅尔桑先还给我，接下来的帐再慢慢算
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21899#       发表于 2011-4-7 17:17
@@ -9700,7 +9700,7 @@ c6c1643ca487c1bd15cecb88.JPG
 这话山治屌爆了。
 
 
------
+*****
 
 ####  yario  
 ##### 21900#       发表于 2011-4-7 17:59
@@ -9709,7 +9709,7 @@ c6c1643ca487c1bd15cecb88.JPG
 这话真正奇怪的是那个冷静的路飞。不知道这直觉惊人的家伙回忆后会有何惊人之言
 
 
------
+*****
 
 ####  迪奧  
 ##### 21901#       发表于 2011-4-7 18:07
@@ -9718,7 +9718,7 @@ c6c1643ca487c1bd15cecb88.JPG
 甚平拼死救艾斯和草帽自己 草帽已经把他当成伙伴了
 
 
------
+*****
 
 ####  Loony  
 ##### 21902#       发表于 2011-4-7 18:17
@@ -9727,7 +9727,7 @@ c6c1643ca487c1bd15cecb88.JPG
 这集最后一格，泰格长的和麦哲伦典狱长好像啊~~~~
 
 
------
+*****
 
 ####  arcturus  
 ##### 21903#       发表于 2011-4-7 19:14
@@ -9736,7 +9736,7 @@ c6c1643ca487c1bd15cecb88.JPG
 泰格好像之前有露面过的吧
 
 
------
+*****
 
 ####  不知火时  
 ##### 21904#       发表于 2011-4-7 19:18
@@ -9746,7 +9746,7 @@ c6c1643ca487c1bd15cecb88.JPG
 话说小八也是一张差不多的脸吧
 
 
------
+*****
 
 ####  flll  
 ##### 21905#       发表于 2011-4-7 19:25
@@ -9756,7 +9756,7 @@ c6c1643ca487c1bd15cecb88.JPG
 现在这张脸，这牙齿，和麦哲伦还真像啊
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21906#       发表于 2011-4-7 19:47
@@ -9766,7 +9766,7 @@ c6c1643ca487c1bd15cecb88.JPG
 山治的口气好拽啊，似乎有自信和七武海一拼<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer"></blockquote>他最近的师傅人妖王，可是敢对麦哲伦，熊和赤犬出手而且还无伤的人！虽然因为他是搞笑角色的缘故，其实山治也是搞笑角色啊
 
 
------
+*****
 
 ####  PATLABOR  
 ##### 21907#       发表于 2011-4-7 19:52
@@ -9781,7 +9781,7 @@ c6c1643ca487c1bd15cecb88.JPG
 而泰格可是凭一人之力袭击玛丽桥亚的强者，恶龙这种水准怎么也能成他团里的干部      <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  opdconan  
 ##### 21908#       发表于 2011-4-7 20:04
@@ -9792,7 +9792,7 @@ c6c1643ca487c1bd15cecb88.JPG
 干部不代表一定要有匹配船长水平的战斗力，更何况泰格的战斗力多高还不一定呢，甚平尼普顿这种水里能放波的应该就是极品了……
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21909#       发表于 2011-4-7 20:15
@@ -9810,7 +9810,7 @@ c6c1643ca487c1bd15cecb88.JPG
 2011-4-7 20:15 上传
 
 
------
+*****
 
 ####  taichiY  
 ##### 21910#       发表于 2011-4-7 20:58
@@ -9819,7 +9819,7 @@ c6c1643ca487c1bd15cecb88.JPG
 扉页<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 21911#       发表于 2011-4-8 02:41
@@ -9828,7 +9828,7 @@ c6c1643ca487c1bd15cecb88.JPG
 开始有回忆出现，是不是说明有人要加入了
 
 
------
+*****
 
 ####  Loony  
 ##### 21912#       发表于 2011-4-8 03:11
@@ -9837,7 +9837,7 @@ c6c1643ca487c1bd15cecb88.JPG
 草帽团还缺个像大海牛巨大战舰这样拉船的东西，我觉得白星正合适，加她？？
 
 
------
+*****
 
 ####  DGIL  
 ##### 21913#       发表于 2011-4-8 04:05
@@ -9850,7 +9850,7 @@ c6c1643ca487c1bd15cecb88.JPG
 女帝的实力超强她是~如何修炼的非常感兴趣呢
 
 
------
+*****
 
 ####  shikamaru  
 ##### 21914#       发表于 2011-4-8 04:19
@@ -9861,7 +9861,7 @@ c6c1643ca487c1bd15cecb88.JPG
 乌索普不也很弱么，多半是阿龙有特殊的作用吧
 
 
------
+*****
 
 ####  LichEnd  
 ##### 21915#       发表于 2011-4-8 04:37
@@ -9875,7 +9875,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 另外前期阿龙起码也算东海最能打了吧=_=
 
 
------
+*****
 
 ####  dabowe  
 ##### 21916#       发表于 2011-4-8 07:30
@@ -9887,7 +9887,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">好眼力!应该是同一个吧?
 
 
------
+*****
 
 ####  yzxdc  
 ##### 21917#       发表于 2011-4-8 09:35
@@ -9896,7 +9896,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 早说了下一个伙伴是那只章鱼，其他人物就不要yy了
 
 
------
+*****
 
 ####  twowars  
 ##### 21918#       发表于 2011-4-8 09:59
@@ -9905,7 +9905,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 娜美小时候受到虐待吃不好睡不好营养不好，长大了身材还是很劲爆…<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21919#       发表于 2011-4-8 10:04
@@ -9914,7 +9914,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 遇到路飞时，身材还只有一般呢，后来不知怎么就
 
 
------
+*****
 
 ####  dab23  
 ##### 21920#       发表于 2011-4-8 11:27
@@ -9923,7 +9923,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 山治做的料理<img src="https://static.saraba1st.com/image/smiley/face/129.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Nuriko  
 ##### 21921#       发表于 2011-4-8 14:46
@@ -9937,7 +9937,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 以前要讲娜美的事的时候可是掉头就走啊。。
 
 
------
+*****
 
 ####  rubicon  
 ##### 21922#       发表于 2011-4-8 17:49
@@ -9950,7 +9950,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 另外关于泰格的战力,单闯圣地成功救人怎么看也是白胡子金狮子级别的
 
 
------
+*****
 
 ####  rubicon  
 ##### 21923#       发表于 2011-4-8 17:54
@@ -9973,7 +9973,7 @@ Re:回 21940楼(PATLABOR) 的帖子
     アロワナの魚人。魚人空手の使い手（段位は不明）
 
 
------
+*****
 
 ####  wingchau  
 ##### 21924#       发表于 2011-4-8 17:56
@@ -9985,7 +9985,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 另外关于泰格的战力,单闯圣地成功救人怎么看也是白胡子金狮子级别的 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>那句的翻译会不会有点岐义,怎么看都觉得怪.
 
 
------
+*****
 
 ####  opdconan  
 ##### 21925#       发表于 2011-4-8 19:44
@@ -9996,7 +9996,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 圣地防卫状况比较不明，泰格又是半夜（应该是吧）从红土大陆爬上去的，这种爬上红土大陆袭击圣地的可能性估计连想都没人没想过，所以应该是个奇袭效果。我倒觉得可以类比一下大监狱越狱的状况，大监狱好歹还是个单通道，圣地估计乱了就是四散，大半夜还配合爆炸效果，又是贵族所在，肯定最优先考虑是保护皇上，然后才是抓刺客。总之，各种吧，强力是肯定的，但不做过高估计。
 
 
------
+*****
 
 ####  tgl10  
 ##### 21926#       发表于 2011-4-8 19:47
@@ -10006,7 +10006,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 恶龙也要漂白了?这是前面boss里人渣级的吧
 
 
------
+*****
 
 ####  小带鱼  
 ##### 21927#       发表于 2011-4-8 20:05
@@ -10018,7 +10018,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 圣地防卫状况比较不明，泰格又是半夜（应该是吧）从红土大陆爬上去的，这种爬上红土大陆袭击圣地的可能性估计连想都没人没想过，所以应该是个奇袭效果。我倒觉得可以类比一下大监狱越狱的状况，大监狱好歹还是个单通道，圣地估计乱了就是四散，大半夜还配合爆炸效果，又是贵族所在，肯定最优先考虑是保护皇上，然后才是抓刺客。总之，各种吧，强力是肯定的，但不做过高估计。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>哪有三败了？让罗杰逃了也算吗？输给卡普跟战国也不是单挑。。输给路飞更是因为那是剧场版，必需输的
 
 
------
+*****
 
 ####  山德士上校  
 ##### 21928#       发表于 2011-4-8 20:13
@@ -10027,7 +10027,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 鱼人这么渣怎么统治世界啊？莫非有什么秘密武器？？
 
 
------
+*****
 
 ####  Snaky  
 ##### 21929#       发表于 2011-4-8 21:55
@@ -10037,7 +10037,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 鱼人这么渣怎么统治世界啊？莫非有什么秘密武器？？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>统治世界？你太高看他们了
 
 
------
+*****
 
 ####  莎伦哈斯特  
 ##### 21930#       发表于 2011-4-8 22:08
@@ -10046,7 +10046,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 谁给个在线看OP漫画的地址？还有就是动画的下载地址，以前经常看影空网（BT之家），现在那也没下载了。
 
 
------
+*****
 
 ####  HEILAST  
 ##### 21931#       发表于 2011-4-8 22:28
@@ -10057,7 +10057,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 在线漫画去ACG178更新的很快（多数半夜），动画？就去极影啊
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 21932#       发表于 2011-4-8 23:26
@@ -10066,7 +10066,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 鱼人可真不渣…鱼人和人类应该是完胜吧？智力不比人类低（至少漫画里没有体现过智力不如人类的内容），体质比人类好，可水陆两栖。鱼人岛可别有人加入诶，否则有傻逼会叫嚣”看到人就想让他加入“降低了s1的总体智商哟。
 
 
------
+*****
 
 ####  i20001381  
 ##### 21933#       发表于 2011-4-9 11:18
@@ -10077,7 +10077,7 @@ Re:回 21940楼(PATLABOR) 的帖子
 OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本上就等于统治世界了~~~
 
 
------
+*****
 
 ####  opdconan  
 ##### 21934#       发表于 2011-4-9 11:40
@@ -10095,7 +10095,7 @@ OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本
 由于以上种种，使鱼人成了单方面挨打的种族，即使甚平尼普顿这样的可以直接从海里发波人工海啸灭岛，但这种事除了惹来杀身之祸完全没有意义。即使如此，WT所描述的对鱼人和人鱼え迫害依旧显得不可思议，因为就目前来看，大部分比较菜的海贼甚至连入境都是痴人说梦。难道曾经有一个罗杰满天飞四皇遍地走的神奇时代吗……
 
 
------
+*****
 
 ####  SYH617  
 ##### 21935#       发表于 2011-4-9 14:59
@@ -10104,7 +10104,7 @@ OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本
 约瑟夫说的那句话原文到底是什么？为什么620话里的翻译和过去完全不一样。
 
 
------
+*****
 
 ####  米蕾妮娅  
 ##### 21936#       发表于 2011-4-9 15:07
@@ -10114,7 +10114,7 @@ OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本
 怎么看都是白胡子等级的。罗杰的实力还不确定呢，只能从雷利身上参考
 
 
------
+*****
 
 ####  rubicon  
 ##### 21937#       发表于 2011-4-9 15:09
@@ -10125,7 +10125,7 @@ OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本
 怎么看都是白胡子等级的。罗杰的实力还不确定呢，只能从雷利身上参考 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>金狮子单人突破大监狱,对战国卡普的没有双腿,好劲!
 
 
------
+*****
 
 ####  BartholemewKuma  
 ##### 21938#       发表于 2011-4-10 09:49
@@ -10134,7 +10134,7 @@ OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本
 ......
 
 
------
+*****
 
 ####  jsyyyz  
 ##### 21939#       发表于 2011-4-10 09:53
@@ -10153,7 +10153,7 @@ OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本
 只剩下克洛船长啥都没了<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  opdconan  
 ##### 21940#       发表于 2011-4-10 11:12
@@ -10165,7 +10165,7 @@ OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">补充一句，我绝没有金狮子很弱的意思，金狮子就目前来看至少是个水土双修的大法，但雷抗比较弱
 
 
------
+*****
 
 ####  6zking  
 ##### 21941#       发表于 2011-4-10 11:57
@@ -10176,7 +10176,7 @@ OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本
 这个我也想知道，甚平当七武海跟阿朗到东海之间到底有怎么样的关系？
 
 
------
+*****
 
 ####  cloudhp7777  
 ##### 21942#       发表于 2011-4-10 13:18
@@ -10195,7 +10195,7 @@ OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本
 不懂日文 是这页吗
 
 
------
+*****
 
 ####  opdconan  
 ##### 21943#       发表于 2011-4-10 13:21
@@ -10204,7 +10204,7 @@ OP星球有百分之九十都是水，鱼人和人鱼只要在海底生活基本
 LS图右下角
 
 
------
+*****
 
 ####  mj_lm  
 ##### 21944#       发表于 2011-4-11 03:27
@@ -10213,7 +10213,7 @@ LS图右下角
 新OP太催泪。。还没看正篇OP就已经loop了十几二十遍了。。<img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shikamaru  
 ##### 21945#       发表于 2011-4-11 04:37
@@ -10224,7 +10224,7 @@ LS图右下角
 安室奈美惠 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer"> ？
 
 
------
+*****
 
 ####  6zking  
 ##### 21946#       发表于 2011-4-11 09:38
@@ -10239,7 +10239,7 @@ LS图右下角
 下话萨波登场，有点小期待<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  布鲁克  
 ##### 21947#       发表于 2011-4-11 11:32
@@ -10248,7 +10248,7 @@ LS图右下角
 <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer"> 新OP大赞
 
 
------
+*****
 
 ####  cloudhp7777  
 ##### 21948#       发表于 2011-4-11 11:48
@@ -10257,7 +10257,7 @@ LS图右下角
 看完新op，感觉不再有新船员都ok了
 
 
------
+*****
 
 ####  cloudhp7777  
 ##### 21949#       发表于 2011-4-11 11:48
@@ -10266,7 +10266,7 @@ LS图右下角
 看完新op，感觉不再有新船员都ok了
 
 
------
+*****
 
 ####  qubely  
 ##### 21950#       发表于 2011-4-13 18:32
@@ -10275,7 +10275,7 @@ LS图右下角
 新情报出了，乙姬的胸部是飞机场，太阳海贼团超帅
 
 
------
+*****
 
 ####  Crazy_Knife  
 ##### 21951#       发表于 2011-4-13 18:50
@@ -10284,7 +10284,7 @@ LS图右下角
 不得不吐糟…乙姬的造型很像DNF的某套时装…<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qubely  
 ##### 21952#       发表于 2011-4-13 18:55
@@ -10293,7 +10293,7 @@ LS图右下角
 白星竟然一出生就那么大了。。。。。
 
 
------
+*****
 
 ####  yario  
 ##### 21953#       发表于 2011-4-13 19:09
@@ -10303,7 +10303,7 @@ LS图右下角
 新情报出了，乙姬的胸部是飞机场，太阳海贼团超帅 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>在滿是巨胸的OP裡帶來了一股清新的空氣～
 
 
------
+*****
 
 ####  opdconan  
 ##### 21954#       发表于 2011-4-13 19:11
@@ -10312,7 +10312,7 @@ LS图右下角
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">至少出生时是个小号的也好啊，乙姬是怎么生出比自己还要大几倍的白星的，OP里的女人全是怪物吗
 
 
------
+*****
 
 ####  qubely  
 ##### 21955#       发表于 2011-4-13 19:13
@@ -10322,7 +10322,7 @@ LS图右下角
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer"></blockquote>产卵
 
 
------
+*****
 
 ####  qubely  
 ##### 21956#       发表于 2011-4-13 19:25
@@ -10331,7 +10331,7 @@ LS图右下角
 泰格独闯圣地的剧情不会一笔带过了吧，我很想看他无双啊，感觉他比白胡子还强啊
 
 
------
+*****
 
 ####  HEILAST  
 ##### 21957#       发表于 2011-4-13 20:30
@@ -10342,7 +10342,7 @@ LS图右下角
 泰格不可能比白鬍子還強，比世界最強之男還強的概念是什麽啊？好歹白鬍子也跟羅傑抗衡過，以年迈力衰的狀態還能撈個四皇做的實力不是蓋的。
 
 
------
+*****
 
 ####  jsyyyz  
 ##### 21958#       发表于 2011-4-13 20:35
@@ -10355,7 +10355,7 @@ LS图右下角
 就可以引入一个海里的可以和白胡子平起平坐的人　然后因为是鱼人　所以其贡献被历史淹没了BLABLABLA
 
 
------
+*****
 
 ####  qubely  
 ##### 21959#       发表于 2011-4-13 21:19
@@ -10365,7 +10365,7 @@ LS图右下角
 路飞给了天龙人一拳，黄猿就立马赶来了，泰格闹那么大，海军把三大将全派来都不奇怪
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21960#       发表于 2011-4-13 22:25
@@ -10374,7 +10374,7 @@ LS图右下角
 会不会攻击天龙人就出动大将是泰格闯圣地后才定下的
 
 
------
+*****
 
 ####  faiths  
 ##### 21961#       发表于 2011-4-14 01:13
@@ -10383,7 +10383,7 @@ LS图右下角
 我他妈不信这样的阿龙才2000万啊
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21962#       发表于 2011-4-14 08:44
@@ -10392,7 +10392,7 @@ LS图右下角
 看来路飞要帮鱼人人鱼去陆上定居了，真会像有些人猜测的是香波地群岛吗
 
 
------
+*****
 
 ####  yario  
 ##### 21963#       发表于 2011-4-14 09:15
@@ -10402,7 +10402,7 @@ otohime 真有马丁路德金的味道。。。
 毁灭鱼人岛，让鱼人人鱼到人类中去生活，这难道就是路飞选择的道路？
 
 
------
+*****
 
 ####  finallyeva  
 ##### 21964#       发表于 2011-4-14 09:40
@@ -10411,7 +10411,7 @@ otohime 真有马丁路德金的味道。。。
 卧槽,阿龙在太阳海贼船上的那句....瞬间要被洗白的感觉啊
 
 
------
+*****
 
 ####  wingchau  
 ##### 21965#       发表于 2011-4-14 09:50
@@ -10422,7 +10422,7 @@ otohime 真有马丁路德金的味道。。。
 毁灭鱼人岛，让鱼人人鱼到人类中去生活，这难道就是路飞选择的道路？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>很像路飞的风格啊.
 
 
------
+*****
 
 ####  布鲁克  
 ##### 21966#       发表于 2011-4-14 10:25
@@ -10431,7 +10431,7 @@ otohime 真有马丁路德金的味道。。。
 <img src="https://static.saraba1st.com/image/smiley/face/118.gif" referrerpolicy="no-referrer"> 泰格？好像当时海上是听说过这么一个鱼人呢，哟hohoho...
 
 
------
+*****
 
 ####  莫吉  
 ##### 21967#       发表于 2011-4-14 12:27
@@ -10440,7 +10440,7 @@ otohime 真有马丁路德金的味道。。。
 阿龙洗白不能接受啊，尾田你对得起娜美吗<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rubicon  
 ##### 21968#       发表于 2011-4-14 13:09
@@ -10450,7 +10450,7 @@ otohime 真有马丁路德金的味道。。。
 阿龙的时毛值已经爆表<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21969#       发表于 2011-4-14 13:18
@@ -10459,7 +10459,7 @@ otohime 真有马丁路德金的味道。。。
 祖先的梦想也是陆地？从月亮上来的人，其中一族结果掉进海里，成为鱼人和人鱼，一直希望去陆地？
 
 
------
+*****
 
 ####  Crazy_Knife  
 ##### 21970#       发表于 2011-4-14 13:21
@@ -10468,7 +10468,7 @@ otohime 真有马丁路德金的味道。。。
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 为啥最新那话阿龙还怕搞死那海军…难道后来发生啥事阿龙才变成这样了么…
 
 
------
+*****
 
 ####  qubely  
 ##### 21971#       发表于 2011-4-14 13:25
@@ -10477,7 +10477,7 @@ otohime 真有马丁路德金的味道。。。
 为啥你们认为阿龙喜欢杀人呢，他只是喜欢压迫人类，然后收保护费吧
 
 
------
+*****
 
 ####  kaori  
 ##### 21972#       发表于 2011-4-14 13:29
@@ -10488,7 +10488,7 @@ otohime 真有马丁路德金的味道。。。
 這樣可以幫助你理解阿龍&amp;quot;壞&amp;quot;在哪了..
 
 
------
+*****
 
 ####  flll  
 ##### 21973#       发表于 2011-4-14 13:48
@@ -10497,7 +10497,7 @@ otohime 真有马丁路德金的味道。。。
 阿龙最近时髦值刷得真勤快，最后说的那话难道是想表现这厮不仅仅是一介武夫？
 
 
------
+*****
 
 ####  cdfjg  
 ##### 21974#       发表于 2011-4-14 14:07
@@ -10506,7 +10506,7 @@ otohime 真有马丁路德金的味道。。。
 阿龙明显是因为泰格和乙姬的死，甚平是怎么变成老好人的才奇怪吧
 
 
------
+*****
 
 ####  x-iv  
 ##### 21975#       发表于 2011-4-14 14:26
@@ -10519,7 +10519,7 @@ otohime 真有马丁路德金的味道。。。
 甚平从此成为了老好人
 
 
------
+*****
 
 ####  HEILAST  
 ##### 21976#       发表于 2011-4-14 15:16
@@ -10530,7 +10530,7 @@ otohime 真有马丁路德金的味道。。。
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 印象中阿龍殺了不少人吧
 
 
------
+*****
 
 ####  qubely  
 ##### 21977#       发表于 2011-4-14 15:47
@@ -10542,7 +10542,7 @@ Re:回 22004楼(qubely) 的帖子
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"></blockquote>杀人不是目的，阿龙追求的是统治人类，把人当狗使唤的快感。和天龙人一个样。
 
 
------
+*****
 
 ####  opdconan  
 ##### 21978#       发表于 2011-4-14 16:05
@@ -10551,7 +10551,7 @@ Re:回 22004楼(qubely) 的帖子
 布鲁克你别这样，泰格刷时髦那会儿那时你早已经挂了……
 
 
------
+*****
 
 ####  ナミ  
 ##### 21979#       发表于 2011-4-14 16:19
@@ -10568,7 +10568,7 @@ Re:Re:回 22004楼(qubely) 的帖子
 恶龙洗白绝对不能接受，尾田你要给个说法<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qubely  
 ##### 21980#       发表于 2011-4-14 16:21
@@ -10585,7 +10585,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 ....... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>我没给阿龙洗白，我只是说阿龙喜欢虐人，甚平把猎物直接干掉，他觉得不爽
 
 
------
+*****
 
 ####  布鲁克  
 ##### 21981#       发表于 2011-4-14 17:58
@@ -10596,7 +10596,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 虽然我是骷髅，没有耳朵了~哟hohohoho……
 
 
------
+*****
 
 ####  tgl10  
 ##### 21982#       发表于 2011-4-14 18:57
@@ -10605,7 +10605,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 泰格不容小视,否则依靠他两个废物属下不可能和市级政府对抗的
 
 
------
+*****
 
 ####  tgl10  
 ##### 21983#       发表于 2011-4-14 19:01
@@ -10620,7 +10620,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 ....... <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>期待克洛船长和他的战斗队长强势回归
 
 
------
+*****
 
 ####  Crazy_Knife  
 ##### 21984#       发表于 2011-4-14 19:44
@@ -10631,7 +10631,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 期待克洛船长和他的战斗队长强势回归 <[img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">为啥我觉得他的队长会混得比他要好…队长是一定会出现的吧…
 
 
------
+*****
 
 ####  李剡s  
 ##### 21985#       发表于 2011-4-14 22:29
@@ -10640,7 +10640,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 这强势的巴掌和见闻色霸气，白星赶紧加入吧，船上缺美女缺游泳健将
 
 
------
+*****
 
 ####  y虫  
 ##### 21986#       发表于 2011-4-14 22:37
@@ -10649,7 +10649,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 战斗队长是克里克的。。。
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 21987#       发表于 2011-4-15 00:35
@@ -10658,7 +10658,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 16年前白星是婴儿，10年前饭桶呆啃开始最求白星，嗯…………
 
 
------
+*****
 
 ####  森田美位子  
 ##### 21988#       发表于 2011-4-15 00:42
@@ -10668,7 +10668,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 16年前白星是婴儿，10年前饭桶呆啃开始最求白星，嗯………… <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>你不能按照人类的情况来推白星，说不定鱼人发育快呢
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 21989#       发表于 2011-4-15 00:57
@@ -10679,7 +10679,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 白星，如果照现在这回忆下去，乙姬绝笔是没有实现自己的梦想就归西了，那白星就有上船的理由了，至于职位…咳咳，船夫？（233
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21990#       发表于 2011-4-15 01:09
@@ -10688,7 +10688,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 这船上连弱小三人组算上也没一个不能打的，白星那战斗力。。。
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 21991#       发表于 2011-4-15 01:11
@@ -10699,7 +10699,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 甚平恨的只是海军和世界政府吧，对人类似乎还挺无所谓的，不像阿龙。
 
 
------
+*****
 
 ####  luffyzhou  
 ##### 21992#       发表于 2011-4-15 08:31
@@ -10710,7 +10710,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 总感觉预言中的毁灭人鱼岛是人鱼岛要升上1万米了……
 
 
------
+*****
 
 ####  1603344  
 ##### 21993#       发表于 2011-4-15 12:42
@@ -10722,7 +10722,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 到处听人秘密？？
 
 
------
+*****
 
 ####  ezair  
 ##### 21994#       发表于 2011-4-15 13:01
@@ -10731,7 +10731,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 你们忘了人鱼古代诗篇了吗,集AOE,BUFF,DEBUFF于一身哟(误<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  klzxs  
 ##### 21995#       发表于 2011-4-15 13:07
@@ -10741,7 +10741,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 这么大支揍人也不会弱吧<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Crazy_Knife  
 ##### 21996#       发表于 2011-4-15 13:19
@@ -10750,7 +10750,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 罗杰不就是能听世界万物的声音么…
 
 
------
+*****
 
 ####  传说中的  
 ##### 21997#       发表于 2011-4-16 14:35
@@ -10760,7 +10760,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 16年前白星是婴儿，10年前饭桶呆啃开始最求白星，嗯………… <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>想想BOSS都悲剧。。。。
 
 
------
+*****
 
 ####  boahancock  
 ##### 21998#       发表于 2011-4-16 16:39
@@ -10771,7 +10771,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 想想BOSS都悲剧。。。。 <[img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flll  
 ##### 21999#       发表于 2011-4-17 16:19
@@ -10780,7 +10780,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 萨博是竹内顺子配的？最近OP动画还真穿越啊
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 22000#       发表于 2011-4-18 23:39
@@ -10789,7 +10789,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 谁告诉我是这期jump合刊还是下期？
 
 
------
+*****
 
 ####  yario  
 ##### 22001#       发表于 2011-4-20 18:05
@@ -10800,7 +10800,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 泰格是真英雄！不殺人類，又解放人類奴隸，只是觸怒了天龍人！
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 22002#       发表于 2011-4-20 18:12
@@ -10809,7 +10809,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 泰格的形象真正面
 
 
------
+*****
 
 ####  Futanari  
 ##### 22003#       发表于 2011-4-20 18:14
@@ -10818,7 +10818,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 恶龙白不了。 不过小八之前也就是个搞笑角色白了就白了
 
 
------
+*****
 
 ####  狮子歌歌  
 ##### 22004#       发表于 2011-4-20 18:22
@@ -10827,7 +10827,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 寇亚拉故乡会不会是东海 然后让阿龙给送回去？<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yario  
 ##### 22005#       发表于 2011-4-20 21:37
@@ -10837,7 +10837,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 這話看下來，十分懷疑泰格是不是應該叫費舍爾.D.泰格
 
 
------
+*****
 
 ####  深海魔物  
 ##### 22006#       发表于 2011-4-20 22:31
@@ -10853,7 +10853,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 白星公主没给年龄，但还在襁褓里那最大也就算2岁，6年后8岁。。被人求婚<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zjx121112  
 ##### 22007#       发表于 2011-4-20 22:43
@@ -10862,7 +10862,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 看来催泪弹又要来了～
 
 
------
+*****
 
 ####  hispeed  
 ##### 22008#       发表于 2011-4-20 22:52
@@ -10871,7 +10871,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 泰格纯爷们啊 杀人就输了！
 
 
------
+*****
 
 ####  小带鱼  
 ##### 22009#       发表于 2011-4-20 23:05
@@ -10880,7 +10880,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 这次出来的小奴隶看来就会是泰格大叔杀人的导火索了。。可惜休刊了。
 
 
------
+*****
 
 ####  flll  
 ##### 22010#       发表于 2011-4-20 23:07
@@ -10889,7 +10889,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 这段回忆里是不是没有那个章鱼剑士啊？光看到小八在太阳海贼团小活跃了，鱼人岛上貌似也没有他的身影？
 
 
------
+*****
 
 ####  angelooo  
 ##### 22011#       发表于 2011-4-20 23:07
@@ -10901,7 +10901,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 一想到这两个人都已经不在了……唉
 
 
------
+*****
 
 ####  日向超  
 ##### 22012#       发表于 2011-4-20 23:15
@@ -10910,7 +10910,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 这集后半段太催泪了！！！！
 
 
------
+*****
 
 ####  日向超  
 ##### 22013#       发表于 2011-4-20 23:18
@@ -10919,7 +10919,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 请尾田一定要在最后让路飞杀光天龙人啊！！！！！！！！！！！！！！！
 
 
------
+*****
 
 ####  hie  
 ##### 22014#       发表于 2011-4-20 23:39
@@ -10929,7 +10929,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 看起来让人心酸啊<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hie  
 ##### 22015#       发表于 2011-4-20 23:41
@@ -10939,7 +10939,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 这段回忆里是不是没有那个章鱼剑士啊？光看到小八在太阳海贼团小活跃了，鱼人岛上貌似也没有他的身影？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>有章鱼剑士，不过还小那在鱼人街
 
 
------
+*****
 
 ####  DNA  
 ##### 22016#       发表于 2011-4-21 01:05
@@ -10948,7 +10948,7 @@ Re:Re:Re:回 22004楼(qubely) 的帖子
 是不是换助手了？我怎么觉得画风有点像草稿靠拢了，尾田大大别学富贱呀<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  onepiecebest  
 ##### 22017#       发表于 2011-4-21 01:32
@@ -10958,7 +10958,7 @@ WT不愧是WT
 最后那几页看的很震撼<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiv  
 ##### 22018#       发表于 2011-4-21 07:28
@@ -10968,7 +10968,7 @@ WT不愧是WT
 请尾田一定要在最后让路飞杀光天龙人啊！！！！！！！！！！！！！！！ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>我们不杀人——去把泰格的话换成路飞的角度重新理解一下再说吧
 
 
------
+*****
 
 ####  ezair  
 ##### 22019#       发表于 2011-4-21 07:47
@@ -10977,7 +10977,7 @@ WT不愧是WT
 操，真是一页湿啊！我他妈最后一页跟着那奴隶小孩一起哭出来了！<img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sakuraop  
 ##### 22020#       发表于 2011-4-21 08:32
@@ -10986,7 +10986,7 @@ WT不愧是WT
 <img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer"> 这回好催泪，湿了。。。
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 22021#       发表于 2011-4-21 09:01
@@ -10997,7 +10997,7 @@ WT不愧是WT
 另外，甚平时髦值远远高于阿龙啊
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 22022#       发表于 2011-4-21 09:02
@@ -11010,7 +11010,7 @@ WT不愧是WT
 也可能是先一起送回，然后阿龙被放逐，去了那里
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 22023#       发表于 2011-4-21 09:32
@@ -11021,7 +11021,7 @@ WT不愧是WT
 你们说有没有可能这个小鬼被故乡的人出卖而死，甚平他们从小孩身上得到了对人类的信任，但是阿龙却对人类这个种族彻底失望？
 
 
------
+*****
 
 ####  flll  
 ##### 22024#       发表于 2011-4-21 09:43
@@ -11032,7 +11032,7 @@ WT不愧是WT
 有章鱼剑士，不过还小那在鱼人街 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>呃，至少这话里鱼人街那段没看到豹藏，而且不是有人猜测他是鱼人的第一剑客吗？小八都已经在太阳海贼团了，我还以为他也在
 
 
------
+*****
 
 ####  thez  
 ##### 22025#       发表于 2011-4-21 09:47
@@ -11041,7 +11041,7 @@ WT不愧是WT
 看来应该是黄猿杀了泰格？
 
 
------
+*****
 
 ####  kangbaiyin  
 ##### 22026#       发表于 2011-4-21 09:50
@@ -11056,7 +11056,7 @@ WT不愧是WT
 大概可以串起来？
 
 
------
+*****
 
 ####  Crazy_Knife  
 ##### 22027#       发表于 2011-4-21 11:19
@@ -11065,7 +11065,7 @@ WT不愧是WT
 <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">最后一页那想哭的冲动是什么
 
 
------
+*****
 
 ####  シャル  
 ##### 22028#       发表于 2011-4-21 11:34
@@ -11076,7 +11076,7 @@ WT不愧是WT
 这个太主角光环了吧
 
 
------
+*****
 
 ####  wingchau  
 ##### 22029#       发表于 2011-4-21 11:51
@@ -11085,7 +11085,7 @@ WT不愧是WT
 这话很湿啊...看来泰格就是因为这小孩而丧命.
 
 
------
+*****
 
 ####  日向超  
 ##### 22030#       发表于 2011-4-21 11:53
@@ -11096,7 +11096,7 @@ WT不愧是WT
 我们不杀人——去把泰格的话换成路飞的角度重新理解一下再说吧 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>不，我是站在小奴隶和成千上万被压迫的所有种族立场上要求杀光天龙人！！
 
 
------
+*****
 
 ####  opdconan  
 ##### 22031#       发表于 2011-4-21 11:57
@@ -11107,7 +11107,7 @@ WT不愧是WT
 现在在想鱼人采取同归战术能不能在汪洋大海里用撞船的方法和四皇级的同归于尽。现在已知雷利在出海后遇到暴风雨（无风带外）然后游到了女儿岛，已知见闻色霸气但不知道具体能不能当人工雷达使还要分路上和海里，不知道有没有一些海域属于四周全是海，人类的极限也游不到的陆地的那种地方……
 
 
------
+*****
 
 ####  faiths  
 ##### 22032#       发表于 2011-4-21 12:15
@@ -11118,7 +11118,7 @@ WT不愧是WT
 这种模仿黑人奴隶解放的故事果然燃到飞起啊
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 22033#       发表于 2011-4-21 12:38
@@ -11127,7 +11127,7 @@ WT不愧是WT
 杀光天龙人，以后海军也好做人，对大家都好。
 
 
------
+*****
 
 ####  莫愁  
 ##### 22034#       发表于 2011-4-21 12:41
@@ -11136,7 +11136,7 @@ WT不愧是WT
 <img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer"> 尾田我信你啊....
 
 
------
+*****
 
 ####  jsyyyz  
 ##### 22035#       发表于 2011-4-21 12:56
@@ -11149,7 +11149,7 @@ WT不愧是WT
 只会笑的小姑娘遇到了泰戈 之后悲剧了?
 
 
------
+*****
 
 ####  浪子龙飞z  
 ##### 22036#       发表于 2011-4-21 14:55
@@ -11158,7 +11158,7 @@ WT不愧是WT
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer"> 你们说会不会就是因为这个小姑娘背叛/出卖/不肯救泰格，导致了阿龙的最后黑化？
 
 
------
+*****
 
 ####  theory0  
 ##### 22037#       发表于 2011-4-21 15:38
@@ -11167,7 +11167,7 @@ WT不愧是WT
 这话太湿了，OP这么多年稳坐第一把交椅不是没有道理的
 
 
------
+*****
 
 ####  mikelin  
 ##### 22038#       发表于 2011-4-21 17:29
@@ -11181,7 +11181,7 @@ WT不愧是WT
 事实上现在往回看，路飞是在最开始出航时就已经具备了相当高的实力，在七水之都之前，基本上在战斗中没有真正吃过几次鳖。而且说实话打不过烟枪，几次失手沙鳄鱼这些战绩其实一点都不丢人，毕竟对手的实力在那里摆着。
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 22039#       发表于 2011-4-21 17:49
@@ -11191,7 +11191,7 @@ WT不愧是WT
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer"></blockquote>这样的话别说阿龙，甚平照样得黑化。
 
 
------
+*****
 
 ####  HEILAST  
 ##### 22040#       发表于 2011-4-21 17:55
@@ -11203,7 +11203,7 @@ WT不愧是WT
 說不定甚平黑化過，不過被白鬍子生生打回來了？
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22041#       发表于 2011-4-21 18:01
@@ -11212,7 +11212,7 @@ WT不愧是WT
 会不会是这样：泰格被人害死，乙姬仍然走和解道路，阿龙行刺，流放
 
 
------
+*****
 
 ####  HEILAST  
 ##### 22042#       发表于 2011-4-21 18:07
@@ -11224,7 +11224,7 @@ WT不愧是WT
 按照WT以往的風格，大人物的死法通常都會有些倪端。
 
 
------
+*****
 
 ####  HEILAST  
 ##### 22043#       发表于 2011-4-21 18:11
@@ -11235,7 +11235,7 @@ WT不愧是WT
 阿龍行刺乙姬？多半也難逃死罪吧，如果是這樣，估計也是甚平出面求情。
 
 
------
+*****
 
 ####  hispeed  
 ##### 22044#       发表于 2011-4-21 18:47
@@ -11246,7 +11246,7 @@ WT不愧是WT
 麻痹又湿了 看了那么多年还是会哭+max
 
 
------
+*****
 
 ####  yario  
 ##### 22045#       发表于 2011-4-21 19:07
@@ -11258,7 +11258,7 @@ WT不愧是WT
 事实上现在往回看，路飞是在最开始出航时就已经具备了相当高的实力，在七水之都之前，基本上在战斗中没有真正吃过几次鳖。而且说实话打不过烟枪，几次失手沙鳄鱼这些战绩其实一点都不丢人，毕竟对手的实力在那里摆着。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>力、敏、速、防（打击系）一出来就是一流的，二档之后前三者直接乘以二，三档后敏速减半，力估计乘以四都不止。唯一的弱点就是器械系物理攻击和自然系果实能力者，现在加上了霸气。。。。尾田对主角实力的塑造还是比较好的。
 
 
------
+*****
 
 ####  opdconan  
 ##### 22046#       发表于 2011-4-21 19:08
@@ -11268,7 +11268,7 @@ WT不愧是WT
 时间点才过了3年，离乙姬挂还有两三年的样子，送这孩子也许用不了这么久，所以可能没这孩子什么事（谁知道呢……
 
 
------
+*****
 
 ####  HEILAST  
 ##### 22047#       发表于 2011-4-21 19:23
@@ -11279,7 +11279,7 @@ WT不愧是WT
 前期還不是被桃太郎打到吃癟
 
 
------
+*****
 
 ####  ds006425  
 ##### 22048#       发表于 2011-4-21 19:23
@@ -11288,7 +11288,7 @@ WT不愧是WT
 <img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer"> 原来我不是一个人啊   最后一页直接湿了
 
 
------
+*****
 
 ####  tgl10  
 ##### 22049#       发表于 2011-4-21 19:39
@@ -11297,7 +11297,7 @@ WT不愧是WT
 很高兴的看到尾田没有给阿龙洗白
 
 
------
+*****
 
 ####  klzxs  
 ##### 22050#       发表于 2011-4-21 19:54
@@ -11308,7 +11308,7 @@ WT不愧是WT
 不可能只是因为前人那些功绩把<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ds006425  
 ##### 22051#       发表于 2011-4-21 20:13
@@ -11321,7 +11321,7 @@ WT不愧是WT
 权二代
 
 
------
+*****
 
 ####  alecwong  
 ##### 22052#       发表于 2011-4-21 21:02
@@ -11335,7 +11335,7 @@ WT不愧是WT
 - 发送自我的 iPhone 大板凳应用
 
 
------
+*****
 
 ####  antz4812  
 ##### 22053#       发表于 2011-4-21 22:04
@@ -11348,7 +11348,7 @@ WT不愧是WT
 ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,就是天龙人的存在本身代表着ZF的统治的合法性.
 
 
------
+*****
 
 ####  rubicon  
 ##### 22054#       发表于 2011-4-21 23:28
@@ -11357,7 +11357,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 上代剩下的俩大将要出来了么?
 
 
------
+*****
 
 ####  gaoyaa  
 ##### 22055#       发表于 2011-4-22 01:00
@@ -11367,7 +11367,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 这次故事能不能稍微接近空白的历史？
 
 
------
+*****
 
 ####  DJC  
 ##### 22056#       发表于 2011-4-22 11:53
@@ -11377,7 +11377,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 请尾田一定要在最后让路飞杀光天龙人啊！！！！！！！！！！！！！！！ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>不用路飞一众动手啊，哪天只要是去了海军庇护，应该有数之不尽的人会取其人头
 
 
------
+*****
 
 ####  革新  
 ##### 22057#       发表于 2011-4-22 12:49
@@ -11386,7 +11386,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 这个鱼人肯定是优秀党员 教育大家世界民族种族矛盾都是可以避免的 大家共同的敌人是阶级矛盾
 
 
------
+*****
 
 ####  twowars  
 ##### 22058#       发表于 2011-4-22 14:18
@@ -11395,7 +11395,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 王妃生了<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">这么大一个孩子出来…一定很辛苦吧…
 
 
------
+*****
 
 ####  klzxs  
 ##### 22059#       发表于 2011-4-22 16:35
@@ -11406,7 +11406,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 放着这群人哪有可能利于统治<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  tgl10  
 ##### 22060#       发表于 2011-4-22 16:52
@@ -11415,7 +11415,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 天龙人应该也有牛人,可能是统治陆地的
 
 
------
+*****
 
 ####  布鲁克  
 ##### 22061#       发表于 2011-4-22 17:43
@@ -11427,7 +11427,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 放着这群人哪有可能利于统治<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer"></blockquote>哟hohoho，想想封建社会的朝代为什么会更替...
 
 
------
+*****
 
 ####  Cheir  
 ##### 22062#       发表于 2011-4-22 18:04
@@ -11436,7 +11436,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 年纪小小的孩子被奴隶生活改造成如此情感缺失的“人”，以及跨越种族的理解，这话很有分量。
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 22063#       发表于 2011-4-26 17:17
@@ -11447,7 +11447,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 天龙人是不是有什么把柄还是什么牛逼人士在手里攒着或者政府上头和他们沆瀣一气，否则留着这么个玩意儿对统治太不利了啊…
 
 
------
+*****
 
 ####  Cheir  
 ##### 22064#       发表于 2011-4-26 17:30
@@ -11456,7 +11456,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 你说天龙人是以前的贵族，世界政府由他们的祖先创立的，然后后代们受到鄙视或者威胁了，待遇就是军舰+大将？！我觉得逻辑上说不过去啊。除非他们掌握了古代兵器，让政府也不敢动他们，甘于为他们打打杂。
 
 
------
+*****
 
 ####  LostWater  
 ##### 22065#       发表于 2011-4-27 03:04
@@ -11465,7 +11465,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 天龙人好比天朝皇帝，下面的官员再猛，也不容易直接推翻，而且会有背信弃义的感觉
 
 
------
+*****
 
 ####  流浪的翅膀  
 ##### 22066#       发表于 2011-4-29 17:51
@@ -11474,7 +11474,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 话说~本周休刊？
 
 
------
+*****
 
 ####  onepiecebest  
 ##### 22067#       发表于 2011-4-29 18:36
@@ -11483,7 +11483,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 日本也51放假..所以..
 
 
------
+*****
 
 ####  moonmooncat  
 ##### 22068#       发表于 2011-4-29 18:52
@@ -11493,7 +11493,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 天龙人好比天朝皇帝，下面的官员再猛，也不容易直接推翻，而且会有背信弃义的感觉 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>难道不是用日本天皇来比喻更合适吗
 
 
------
+*****
 
 ####  angelooo  
 ##### 22069#       发表于 2011-4-30 13:42
@@ -11503,7 +11503,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 623话泰格就死了……呃
 
 
------
+*****
 
 ####  HEILAST  
 ##### 22070#       发表于 2011-4-30 13:50
@@ -11515,7 +11515,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 那麼快領便當，我以為WT會用多畫幾話泰格
 
 
------
+*****
 
 ####  小带鱼  
 ##### 22071#       发表于 2011-4-30 14:25
@@ -11524,7 +11524,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 - -人心险恶，只能这么形容那小孩故乡的人了
 
 
------
+*****
 
 ####  狮子歌歌  
 ##### 22072#       发表于 2011-4-30 17:04
@@ -11534,7 +11534,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 每次看到这种“弱者的无奈”都觉得比单纯的“坏人伎俩”拉仇恨多了
 
 
------
+*****
 
 ####  yario  
 ##### 22073#       发表于 2011-4-30 17:45
@@ -11543,7 +11543,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 不是人類拒絕輸血，是泰格不要人類的血。。。
 
 
------
+*****
 
 ####  qwwwp  
 ##### 22074#       发表于 2011-5-1 00:16
@@ -11552,7 +11552,7 @@ ZF死保天龙人的原因跟ZF必须灭了奥哈拉的原因应该是一样的,
 窃以为既然泰格能从玛丽乔亚逃出来，不至于少将级别的几个海军都打不过吧<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Snaky  
 ##### 22075#       发表于 2011-5-1 02:12
@@ -11566,7 +11566,7 @@ Re:回 22102楼(angelooo) 的帖子
 结果就是这样么 果然超越空岛篇是不可能的了么 有点失望
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22076#       发表于 2011-5-1 09:31
@@ -11575,7 +11575,7 @@ Re:回 22102楼(angelooo) 的帖子
 从顶上决战就开始告诉大家，枪的齐射是很厉害的了……
 
 
------
+*****
 
 ####  yario  
 ##### 22077#       发表于 2011-5-1 10:08
@@ -11585,7 +11585,7 @@ Re:回 22102楼(angelooo) 的帖子
 现在要看otohime 的死法了。。。。
 
 
------
+*****
 
 ####  白河亜紀  
 ##### 22078#       发表于 2011-5-1 10:18
@@ -11596,7 +11596,7 @@ Re:回 22102楼(angelooo) 的帖子
 现在要看otohime 的死法了。。。。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>哭死的
 
 
------
+*****
 
 ####  rubicon  
 ##### 22079#       发表于 2011-5-1 12:55
@@ -11607,7 +11607,7 @@ Re:回 22102楼(angelooo) 的帖子
 看了这话我觉得有些角色到一定程度就是传说了,讨论成为传说的角色强弱是没有意义的<img src="https://static.saraba1st.com/image/smiley/face/15.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flll  
 ##### 22080#       发表于 2011-5-1 13:12
@@ -11617,7 +11617,7 @@ Re:回 22102楼(angelooo) 的帖子
 这次是黄猿不会是又打酱油了的吧？
 
 
------
+*****
 
 ####  hyyl520  
 ##### 22081#       发表于 2011-5-1 13:20
@@ -11627,7 +11627,7 @@ Re:回 22102楼(angelooo) 的帖子
 这剧情厚重感太强了
 
 
------
+*****
 
 ####  awq4545  
 ##### 22082#       发表于 2011-5-1 13:45
@@ -11639,7 +11639,7 @@ Re:回 22102楼(angelooo) 的帖子
 草莓中将有可能成为大将的人呢，实力不可忽视啊
 
 
------
+*****
 
 ####  yario  
 ##### 22083#       发表于 2011-5-1 13:45
@@ -11649,7 +11649,7 @@ Re:回 22102楼(angelooo) 的帖子
 这里甚平的故事里又出现了将和平相处的希望留给下一代的说法，和当年罗宾的奥哈拉岛最后将知识留给下一代不谋而合。
 
 
------
+*****
 
 ####  阿耨多罗  
 ##### 22084#       发表于 2011-5-1 13:52
@@ -11658,7 +11658,7 @@ Re:回 22102楼(angelooo) 的帖子
 看完完全没感觉，我成冷无缺了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  小熊流鼻血  
 ##### 22085#       发表于 2011-5-1 15:44
@@ -11667,7 +11667,7 @@ Re:回 22102楼(angelooo) 的帖子
 这小女孩克尔拉会是大胃女波妮吗？
 
 
------
+*****
 
 ####  DJC  
 ##### 22086#       发表于 2011-5-1 16:11
@@ -11678,7 +11678,7 @@ Re:回 22102楼(angelooo) 的帖子
 黄猿肯定又放水
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22087#       发表于 2011-5-1 18:20
@@ -11687,7 +11687,7 @@ Re:回 22102楼(angelooo) 的帖子
 如果真要说他弱，论据应该是：刚出海就被抓做奴隶
 
 
------
+*****
 
 ####  cather18  
 ##### 22088#       发表于 2011-5-1 19:14
@@ -11696,7 +11696,7 @@ Re:回 22102楼(angelooo) 的帖子
 我擦咧 阿龙这货要洗白？
 
 
------
+*****
 
 ####  风听雨  
 ##### 22089#       发表于 2011-5-1 19:35
@@ -11705,7 +11705,7 @@ Re:回 22102楼(angelooo) 的帖子
 泰格本人的杯具还是没的说的。。。。。不过这死法要是稍微改下就好了
 
 
------
+*****
 
 ####  Yeaha123  
 ##### 22090#       发表于 2011-5-1 19:48
@@ -11714,7 +11714,7 @@ Re:回 22102楼(angelooo) 的帖子
 本来女帝第一次提起泰格时，我真心觉得神秘的泰格又强悍又伟大。怎么看了最近几话，泰格的形象就直线下滑，有一种见面不如闻名的感觉呢？
 
 
------
+*****
 
 ####  日向超  
 ##### 22091#       发表于 2011-5-1 19:59
@@ -11724,7 +11724,7 @@ Re:回 22102楼(angelooo) 的帖子
 多年前的大话王祖先也没有特别强的实力啊
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 22092#       发表于 2011-5-1 20:02
@@ -11735,7 +11735,7 @@ Re:回 22102楼(angelooo) 的帖子
 现在看起来泰格还是很不错的，只是不是当时简直能压过白胡子的形象了。
 
 
------
+*****
 
 ####  圣言  
 ##### 22093#       发表于 2011-5-1 20:09
@@ -11747,7 +11747,7 @@ Re:回 22102楼(angelooo) 的帖子
 有些人之所以伟大又英雄，并不是因为他的实力有多高能力有多强，也许是因为他的人格有多高尚他的理想有多崇高
 
 
------
+*****
 
 ####  opdconan  
 ##### 22094#       发表于 2011-5-1 20:29
@@ -11757,7 +11757,7 @@ Re:回 22102楼(angelooo) 的帖子
 泰格这个英雄称号纯粹是源于他放了奴隶这一行为，和其他都无关，假设他打算作恶，但是放人中途被天龙人杀了，那他就是英烈，事实上泰格拯救奴隶的出发点也没有什么多高尚的理由，就是在海军罩天龙人，海贼本身就无法无天的背景下，有这么个人做了这么个举动群众喜闻乐见于是就越穿越邪乎而已（实际上漫画里还没见多邪乎），泰格自己也说，他对人类的恨是无法释怀的。
 
 
------
+*****
 
 ####  PATLABOR  
 ##### 22095#       发表于 2011-5-1 21:11
@@ -11767,7 +11767,7 @@ Re:回 22102楼(angelooo) 的帖子
 想想泡泡岛上包围拍卖场的海兵被揍成什么样子      <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  果子夹心  
 ##### 22096#       发表于 2011-5-1 21:18
@@ -11777,7 +11777,7 @@ Re:回 22102楼(angelooo) 的帖子
 而且不压低下他的实力，你们又会说咦为什么阿龙这初期boss实力不高却当太阳海贼团干部啊？
 
 
------
+*****
 
 ####  opdconan  
 ##### 22097#       发表于 2011-5-1 21:20
@@ -11786,7 +11786,7 @@ Re:回 22102楼(angelooo) 的帖子
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">没啥好失准的，仅就这几话的评价就够了，至少是甚平往上了。鱼人这海里牛陆上鳖的情况不是说了一次两次了，622就铺垫海里逮不到，623来个陆上埋伏秒杀，虽然突然不过完全可以接受。
 
 
------
+*****
 
 ####  李剡s  
 ##### 22098#       发表于 2011-5-1 23:40
@@ -11795,7 +11795,7 @@ Re:回 22102楼(angelooo) 的帖子
 为啥俺的第一印象也是 泰格的形象直逼大话王罗兰度呢，看了这话，其实泰格挺虚伪的，挺喜欢吃奉承的，形象可远不及罗兰度了
 
 
------
+*****
 
 ####  faiths  
 ##### 22099#       发表于 2011-5-1 23:53
@@ -11806,7 +11806,7 @@ Re:回 22102楼(angelooo) 的帖子
 s1的傻逼下限就又能刷新了
 
 
------
+*****
 
 ####  深海魔物  
 ##### 22100#       发表于 2011-5-1 23:58
@@ -11817,7 +11817,7 @@ s1的傻逼下限就又能刷新了
 银魂这点也很明显
 
 
------
+*****
 
 ####  klzxs  
 ##### 22101#       发表于 2011-5-2 00:44
@@ -11827,7 +11827,7 @@ s1的傻逼下限就又能刷新了
 多一点铺垫不好吗<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gaoyaa  
 ##### 22102#       发表于 2011-5-2 02:09
@@ -11840,7 +11840,7 @@ s1的傻逼下限就又能刷新了
 这算冷无缺吗= =
 
 
------
+*****
 
 ####  1603344  
 ##### 22103#       发表于 2011-5-2 05:42
@@ -11853,7 +11853,7 @@ s1的傻逼下限就又能刷新了
 完全是因为要死而死
 
 
------
+*****
 
 ####  lenin  
 ##### 22104#       发表于 2011-5-2 10:03
@@ -11869,7 +11869,7 @@ s1的傻逼下限就又能刷新了
 所以说，op里什么都会发生。
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22105#       发表于 2011-5-2 10:31
@@ -11878,7 +11878,7 @@ s1的傻逼下限就又能刷新了
 看到卡雅这样总觉得怪怪的，就好像乌索普最后会残疾要她照顾……
 
 
------
+*****
 
 ####  hie  
 ##### 22106#       发表于 2011-5-2 10:46
@@ -11889,7 +11889,7 @@ s1的傻逼下限就又能刷新了
 要是海军在海上能把他打这样才诡异哪
 
 
------
+*****
 
 ####  拾下拾下仔  
 ##### 22107#       发表于 2011-5-2 10:58
@@ -11904,7 +11904,7 @@ s1的傻逼下限就又能刷新了
 不要把仇恨留给后代,这从一个仇恨本身说出来.这就是伟人级别了吧!<img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  巴尔干炮  
 ##### 22108#       发表于 2011-5-2 10:59
@@ -11913,7 +11913,7 @@ s1的傻逼下限就又能刷新了
 泰格弱?没果实、没霸气、没带人、没带武器、中了埋伏、做为鱼人上了陆地、不杀人,这几点叠加在一块竟然只是因为拒绝输血才死.这还不够强啊?同样的条件换成路飞等不到上船就挂了
 
 
------
+*****
 
 ####  Loony  
 ##### 22109#       发表于 2011-5-2 11:52
@@ -11922,7 +11922,7 @@ s1的傻逼下限就又能刷新了
 也没说泰格有多牛逼的实力啊，路飞闯海底监狱放了一群人出来难道他当时的实力就能横扫海底城么。
 
 
------
+*****
 
 ####  6zking  
 ##### 22110#       发表于 2011-5-2 12:36
@@ -11933,7 +11933,7 @@ s1的傻逼下限就又能刷新了
 想想乌索普的爸妈……乌索普是不是该抽空回去留个种什么的……
 
 
------
+*****
 
 ####  dab23  
 ##### 22111#       发表于 2011-5-2 12:39
@@ -11944,7 +11944,7 @@ s1的傻逼下限就又能刷新了
 以前当过奴隶的费舍尔就一句——可是那些将死之人，死了之后还把仇恨延续给后代，这不是很滑稽么——就可以称得上伟大了
 
 
------
+*****
 
 ####  Snaky  
 ##### 22112#       发表于 2011-5-2 13:05
@@ -11957,7 +11957,7 @@ s1的傻逼下限就又能刷新了
 好吧 接下来的看点就是乙姬的暗杀事件了 这次事件的中心人物小女孩克拉尔未来出场的几率也相当高  
 
 
------
+*****
 
 ####  贝尔奈普斯  
 ##### 22113#       发表于 2011-5-2 14:27
@@ -11966,7 +11966,7 @@ s1的傻逼下限就又能刷新了
 主角威能不是谁都有的啊。。。路飞干的事情也不是谁都能做到的
 
 
------
+*****
 
 ####  刹那の劍  
 ##### 22114#       发表于 2011-5-2 19:15
@@ -11979,7 +11979,7 @@ s1的傻逼下限就又能刷新了
 有什么好纠结的呢
 
 
------
+*****
 
 ####  opdconan  
 ##### 22115#       发表于 2011-5-2 20:21
@@ -11989,7 +11989,7 @@ s1的傻逼下限就又能刷新了
 比如，是怎么从“我死都不用人类的血”发展成“人类不给老大输血”的（说起来，山治小哥要是当时一息尚存，也许也会毅然选择在幸福中死去……）
 
 
------
+*****
 
 ####  yario  
 ##### 22116#       发表于 2011-5-2 20:32
@@ -11998,7 +11998,7 @@ s1的傻逼下限就又能刷新了
 聖地篇勢在必行。
 
 
------
+*****
 
 ####  qubely  
 ##### 22117#       发表于 2011-5-2 20:40
@@ -12007,7 +12007,7 @@ s1的傻逼下限就又能刷新了
 泰格明显是心灰意冷后故意挨打的吧，人类的这次背叛对他打击太大了。
 
 
------
+*****
 
 ####  qubely  
 ##### 22118#       发表于 2011-5-2 20:42
@@ -12017,7 +12017,7 @@ s1的傻逼下限就又能刷新了
 也没说泰格有多牛逼的实力啊，路飞闯海底监狱放了一群人出来难道他当时的实力就能横扫海底城么。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>泰格是靠实力当上鱼人街老大的
 
 
------
+*****
 
 ####  opdconan  
 ##### 22119#       发表于 2011-5-2 20:55
@@ -12030,7 +12030,7 @@ s1的傻逼下限就又能刷新了
 收小孩那岛肯定不是了，他们知道消息应该是海军去找他们说要埋伏时知道的。
 
 
------
+*****
 
 ####  awq4545  
 ##### 22120#       发表于 2011-5-2 21:14
@@ -12046,7 +12046,7 @@ wt不止一次提到人鱼鱼人的武技什么的是在皇宫卫队里学的
 草莓少将夸的只有吉贝尔一个哦，泰格半毛钱都没放在眼里
 
 
------
+*****
 
 ####  opdconan  
 ##### 22121#       发表于 2011-5-2 21:45
@@ -12059,7 +12059,7 @@ wt不止一次提到人鱼鱼人的武技什么的是在皇宫卫队里学的
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">为毛对泰格一会儿是捧上天一会儿是黑到底呢，大叔是无辜的
 
 
------
+*****
 
 ####  xiv  
 ##### 22122#       发表于 2011-5-2 21:57
@@ -12072,7 +12072,7 @@ Dr.希鲁鲁克也就是一个庸医
 泰格的战力不是顶尖有这么难以接受么
 
 
------
+*****
 
 ####  angelooo  
 ##### 22123#       发表于 2011-5-2 22:13
@@ -12084,7 +12084,7 @@ Dr.希鲁鲁克也就是一个庸医
 泰格这里纠结过了，王妃那里肯定还要纠结……唉
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22124#       发表于 2011-5-2 22:24
@@ -12093,7 +12093,7 @@ Dr.希鲁鲁克也就是一个庸医
 其实关于鱼人人鱼和人族的关系……20年前TOM和大妈在水之都过的好好的，全城人都尊敬他们
 
 
------
+*****
 
 ####  opdconan  
 ##### 22125#       发表于 2011-5-2 22:24
@@ -12102,7 +12102,7 @@ Dr.希鲁鲁克也就是一个庸医
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">其实鱼人和人类纠结的关系本该是一篇环保题材的漫画，应该是居住在陆地上的人们向大海里排放污染，住在浅海的人鱼和鱼人们饱受苦难，于是迁去深海，若干年过去了，不甘于终生生活在漆黑的海底，想要回到晴空之下的鱼人们奋起反抗，时值政府乱政，海贼横行。渴望着绿水蓝天的鱼人们、横行海上的海贼们、暴政肆虐的国家、饱受战乱的群众、揭竿而起的革命军，他们集结于此，吹响时代的号角。
 
 
------
+*****
 
 ####  hie  
 ##### 22126#       发表于 2011-5-2 22:27
@@ -12112,7 +12112,7 @@ Dr.希鲁鲁克也就是一个庸医
 海底来个乌贼娘妄图征服人类<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yingxshua  
 ##### 22127#       发表于 2011-5-2 22:37
@@ -12124,7 +12124,7 @@ Dr.希鲁鲁克也就是一个庸医
 泰格这里确实死的过快过于颓废了...
 
 
------
+*****
 
 ####  李剡s  
 ##### 22128#       发表于 2011-5-2 22:57
@@ -12133,7 +12133,7 @@ Dr.希鲁鲁克也就是一个庸医
 阿朗一边被人类踩在脚下一边哭着说人类是下等种族，还妄想从东海开始统治他打不过的人类是神马心态
 
 
------
+*****
 
 ####  opdconan  
 ##### 22129#       发表于 2011-5-2 23:14
@@ -12143,7 +12143,7 @@ Dr.希鲁鲁克也就是一个庸医
 其实阿龙屯够钱，用钱升各种硬件，改号不挂海贼，一边升级一边坐等世界大乱，然后从中掺一脚没准是有出路的……
 
 
------
+*****
 
 ####  yario  
 ##### 22130#       发表于 2011-5-2 23:15
@@ -12153,7 +12153,7 @@ Dr.希鲁鲁克也就是一个庸医
 其实关于鱼人人鱼和人族的关系……20年前TOM和大妈在水之都过的好好的，全城人都尊敬他们 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>只能说明尾田那个时候已经布下伏笔了
 
 
------
+*****
 
 ####  传说中的  
 ##### 22131#       发表于 2011-5-2 23:54
@@ -12163,7 +12163,7 @@ Dr.希鲁鲁克也就是一个庸医
 按正常时间剧情，枪也干不动阿龙，这个别再纠结了。
 
 
------
+*****
 
 ####  玻璃蔷薇  
 ##### 22132#       发表于 2011-5-3 01:18
@@ -12173,7 +12173,7 @@ Dr.希鲁鲁克也就是一个庸医
 泰格弱?没果实、没霸气、没带人、没带武器、中了埋伏、做为鱼人上了陆地、不杀人,这几点叠加在一块竟然只是因为拒绝输血才死.这还不够强啊?同样的条件换成路飞等不到上船就挂了 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>喂，泰格没有好人到这种地步。
 
 
------
+*****
 
 ####  klzxs  
 ##### 22133#       发表于 2011-5-3 01:26
@@ -12187,7 +12187,7 @@ Dr.希鲁鲁克也就是一个庸医
 但他就是不杀人不是吗
 
 
------
+*****
 
 ####  tgl10  
 ##### 22134#       发表于 2011-5-3 09:08
@@ -12196,7 +12196,7 @@ Dr.希鲁鲁克也就是一个庸医
 尾田讲故事节奏快了吗,加油别停下来
 
 
------
+*****
 
 ####  opdconan  
 ##### 22135#       发表于 2011-5-3 14:36
@@ -12206,7 +12206,7 @@ Dr.希鲁鲁克也就是一个庸医
 比如，杂兵在少将的指挥下用各种阵型对在陆地上灵敏降低的泰格持续枪击，少将可能也直接对上泰格。这和不杀人关系不大，泰格纯肉搏，拍晕和拍死估计都是一下的事，和红狗那种有地图炮的不一样。
 
 
------
+*****
 
 ####  DGIL  
 ##### 22136#       发表于 2011-5-3 21:17
@@ -12217,7 +12217,7 @@ Dr.希鲁鲁克也就是一个庸医
 ，然后不少人~包括我~自然也认为应该配上相应的实力。。
 
 
------
+*****
 
 ####  alecwong  
 ##### 22137#       发表于 2011-5-3 22:34
@@ -12238,7 +12238,7 @@ Dr.希鲁鲁克也就是一个庸医
 麻痹的太黑暗了，这还是我喜欢这么多年的OP么<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zzfzz  
 ##### 22138#       发表于 2011-5-3 22:47
@@ -12247,7 +12247,7 @@ Dr.希鲁鲁克也就是一个庸医
 空手爬上红土大陆，其实路飞以前干过类似的事吧
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 22139#       发表于 2011-5-4 00:26
@@ -12256,7 +12256,7 @@ Dr.希鲁鲁克也就是一个庸医
 少将的实力为什么就不能干泰格呢？斯摩格在罗格镇的时候还连个将级都不到呢，当时人家可是自然系果实加海楼石武器呢。
 
 
------
+*****
 
 ####  Snaky  
 ##### 22140#       发表于 2011-5-4 00:49
@@ -12276,7 +12276,7 @@ Dr.希鲁鲁克也就是一个庸医
 来个泰格大战草莓少将 最后因寡不敌众而负伤不就合理多了
 
 
------
+*****
 
 ####  Loony  
 ##### 22141#       发表于 2011-5-4 04:15
@@ -12285,7 +12285,7 @@ Dr.希鲁鲁克也就是一个庸医
 阿龙现在在哪里，应该没死吧。年代太久远了，不记得了
 
 
------
+*****
 
 ####  森田美位子  
 ##### 22142#       发表于 2011-5-4 04:39
@@ -12295,7 +12295,7 @@ Dr.希鲁鲁克也就是一个庸医
 阿龙现在在哪里，应该没死吧。年代太久远了，不记得了 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>应该是被海军支部收监了吧
 
 
------
+*****
 
 ####  baberlight  
 ##### 22143#       发表于 2011-5-4 05:32
@@ -12312,7 +12312,7 @@ Dr.希鲁鲁克也就是一个庸医
 和天元里大哥最后一夜的告白那里有异曲同工之妙
 
 
------
+*****
 
 ####  羲和  
 ##### 22144#       发表于 2011-5-4 10:05
@@ -12331,7 +12331,7 @@ Dr.希鲁鲁克也就是一个庸医
 不满意看火影去呗 那个回忆里也慢慢画怎么打架
 
 
------
+*****
 
 ####  Sue  
 ##### 22145#       发表于 2011-5-4 18:37
@@ -12342,7 +12342,7 @@ Dr.希鲁鲁克也就是一个庸医
 泰格太让我感动了，看完这一话后重新翻回前面一话看他对阿龙的训话，他对克拉尔的态度，自海底监狱Mr.2以来，OP最让我感动的就是他了
 
 
------
+*****
 
 ####  BartholemewKuma  
 ##### 22146#       发表于 2011-5-4 19:15
@@ -12351,7 +12351,7 @@ Dr.希鲁鲁克也就是一个庸医
 ……
 
 
------
+*****
 
 ####  kaien_kira  
 ##### 22147#       发表于 2011-5-4 22:04
@@ -12360,7 +12360,7 @@ Dr.希鲁鲁克也就是一个庸医
 泰格并没有想象的强,救奴隶的过程也许非常曲折
 
 
------
+*****
 
 ####  Snaky  
 ##### 22148#       发表于 2011-5-4 23:21
@@ -12377,7 +12377,7 @@ Dr.希鲁鲁克也就是一个庸医
 当然不排除WT刻意如此安排或者以后顺手打个补丁什么的 咱愚钝一时半会儿理解不能
 
 
------
+*****
 
 ####  klzxs  
 ##### 22149#       发表于 2011-5-4 23:32
@@ -12386,7 +12386,7 @@ Dr.希鲁鲁克也就是一个庸医
 说起来天龙人算人类吗<img src="https://static.saraba1st.com/image/smiley/face/03.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alecwong  
 ##### 22150#       发表于 2011-5-5 00:10
@@ -12397,7 +12397,7 @@ Dr.希鲁鲁克也就是一个庸医
 不对这样又违背了泰格的心愿了
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 22151#       发表于 2011-5-5 02:22
@@ -12410,7 +12410,7 @@ Dr.希鲁鲁克也就是一个庸医
 要想看泰格的大战，有个东西叫番外篇，那玩意儿最适合fans，就是不知道尾田会不会出。（或者看动画，动画绝对不会错过这个拖戏的机会）
 
 
------
+*****
 
 ####  klzxs  
 ##### 22152#       发表于 2011-5-5 02:28
@@ -12422,7 +12422,7 @@ Dr.希鲁鲁克也就是一个庸医
 但我还是觉得对泰格的描写再多一点比较好<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yunluo  
 ##### 22153#       发表于 2011-5-5 03:00
@@ -12431,7 +12431,7 @@ Dr.希鲁鲁克也就是一个庸医
 大概后面会在国王/王妃视角再来一次回忆吧...=.=b
 
 
------
+*****
 
 ####  无量  
 ##### 22154#       发表于 2011-5-5 06:45
@@ -12446,7 +12446,7 @@ Dr.希鲁鲁克也就是一个庸医
 因为这些，他无法真心去爱人类，但也不会想故意去伤害人类。
 
 
------
+*****
 
 ####  风听雨  
 ##### 22155#       发表于 2011-5-5 07:06
@@ -12461,7 +12461,7 @@ Dr.希鲁鲁克也就是一个庸医
 P.S. 那个奴隶小孩还会不会是被黑胡子掳走的超新星咧。。。
 
 
------
+*****
 
 ####  一个人的A.E  
 ##### 22156#       发表于 2011-5-5 10:06
@@ -12470,7 +12470,7 @@ P.S. 那个奴隶小孩还会不会是被黑胡子掳走的超新星咧。。。
 这几话是甚平介绍，甚平一开始就说时间紧急，长话短说。如果画个十几话，那还叫什么长话短说，国王大概早挂了吧。
 
 
------
+*****
 
 ####  onsaber  
 ##### 22157#       发表于 2011-5-7 17:52
@@ -12479,7 +12479,7 @@ P.S. 那个奴隶小孩还会不会是被黑胡子掳走的超新星咧。。。
 这楼掉的也太快了吧……
 
 
------
+*****
 
 ####  hispeed  
 ##### 22158#       发表于 2011-5-7 18:09
@@ -12490,7 +12490,7 @@ P.S. 那个奴隶小孩还会不会是被黑胡子掳走的超新星咧。。。
 四月新番可讨论的太多 还有馒头卡
 
 
------
+*****
 
 ####  DNA  
 ##### 22159#       发表于 2011-5-7 20:22
@@ -12499,7 +12499,7 @@ P.S. 那个奴隶小孩还会不会是被黑胡子掳走的超新星咧。。。
 这周为什么还没出啊？
 
 
------
+*****
 
 ####  opdconan  
 ##### 22160#       发表于 2011-5-7 21:37
@@ -12508,7 +12508,7 @@ P.S. 那个奴隶小孩还会不会是被黑胡子掳走的超新星咧。。。
 这周的上周预支了
 
 
------
+*****
 
 ####  阿耨多罗  
 ##### 22161#       发表于 2011-5-8 11:54
@@ -12517,7 +12517,7 @@ P.S. 那个奴隶小孩还会不会是被黑胡子掳走的超新星咧。。。
 单行本漫画HMM后还有那个比较好的扫者的扫？哪可以下到？<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luffyplus  
 ##### 22162#       发表于 2011-5-8 13:13
@@ -12528,7 +12528,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 完全不是战得过战不过的问题。。这个时候他们面对的不是海军，是绝望<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LichEnd  
 ##### 22163#       发表于 2011-5-8 17:13
@@ -12542,7 +12542,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 被出卖的精神攻击威力比较大……
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22164#       发表于 2011-5-8 17:20
@@ -12551,7 +12551,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 被捕后更霸气，他才是鱼人族第一高手吧……至少弗兰克现在还不会他的空中造船法吧
 
 
------
+*****
 
 ####  cloudhp7777  
 ##### 22165#       发表于 2011-5-10 14:35
@@ -12560,7 +12560,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">fight together的单曲怎么还没消息
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22166#       发表于 2011-5-11 14:43
@@ -12569,7 +12569,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 天龙人，又是天龙人，这仇恨拉的，比白面者和白金还能耐
 
 
------
+*****
 
 ####  angelooo  
 ##### 22167#       发表于 2011-5-11 14:53
@@ -12579,7 +12579,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 蝙蝠传信什么的，难道巴基大神真的成了七武海？！
 
 
------
+*****
 
 ####  hie  
 ##### 22168#       发表于 2011-5-11 16:07
@@ -12590,7 +12590,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 柯南属性啊
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 22169#       发表于 2011-5-11 16:38
@@ -12599,7 +12599,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 情报验证了，无误。
 
 
------
+*****
 
 ####  yario  
 ##### 22170#       发表于 2011-5-11 20:36
@@ -12608,7 +12608,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 看了鼠繪的先行版，基本可以確認路飛毀滅魚人島的可能性將是非常的大
 
 
------
+*****
 
 ####  北落紫潇  
 ##### 22171#       发表于 2011-5-11 20:45
@@ -12618,7 +12618,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 于是顶上战争巴基才是最大的淫家啊<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 22172#       发表于 2011-5-11 20:49
@@ -12629,7 +12629,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 最近两个回忆都和天龙人脱不了干系，什么时候准备让他们也在正篇中露个脸
 
 
------
+*****
 
 ####  qubely  
 ##### 22173#       发表于 2011-5-11 20:56
@@ -12638,7 +12638,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 鼠绘的速度真TMD给力
 
 
------
+*****
 
 ####  yario  
 ##### 22174#       发表于 2011-5-11 21:07
@@ -12647,7 +12647,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 繼承otohime和泰格雙人的理想的甚平會上船 嗎？
 
 
------
+*****
 
 ####  faiths  
 ##### 22175#       发表于 2011-5-11 23:58
@@ -12656,7 +12656,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 看到王妃喝醉的喊话直接就湿了。。。种族之间的矛盾 和平共处的可能性这种话题太沉重了啊啊啊
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 22176#       发表于 2011-5-12 00:38
@@ -12665,7 +12665,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 下话天龙人会不会想抓王妃当奴隶……
 
 
------
+*****
 
 ####  qubely  
 ##### 22177#       发表于 2011-5-12 00:40
@@ -12674,7 +12674,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 下一话天龙人又要出来恶心人了
 
 
------
+*****
 
 ####  taichiY  
 ##### 22178#       发表于 2011-5-12 00:43
@@ -12683,7 +12683,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 天龙人是灾星..........
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 22179#       发表于 2011-5-12 00:45
@@ -12695,7 +12695,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 那个什么路飞，就让丫当新的金狮子吧——金猴子！
 
 
------
+*****
 
 ####  Cheir  
 ##### 22180#       发表于 2011-5-12 07:55
@@ -12705,7 +12705,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 那他们能不能建个岛什么的？
 
 
------
+*****
 
 ####  feilin7  
 ##### 22181#       发表于 2011-5-12 08:56
@@ -12715,7 +12715,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 怎么没人邀请路飞做七武海
 
 
------
+*****
 
 ####  yario  
 ##### 22182#       发表于 2011-5-12 14:13
@@ -12724,7 +12724,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 他第一次大幅度升赏金就是打倒七武海，摆明了藐视政府…
 
 
------
+*****
 
 ####  rubicon  
 ##### 22183#       发表于 2011-5-13 00:07
@@ -12733,7 +12733,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 鱼人才500万人口啊
 
 
------
+*****
 
 ####  tgl10  
 ##### 22184#       发表于 2011-5-14 00:01
@@ -12742,7 +12742,7 @@ tom叔叔造大船的时候后那么霸气，被捕的时候还不是认了，
 wt要再画一个恶心的天龙人?
 
 
------
+*****
 
 ####  tgl10  
 ##### 22185#       发表于 2011-5-14 00:05
@@ -12751,7 +12751,7 @@ wt要再画一个恶心的天龙人?
 泰格便当的这么快,果然王菲才是wt想画的
 
 
------
+*****
 
 ####  osk666  
 ##### 22186#       发表于 2011-5-16 08:51
@@ -12761,7 +12761,7 @@ wt要再画一个恶心的天龙人?
 这点怎样说明？
 
 
------
+*****
 
 ####  superbia  
 ##### 22187#       发表于 2011-5-16 09:06
@@ -12781,7 +12781,7 @@ wt要再画一个恶心的天龙人?
 但他的确死的很莫名其妙,我相信日本也会有读者读到那幕整个人<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">掉,到时单行本的SBS会有相关的问答吧
 
 
------
+*****
 
 ####  Snaky  
 ##### 22188#       发表于 2011-5-16 14:55
@@ -12797,7 +12797,7 @@ wt要再画一个恶心的天龙人?
 的确是我看漏了呢
 
 
------
+*****
 
 ####  faiths  
 ##### 22189#       发表于 2011-5-18 16:26
@@ -12806,7 +12806,7 @@ wt要再画一个恶心的天龙人?
 我擦嘞白星这个能力的时髦值爆棚了啊！
 
 
------
+*****
 
 ####  qubely  
 ##### 22190#       发表于 2011-5-18 16:46
@@ -12815,7 +12815,7 @@ wt要再画一个恶心的天龙人?
 王妃跟着天龙人回去后竟然活着回来了？
 
 
------
+*****
 
 ####  opdconan  
 ##### 22191#       发表于 2011-5-18 16:52
@@ -12826,7 +12826,7 @@ wt要再画一个恶心的天龙人?
 说起海王类，海王类设定只在无风带，是只有这么个设定还是有其他设定，鱼人岛不在无风带吧
 
 
------
+*****
 
 ####  qubely  
 ##### 22192#       发表于 2011-5-18 16:56
@@ -12835,7 +12835,7 @@ wt要再画一个恶心的天龙人?
 哪里说过海王类只在无风带的？
 
 
------
+*****
 
 ####  opdconan  
 ##### 22193#       发表于 2011-5-18 17:01
@@ -12845,7 +12845,7 @@ wt要再画一个恶心的天龙人?
 提起海王类就有无风带的事，总感觉隐约就透露着海王类只在无风带的感觉
 
 
------
+*****
 
 ####  angelooo  
 ##### 22194#       发表于 2011-5-18 17:16
@@ -12856,7 +12856,7 @@ wt要再画一个恶心的天龙人?
 这事肯定有什么阴谋
 
 
------
+*****
 
 ####  yario  
 ##### 22195#       发表于 2011-5-18 17:37
@@ -12865,7 +12865,7 @@ wt要再画一个恶心的天龙人?
 尾田要诱导我们猜白星入团啊。。。这么牛X的能力。。。。
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 22196#       发表于 2011-5-18 18:52
@@ -12874,7 +12874,7 @@ wt要再画一个恶心的天龙人?
 召唤海王类，太他妈时髦儿了！
 
 
------
+*****
 
 ####  kvkv  
 ##### 22197#       发表于 2011-5-18 19:00
@@ -12887,7 +12887,7 @@ wt要再画一个恶心的天龙人?
 红发在手在哪断的？ <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luffyzhou  
 ##### 22198#       发表于 2011-5-18 19:17
@@ -12896,7 +12896,7 @@ wt要再画一个恶心的天龙人?
 红发断手的那个我记得翻译成“近海王者”，看上去离海王类体型差很大
 
 
------
+*****
 
 ####  opdconan  
 ##### 22199#       发表于 2011-5-18 19:35
@@ -12911,7 +12911,7 @@ wt要再画一个恶心的天龙人?
 如果不是被动的离不开，那就是主动的不离开咯？于是会不会有 还有什么高级种的高智商真*海王率领着一群海王类守护着XX 这种展开……
 
 
------
+*****
 
 ####  wingchau  
 ##### 22200#       发表于 2011-5-18 21:25
@@ -12920,7 +12920,7 @@ wt要再画一个恶心的天龙人?
 白星要召唤巨型海王类然后打巨大战舰吗...<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 22201#       发表于 2011-5-18 23:25
@@ -12933,7 +12933,7 @@ wt要再画一个恶心的天龙人?
 虽然这话最后看上去是转机但我们都知道不是这样的，刺杀是怎么发生的……
 
 
------
+*****
 
 ####  opdconan  
 ##### 22202#       发表于 2011-5-18 23:29
@@ -12942,7 +12942,7 @@ wt要再画一个恶心的天龙人?
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">WT又在考验动画监督了，白星开召唤这神奇的时间差……
 
 
------
+*****
 
 ####  燃夜郎君  
 ##### 22203#       发表于 2011-5-19 00:21
@@ -12951,7 +12951,7 @@ wt要再画一个恶心的天龙人?
 白星这种能力完全是为上船准备的……尽管我是不希望这个人上船，从头开始教新人太麻烦了……
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 22204#       发表于 2011-5-19 00:36
@@ -12960,7 +12960,7 @@ wt要再画一个恶心的天龙人?
 哭鼻子的白星好萌啊！
 
 
------
+*****
 
 ####  mikelin  
 ##### 22205#       发表于 2011-5-19 01:00
@@ -12971,7 +12971,7 @@ wt要再画一个恶心的天龙人?
 这一周王妃发生了什么。。。剧情又开始纠结了。
 
 
------
+*****
 
 ####  拾下拾下仔  
 ##### 22206#       发表于 2011-5-19 01:15
@@ -12981,7 +12981,7 @@ wt要再画一个恶心的天龙人?
 太狗血了...
 
 
------
+*****
 
 ####  yingxshua  
 ##### 22207#       发表于 2011-5-19 01:24
@@ -12990,7 +12990,7 @@ wt要再画一个恶心的天龙人?
 天龙人的智商感觉设定的过于下限了
 
 
------
+*****
 
 ####  agitator  
 ##### 22208#       发表于 2011-5-19 01:27
@@ -12999,7 +12999,7 @@ wt要再画一个恶心的天龙人?
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer"> 哭鼻子白星好萌，王妃的人格魅力啊
 
 
------
+*****
 
 ####  hispeed  
 ##### 22209#       发表于 2011-5-19 08:22
@@ -13008,7 +13008,7 @@ wt要再画一个恶心的天龙人?
 现在的问题是 白星这个体积，怎么上船？
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22210#       发表于 2011-5-19 08:53
@@ -13017,7 +13017,7 @@ wt要再画一个恶心的天龙人?
 白星的能力是为了守护将来在陆地上的鱼人岛吧，周围围一圈海王类
 
 
------
+*****
 
 ####  ejsbs  
 ##### 22211#       发表于 2011-5-19 09:04
@@ -13028,7 +13028,7 @@ wt要再画一个恶心的天龙人?
 水族馆？<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dawn34  
 ##### 22212#       发表于 2011-5-19 10:07
@@ -13037,7 +13037,7 @@ wt要再画一个恶心的天龙人?
 说起来现在还真没有召唤系的
 
 
------
+*****
 
 ####  kedokido  
 ##### 22213#       发表于 2011-5-19 10:28
@@ -13057,7 +13057,7 @@ wt要再画一个恶心的天龙人?
 总的来说，三者是一类？只是体型大小不同？
 
 
------
+*****
 
 ####  Cheir  
 ##### 22214#       发表于 2011-5-19 12:21
@@ -13066,7 +13066,7 @@ wt要再画一个恶心的天龙人?
 白星妹妹是我看OP以来感觉最萌的一只妹子……<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cather18  
 ##### 22215#       发表于 2011-5-19 12:37
@@ -13075,7 +13075,7 @@ wt要再画一个恶心的天龙人?
 天龙人的仇恨拉的太NB了 我现在是无比期盼这帮2b完蛋的哪一话啊
 
 
------
+*****
 
 ####  coneed  
 ##### 22216#       发表于 2011-5-19 13:12
@@ -13084,7 +13084,7 @@ wt要再画一个恶心的天龙人?
 在人鱼岛招个美丽的人鱼公主上船不是大家几年前就在YY的喜闻乐见的剧情吗<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  aosng007  
 ##### 22217#       发表于 2011-5-19 14:37
@@ -13093,7 +13093,7 @@ wt要再画一个恶心的天龙人?
 我怎么想到王妃被NTR这种情节.....<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 22218#       发表于 2011-5-19 14:49
@@ -13103,7 +13103,7 @@ wt要再画一个恶心的天龙人?
 我怎么想到王妃被NTR这种情节.....<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer"></blockquote>天龙人不是把鱼人&amp;amp;人鱼都当作“鱼类”看待的吗，要是真NTR了他们的口味还真够重的OTZ
 
 
------
+*****
 
 ####  Yimo  
 ##### 22219#       发表于 2011-5-19 14:54
@@ -13117,7 +13117,7 @@ wt要再画一个恶心的天龙人?
 我不要这么心理阴暗啦。。。。
 
 
------
+*****
 
 ####  DGIL  
 ##### 22220#       发表于 2011-5-19 15:15
@@ -13128,7 +13128,7 @@ wt要再画一个恶心的天龙人?
 <img src="https://static.saraba1st.com/image/smiley/face/127.gif" referrerpolicy="no-referrer">大概是女帝在描述恩人高大的背影的时候。。
 
 
------
+*****
 
 ####  well  
 ##### 22221#       发表于 2011-5-19 15:23
@@ -13139,7 +13139,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 白星这能力太猛了，上船吧！
 
 
------
+*****
 
 ####  DGIL  
 ##### 22222#       发表于 2011-5-19 15:35
@@ -13150,7 +13150,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">不过放一堆出去对敌群体攻击是很美好的事
 
 
------
+*****
 
 ####  小熊流鼻血  
 ##### 22223#       发表于 2011-5-19 15:51
@@ -13159,7 +13159,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 乔巴可以配个缩小药给白星吃...
 
 
------
+*****
 
 ####  视死如归  
 ##### 22224#       发表于 2011-5-19 16:06
@@ -13171,7 +13171,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 话说甚平的实力到底有多全面啊？<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  klzxs  
 ##### 22225#       发表于 2011-5-19 16:16
@@ -13180,7 +13180,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 超大级别的海王类比起大将什么的牛逼多了吧<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AD  
 ##### 22226#       发表于 2011-5-19 16:19
@@ -13189,7 +13189,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 <img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">还能有打不过海王类的大将？？
 
 
------
+*****
 
 ####  DGIL  
 ##### 22227#       发表于 2011-5-19 16:28
@@ -13198,7 +13198,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">海王类神马的。。鼯鼠中将就没鸭梨了啊。。。
 
 
------
+*****
 
 ####  door  
 ##### 22228#       发表于 2011-5-19 16:39
@@ -13207,7 +13207,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 冥王在無風帯中遊上女人島、中間殺了多少海王類
 
 
------
+*****
 
 ####  klzxs  
 ##### 22229#       发表于 2011-5-19 16:41
@@ -13219,7 +13219,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 而且要说的话红发还不给咬了一条手
 
 
------
+*****
 
 ####  opdconan  
 ##### 22230#       发表于 2011-5-19 16:44
@@ -13231,7 +13231,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 海底战最好使的还是鱼人，不过天赋太低，虽然基础值较高，但在这个分分秒都在升级的世界里，十分悲剧，而且还不能学霸气技能；然后我能想到的最好使的就是红发索隆鹰眼这种没吃果实而且能远近皆杀的；只能远和只能近来说，小打大，应该近战类吃香吧（假设两者敏和MP都不太够）（举例：山治 乌索普）
 
 
------
+*****
 
 ####  羲和  
 ##### 22231#       发表于 2011-5-19 17:34
@@ -13240,7 +13240,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 漫画不是rpg游戏
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 22232#       发表于 2011-5-19 18:38
@@ -13250,7 +13250,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 白星的能力是为了守护将来在陆地上的鱼人岛吧，周围围一圈海王类 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>我也觉得比起上船和人单挑，这能力用来守护国家更靠谱
 
 
------
+*****
 
 ####  door  
 ##### 22233#       发表于 2011-5-19 18:56
@@ -13263,7 +13263,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 而且要说的话红发还不给咬了一条手 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>咬一条手是0P最大的Bug,那条魚是最強魚類
 
 
------
+*****
 
 ####  weiweiEX  
 ##### 22234#       发表于 2011-5-19 19:17
@@ -13274,7 +13274,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 天龙人不是把鱼人&amp;amp;人鱼都当作“鱼类”看待的吗，要是真NTR了他们的口味还真够重的OTZ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>也许那个天龙人喜欢兽交
 
 
------
+*****
 
 ####  gpx234  
 ##### 22235#       发表于 2011-5-19 19:45
@@ -13285,7 +13285,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 这个天龙人是被王妃说教轰炸洗脑了吧 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luffyplus  
 ##### 22236#       发表于 2011-5-19 21:10
@@ -13295,7 +13295,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 当然前提是上船<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gpx234  
 ##### 22237#       发表于 2011-5-19 21:24
@@ -13304,7 +13304,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 船太小了装不下<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ナミ  
 ##### 22238#       发表于 2011-5-19 21:58
@@ -13313,7 +13313,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 出来个看起来有点能力的嚷嚷着要人上船，这话题说多了好腻啊～
 
 
------
+*****
 
 ####  yangxu  
 ##### 22239#       发表于 2011-5-19 22:02
@@ -13325,7 +13325,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 毕竟LF已经摸过人家青春的奶了。
 
 
------
+*****
 
 ####  superbia  
 ##### 22240#       发表于 2011-5-19 22:02
@@ -13341,7 +13341,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 在海底会柔术的鱼人/人鱼每一个也是怪物,直接把船拆了不用打了,直接用海流把人吹飞了也不用打了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ナミ  
 ##### 22241#       发表于 2011-5-19 22:16
@@ -13356,7 +13356,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 你说的这些和那些我才没有在乎呢～<img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  opdconan  
 ##### 22242#       发表于 2011-5-19 22:48
@@ -13367,7 +13367,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">不说我还真没注意，甚平也会霸气，乙姬解释成与生俱来而不懂传授还好，如果甚平是和谁学来的，那就更不可思议了……于是我除了调侃这个种族天赋低还能说啥
 
 
------
+*****
 
 ####  Snaky  
 ##### 22243#       发表于 2011-5-19 23:48
@@ -13377,7 +13377,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 白星的能力是为了守护将来在陆地上的鱼人岛吧，周围围一圈海王类 <[img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kvkv  
 ##### 22244#       发表于 2011-5-19 23:58
@@ -13394,7 +13394,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 不会霸气就是天赋低？你定义的？
 
 
------
+*****
 
 ####  hequan8426  
 ##### 22245#       发表于 2011-5-20 00:09
@@ -13409,7 +13409,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 这2句可以推出霸气能学习吧？
 
 
------
+*****
 
 ####  纵死侠骨香  
 ##### 22246#       发表于 2011-5-20 01:24
@@ -13428,7 +13428,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 鱼人那个可怜的种族总共才有多少人啊。
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 22247#       发表于 2011-5-20 10:34
@@ -13446,7 +13446,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 所以别他妈哪这个来说事儿了。
 
 
------
+*****
 
 ####  阿耨多罗  
 ##### 22248#       发表于 2011-5-20 11:26
@@ -13455,7 +13455,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 霸气不就是个SP补丁么<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rubicon  
 ##### 22249#       发表于 2011-5-20 11:33
@@ -13464,7 +13464,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 鱼人(算人鱼?)好像才500万
 
 
------
+*****
 
 ####  opdconan  
 ##### 22250#       发表于 2011-5-20 15:55
@@ -13476,7 +13476,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 本来我只是调侃鱼人天赋低，怎么就定义了呢，我好厉害的哟。而且，基础值天生两倍的鱼人成长成受人欺负的角色，还是在海里，我觉得这已经不是单纯战斗天赋低的问题了……我便定义了，你又能怎样！
 
 
------
+*****
 
 ####  faiths  
 ##### 22251#       发表于 2011-5-20 18:03
@@ -13494,7 +13494,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 先搞清楚自己在说什么再来调侃吧
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 22252#       发表于 2011-5-20 18:38
@@ -13510,7 +13510,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 事实上漫画几乎没有多少次正面表现鱼人的战斗，你怎么得出鱼人战斗天赋低的结论？
 
 
------
+*****
 
 ####  opdconan  
 ##### 22253#       发表于 2011-5-20 19:54
@@ -13527,7 +13527,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 算了，越打越长，我都不知道我想说啥了……
 
 
------
+*****
 
 ####  dowei  
 ##### 22254#       发表于 2011-5-20 22:29
@@ -13541,7 +13541,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 说起海王类，海王类设定只在无风带，是只有这么个设定还是有其他设定，鱼人岛不在无风带吧 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 
------
+*****
 
 ####  dowei  
 ##### 22255#       发表于 2011-5-20 22:50
@@ -13552,7 +13552,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 王菲希望能跟人类共处，但是首先要考虑被承认，像前面说的，被那啥都只能算是兽交……这共处个屁啊。如果鱼人像九蛇那样全民皆兵，首先会被灭族吧。小区内野猫可以乱跑，如果是只熊肯定会被抓走或者射杀。wt对鱼人的设定就是这样，不只是被欺负，而是不被认可，被当第一等的种族。
 
 
------
+*****
 
 ####  faiths  
 ##### 22256#       发表于 2011-5-21 00:26
@@ -13571,7 +13571,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 自己看看自己是个什么水平吧 连作者要画的是什么故事都看不明白 还是别看了孩子
 
 
------
+*****
 
 ####  opdconan  
 ##### 22257#       发表于 2011-5-21 01:02
@@ -13582,7 +13582,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 嗯，就这样
 
 
------
+*****
 
 ####  superbia  
 ##### 22258#       发表于 2011-5-21 16:12
@@ -13604,7 +13604,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 另外,雷利说霸气是人人也有的潜在能力,王妃和甚平也证明了鱼人也能有,而霸气的引出需要长期锻炼,就目前出现的鱼人来看,大多也是黑帮,可能他们仗着天赋就足以凌驾一般人类而疏忽了锻炼<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DGIL  
 ##### 22259#       发表于 2011-5-21 19:07
@@ -13615,7 +13615,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 她们是说不会~，而不是没有。
 
 
------
+*****
 
 ####  paren  
 ##### 22260#       发表于 2011-5-22 14:07
@@ -13624,7 +13624,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 从现在的情况来看，白星应该会和路飞很亲吧，等着看女帝吃醋
 
 
------
+*****
 
 ####  rubicon  
 ##### 22261#       发表于 2011-5-22 14:17
@@ -13633,7 +13633,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 见闻色武装色霸王色,普通人也就练前两种
 
 
------
+*****
 
 ####  DGIL  
 ##### 22262#       发表于 2011-5-22 15:37
@@ -13643,7 +13643,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">霸王气随等级增加自动加强。。好技能
 
 
------
+*****
 
 ####  路飞船长  
 ##### 22263#       发表于 2011-5-23 14:52
@@ -13652,7 +13652,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 5年内我要称为海贼王<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  boahancock  
 ##### 22264#       发表于 2011-5-23 16:33
@@ -13661,7 +13661,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 身为正宫的哀家等路飞阅尽风景<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kvkv  
 ##### 22265#       发表于 2011-5-23 17:04
@@ -13678,7 +13678,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 为什么一定能推出&amp;quot;海军有霸气课&amp;quot; 这么奇葩的想法?
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22266#       发表于 2011-5-25 15:11
@@ -13691,7 +13691,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 [身为兄长身为战士即便拼上性命也请一定保护好妹妹]的誓言。
 
 
------
+*****
 
 ####  yario  
 ##### 22267#       发表于 2011-5-25 15:48
@@ -13701,7 +13701,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 鱼人岛篇难道要和空岛一样没人上了？
 
 
------
+*****
 
 ####  cather18  
 ##### 22268#       发表于 2011-5-25 15:49
@@ -13710,7 +13710,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 都这份上了 给个白星不上船的理由
 
 
------
+*****
 
 ####  angelooo  
 ##### 22269#       发表于 2011-5-25 15:52
@@ -13720,7 +13720,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 好吧这次顺便请路飞试着做一回侦探吧<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kedokido  
 ##### 22270#       发表于 2011-5-25 16:00
@@ -13731,7 +13731,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 这样杂兵战可以直接略过了
 
 
------
+*****
 
 ####  视死如归  
 ##### 22271#       发表于 2011-5-25 16:05
@@ -13744,7 +13744,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 戴肯应该是知道这个传言才去求婚的吧。
 
 
------
+*****
 
 ####  革新  
 ##### 22272#       发表于 2011-5-25 17:15
@@ -13753,7 +13753,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">  l路飞玩翅膀的话也不错
 
 
------
+*****
 
 ####  gpx234  
 ##### 22273#       发表于 2011-5-25 18:10
@@ -13764,7 +13764,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 最有动机和机会的就是身为卫兵的赫迪了吧
 
 
------
+*****
 
 ####  luffyplus  
 ##### 22274#       发表于 2011-5-25 18:36
@@ -13774,7 +13774,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 身为正宫的哀家等路飞阅尽风景<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer"></blockquote>这个媳妇，不对，戏服的台词好正经！！
 
 
------
+*****
 
 ####  yario  
 ##### 22275#       发表于 2011-5-25 19:18
@@ -13783,7 +13783,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 團源已出 那句話是OTOHIME王妃說的，長舒一口氣。。。。不過對於王妃的中槍交待相當不明確。
 
 
------
+*****
 
 ####  yario  
 ##### 22276#       发表于 2011-5-25 19:47
@@ -13792,7 +13792,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 刚说图源。。。。贴吧鼠绘神速汉化就出了。。。。
 
 
------
+*****
 
 ####  angelooo  
 ##### 22277#       发表于 2011-5-25 19:59
@@ -13803,7 +13803,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 噢，这话我湿了……混蛋
 
 
------
+*****
 
 ####  wingchau  
 ##### 22278#       发表于 2011-5-25 20:47
@@ -13812,7 +13812,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 喔喔...看到王子哄白星那里我也湿了...<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22279#       发表于 2011-5-25 20:50
@@ -13821,7 +13821,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 会不会是天龙人搞的鬼？
 
 
------
+*****
 
 ####  hie  
 ##### 22280#       发表于 2011-5-25 21:21
@@ -13831,7 +13831,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 鱼人岛不会是白星毁的吧= =
 
 
------
+*****
 
 ####  gpx234  
 ##### 22281#       发表于 2011-5-25 21:32
@@ -13840,7 +13840,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 鱼人岛终将浮出海面？
 
 
------
+*****
 
 ####  白河亜紀  
 ##### 22282#       发表于 2011-5-25 21:47
@@ -13857,7 +13857,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 这到底是推理剧呢？还是伦理剧呢？
 
 
------
+*****
 
 ####  awq4545  
 ##### 22283#       发表于 2011-5-25 21:56
@@ -13866,7 +13866,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 鼠绘汉化出了，这神速的..........
 
 
------
+*****
 
 ####  outrage  
 ##### 22284#       发表于 2011-5-25 22:01
@@ -13875,7 +13875,7 @@ Tiger应该主要靠耐力和熟悉地形吧，但是这样他不应该这么容
 lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞差不多思维方式的人吧。。。  <img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  theory0  
 ##### 22285#       发表于 2011-5-25 22:36
@@ -13897,7 +13897,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 <img src="https://img.saraba1st.com/forum/pw/Mon_1105/6_529_e91ab36b989fecc.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  6zking  
 ##### 22286#       发表于 2011-5-25 22:40
@@ -13908,7 +13908,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 暗杀这种事，世界政府有专门的特务机构CP9去做，应该不会派海军去搞暗杀吧
 
 
------
+*****
 
 ####  流浪的翅膀  
 ##### 22287#       发表于 2011-5-25 22:55
@@ -13917,7 +13917,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 为什么我觉得王妃说“一位能够正确引导出她力量的人”时，那个背影像香克利？
 
 
------
+*****
 
 ####  opdconan  
 ##### 22288#       发表于 2011-5-25 23:25
@@ -13934,7 +13934,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 甚平不出一格，我都快忘了这是他的回忆了……
 
 
------
+*****
 
 ####  ksks  
 ##### 22289#       发表于 2011-5-25 23:44
@@ -13943,7 +13943,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 626里面有说王妃是因为太高兴而大意了。
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 22290#       发表于 2011-5-26 00:01
@@ -13954,7 +13954,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 最直接的理由：分格不好画
 
 
------
+*****
 
 ####  phillq  
 ##### 22291#       发表于 2011-5-26 01:18
@@ -13966,7 +13966,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 不过，一定要加入也不是非得用“上”的，让她骑着大章鱼拉船怎样？这排场至少把海军和四皇甩出10条街<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rms117  
 ##### 22292#       发表于 2011-5-26 01:19
@@ -13978,7 +13978,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 最直接的理由：分格不好画 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>用一寸法师的锤子砸一下就行
 
 
------
+*****
 
 ####  yangxu  
 ##### 22293#       发表于 2011-5-26 03:11
@@ -13987,7 +13987,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 白星没有战斗力啊，个头又大，除非能长期召唤海王类来保护她，否则一开战就会被秒。
 
 
------
+*****
 
 ####  兆悲  
 ##### 22294#       发表于 2011-5-26 06:45
@@ -13996,7 +13996,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 编个“完全解放能沟通海王类的时候就会变成正常大小”的理由不就行了...
 
 
------
+*****
 
 ####  dab23  
 ##### 22295#       发表于 2011-5-26 08:43
@@ -14007,7 +14007,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 看王子哭着逗白星这段，湿了
 
 
------
+*****
 
 ####  视死如归  
 ##### 22296#       发表于 2011-5-26 09:23
@@ -14016,7 +14016,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 其实，那个预言里说的“正确引导力量的人”或许和霸王色霸气有关？用来压制海王类，能让白星正常喜怒哀乐之类的？
 
 
------
+*****
 
 ####  wingchau  
 ##### 22297#       发表于 2011-5-26 09:49
@@ -14030,7 +14030,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 不知道OP版玉手箱能不能令白星体型变小~
 
 
------
+*****
 
 ####  南宮太平  
 ##### 22298#       发表于 2011-5-26 10:26
@@ -14039,7 +14039,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 怎想也不是人類做的, 要做掉王妃, 之前她單人到陸上時早就能做了, 犯不著現在幹
 
 
------
+*****
 
 ####  阿耨多罗  
 ##### 22299#       发表于 2011-5-26 10:30
@@ -14048,7 +14048,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 最后海王类一起把岛托出海面？
 
 
------
+*****
 
 ####  redsouris  
 ##### 22300#       发表于 2011-5-26 10:41
@@ -14061,7 +14061,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 陆上杀那么傻子也知道是人类干的，死在鱼人岛才能混淆真相
 
 
------
+*****
 
 ####  南宮太平  
 ##### 22301#       发表于 2011-5-26 11:00
@@ -14076,7 +14076,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 應該說, 讓王妃死在陸上, 迫反魚人才符合他們的利益
 
 
------
+*****
 
 ####  qilang01  
 ##### 22302#       发表于 2011-5-26 11:22
@@ -14085,7 +14085,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 说白星因为体形大而不能上船的都去想想黑胡子海賊团的巨大战舰，他体型比白星还大不是照样上船了，体型什么的根本不是不上船的理由，其他任何理由不上船我都接受哪怕是白星不喜欢海賊这种理由我也接受就是不接受体型大就不能上船这个最无聊的理由，就算尾田最后就是这个理由不让白星上船我也不接受
 
 
------
+*****
 
 ####  yario  
 ##### 22303#       发表于 2011-5-26 12:40
@@ -14094,7 +14094,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 白星的梦想呢？没有梦想上船是浮云
 
 
------
+*****
 
 ####  果子夹心  
 ##### 22304#       发表于 2011-5-26 12:54
@@ -14104,7 +14104,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 白星的梦想呢？没有梦想上船是浮云 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>继承老妈的遗志吧，至于继承遗志跟上船有啥关系，这随便弄个籍口都行
 
 
------
+*****
 
 ####  awq4545  
 ##### 22305#       发表于 2011-5-26 12:58
@@ -14117,7 +14117,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 [http://tieba.baidu.com/f?kz=1090006148](http://tieba.baidu.com/f?kz=1090006148)
 
 
------
+*****
 
 ####  雅格特  
 ##### 22306#       发表于 2011-5-26 13:10
@@ -14126,7 +14126,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 这段 挺湿润的。。。唉。。。。。王子们的悲伤传达给我了。。。。
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22307#       发表于 2011-5-26 13:28
@@ -14150,7 +14150,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 2011-5-26 13:28 上传
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22308#       发表于 2011-5-26 13:37
@@ -14159,7 +14159,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 把白星画的这么大主要是为了在和海王类一个镜头的时还能看得到吧？
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 22309#       发表于 2011-5-26 13:46
@@ -14170,7 +14170,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 如果草帽戴在黑胡子头上，我看大家就赞同你的理由了
 
 
------
+*****
 
 ####  yario  
 ##### 22310#       发表于 2011-5-26 15:02
@@ -14183,7 +14183,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 你比较下，草帽团的其他人的梦想，哪个是容易实现的？
 
 
------
+*****
 
 ####  superbia  
 ##### 22311#       发表于 2011-5-26 15:18
@@ -14193,7 +14193,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 王妃是被海军暗杀的，证据在此 <[img src="https://static.saraba1st.com/image/smiley/face/155.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  klzxs  
 ##### 22312#       发表于 2011-5-26 15:52
@@ -14203,7 +14203,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 能力太bug了啊
 
 
------
+*****
 
 ####  redsouris  
 ##### 22313#       发表于 2011-5-26 17:21
@@ -14217,7 +14217,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 如果他们杀人都那么“光明正大”，那么杀莫利亚为啥要掩盖成战死沙场的方式呢？
 
 
------
+*****
 
 ####  AD  
 ##### 22314#       发表于 2011-5-26 17:41
@@ -14228,7 +14228,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 <img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">除了未来的海贼王还能有谁担此重任了
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 22315#       发表于 2011-5-26 18:01
@@ -14242,7 +14242,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 因为不是天龙人杀的啊…
 
 
------
+*****
 
 ####  kfc汉堡  
 ##### 22316#       发表于 2011-5-26 18:21
@@ -14254,7 +14254,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 我倒觉得像是cp9干的，与汤姆之死类似，根源是古代兵器波塞冬。
 
 
------
+*****
 
 ####  yario  
 ##### 22317#       发表于 2011-5-26 19:47
@@ -14263,7 +14263,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 回忆肯定还有1话，通过那几张图显示，政府Cp系列杀人的可能性太大了。。。。
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 22318#       发表于 2011-5-26 19:58
@@ -14272,7 +14272,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 10页前就猜到白星要上船，希望WT别跳票（好歹让我猜中一次啊
 
 
------
+*****
 
 ####  65535  
 ##### 22319#       发表于 2011-5-26 21:06
@@ -14285,7 +14285,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 不过，一定要加入也不是非得用“上”的，让她骑着大章鱼拉船怎样？这排场至少把海军和四皇甩出10条街<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  恍惚  
 ##### 22320#       发表于 2011-5-27 12:32
@@ -14294,7 +14294,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 回忆结束鱼人岛的故事才刚刚开始，前面全部是铺垫
 
 
------
+*****
 
 ####  arcturus  
 ##### 22321#       发表于 2011-5-27 20:50
@@ -14303,7 +14303,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 其实尾田会让公主上船的，会以后类死神的超大分镜作伏笔
 
 
------
+*****
 
 ####  般的存在  
 ##### 22322#       发表于 2011-5-27 20:55
@@ -14312,7 +14312,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 白星上船以后可以和黑胡子那边的巨大战舰对抗吧<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lblqkgklf  
 ##### 22323#       发表于 2011-5-30 21:00
@@ -14325,7 +14325,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 她跟薇薇还有女帝类似，不是孤单一人，也不是普通人，人家都是有国民的，不要以为被路飞摸下奶子就要卖身了
 
 
------
+*****
 
 ####  AD  
 ##### 22324#       发表于 2011-6-2 08:01
@@ -14334,7 +14334,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 怎么掉到第六页了！新一话汉化都出来了
 
 
------
+*****
 
 ####  yario  
 ##### 22325#       发表于 2011-6-2 08:04
@@ -14343,7 +14343,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 杀王妃的凶手是霍迪琼斯可能性很大，他的理念真危险。
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 22326#       发表于 2011-6-2 08:38
@@ -14352,7 +14352,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 下周休刊！我去！
 
 
------
+*****
 
 ####  yunluo  
 ##### 22327#       发表于 2011-6-2 09:19
@@ -14370,7 +14370,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 2011-6-2 09:19 上传
 
 
------
+*****
 
 ####  ezair  
 ##### 22328#       发表于 2011-6-2 10:31
@@ -14379,7 +14379,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 操,一话一催泪,鄱阳湖都给哭干了啊,都是尾田的错!
 
 
------
+*****
 
 ####  luffyzhou  
 ##### 22329#       发表于 2011-6-2 11:09
@@ -14388,7 +14388,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 这话尼普顿王啊<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  亚雷斯  
 ##### 22330#       发表于 2011-6-2 11:42
@@ -14397,7 +14397,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 王子哭着说我们会从头再来啊<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  o凶鸟o  
 ##### 22331#       发表于 2011-6-2 11:48
@@ -14407,7 +14407,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"></blockquote>可以一口把头咬下来
 
 
------
+*****
 
 ####  督战政委  
 ##### 22332#       发表于 2011-6-2 12:43
@@ -14416,7 +14416,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 国王和王子都是真正的爷们啊
 
 
------
+*****
 
 ####  lblqkgklf  
 ##### 22333#       发表于 2011-6-2 13:08
@@ -14427,7 +14427,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 可以一口把头咬下来 <[img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 22334#       发表于 2011-6-2 13:25
@@ -14436,7 +14436,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 觉得暗杀王妃是霍地那伙人干的，那个人类杀王妃有点莫名其妙……
 
 
------
+*****
 
 ####  loli猫saki  
 ##### 22335#       发表于 2011-6-2 13:33
@@ -14446,7 +14446,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 现在多明显了。。。
 
 
------
+*****
 
 ####  homuhomu  
 ##### 22336#       发表于 2011-6-2 13:33
@@ -14457,7 +14457,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 暗杀大概是霍迪干的<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luffyplus  
 ##### 22337#       发表于 2011-6-2 14:06
@@ -14468,7 +14468,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 内牛满面啊，王子们真懂事
 
 
------
+*****
 
 ####  ナミ  
 ##### 22338#       发表于 2011-6-2 14:22
@@ -14480,7 +14480,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 有惹到过你吗<img src="https://static.saraba1st.com/image/smiley/nq/007.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  suregoose  
 ##### 22339#       发表于 2011-6-2 14:34
@@ -14489,7 +14489,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 大王子上船吧
 
 
------
+*****
 
 ####  市杵宍姫命  
 ##### 22340#       发表于 2011-6-2 14:51
@@ -14498,7 +14498,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 我果然还是对国王说为什么不能千刀万剐有共鸣啊~~~~
 
 
------
+*****
 
 ####  tgl10  
 ##### 22341#       发表于 2011-6-2 15:33
@@ -14507,7 +14507,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 请教这些鱼人为什么想晒太阳?
 
 
------
+*****
 
 ####  AD  
 ##### 22342#       发表于 2011-6-2 15:43
@@ -14516,7 +14516,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 这话国王、王子、甚平都让我<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Snaky  
 ##### 22343#       发表于 2011-6-2 15:44
@@ -14526,7 +14526,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 请教这些鱼人为什么想晒太阳? <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>谁喜欢过暗无天日的日子啊 鱼人岛虽然有光有空气 但仅是偏安一隅而已
 
 
------
+*****
 
 ####  北极云  
 ##### 22344#       发表于 2011-6-2 16:11
@@ -14535,7 +14535,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 <img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  opdconan  
 ##### 22345#       发表于 2011-6-2 16:28
@@ -14544,7 +14544,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">鱼人的原型是不是乌龟……喜欢上岸，喜欢空气喜欢晒太阳，一有危险就缩到壳里，天生带着一股傻劲，被人类轻蔑
 
 
------
+*****
 
 ####  faiths  
 ##### 22346#       发表于 2011-6-2 16:30
@@ -14554,7 +14554,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 请教这些鱼人为什么想晒太阳? <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>你为什么想要大房子开好车娶漂亮媳妇呢
 
 
------
+*****
 
 ####  o凶鸟o  
 ##### 22347#       发表于 2011-6-2 17:51
@@ -14568,7 +14568,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 都是进击巨人的错<img src="https://static.saraba1st.com/image/smiley/face/129.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yario  
 ##### 22348#       发表于 2011-6-2 18:00
@@ -14607,7 +14607,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 以上。
 
 
------
+*****
 
 ####  Cheir  
 ##### 22349#       发表于 2011-6-2 18:05
@@ -14617,7 +14617,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 韦珀回忆的时候，好像他是纯粹站在那里而已。
 
 
------
+*****
 
 ####  superbia  
 ##### 22350#       发表于 2011-6-2 19:25
@@ -14627,7 +14627,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 我果然还是对国王说为什么不能千刀万剐有共鸣啊~~~~ <[img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  果子夹心  
 ##### 22351#       发表于 2011-6-2 20:08
@@ -14636,7 +14636,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 这话够湿！尼普顿王纯爷们啊<img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Zhen_Link  
 ##### 22352#       发表于 2011-6-2 20:19
@@ -14645,7 +14645,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 霍迪不是被索罗干掉了么
 
 
------
+*****
 
 ####  angelooo  
 ##### 22353#       发表于 2011-6-2 20:27
@@ -14655,7 +14655,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 霍迪不是被索罗干掉了么 <[img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  巴基  
 ##### 22354#       发表于 2011-6-3 14:43
@@ -14664,7 +14664,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 哎 鱼人的公主吗？ 很适合当本大人的手下啊
 
 
------
+*****
 
 ####  PATLABOR  
 ##### 22355#       发表于 2011-6-4 08:44
@@ -14673,7 +14673,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 最近剧情平淡导致关注度不够啊，这帖都掉这么远了。       <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  巴基  
 ##### 22356#       发表于 2011-6-4 09:25
@@ -14682,7 +14682,7 @@ lss 脑补的太厉害了。。。感觉尼普顿前面的表现应该跟路飞�
 没本大人的出场大家都没什么可以讨论的呀 1个戴帽的死小鬼和一群臭鱼有啥可看的
 
 
------
+*****
 
 ####  Bamind  
 ##### 22357#       发表于 2011-6-5 12:13
@@ -14699,7 +14699,7 @@ TV 版从回忆篇开始一直很给力啊。
 另外目前得到的消息是 TV 版很可能不会在新世界篇之前长篇原创。
 
 
------
+*****
 
 ####  osk666  
 ##### 22358#       发表于 2011-6-5 13:50
@@ -14709,7 +14709,7 @@ TV 版从回忆篇开始一直很给力啊。
 现在都快成社会现象了。
 
 
------
+*****
 
 ####  tgl10  
 ##### 22359#       发表于 2011-6-5 15:31
@@ -14719,7 +14719,7 @@ TV 版从回忆篇开始一直很给力啊。
 顶上之战三年后都不够看了啊
 
 
------
+*****
 
 ####  亚雷斯  
 ##### 22360#       发表于 2011-6-5 17:40
@@ -14730,7 +14730,7 @@ TV 版从回忆篇开始一直很给力啊。
 是掉到后面了么？我搜索了几次都找不到啊<img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  arcturus  
 ##### 22361#       发表于 2011-6-9 00:04
@@ -14739,7 +14739,7 @@ TV 版从回忆篇开始一直很给力啊。
 本周难道又休刊？<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  小带鱼  
 ##### 22362#       发表于 2011-6-9 00:24
@@ -14748,7 +14748,7 @@ TV 版从回忆篇开始一直很给力啊。
 本来就休刊，上周不是很大这4个字吗
 
 
------
+*****
 
 ####  yario  
 ##### 22363#       发表于 2011-6-15 17:04
@@ -14757,7 +14757,7 @@ TV 版从回忆篇开始一直很给力啊。
 下一话要路飞Vs甚平咩？
 
 
------
+*****
 
 ####  yario  
 ##### 22364#       发表于 2011-6-15 20:53
@@ -14766,7 +14766,7 @@ TV 版从回忆篇开始一直很给力啊。
 熊猫汉化已出。。。。<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yangxu  
 ##### 22365#       发表于 2011-6-15 20:57
@@ -14775,7 +14775,7 @@ TV 版从回忆篇开始一直很给力啊。
 谁给个本话概要？
 
 
------
+*****
 
 ####  angelooo  
 ##### 22366#       发表于 2011-6-15 21:09
@@ -14786,7 +14786,7 @@ TV 版从回忆篇开始一直很给力啊。
 3小时内草帽团必须解决问题？
 
 
------
+*****
 
 ####  ksks  
 ##### 22367#       发表于 2011-6-15 21:13
@@ -14796,7 +14796,7 @@ TV 版从回忆篇开始一直很给力啊。
 汉化出了。路飞最后一幕表情，时髦度<img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kedokido  
 ##### 22368#       发表于 2011-6-15 21:42
@@ -14807,7 +14807,7 @@ TV 版从回忆篇开始一直很给力啊。
 另外，草帽团以后加个漫才的副业吧<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  onepiecebest  
 ##### 22369#       发表于 2011-6-15 22:25
@@ -14817,7 +14817,7 @@ TV 版从回忆篇开始一直很给力啊。
 新一话很赞，罗宾那里感觉又是在埋坑了
 
 
------
+*****
 
 ####  DNA  
 ##### 22370#       发表于 2011-6-16 00:32
@@ -14826,7 +14826,7 @@ TV 版从回忆篇开始一直很给力啊。
 路飞赏金又要涨了<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  崩雷王  
 ##### 22371#       发表于 2011-6-16 00:41
@@ -14835,7 +14835,7 @@ TV 版从回忆篇开始一直很给力啊。
 4亿！4亿了！
 
 
------
+*****
 
 ####  phillq  
 ##### 22372#       发表于 2011-6-16 00:53
@@ -14846,7 +14846,7 @@ TV 版从回忆篇开始一直很给力啊。
 别这样来凸显存在感啊！！
 
 
------
+*****
 
 ####  摩西莫西  
 ##### 22373#       发表于 2011-6-16 01:01
@@ -14855,7 +14855,7 @@ TV 版从回忆篇开始一直很给力啊。
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer"> 白星好萌!
 
 
------
+*****
 
 ####  hequan8426  
 ##### 22374#       发表于 2011-6-16 02:25
@@ -14864,7 +14864,7 @@ TV 版从回忆篇开始一直很给力啊。
 路飞最后那个表情太COOL了，不过甚平提到艾斯干什么？突出他们都很在意伙伴？
 
 
------
+*****
 
 ####  琼恩·雪诺  
 ##### 22375#       发表于 2011-6-16 02:48
@@ -14873,7 +14873,7 @@ TV 版从回忆篇开始一直很给力啊。
 彩页中乔巴的人脸是怎么回事？
 
 
------
+*****
 
 ####  kaori  
 ##### 22376#       发表于 2011-6-16 08:30
@@ -14884,7 +14884,7 @@ TV 版从回忆篇开始一直很给力啊。
 突出&amp;quot;爲了同伴可以做到什麽程度&amp;quot;...
 
 
------
+*****
 
 ####  龙意识  
 ##### 22377#       发表于 2011-6-16 09:12
@@ -14893,7 +14893,7 @@ TV 版从回忆篇开始一直很给力啊。
 下话路飞VS甚平可以看看究竟修炼到什么程度了吧
 
 
------
+*****
 
 ####  ch_ch  
 ##### 22378#       发表于 2011-6-16 09:45
@@ -14903,7 +14903,7 @@ TV 版从回忆篇开始一直很给力啊。
 时间这么紧难道让一方秒了另一方？
 
 
------
+*****
 
 ####  dyuty12  
 ##### 22379#       发表于 2011-6-16 10:02
@@ -14913,7 +14913,7 @@ TV 版从回忆篇开始一直很给力啊。
 如果正常陆地都败给这嗑药的家伙，那后面的路他怎么走呀。
 
 
------
+*****
 
 ####  wingchau  
 ##### 22380#       发表于 2011-6-16 10:03
@@ -14923,7 +14923,7 @@ TV 版从回忆篇开始一直很给力啊。
 练了两年地面战连甚平都打不过还当个毛海贼王.
 
 
------
+*****
 
 ####  dab23  
 ##### 22381#       发表于 2011-6-16 10:07
@@ -14932,7 +14932,7 @@ TV 版从回忆篇开始一直很给力啊。
 应该是秒，像秒卡普那样
 
 
------
+*****
 
 ####  Yeaha123  
 ##### 22382#       发表于 2011-6-16 10:10
@@ -14941,7 +14941,7 @@ TV 版从回忆篇开始一直很给力啊。
 啊呀怎么说的好像两年里只有主角会练级一样，甚平一样也会的吧？
 
 
------
+*****
 
 ####  lb0windy  
 ##### 22383#       发表于 2011-6-16 10:48
@@ -14950,7 +14950,7 @@ TV 版从回忆篇开始一直很给力啊。
 不会打起来吧，关键时刻还玩内耗，又不是火影
 
 
------
+*****
 
 ####  阿拉伯土豆  
 ##### 22384#       发表于 2011-6-16 11:01
@@ -14959,7 +14959,7 @@ TV 版从回忆篇开始一直很给力啊。
 甚平年纪大了，同样练级，成长性不高
 
 
------
+*****
 
 ####  阿拉伯土豆  
 ##### 22385#       发表于 2011-6-16 11:02
@@ -14968,7 +14968,7 @@ TV 版从回忆篇开始一直很给力啊。
 看来前面的预言真的要实现了，鱼人岛被路飞灭了
 
 
------
+*****
 
 ####  布鲁克  
 ##### 22386#       发表于 2011-6-16 12:54
@@ -14987,7 +14987,7 @@ TV 版从回忆篇开始一直很给力啊。
 yohohoho...
 
 
------
+*****
 
 ####  督战政委  
 ##### 22387#       发表于 2011-6-16 13:07
@@ -14997,7 +14997,7 @@ yohohoho...
 路飞最后那个表情太COOL了，不过甚平提到艾斯干什么？突出他们都很在意伙伴？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>还有不听人劝
 
 
------
+*****
 
 ####  Futanari  
 ##### 22388#       发表于 2011-6-16 14:35
@@ -15006,7 +15006,7 @@ yohohoho...
 路飞也许会秒了甚平 <img src="https://static.saraba1st.com/image/smiley/face/127.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  布兰  
 ##### 22389#       发表于 2011-6-16 14:37
@@ -15015,7 +15015,7 @@ yohohoho...
 4亿男！！
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 22390#       发表于 2011-6-16 14:58
@@ -15024,7 +15024,7 @@ yohohoho...
 钓鱼岛杂鱼实力不济于是让甚平出来和路飞战一场以平众怒么……………………<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  莫吉  
 ##### 22391#       发表于 2011-6-16 15:33
@@ -15034,7 +15034,7 @@ yohohoho...
 明明对手很弱还要高的很紧张，精彩程度还不如飞鱼骑士那段
 
 
------
+*****
 
 ####  feilin7  
 ##### 22392#       发表于 2011-6-16 15:43
@@ -15044,7 +15044,7 @@ yohohoho...
 万一霍迪急眼了给整个鱼人岛放水该怎么办……
 
 
------
+*****
 
 ####  果子夹心  
 ##### 22393#       发表于 2011-6-16 15:52
@@ -15055,7 +15055,7 @@ yohohoho...
 路飞的性格好像变了
 
 
------
+*****
 
 ####  qubely  
 ##### 22394#       发表于 2011-6-16 19:17
@@ -15064,7 +15064,7 @@ yohohoho...
 这话搞笑桥段挺多的<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  传说中的  
 ##### 22395#       发表于 2011-6-16 20:07
@@ -15073,7 +15073,7 @@ yohohoho...
 如果这次路飞VS甚平又搞了个两败俱伤再去打BOSS的话，我会对OP非常失望。。。
 
 
------
+*****
 
 ####  gaoyaa  
 ##### 22396#       发表于 2011-6-16 20:19
@@ -15085,7 +15085,7 @@ yohohoho...
 大家已经选择让乙姬王妃代表了，你知趣点呀！<img src="https://static.saraba1st.com/image/smiley/face/45.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  葵井巫女子  
 ##### 22397#       发表于 2011-6-16 20:32
@@ -15094,7 +15094,7 @@ yohohoho...
 鲸倍秒路飞 海侠王<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rubicon  
 ##### 22398#       发表于 2011-6-16 23:30
@@ -15103,7 +15103,7 @@ yohohoho...
 水产能打的真少
 
 
------
+*****
 
 ####  hie  
 ##### 22399#       发表于 2011-6-17 02:56
@@ -15116,7 +15116,7 @@ ok，一个“罗”字就完成了，
 所以，one piece 其实就是《罗 秘史》。
 
 
------
+*****
 
 ####  AD  
 ##### 22400#       发表于 2011-6-17 08:37
@@ -15125,7 +15125,7 @@ ok，一个“罗”字就完成了，
 我觉得也就是交手几招就完事了……<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  i20001381  
 ##### 22401#       发表于 2011-6-17 12:48
@@ -15147,7 +15147,7 @@ ok，一个“罗”字就完成了，
 <img src="https://img.saraba1st.com/forum/pw/Mon_1106/6_10619_a879ac4cc8c2f66.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  boahancock  
 ##### 22402#       发表于 2011-6-19 09:32
@@ -15157,7 +15157,7 @@ ok，一个“罗”字就完成了，
 如果这次路飞VS甚平又搞了个两败俱伤再去打BOSS的话，我会对OP非常失望。。。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>不然到了龙宫秒boss妥妥地，太无趣了~
 
 
------
+*****
 
 ####  lenin  
 ##### 22403#       发表于 2011-6-19 10:37
@@ -15168,7 +15168,7 @@ ok，一个“罗”字就完成了，
 不然到了龙宫秒boss妥妥地，太无趣了~ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>路飞和甚平打个两败俱伤，跑到龙宫还是秒boss
 
 
------
+*****
 
 ####  boahancock  
 ##### 22404#       发表于 2011-6-19 10:43
@@ -15179,7 +15179,7 @@ ok，一个“罗”字就完成了，
 路飞和甚平打个两败俱伤，跑到龙宫还是秒boss <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>看来经过马琳佛多之后大家除了大将以外都不放在眼里了
 
 
------
+*****
 
 ####  lenin  
 ##### 22405#       发表于 2011-6-19 10:52
@@ -15189,7 +15189,7 @@ ok，一个“罗”字就完成了，
 比起这两个小混混，我更期待那个泥巴人能玩出点新花样来。
 
 
------
+*****
 
 ####  五月  
 ##### 22406#       发表于 2011-6-19 11:16
@@ -15198,7 +15198,7 @@ ok，一个“罗”字就完成了，
 不是说鱼人岛会被路飞毁掉么  然后鱼人们只能去陆地上和人类生活了    可喜可贺可喜可贺 =w=
 
 
------
+*****
 
 ####  lxeast  
 ##### 22407#       发表于 2011-6-19 12:32
@@ -15207,7 +15207,7 @@ ok，一个“罗”字就完成了，
 从目前来看，我更倾向于鱼人自我拯救一说，路飞一伙只是起到辅助的作用。比如白星召唤海王类的能力，路飞引导她并强化一下，能听从白星的召唤了，海王类为什么就不能把鱼人岛从海底顶到陆地上去呢？
 
 
------
+*****
 
 ####  rayalynx  
 ##### 22408#       发表于 2011-6-19 13:18
@@ -15216,7 +15216,7 @@ ok，一个“罗”字就完成了，
 甚平最后那话的意思是不打吧
 
 
------
+*****
 
 ####  superbia  
 ##### 22409#       发表于 2011-6-19 14:55
@@ -15226,7 +15226,7 @@ ok，一个“罗”字就完成了，
 甚平最后那话的意思是不打吧 <[img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  boahancock  
 ##### 22410#       发表于 2011-6-19 16:21
@@ -15237,7 +15237,7 @@ ok，一个“罗”字就完成了，
 怎看也是打<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  boahancock  
 ##### 22411#       发表于 2011-6-19 16:22
@@ -15247,7 +15247,7 @@ ok，一个“罗”字就完成了，
 从目前来看，我更倾向于鱼人自我拯救一说，路飞一伙只是起到辅助的作用。比如白星召唤海王类的能力，路飞引导她并强化一下，能听从白星的召唤了，海王类为什么就不能把鱼人岛从海底顶到陆地上去呢？ <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>海王类战斗时髦值太差，对于托起人鱼岛我认为是超赞的想法
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 22412#       发表于 2011-6-19 16:29
@@ -15258,7 +15258,7 @@ ok，一个“罗”字就完成了，
 水产BOSS再扣押几个人鱼妹子山治大爆发实力达大将水准也不是没可能<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luokobe  
 ##### 22413#       发表于 2011-6-21 15:33
@@ -15269,7 +15269,7 @@ ok，一个“罗”字就完成了，
 是不是挺多人有这种感觉？
 
 
------
+*****
 
 ####  莫吉  
 ##### 22414#       发表于 2011-6-21 15:37
@@ -15278,7 +15278,7 @@ ok，一个“罗”字就完成了，
 最近剧情是挺闷的，跟以前那种惹人厌的敌人不同，水产多少还是让人同情的，阿龙都给人要洗白的感觉了
 
 
------
+*****
 
 ####  拾下拾下仔  
 ##### 22415#       发表于 2011-6-21 15:51
@@ -15289,7 +15289,7 @@ ok，一个“罗”字就完成了，
 绝对有超展开,尾田我信你啊!
 
 
------
+*****
 
 ####  花澤三郎  
 ##### 22416#       发表于 2011-6-21 15:58
@@ -15298,7 +15298,7 @@ ok，一个“罗”字就完成了，
 种族矛盾这话题太沉重了,何况又是在少年漫画
 
 
------
+*****
 
 ####  8aa8aa8aa  
 ##### 22417#       发表于 2011-6-21 16:36
@@ -15314,7 +15314,7 @@ ok，一个“罗”字就完成了，
 教练，我们要看的是热血的海贼王啊！
 
 
------
+*****
 
 ####  klseelee  
 ##### 22418#       发表于 2011-6-21 17:00
@@ -15323,7 +15323,7 @@ ok，一个“罗”字就完成了，
 绝壁超展开，半年之后！<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Yeaha123  
 ##### 22419#       发表于 2011-6-21 17:03
@@ -15336,7 +15336,7 @@ ok，一个“罗”字就完成了，
 的确可以跳过不看，只要知道路飞有个叫萨波的兄弟就行
 
 
------
+*****
 
 ####  奈鲁卡鲁  
 ##### 22420#       发表于 2011-6-22 13:53
@@ -15348,7 +15348,7 @@ ok，一个“罗”字就完成了，
 的确可以跳过不看，只要知道路飞有个叫萨波的兄弟就行 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>少年回忆篇和人鱼岛篇其实有一个共同的主题，那就是控诉“贵族”群体对平民和异族的奴役与压迫。然而我们不禁要问，崇尚正义的世界海军，和虽然正邪不明，但看上去时髦度满点的五老星为何要维护这些不但作恶多端，时髦度还呈负数化的贵族们呢？这显然都是在为海贼王中最大的悬念——“世界历史”做铺垫。而当“世界历史”与“消失的百年”的秘密最终被揭晓之时，海贼王也就将迎来最大的高潮。
 
 
------
+*****
 
 ####  taichiY  
 ##### 22421#       发表于 2011-6-22 16:09
@@ -15357,7 +15357,7 @@ ok，一个“罗”字就完成了，
 最近都没有什么剧透了。。。
 
 
------
+*****
 
 ####  angelooo  
 ##### 22422#       发表于 2011-6-22 16:10
@@ -15367,7 +15367,7 @@ ok，一个“罗”字就完成了，
 MS能看到罗宾和布鲁克的新能力？
 
 
------
+*****
 
 ####  布鲁克  
 ##### 22423#       发表于 2011-6-22 16:29
@@ -15376,7 +15376,7 @@ MS能看到罗宾和布鲁克的新能力？
 <img src="https://static.saraba1st.com/image/smiley/face/118.gif" referrerpolicy="no-referrer">哟hohoho...
 
 
------
+*****
 
 ####  胡铁花  
 ##### 22424#       发表于 2011-6-22 17:18
@@ -15437,7 +15437,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot;
 ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 
 
------
+*****
 
 ####  luffyplus  
 ##### 22425#       发表于 2011-6-22 17:38
@@ -15449,7 +15449,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 哈哈哈哈
 
 
------
+*****
 
 ####  Snaky  
 ##### 22426#       发表于 2011-6-22 17:56
@@ -15459,7 +15459,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 一定得好好地痛扁霍地一顿<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yario  
 ##### 22427#       发表于 2011-6-22 18:20
@@ -15468,7 +15468,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 山治就是悲劇啊。。。我覺得佐羅他們能自救
 
 
------
+*****
 
 ####  cather18  
 ##### 22428#       发表于 2011-6-22 18:26
@@ -15477,7 +15477,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 罗宾的新能力是分身？瞬移？
 
 
------
+*****
 
 ####  dawn34  
 ##### 22429#       发表于 2011-6-22 18:30
@@ -15489,7 +15489,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 罗宾应该是用手造型变成自己，远程控制
 
 
------
+*****
 
 ####  cloudhp7777  
 ##### 22430#       发表于 2011-6-22 19:19
@@ -15499,7 +15499,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 现在把自己整个远程了
 
 
------
+*****
 
 ####  yario  
 ##### 22431#       发表于 2011-6-22 19:23
@@ -15508,7 +15508,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 我觉得罗宾是不是算准了山治会救他然后让他做沙包？
 
 
------
+*****
 
 ####  小带鱼  
 ##### 22432#       发表于 2011-6-22 20:18
@@ -15517,7 +15517,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 明显香吉中招后还能询问小八情况，抗打击能力该有多强啊……
 
 
------
+*****
 
 ####  Yeaha123  
 ##### 22433#       发表于 2011-6-22 20:36
@@ -15526,7 +15526,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 上回说路飞秒杀甚平的，这下被打脸了
 
 
------
+*****
 
 ####  白河亜紀  
 ##### 22434#       发表于 2011-6-22 20:50
@@ -15535,7 +15535,7 @@ ONE PIECE 第629話 &amp;quot;擋住去路的前七武海&amp;quot; (完)
 ACE那自然系在陆地上也就和肾贫打个平手。
 
 
------
+*****
 
 ####  ナミ  
 ##### 22435#       发表于 2011-6-22 21:27
@@ -15545,7 +15545,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 其他的无所谓，我只想看说恶龙将洗白的人被打脸
 
 
------
+*****
 
 ####  angelooo  
 ##### 22436#       发表于 2011-6-22 21:44
@@ -15556,7 +15556,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 她就算为了自己的点心也会好好教训这小子……吧<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  faiths  
 ##### 22437#       发表于 2011-6-22 21:52
@@ -15565,7 +15565,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 布鲁克的新能力太羡慕嫉妒恨了
 
 
------
+*****
 
 ####  o凶鸟o  
 ##### 22438#       发表于 2011-6-22 22:07
@@ -15574,7 +15574,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 这集不错，还蛮搞笑的<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kedokido  
 ##### 22439#       发表于 2011-6-22 22:08
@@ -15583,7 +15583,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 布鲁克会附体到帕帕古身上吧
 
 
------
+*****
 
 ####  angelooo  
 ##### 22440#       发表于 2011-6-22 22:36
@@ -15594,7 +15594,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 但被打成那样躺在地上还要先来口烟，太时髦了
 
 
------
+*****
 
 ####  hispeed  
 ##### 22441#       发表于 2011-6-22 23:21
@@ -15603,7 +15603,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 山治时髦啊
 
 
------
+*****
 
 ####  花澤三郎  
 ##### 22442#       发表于 2011-6-22 23:23
@@ -15612,7 +15612,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 山治练成了小强体质么
 
 
------
+*****
 
 ####  小带鱼  
 ##### 22443#       发表于 2011-6-22 23:51
@@ -15621,7 +15621,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 香吉的速度明显快于甚平跟路飞，先他们飞去抱罗宾了。。可惜悲催的被2人日了。。
 
 
------
+*****
 
 ####  莫吉  
 ##### 22444#       发表于 2011-6-22 23:58
@@ -15630,7 +15630,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 红狗都不能秒杀甚平吧，怎么也是顶级战力
 
 
------
+*****
 
 ####  wingchau  
 ##### 22445#       发表于 2011-6-23 00:59
@@ -15639,7 +15639,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 羡慕嫉妒恨啊~<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  传说中的  
 ##### 22446#       发表于 2011-6-23 01:32
@@ -15648,7 +15648,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 这集好OP，喜欢。索罗太可靠了
 
 
------
+*****
 
 ####  superbia  
 ##### 22447#       发表于 2011-6-23 02:06
@@ -15659,7 +15659,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 但在他手中,连鱼人空手道也IMBA化,还有在陆上也比路飞二档更快的速度,和与ACE在陆上打成平手的战绩,在陸上也是彻头彻尾的怪物啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  LichEnd  
 ##### 22448#       发表于 2011-6-23 04:01
@@ -15672,7 +15672,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 现在想想，甚平在陆地上跟艾斯打成平手，很妖孽了……
 
 
------
+*****
 
 ####  feiwuwang  
 ##### 22449#       发表于 2011-6-23 08:36
@@ -15682,7 +15682,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 你能不能别这么时髦啊
 
 
------
+*****
 
 ####  yzxdc  
 ##### 22450#       发表于 2011-6-23 09:20
@@ -15692,7 +15692,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 当然有一个bug，其实衣服是不能做出来的
 
 
------
+*****
 
 ####  布鲁克  
 ##### 22451#       发表于 2011-6-23 09:27
@@ -15711,7 +15711,7 @@ ACE那自然系在陆地上也就和肾贫打个平手。
 yohohoho...
 
 
------
+*****
 
 ####  faiths  
 ##### 22452#       发表于 2011-6-23 11:21
@@ -15722,7 +15722,7 @@ yohohoho...
 当然有一个bug，其实衣服是不能做出来的 <[img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">你想表达什么
 
 
------
+*****
 
 ####  8aa8aa8aa  
 ##### 22453#       发表于 2011-6-23 11:48
@@ -15737,7 +15737,7 @@ yohohoho...
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">最后下场是在变成水时被娜美装进瓶子里了，和10年后的漫画里的水泥人一样待遇
 
 
------
+*****
 
 ####  65535  
 ##### 22454#       发表于 2011-6-23 12:35
@@ -15746,7 +15746,7 @@ yohohoho...
 这黄泉果实要从最废的果实一跃成为最让人羡慕的果实么？<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  opdconan  
 ##### 22455#       发表于 2011-6-23 12:55
@@ -15756,7 +15756,7 @@ yohohoho...
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dab23  
 ##### 22456#       发表于 2011-6-23 13:53
@@ -15765,7 +15765,7 @@ yohohoho...
 最强果实就这两个了——黄泉果实VS透明果实
 
 
------
+*****
 
 ####  xiv  
 ##### 22457#       发表于 2011-6-23 13:57
@@ -15777,7 +15777,7 @@ yohohoho...
 而且路飞和ace两个不同系，也没有这么直接的类比价值
 
 
------
+*****
 
 ####  superbia  
 ##### 22458#       发表于 2011-6-23 13:59
@@ -15790,7 +15790,7 @@ yohohoho...
 元素化是有意识开就能长开，像ACE时髦地坐着吃子弹，甚平没霸气连ACE的毛也伤不了吧
 
 
------
+*****
 
 ####  osk666  
 ##### 22459#       发表于 2011-6-23 15:40
@@ -15805,7 +15805,7 @@ yohohoho...
 路飞小时候这段也很赞啊！
 
 
------
+*****
 
 ####  battrick  
 ##### 22460#       发表于 2011-6-23 17:13
@@ -15814,7 +15814,7 @@ yohohoho...
 山治就没有估到这一点啊，不然非找布鲁克拼命。总觉得最近狙击王和驯鹿没有山治有趣了阿。
 
 
------
+*****
 
 ####  outrage  
 ##### 22461#       发表于 2011-6-23 18:22
@@ -15823,7 +15823,7 @@ yohohoho...
 <img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer"> 布鲁克会干啥 偷看女生内裤么。。。囧
 
 
------
+*****
 
 ####  rubicon  
 ##### 22462#       发表于 2011-6-23 18:24
@@ -15833,7 +15833,7 @@ yohohoho...
 <img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  小带鱼  
 ##### 22463#       发表于 2011-6-23 18:39
@@ -15844,7 +15844,7 @@ yohohoho...
 他现在就是搞笑 吐槽 耍帅 战斗的综合体
 
 
------
+*****
 
 ####  awq4545  
 ##### 22464#       发表于 2011-6-23 19:01
@@ -15855,7 +15855,7 @@ yohohoho...
 如果结合地利的话甚平打败大酱都不一定啊
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 22465#       发表于 2011-6-23 20:05
@@ -15864,7 +15864,7 @@ yohohoho...
 没人注意到索隆左耳的三个耳环吗
 
 
------
+*****
 
 ####  花澤三郎  
 ##### 22466#       发表于 2011-6-23 21:35
@@ -15873,7 +15873,7 @@ yohohoho...
 绿藻一直都戴耳环的啊
 
 
------
+*****
 
 ####  柏露伯德  
 ##### 22467#       发表于 2011-6-23 21:49
@@ -15884,7 +15884,7 @@ yohohoho...
 确实带，我多心了
 
 
------
+*****
 
 ####  homuhomu  
 ##### 22468#       发表于 2011-6-23 22:30
@@ -15897,7 +15897,7 @@ yohohoho...
 如果在水里估计没有人类能干过甚平，但是鱼人就这么喜欢上岸，连鱼人岛都偏要放在个坑爹的泡泡里。
 
 
------
+*****
 
 ####  arcturus  
 ##### 22469#       发表于 2011-6-23 23:59
@@ -15906,7 +15906,7 @@ yohohoho...
 喜欢上岸晒太阳的乌龟……好萌……<img src="https://static.saraba1st.com/image/smiley/face/124.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  superbia  
 ##### 22470#       发表于 2011-6-24 00:16
@@ -15920,7 +15920,7 @@ yohohoho...
 ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚平如何在陆上战平他<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  淡定君  
 ##### 22471#       发表于 2011-6-24 01:22
@@ -15934,7 +15934,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 然后正好说明了甚平不是水货啊
 
 
------
+*****
 
 ####  yzxdc  
 ##### 22472#       发表于 2011-6-24 08:58
@@ -15948,7 +15948,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 你仔细看,其实是在海岸边打,还是可以用到海水的,估计acd放大招的时候甚平就躲到海里去
 
 
------
+*****
 
 ####  dyuty12  
 ##### 22473#       发表于 2011-6-24 09:13
@@ -15957,7 +15957,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 青雏该是给甚平秒的货了吧？
 
 
------
+*****
 
 ####  日向超  
 ##### 22474#       发表于 2011-6-24 12:24
@@ -15967,7 +15967,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 男友是过分喜欢海贼王的男人。。木村拓哉
 
 
------
+*****
 
 ####  opdconan  
 ##### 22475#       发表于 2011-6-24 12:43
@@ -15977,7 +15977,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 艾斯那伤很正受的也很实，整个腹腔胸腔基本全灭了（我很好奇怎么还能说话）……
 
 
------
+*****
 
 ####  superbia  
 ##### 22476#       发表于 2011-6-24 12:52
@@ -15991,7 +15991,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 但我真的记错了，甚平都晕了，不可能是擦伤<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  outrage  
 ##### 22477#       发表于 2011-6-24 18:40
@@ -16003,7 +16003,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 <img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer"> onepiece王 我信你哟
 
 
------
+*****
 
 ####  李剡s  
 ##### 22478#       发表于 2011-6-24 20:22
@@ -16015,7 +16015,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 木村……最后那个pos真是……<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  阿拉伯土豆  
 ##### 22479#       发表于 2011-6-24 21:43
@@ -16024,7 +16024,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 只能说某些种类的鱼人堪比小强一样的存在
 
 
------
+*****
 
 ####  boahancock  
 ##### 22480#       发表于 2011-6-25 07:52
@@ -16034,7 +16034,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 一开打路飞的战力有点坑爹啊
 
 
------
+*****
 
 ####  chaoslee  
 ##### 22481#       发表于 2011-6-25 10:15
@@ -16043,7 +16043,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 甚平再怎么说也是顶上决战中硬接了红狗一拳的原七武海，能接住路飞的喷气印章也在情理之中吧
 
 
------
+*****
 
 ####  rubicon  
 ##### 22482#       发表于 2011-6-25 10:25
@@ -16054,7 +16054,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 男友是过分喜欢海贼王的男人。。木村拓哉 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>笑死了
 
 
------
+*****
 
 ####  onepiecebest  
 ##### 22483#       发表于 2011-6-25 10:41
@@ -16065,7 +16065,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 男友是过分喜欢海贼王的男人。。木村拓哉 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>不愧是One piece王，笑翻了
 
 
------
+*****
 
 ####  北极云  
 ##### 22484#       发表于 2011-6-26 10:51
@@ -16074,7 +16074,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 笑翻，可惜这楼都跌出前3页，木村牛啊
 
 
------
+*****
 
 ####  阿拉伯土豆  
 ##### 22485#       发表于 2011-6-26 16:44
@@ -16083,7 +16083,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 最新的动画版透露萨博没有死。。。。。
 
 
------
+*****
 
 ####  堪萨斯de风  
 ##### 22486#       发表于 2011-6-26 22:17
@@ -16093,7 +16093,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 最新的动画版透露萨博没有死。。。。。 <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>刚看到..就想来找液内人士求证明。。漫画里好象没看到这剧情么。。
 
 
------
+*****
 
 ####  布鲁克  
 ##### 22487#       发表于 2011-6-29 16:47
@@ -16103,7 +16103,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 本周情报
 
 
------
+*****
 
 ####  般的存在  
 ##### 22488#       发表于 2011-6-29 17:55
@@ -16112,7 +16112,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 感觉从大事件之后这楼就变得好冷清了。。。
 
 
------
+*****
 
 ####  11king11  
 ##### 22489#       发表于 2011-6-29 22:31
@@ -16121,7 +16121,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 总觉得op这一段都太平静了，可能是应为主角队太强了，没有一点危机感的原因吧，还是对手中有鳄鱼，神和豹子这种强者才过瘾，现在总觉得对手太弱没压力了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">希望鱼人来点猛料，来点有紧张感的剧情啊，现在也太休闲了。。。
 
 
------
+*****
 
 ####  Yeaha123  
 ##### 22490#       发表于 2011-6-29 22:50
@@ -16130,7 +16130,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 630看完，这话是龙套话，稍微无聊了点。真心希望不要出现草帽团和这些人一对一，打一个用两话的剧情。
 
 
------
+*****
 
 ####  gpx234  
 ##### 22491#       发表于 2011-6-29 22:53
@@ -16139,7 +16139,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 霍迪已经不行了<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ldsdlg  
 ##### 22492#       发表于 2011-6-29 23:10
@@ -16148,7 +16148,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 这几话拖死了……
 
 
------
+*****
 
 ####  dds2ming  
 ##### 22493#       发表于 2011-6-30 00:03
@@ -16158,7 +16158,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 看来草帽团三大主力随便上一个，就可以让他们团灭了
 
 
------
+*****
 
 ####  vigilgt  
 ##### 22494#       发表于 2011-6-30 03:09
@@ -16170,7 +16170,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 这630话我都看不下去了..
 
 
------
+*****
 
 ####  LichEnd  
 ##### 22495#       发表于 2011-6-30 03:36
@@ -16181,7 +16181,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 这次事件不会这么简单就完结的。
 
 
------
+*****
 
 ####  1603344  
 ##### 22496#       发表于 2011-6-30 07:43
@@ -16195,7 +16195,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 列出一堆小BOSS？？让主角1V1???
 
 
------
+*****
 
 ####  cdfjg  
 ##### 22497#       发表于 2011-6-30 08:20
@@ -16205,7 +16205,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 虽然没主角什么事，但还是有几个点搞笑的
 
 
------
+*****
 
 ####  8aa8aa8aa  
 ##### 22498#       发表于 2011-6-30 08:51
@@ -16218,7 +16218,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 这630话我都看不下去了.. <[img src="http://images/back.gif" referrerpolicy="no-referrer"></blockquote>对于630的海贼王，我是使用看时髦神的速度观看的
 
 
------
+*****
 
 ####  rayalynx  
 ##### 22499#       发表于 2011-6-30 09:13
@@ -16227,7 +16227,7 @@ ACE的火炎也算是大杀器吧？持续伤害和MAP也有，我真想知甚�
 不会是四皇介入，然后路飞一伙来扛四皇，好让鱼人自己解决问题吧
 
 
------
+*****
 
 ####  dyuty12  
 ##### 22500#       发表于 2011-6-30 10:04

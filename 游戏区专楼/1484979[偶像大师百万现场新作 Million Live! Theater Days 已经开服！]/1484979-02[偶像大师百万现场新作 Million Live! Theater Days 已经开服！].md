@@ -1,6 +1,6 @@
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1501#       发表于 2017-8-21 20:51
@@ -9,7 +9,7 @@
 还好没有咸鱼冲刺，准备冲的档刚好比预计高了100pt不到
 
 
------
+*****
 
 ####  terry666  
 ##### 1502#       发表于 2017-8-21 21:03
@@ -20,7 +20,7 @@
 活动限定..
 
 
------
+*****
 
 ####  v2c  
 ##### 1503#       发表于 2017-8-21 21:11
@@ -32,7 +32,7 @@
 现在也不是之前LL和CGSS一两家独大的时代，这个偶像音游玩的不爽大不了再换一个就是，以MLTD现在二十来万的玩家数也经不起多少折腾，说实话到现在就剩下这么些玩家说明这个游戏已经相当失败了，起码是比大多数人的期望都要低
 
 
------
+*****
 
 ####  三千院飒  
 ##### 1504#       发表于 2017-8-21 22:51
@@ -43,7 +43,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
------
+*****
 
 ####  Renes  
 ##### 1505#       发表于 2017-8-22 00:06
@@ -54,7 +54,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 活动感觉还可以吧…毕竟第一次大家热情毕竟高所以5档还是需要花点时间 即使如此平刷+最后吃点药问题也不大 话说推和2ch主要抱怨什么？
 
 
------
+*****
 
 ####  terry666  
 ##### 1506#       发表于 2017-8-22 01:06
@@ -63,7 +63,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 活动最后一天爆菊不是这类游戏的惯例么？第一活动大佬们都憋久了 打的猛很正常 以后肯定是各打各的担当 没那么无脑冲排位了
 
 
------
+*****
 
 ####  镜hinata  
 ##### 1507#       发表于 2017-8-22 02:01
@@ -81,7 +81,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 那样这游戏就不会失败了
 
 
------
+*****
 
 ####  朝奈  
 ##### 1508#       发表于 2017-8-22 03:13
@@ -109,7 +109,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 这个活动上位卡的强度我个人而言吃不太消,等过半年歌实装多了再回归吧
 
 
------
+*****
 
 ####  char0311131  
 ##### 1509#       发表于 2017-8-22 07:04
@@ -118,7 +118,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 曲目太少以及打歌消耗体力太多可能才是真正的原因吧
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1510#       发表于 2017-8-22 07:34
@@ -128,7 +128,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 打歌耗体多难道不是优势么.....
 
 
------
+*****
 
 ####  chri  
 ##### 1511#       发表于 2017-8-22 08:27
@@ -137,7 +137,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 我希望快点出美奈子SSR<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ptshiki  
 ##### 1512#       发表于 2017-8-22 09:18
@@ -152,7 +152,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 美也和roco大概是通常，从骗课的角度来说，限定也会是高人气角色，下波限定可能是兔子
 
 
------
+*****
 
 ####  dystopiaground  
 ##### 1513#       发表于 2017-8-22 09:37
@@ -160,7 +160,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  daqi  
 ##### 1514#       发表于 2017-8-22 10:07
@@ -169,7 +169,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">歌太少硬伤，耗体力多是优势
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 1515#       发表于 2017-8-22 10:48
@@ -178,7 +178,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 歌是真的少，每日颜色一限定只有4首轮着打，开3D都打烦了
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1516#       发表于 2017-8-22 11:06
@@ -190,7 +190,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 公告出了，限定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kohos  
 ##### 1517#       发表于 2017-8-22 11:12
@@ -202,7 +202,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 不是限定啊，新規追加カード 是增加新卡
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1518#       发表于 2017-8-22 11:24
@@ -214,7 +214,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 确实不是，眼瘸了
 
 
------
+*****
 
 ####  chri  
 ##### 1519#       发表于 2017-8-22 12:41
@@ -223,7 +223,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 看到预告下午出新卡池，是我不太感兴趣的人，，，，于是连忙抽了一把艾米丽10连....结果9R1SR，都是有的卡....好想哭
 
 
------
+*****
 
 ####  hinarin  
 ##### 1520#       发表于 2017-8-22 14:06
@@ -235,7 +235,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 明天继续ミリコレ 肝疼<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">告知又没了
 
 
------
+*****
 
 ####  shadowof  
 ##### 1521#       发表于 2017-8-22 14:11
@@ -252,7 +252,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 3%单发也特别多 2个月不到 算上メダル 已经5个单发ssr了
 
 
------
+*****
 
 ####  枫紫  
 ##### 1522#       发表于 2017-8-22 14:12
@@ -261,7 +261,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好过showtime，讲道理showtimee千万别再来了，来一次喷一次
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1523#       发表于 2017-8-22 14:19
@@ -275,7 +275,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是不是欧洲人无论玩什么游戏都是欧洲人
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1524#       发表于 2017-8-22 14:27
@@ -286,7 +286,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 那么问题来了，啥时候实装初恋蝴蝶
 
 
------
+*****
 
 ####  枫紫  
 ##### 1525#       发表于 2017-8-22 14:32
@@ -301,7 +301,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">你到底是海豹还是海豹
 
 
------
+*****
 
 ####  Renes  
 ##### 1526#       发表于 2017-8-22 14:32
@@ -310,7 +310,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 4万6 松了一口气
 
 
------
+*****
 
 ####  qiushiweilu  
 ##### 1527#       发表于 2017-8-22 14:37
@@ -319,7 +319,7 @@ pt41881，剩500多星星没用。6m 60w<img src="https://static.saraba1st.com/i
 thank you好棒，又有动力玩下去了！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">至于活动排名，不出意外被爆菊了……
 
 
------
+*****
 
 ####  shadowof  
 ##### 1528#       发表于 2017-8-22 14:41
@@ -334,7 +334,7 @@ Thank you也是全员分part 全员的せーの
 4凸的志保有两套衣服
 
 
------
+*****
 
 ####  小猫鼬  
 ##### 1529#       发表于 2017-8-22 14:44
@@ -343,7 +343,7 @@ Thank you也是全员分part 全员的せーの
 同样 4w6 松了一口气
 
 
------
+*****
 
 ####  一夜四次羊  
 ##### 1530#       发表于 2017-8-22 14:47
@@ -354,7 +354,7 @@ Thank you也是全员分part 全员的せーの
 
 
 
------
+*****
 
 ####  nukecole  
 ##### 1531#       发表于 2017-8-22 15:28
@@ -363,7 +363,7 @@ Thank you也是全员分part 全员的せーの
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最后一段时间死活上不了游戏，果然被挤出5万线了，30多瓶20AP的药没用，感觉自己血亏。。。。。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1532#       发表于 2017-8-22 15:32
@@ -376,7 +376,7 @@ Thank you也是全员分part 全员的せーの
 有了质保这卡差不多可以把lp冲到700了.........
 
 
------
+*****
 
 ####  Chia  
 ##### 1533#       发表于 2017-8-22 16:06
@@ -390,7 +390,7 @@ Thankyou好评，但分的声部没BNT有趣
 期待welcome 一人一句独白<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 1534#       发表于 2017-8-22 16:08
@@ -411,7 +411,7 @@ PSL组合喊得口号不知道会不会有
 官方发的Thank You!MV 前后人选 
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1535#       发表于 2017-8-22 16:28
@@ -420,7 +420,7 @@ PSL组合喊得口号不知道会不会有
 话说以后的全type曲会不会都是对应每人歌词的......
 
 
------
+*****
 
 ####  枫紫  
 ##### 1536#       发表于 2017-8-22 17:12
@@ -432,7 +432,7 @@ PSL组合喊得口号不知道会不会有
 不会，估计只有4首主题歌对应。但是不排除出新曲
 
 
------
+*****
 
 ####  三千院飒  
 ##### 1537#       发表于 2017-8-22 17:14
@@ -443,7 +443,7 @@ PSL组合喊得口号不知道会不会有
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1538#       发表于 2017-8-22 17:20
@@ -452,7 +452,7 @@ PSL组合喊得口号不知道会不会有
 登录中，这次活动的五万线是多少分？
 
 
------
+*****
 
 ####  枫紫  
 ##### 1539#       发表于 2017-8-22 17:21
@@ -464,7 +464,7 @@ PSL组合喊得口号不知道会不会有
 2w8出头
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1540#       发表于 2017-8-22 17:23
@@ -476,7 +476,7 @@ PSL组合喊得口号不知道会不会有
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">摔出去了
 
 
------
+*****
 
 ####  枫紫  
 ##### 1541#       发表于 2017-8-22 17:25
@@ -488,7 +488,7 @@ PSL组合喊得口号不知道会不会有
 <img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">动脉...
 
 
------
+*****
 
 ####  一夜四次羊  
 ##### 1542#       发表于 2017-8-22 17:25
@@ -497,7 +497,7 @@ PSL组合喊得口号不知道会不会有
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼原本高分榜那个90w出头的被和谐了
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1543#       发表于 2017-8-22 17:27
@@ -509,7 +509,7 @@ PSL组合喊得口号不知道会不会有
 好在不是志保p，就恭喜成功挤进去的P们了（
 
 
------
+*****
 
 ####  terry666  
 ##### 1544#       发表于 2017-8-22 17:37
@@ -520,7 +520,7 @@ PSL组合喊得口号不知道会不会有
 还好当时15.1W觉得不稳，又砸了500钻进去，不然就暴死了。
 
 
------
+*****
 
 ####  lostz1991  
 ##### 1545#       发表于 2017-8-22 17:56
@@ -529,7 +529,7 @@ PSL组合喊得口号不知道会不会有
 3万分以为可以进2万线看来是太甜了...能保住5万就不错了
 
 
------
+*****
 
 ####  shadowof  
 ##### 1546#       发表于 2017-8-22 18:00
@@ -555,7 +555,7 @@ thankyou最后的剧情
  10月武道馆的倍率感觉又上升了（）
 
 
------
+*****
 
 ####  一夜四次羊  
 ##### 1547#       发表于 2017-8-22 19:56
@@ -564,7 +564,7 @@ thankyou最后的剧情
 志保蓝色那件衣服有夜光效果 黄色那件没有<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 1548#       发表于 2017-8-22 22:13
@@ -573,7 +573,7 @@ thankyou最后的剧情
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">隔壁男团SR也是整屏的，为什么土豆的SR要阉割，活动卡和AS组明明都重画了不是么
 
 
------
+*****
 
 ####  qw945  
 ##### 1549#       发表于 2017-8-23 00:47
@@ -584,7 +584,7 @@ thankyou最后的剧情
 明天又要开始蹭时间活动了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  斑驳的阴影  
 ##### 1550#       发表于 2017-8-23 06:43
@@ -595,7 +595,7 @@ thankyou最后的剧情
 美也这新卡，花光之前两个月攒下来的6k+免费钻和上次充了没用完的3k5钻，然后昨天下午两单下去只有3个newSR，结果第三单的第一个十连居然还双黄蛋了，美也+Emily的SSR<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 1551#       发表于 2017-8-23 14:09
@@ -608,7 +608,7 @@ thankyou最后的剧情
 活动卡改成直接抽出来了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1552#       发表于 2017-8-23 14:20
@@ -617,7 +617,7 @@ thankyou最后的剧情
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">害怕，还不如能肝出来....非洲人怕是抽不出来了....
 
 
------
+*****
 
 ####  hinarin  
 ##### 1553#       发表于 2017-8-23 14:59
@@ -626,7 +626,7 @@ thankyou最后的剧情
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">限制个数和不限制个数分开抽选脸黑抽到空还是有希望的
 
 
------
+*****
 
 ####  daqi  
 ##### 1554#       发表于 2017-8-23 20:01
@@ -635,7 +635,7 @@ thankyou最后的剧情
 Thank you这个音质怎么这么微妙，是我聋了么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pockee  
 ##### 1555#       发表于 2017-8-23 20:29
@@ -644,7 +644,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 问下N卡有必要升满级么？
 
 
------
+*****
 
 ####  斑驳的阴影  
 ##### 1556#       发表于 2017-8-23 21:10
@@ -656,7 +656,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 没有，只有R卡在无氪情况下有必要升满作为support
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1557#       发表于 2017-8-23 21:15
@@ -667,7 +667,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 话说我第三次十连的时候就出了什么都没有的白箱子......这概率也是厉害了.......
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1558#       发表于 2017-8-24 10:45
@@ -679,7 +679,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.27)
 
 
------
+*****
 
 ####  枫紫  
 ##### 1559#       发表于 2017-8-24 17:08
@@ -694,7 +694,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 那个是谷歌的campaign，和游戏本身没关系
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1560#       发表于 2017-8-24 17:56
@@ -708,7 +708,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 
 
 
------
+*****
 
 ####  qw945  
 ##### 1561#       发表于 2017-8-24 18:49
@@ -719,7 +719,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0.1-play
 
 
------
+*****
 
 ####  shadowof  
 ##### 1562#       发表于 2017-8-24 19:37
@@ -732,7 +732,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 武道馆两天公开的一部分组合
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1563#       发表于 2017-8-24 19:37
@@ -746,7 +746,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 但是期间也有两次白箱子....感觉挺玄乎的
 
 
------
+*****
 
 ####  shadowof  
 ##### 1564#       发表于 2017-8-24 19:40
@@ -757,7 +757,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 看到最黑的刷了1万5
 
 
------
+*****
 
 ####  qw945  
 ##### 1565#       发表于 2017-8-24 19:42
@@ -768,7 +768,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0.1-play
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1566#       发表于 2017-8-24 19:47
@@ -777,7 +777,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 体感有保底币数，上次活动有一抽直接抽了好几个高稀有度的物品把池子抽空了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1567#       发表于 2017-8-24 20:22
@@ -786,7 +786,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 上次活动我记得是12k币左右抽空的池子....剩下就纯肝卡了.....
 
 
------
+*****
 
 ####  枫雨rain  
 ##### 1568#       发表于 2017-8-24 20:51
@@ -797,7 +797,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 新人想入坑，之前也没玩过类似的音游，是要去搞个初始号什么的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 1569#       发表于 2017-8-24 21:37
@@ -810,7 +810,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 不過是百合子center
 
 
------
+*****
 
 ####  terry666  
 ##### 1570#       发表于 2017-8-24 21:43
@@ -824,7 +824,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 没啥要注意的，挑你自己的喜欢的角色就好了，尽量每个属性的有至少一个SSR当队长比较好。
 
 
------
+*****
 
 ####  枫雨rain  
 ##### 1571#       发表于 2017-8-24 21:48
@@ -838,7 +838,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 好的<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  三千院飒  
 ##### 1572#       发表于 2017-8-25 00:12
@@ -849,7 +849,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  安广多惠子  
 ##### 1573#       发表于 2017-8-25 00:15
@@ -858,7 +858,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 4000了，感觉这次白箱的几率高多了，还有非常多东西没抽出来，感觉不能像上次一样1w4之前抽干
 
 
------
+*****
 
 ####  hinarin  
 ##### 1574#       发表于 2017-8-25 07:27
@@ -867,7 +867,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 2800枚了还缺个美奈子<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 1575#       发表于 2017-8-25 09:43
@@ -876,7 +876,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">4000只有丽花，果然这号非的不行么
 
 
------
+*****
 
 ####  洋葱葱  
 ##### 1576#       发表于 2017-8-25 10:15
@@ -885,7 +885,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 4500只有真哥..慢慢来吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1577#       发表于 2017-8-25 10:24
@@ -894,7 +894,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">4400+了一个都还没，我怕是泥潭最非
 
 
------
+*****
 
 ####  chri  
 ##### 1578#       发表于 2017-8-25 10:57
@@ -905,7 +905,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 好想快点得到美奈子啊啊啊
 
 
------
+*****
 
 ####  qw945  
 ##### 1579#       发表于 2017-8-25 14:48
@@ -918,7 +918,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0.1-play
 
 
------
+*****
 
 ####  SchwarzX  
 ##### 1580#       发表于 2017-8-25 16:24
@@ -927,7 +927,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 我6500就得张北上丽花，目前没人黑过我吧<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  吉诺爱比利  
 ##### 1581#       发表于 2017-8-25 17:58
@@ -936,7 +936,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 4000把SR狗粮和石头抽齐了，卡只有丽华
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1582#       发表于 2017-8-25 22:08
@@ -945,7 +945,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 10200出第一张卡的就看看<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  killcal  
 ##### 1583#       发表于 2017-8-26 00:48
@@ -954,7 +954,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 抽到5000，少真哥了
 
 
------
+*****
 
 ####  akirt  
 ##### 1584#       发表于 2017-8-26 06:13
@@ -965,7 +965,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 为什么十连抽的时候没这么好的人品？
 
 
------
+*****
 
 ####  无色老魔  
 ##### 1585#       发表于 2017-8-26 08:31
@@ -974,7 +974,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 7500了一张也没有，泥潭最非就是我<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 1586#       发表于 2017-8-26 10:25
@@ -983,7 +983,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 果然这活动就是土豆这边的丢脸大赛么
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1587#       发表于 2017-8-26 10:55
@@ -993,7 +993,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 已经开始各种白箱子了....
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1588#       发表于 2017-8-26 11:23
@@ -1002,7 +1002,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 你们这么早就开抽了？ 活动奖励的瓶子只要抽出来就开始计算时限了，为了把活动瓶子存到下次排名活动，最后一天再抽是最好的
 
 
------
+*****
 
 ####  ジュリア  
 ##### 1589#       发表于 2017-8-26 11:40
@@ -1011,7 +1011,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 4600齐了，应该说还行？
 
 
------
+*****
 
 ####  枫雨rain  
 ##### 1590#       发表于 2017-8-26 12:00
@@ -1022,7 +1022,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1591#       发表于 2017-8-26 12:13
@@ -1035,7 +1035,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 打耗体少的再肝活动时就是会多费些时间而已
 
 
------
+*****
 
 ####  枫雨rain  
 ##### 1592#       发表于 2017-8-26 12:24
@@ -1050,7 +1050,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 那就好了，手残还是继续打4m算了
 
 
------
+*****
 
 ####  名字已被吃  
 ##### 1593#       发表于 2017-8-26 13:43
@@ -1059,7 +1059,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 3400才抽到，一次中俩<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 1594#       发表于 2017-8-26 14:08
@@ -1071,7 +1071,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 大概也就6mFC后有50石，50次clear后也有50石的区别吧
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1595#       发表于 2017-8-26 15:03
@@ -1079,7 +1079,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  枫紫  
 ##### 1596#       发表于 2017-8-26 17:20
@@ -1091,7 +1091,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 体力和收入的效率比2M和4M貌似是最高的，非常亲民，不存在隔壁那样的手残没人权
 
 
------
+*****
 
 ####  qw945  
 ##### 1597#       发表于 2017-8-27 14:18
@@ -1102,7 +1102,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0.1-play
 
 
------
+*****
 
 ####  qw945  
 ##### 1598#       发表于 2017-8-27 14:19
@@ -1115,7 +1115,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0.1-play
 
 
------
+*****
 
 ####  hinarin  
 ##### 1599#       发表于 2017-8-27 14:52
@@ -1124,7 +1124,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 8400抽齐卡 还要肝素材
 
 
------
+*****
 
 ####  zeroed  
 ##### 1600#       发表于 2017-8-27 14:56
@@ -1133,7 +1133,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 抽到6500连出俩SR，还差个丽花
 
 
------
+*****
 
 ####  不起眼の路人  
 ##### 1601#       发表于 2017-8-27 15:33
@@ -1142,7 +1142,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 9000目前还是一张没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zeroed  
 ##### 1602#       发表于 2017-8-27 20:35
@@ -1157,7 +1157,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 大约1w4全部抽完
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1603#       发表于 2017-8-27 20:57
@@ -1165,7 +1165,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  qw945  
 ##### 1604#       发表于 2017-8-27 21:15
@@ -1176,7 +1176,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0.1-play
 
 
------
+*****
 
 ####  kohos  
 ##### 1605#       发表于 2017-8-28 09:09
@@ -1185,7 +1185,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 原谅币务必10连，太少就抽的话很容易白箱子。
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 1606#       发表于 2017-8-28 20:57
@@ -1194,7 +1194,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">8400抽齐了，再就是做完任务了
 
 
------
+*****
 
 ####  qiushiweilu  
 ##### 1607#       发表于 2017-8-28 22:38
@@ -1203,7 +1203,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 1w4拿到了最后一张卡，与上次的区别就是，之前1w左右开始连出金箱差不多抽干了奖池，这次1w+开始就连出白箱现在都还没把奖池抽干
 
 
------
+*****
 
 ####  qw945  
 ##### 1608#       发表于 2017-8-29 10:31
@@ -1214,7 +1214,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0.1-play
 
 
------
+*****
 
 ####  admidi  
 ##### 1609#       发表于 2017-8-29 12:28
@@ -1227,7 +1227,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 ……没抱指望随便刷刷结果很快出货了
 
 
------
+*****
 
 ####  Fingest  
 ##### 1610#       发表于 2017-8-29 17:25
@@ -1236,7 +1236,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">12800 才抽到真哥，除钱外的东西都抽完了，真科学
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1611#       发表于 2017-8-29 18:55
@@ -1245,7 +1245,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 快15k了，差张美奈子，不急，形式还卜严峻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  朝奈  
 ##### 1612#       发表于 2017-8-29 20:18
@@ -1256,7 +1256,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 想说MMP
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1613#       发表于 2017-8-30 00:19
@@ -1265,7 +1265,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 14600终于抽穿池子了，比上次还难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  越谷卓  
 ##### 1614#       发表于 2017-8-30 00:58
@@ -1276,7 +1276,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 —— 来自 Xiaomi MIX, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.0.1-play
 
 
------
+*****
 
 ####  cxxx  
 ##### 1615#       发表于 2017-8-30 02:15
@@ -1287,7 +1287,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 这种傻逼活动能不能别再开了啊，我宁愿去肝排名
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1616#       发表于 2017-8-30 08:35
@@ -1296,7 +1296,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">目前除了这个活动和抽卡无法获得ssr碎片吧？
 
 
------
+*****
 
 ####  hinarin  
 ##### 1617#       发表于 2017-8-30 09:37
@@ -1308,7 +1308,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 活动都是SR的吧
 
 
------
+*****
 
 ####  枫紫  
 ##### 1618#       发表于 2017-8-30 09:45
@@ -1320,7 +1320,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 碎片也没有ssr的吧,只有ssr狗粮
 
 
------
+*****
 
 ####  daqi  
 ##### 1619#       发表于 2017-8-30 10:23
@@ -1329,7 +1329,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">13000才抽到最后的真哥，14000卡池空了，所言不虚
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1620#       发表于 2017-8-30 11:03
@@ -1340,7 +1340,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 
 
 
------
+*****
 
 ####  zeroed  
 ##### 1621#       发表于 2017-8-30 11:04
@@ -1349,7 +1349,7 @@ Thank you这个音质怎么这么微妙，是我聋了么<img src="https://stati
 SSR石头目前只能抽重复抽出来,毕竟相当于一个重复SSR了,没那么容易白送
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1622#       发表于 2017-8-30 11:44
@@ -1358,7 +1358,7 @@ SSR石头目前只能抽重复抽出来,毕竟相当于一个重复SSR了,没那
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哦....记错了...是ssr狗粮....
 
 
------
+*****
 
 ####  天涯夹心人  
 ##### 1623#       发表于 2017-8-30 15:44
@@ -1367,7 +1367,7 @@ SSR石头目前只能抽重复抽出来,毕竟相当于一个重复SSR了,没那
 我是抽不去美奈子，长久没完记得泳装还是只要累计的。
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1624#       发表于 2017-8-31 16:39
@@ -1376,7 +1376,7 @@ SSR石头目前只能抽重复抽出来,毕竟相当于一个重复SSR了,没那
 十连试手，啥都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1625#       发表于 2017-8-31 16:47
@@ -1385,7 +1385,7 @@ SSR石头目前只能抽重复抽出来,毕竟相当于一个重复SSR了,没那
 <img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">这期两张新卡的背景都好惊艳
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1626#       发表于 2017-8-31 17:12
@@ -1400,7 +1400,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco
 下期活动曲：Good-Sleep Baby
 
 
------
+*****
 
 ####  qw945  
 ##### 1627#       发表于 2017-8-31 17:31
@@ -1409,7 +1409,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco
 出了两个R碎片，SR碎片有人掉了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1628#       发表于 2017-8-31 17:36
@@ -1421,7 +1421,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco
 牌子也能抽出ssr，问题是你出过几个<img src="https://static.saraba1st.com/image/smiley/carton2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1629#       发表于 2017-8-31 17:38
@@ -1436,7 +1436,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">贴吧下午看到有个人在拿出卡规律奶下期可奈，竟然真要奶中了
 
 
------
+*****
 
 ####  zeroed  
 ##### 1630#       发表于 2017-8-31 19:50
@@ -1447,7 +1447,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 留给roco的石头也没了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1631#       发表于 2017-8-31 19:53
@@ -1460,7 +1460,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 我操....比起来我简直就像一个傻逼
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1632#       发表于 2017-8-31 20:36
@@ -1471,7 +1471,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 。
 
 
------
+*****
 
 ####  朝奈  
 ##### 1633#       发表于 2017-9-1 00:19
@@ -1482,7 +1482,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 为什么要上群和论坛看别人得瑟呢.......
 
 
------
+*****
 
 ####  shadowof  
 ##### 1634#       发表于 2017-9-1 01:08
@@ -1493,7 +1493,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 隔壁とときん也只有20连 免费石头都没用完
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 1635#       发表于 2017-9-1 02:02
@@ -1502,7 +1502,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 十连响加重复的紬，想要风花再氪了次十连果不其然的保底，停手了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1636#       发表于 2017-9-1 06:42
@@ -1511,7 +1511,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">10连双黄？我要删号退坛....
 
 
------
+*****
 
 ####  三千院飒  
 ##### 1637#       发表于 2017-9-1 08:37
@@ -1522,7 +1522,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
------
+*****
 
 ####  洋葱葱  
 ##### 1638#       发表于 2017-9-1 08:43
@@ -1531,7 +1531,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">40连全保底
 
 
------
+*****
 
 ####  dystopiaground  
 ##### 1639#       发表于 2017-9-1 08:56
@@ -1539,7 +1539,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1640#       发表于 2017-9-1 10:41
@@ -1548,7 +1548,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">泥潭专楼简直海豹大战
 
 
------
+*****
 
 ####  hinarin  
 ##### 1641#       发表于 2017-9-1 11:31
@@ -1557,7 +1557,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我什么都没有.jpg
 
 
------
+*****
 
 ####  Chia  
 ##### 1642#       发表于 2017-9-1 11:56
@@ -1566,7 +1566,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 我 打钱……
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1643#       发表于 2017-9-1 13:02
@@ -1577,7 +1577,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 可是打了一天钱，点两个技能又没了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qw945  
 ##### 1644#       发表于 2017-9-1 13:15
@@ -1592,7 +1592,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1645#       发表于 2017-9-1 13:38
@@ -1607,7 +1607,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">20张R有1/3的成功率，然后强上失败几次越来越穷
 
 
------
+*****
 
 ####  qw945  
 ##### 1646#       发表于 2017-9-1 20:28
@@ -1620,7 +1620,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  クー子  
 ##### 1647#       发表于 2017-9-2 10:09
@@ -1631,7 +1631,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 — from Sony 501SO, Android 6.0 of [S1 Next Goose](https://play.google.com/store/apps/details?id=me.ykrank.s1next) v1.3.1.0
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1648#       发表于 2017-9-2 12:14
@@ -1658,7 +1658,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 有意请直接联系QQ：243951195
 
 
------
+*****
 
 ####  shadowof  
 ##### 1649#       发表于 2017-9-2 12:40
@@ -1667,7 +1667,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 两天全中100张
 
 
------
+*****
 
 ####  bwjx88  
 ##### 1650#       发表于 2017-9-4 11:13
@@ -1678,7 +1678,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 
 
 
------
+*****
 
 ####  枫紫  
 ##### 1651#       发表于 2017-9-4 16:35
@@ -1687,7 +1687,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 连着3楼豹晒,可以说是很过分
 
 
------
+*****
 
 ####  qw945  
 ##### 1652#       发表于 2017-9-5 00:57
@@ -1696,7 +1696,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 连出了俩SR碎片，有点吃惊<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">在奇怪的地方欧了一把
 
 
------
+*****
 
 ####  kohos  
 ##### 1653#       发表于 2017-9-5 11:24
@@ -1705,7 +1705,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 今天这活动就结束了，应该会出预告了吧
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1654#       发表于 2017-9-5 13:41
@@ -1713,7 +1713,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  cxxx  
 ##### 1655#       发表于 2017-9-5 13:57
@@ -1724,7 +1724,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 下次活动如果还是五万拿卡那真不想再玩下去了
 
 
------
+*****
 
 ####  ティグル  
 ##### 1656#       发表于 2017-9-5 14:05
@@ -1735,7 +1735,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 求推荐一款能流畅运行的平板，千元左右，谢谢
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1657#       发表于 2017-9-5 14:43
@@ -1751,7 +1751,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 活动5W拿卡倒是没啥好说的，草菇第一次活动我没记错是10W。不过想想既然上位卡送衣服那抬一波也能接受，反正也就多刷个3 5K的PT，而且平刷基本能满足了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hinarin  
 ##### 1658#       发表于 2017-9-5 14:48
@@ -1760,7 +1760,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 平刷进2万都没问题
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1659#       发表于 2017-9-5 15:42
@@ -1770,7 +1770,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 没有新曲动力不足.....
 
 
------
+*****
 
 ####  kohos  
 ##### 1660#       发表于 2017-9-5 15:54
@@ -1779,7 +1779,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 下次活动的上位大概是やよい吧，解包看到个很像的东西
 
 
------
+*****
 
 ####  朝奈  
 ##### 1661#       发表于 2017-9-5 16:58
@@ -1787,7 +1787,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 提示: 该帖被管理员或版主屏蔽
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1662#       发表于 2017-9-5 17:35
@@ -1795,7 +1795,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  ptshiki  
 ##### 1663#       发表于 2017-9-5 21:40
@@ -1810,7 +1810,7 @@ SSR卡池候补：【亚美，美奈子】，可奈，roco</blockquote>
 可胖是通常ssr还是活动上位sr？
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1664#       发表于 2017-9-6 14:30
@@ -1842,7 +1842,7 @@ ARRIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、ロコ�
 下期活动基本确定是Growing Storm，都是人气角色想肝的提前储备石头
 
 
------
+*****
 
 ####  shadowof  
 ##### 1665#       发表于 2017-9-6 14:45
@@ -1854,7 +1854,7 @@ ARRIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、ロコ�
 振り付け一点印象都没了。。。
 
 
------
+*****
 
 ####  枫紫  
 ##### 1666#       发表于 2017-9-6 17:50
@@ -1863,7 +1863,7 @@ ARRIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、ロコ�
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">如果按照茜，弥生的顺序来的话下期活动难道不是路子么
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 1667#       发表于 2017-9-6 18:00
@@ -1872,7 +1872,7 @@ ARRIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、ロコ�
 GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这歌打活动。。。
 
 
------
+*****
 
 ####  Risa  
 ##### 1668#       发表于 2017-9-6 20:47
@@ -1881,7 +1881,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 上次4凸上位线多少分？
 
 
------
+*****
 
 ####  kohos  
 ##### 1669#       发表于 2017-9-6 21:53
@@ -1893,7 +1893,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 15w1左右，你可以看这里：[https://days.765prolive.theater/event/4](https://days.765prolive.theater/event/4)
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1670#       发表于 2017-9-6 22:55
@@ -1902,7 +1902,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 新组合有点屌，会出原创曲吗？
 
 
------
+*****
 
 ####  Risa  
 ##### 1671#       发表于 2017-9-7 00:52
@@ -1919,7 +1919,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 手里有2W5K钻，暂时不用慌了。
 
 
------
+*****
 
 ####  Risa  
 ##### 1672#       发表于 2017-9-7 00:55
@@ -1928,7 +1928,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 最后两天太可怕了，7W涨到了15W = =……
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1673#       发表于 2017-9-7 17:09
@@ -1963,7 +1963,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 <img src="https://img.saraba1st.com/forum/201709/07/170900yz56qyxg4x3sgpgg.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1674#       发表于 2017-9-7 17:30
@@ -1972,7 +1972,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 今年之内应该不会在这游戏里课金了，除非有什么好理由（
 
 
------
+*****
 
 ####  shadowof  
 ##### 1675#       发表于 2017-9-8 14:30
@@ -1983,7 +1983,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 登陆画面也变活动画面了
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1676#       发表于 2017-9-8 14:34
@@ -1992,7 +1992,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">MV不错啊
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 1677#       发表于 2017-9-8 14:45
@@ -2001,7 +2001,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 这歌真是。。。催眠，怕不是打到一半要睡着
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1678#       发表于 2017-9-8 14:53
@@ -2011,7 +2011,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 <img src="http://ww1.sinaimg.cn/large/abbcfc23ly1fjc5rnn77kj21ac1psaob.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1679#       发表于 2017-9-8 15:00
@@ -2020,7 +2020,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">这次的活动装真的怎么看怎么是睡衣，虽然说是要贴近主题吧233
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1680#       发表于 2017-9-8 15:23
@@ -2032,7 +2032,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 
 
 
------
+*****
 
 ####  Fingest  
 ##### 1681#       发表于 2017-9-8 15:26
@@ -2041,7 +2041,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">觉醒后是弥生+可胖 一本满足
 
 
------
+*****
 
 ####  ldenny  
 ##### 1682#       发表于 2017-9-8 15:40
@@ -2052,7 +2052,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 45ESSUPH
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1683#       发表于 2017-9-8 15:49
@@ -2061,7 +2061,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 打了2把，没fc的比fc多了3w分，好迷<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wx98707707  
 ##### 1684#       发表于 2017-9-8 15:55
@@ -2072,7 +2072,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 这活动打11天。等结束了过两天癞皮下开个原谅币就过了9月了。顺便4凸女儿，求一波大腿,3JVFWDY9
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1685#       发表于 2017-9-8 16:03
@@ -2081,7 +2081,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">选择大吉岭好友支援比较好吗，为什么都在求
 
 
------
+*****
 
 ####  kohos  
 ##### 1686#       发表于 2017-9-8 16:07
@@ -2090,7 +2090,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 居然都在求大吉岭不是求风花
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1687#       发表于 2017-9-8 16:13
@@ -2099,7 +2099,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">歌织的昵称已经愉快的决定是大吉岭了吗
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1688#       发表于 2017-9-8 16:14
@@ -2110,7 +2110,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1689#       发表于 2017-9-8 16:35
@@ -2122,7 +2122,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 所以有的时候判分卡技能发动率碰好了的话perfect多的更高分一些
 
 
------
+*****
 
 ####  ldenny  
 ##### 1690#       发表于 2017-9-8 17:24
@@ -2131,7 +2131,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">自己是大吉岭当然找同是大吉岭的配对
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1691#       发表于 2017-9-8 18:25
@@ -2143,7 +2143,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 不多说，先枫为敬
 
 
------
+*****
 
 ####  qw945  
 ##### 1692#       发表于 2017-9-8 20:02
@@ -2154,7 +2154,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  Risa  
 ##### 1693#       发表于 2017-9-8 20:12
@@ -2172,7 +2172,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 似乎不需要那么肝 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1694#       发表于 2017-9-8 20:37
@@ -2181,7 +2181,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">看错，编辑
 
 
------
+*****
 
 ####  Risa  
 ##### 1695#       发表于 2017-9-8 20:38
@@ -2193,7 +2193,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 嗯，第一次我0票入场，一脸智障。
 
 
------
+*****
 
 ####  hinarin  
 ##### 1696#       发表于 2017-9-8 20:46
@@ -2202,7 +2202,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 这次总算没有当天活动告知 存了400票<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 1697#       发表于 2017-9-8 22:26
@@ -2211,7 +2211,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这么快就实现4人MV和华丽舞台的话最开始实装LTP的时候就弄成那样多好啊...有点惋惜，不过还是辛苦运营如此努力了...现有的那4首如果做成活动有点不敢想象档线就是了
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 1698#       发表于 2017-9-9 07:13
@@ -2222,7 +2222,7 @@ GSB这歌，基本是ltp最没存在感的组合曲了吧，怎么想到用这�
 good-sleep baby和新加的调暗背景功能是绝配
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1699#       发表于 2017-9-9 14:52
@@ -2231,7 +2231,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 无语了，只要用mikimiki当c来打thank you，游戏就绝对卡死闪退停止工作，什么鬼
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1700#       发表于 2017-9-9 16:39
@@ -2240,7 +2240,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 有谁跟我一样吗？把数据清了重新下载也不行，只要用mikimiki当C打thank you游戏就卡死闪退停止工作，连MV都没法放
 
 
------
+*****
 
 ####  Risa  
 ##### 1701#       发表于 2017-9-9 16:55
@@ -2249,7 +2249,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 删了重新装把，缓存坏了
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1702#       发表于 2017-9-9 17:00
@@ -2261,7 +2261,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 那我试试去，反正刚刚把CGSS删了重装了
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1703#       发表于 2017-9-9 17:21
@@ -2279,7 +2279,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 真的只有我一个人这样吗……
 
 
------
+*****
 
 ####  Risa  
 ##### 1704#       发表于 2017-9-9 17:23
@@ -2288,7 +2288,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 我专门换了MIKI C开TANKYOU MV，看了20多秒，没有异常。
 
 
------
+*****
 
 ####  qw945  
 ##### 1705#       发表于 2017-9-9 18:09
@@ -2299,7 +2299,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1706#       发表于 2017-9-9 18:13
@@ -2320,7 +2320,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 但……我这里的问题依然是存在的，要不你试试随便弄一张亚美，看看正常不正常？
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1707#       发表于 2017-9-9 18:21
@@ -2335,7 +2335,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 而且不论c不c，只要亚美在，thankyou就卡死
 
 
------
+*****
 
 ####  hinarin  
 ##### 1708#       发表于 2017-9-9 18:22
@@ -2344,7 +2344,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 双海亚美也试了下39 LIVE和MV我没问题
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1709#       发表于 2017-9-9 18:30
@@ -2353,7 +2353,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 唉，只能以后记住不能让亚美唱thank you了
 
 
------
+*****
 
 ####  qw945  
 ##### 1710#       发表于 2017-9-9 18:33
@@ -2371,7 +2371,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1711#       发表于 2017-9-9 18:50
@@ -2388,7 +2388,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 我准备试试真美有没有问题，说不定我和下田天才八字不合
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1712#       发表于 2017-9-9 18:59
@@ -2397,7 +2397,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 果然，真美也不行orz
 
 
------
+*****
 
 ####  枫紫  
 ##### 1713#       发表于 2017-9-9 22:17
@@ -2406,7 +2406,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 你先反馈下问题给运营吧，包括机型之类的，过会换日常我用真美亚美打3Q试试
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 1714#       发表于 2017-9-9 23:09
@@ -2415,7 +2415,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 用双子打39没出bug，不过我这倒霉机器打歌时偶尔音量会突然减少（
 
 
------
+*****
 
 ####  枫紫  
 ##### 1715#       发表于 2017-9-10 01:02
@@ -2424,7 +2424,7 @@ good-sleep baby和新加的调暗背景功能是绝配
 center美希左右双子打39没任何问题
 
 
------
+*****
 
 ####  キラ様  
 ##### 1716#       发表于 2017-9-10 08:45
@@ -2433,7 +2433,7 @@ center美希左右双子打39没任何问题
 我ipad放在桌子上玩，打那些需要左右拉动的球的时候ipad也会跟着位移一点，老是导致后面的部分miss或者集中力下降分神。大家有什么好的解决办法吗
 
 
------
+*****
 
 ####  枫紫  
 ##### 1717#       发表于 2017-9-10 08:58
@@ -2449,7 +2449,7 @@ center美希左右双子打39没任何问题
 3.两个手拿着ipad做拇指党
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1718#       发表于 2017-9-10 09:53
@@ -2462,7 +2462,7 @@ center美希左右双子打39没任何问题
 或者提前往屏幕上抹些脸上出的油....减少上部摩擦力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qiushiweilu  
 ##### 1719#       发表于 2017-9-10 10:01
@@ -2471,7 +2471,7 @@ center美希左右双子打39没任何问题
 我是用两本书压住机子顶部1/10左右来解决滑动这个问题，然后两个拇指抵住机子下端，基本就不会跑了。(顺便楼上的描述真是生动形象...)
 
 
------
+*****
 
 ####  Risa  
 ##### 1720#       发表于 2017-9-10 12:21
@@ -2480,7 +2480,7 @@ center美希左右双子打39没任何问题
 我还以为就我有这问题，<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我目前最好的解决方案是背靠床，腿抬起来，自由调整角度，放大腿上，摩擦力完全足够
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1721#       发表于 2017-9-10 12:25
@@ -2495,7 +2495,7 @@ center美希左右双子打39没任何问题
 总之先跟官方反馈吧
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 1722#       发表于 2017-9-10 12:40
@@ -2509,7 +2509,7 @@ center美希左右双子打39没任何问题
 嗯，我是索尼z2，回头反馈吧
 
 
------
+*****
 
 ####  a4840639  
 ##### 1723#       发表于 2017-9-10 13:38
@@ -2520,7 +2520,7 @@ center美希左右双子打39没任何问题
 别看这玩意儿面积比iPad小得多，iPad放上去一点问题都没有（我本来也是给手机买的，意外发现也很适合iPad）
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1724#       发表于 2017-9-10 14:09
@@ -2529,7 +2529,7 @@ center美希左右双子打39没任何问题
 我一开始用手机玩也滑，后来把手机放psv套子里，空隙用个折叠的硬纸片卡住就不滑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hinarin  
 ##### 1725#       发表于 2017-9-10 14:28
@@ -2538,7 +2538,7 @@ center美希左右双子打39没任何问题
 <img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">拇指党 稳
 
 
------
+*****
 
 ####  wx98707707  
 ##### 1726#       发表于 2017-9-10 16:23
@@ -2547,7 +2547,7 @@ center美希左右双子打39没任何问题
 把药用完了打到2w1了，剩下几天就咸鱼了。
 
 
------
+*****
 
 ####  キラ様  
 ##### 1727#       发表于 2017-9-10 18:03
@@ -2556,7 +2556,7 @@ center美希左右双子打39没任何问题
 多谢楼上各位的建议，先准备增加下部摩擦力来试试看
 
 
------
+*****
 
 ####  wx98707707  
 ##### 1728#       发表于 2017-9-10 21:46
@@ -2565,7 +2565,7 @@ center美希左右双子打39没任何问题
 谁知道12号下一期卡池是谁？要是不喜欢的想现在抽个风花。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1729#       发表于 2017-9-11 07:11
@@ -2578,7 +2578,7 @@ center美希左右双子打39没任何问题
 感觉不抬手横划和点到箭头再划判定都不一样的样子
 
 
------
+*****
 
 ####  枫紫  
 ##### 1730#       发表于 2017-9-11 10:52
@@ -2594,7 +2594,7 @@ center美希左右双子打39没任何问题
 这里断通常是因为划得太快了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1731#       发表于 2017-9-11 13:29
@@ -2607,7 +2607,7 @@ center美希左右双子打39没任何问题
 而连续横划时，比如1234这样，那么从1到2时只有手指划到2和3之间，才会有2位的横划判定，依次类推，都要提前划到对应的圈上才会判定成功
 
 
------
+*****
 
 ####  hagiwarayukiho  
 ##### 1732#       发表于 2017-9-11 18:06
@@ -2619,7 +2619,7 @@ center美希左右双子打39没任何问题
 求个详细
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1733#       发表于 2017-9-11 18:17
@@ -2637,7 +2637,7 @@ iPhone - 备份到iCloud，iPad - 从iCloud恢复即可。本质是利用iCloud�
 安卓Root之后直接复制账号密码文件。
 
 
------
+*****
 
 ####  shadowof  
 ##### 1734#       发表于 2017-9-11 18:24
@@ -2652,7 +2652,7 @@ MEG@TON夜场居然在nico直播
 中了日场的表示欣慰
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 1735#       发表于 2017-9-11 19:33
@@ -2667,7 +2667,7 @@ http://live.nicovideo.jp/gate/lv306220718</blockquote>
 那就好玩了,可以有途徑回味下,不像前一天的觀艦式...
 
 
------
+*****
 
 ####  hagiwarayukiho  
 ##### 1736#       发表于 2017-9-11 22:07
@@ -2682,7 +2682,7 @@ iPhone - 备份到iCloud，iPad - 从iCloud恢复即可。本质是利用iCloud�
 安卓尝试复制data/data/游戏文件夹结果无效
 
 
------
+*****
 
 ####  Risa  
 ##### 1737#       发表于 2017-9-11 23:04
@@ -2691,7 +2691,7 @@ iPhone - 备份到iCloud，iPad - 从iCloud恢复即可。本质是利用iCloud�
 以我的经验来说，某次更新后要用刚引继的帐号文件，就可以两个设备通用，我是模拟器/平板
 
 
------
+*****
 
 ####  a4840639  
 ##### 1738#       发表于 2017-9-12 04:30
@@ -2700,7 +2700,7 @@ iPhone - 备份到iCloud，iPad - 从iCloud恢复即可。本质是利用iCloud�
 Android刚上线那个版本我直接用adb backup restore是没问题的
 
 
------
+*****
 
 ####  qw945  
 ##### 1739#       发表于 2017-9-12 12:43
@@ -2709,7 +2709,7 @@ Android刚上线那个版本我直接用adb backup restore是没问题的
 常桂池要更新魔法少女julia了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1740#       发表于 2017-9-12 14:14
@@ -2774,7 +2774,7 @@ Android刚上线那个版本我直接用adb backup restore是没问题的
 
 
 
------
+*****
 
 ####  東馬小三  
 ##### 1741#       发表于 2017-9-12 14:16
@@ -2783,7 +2783,7 @@ Android刚上线那个版本我直接用adb backup restore是没问题的
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">回去充钱
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1742#       发表于 2017-9-12 14:25
@@ -2801,7 +2801,7 @@ SSR卡池候补：【伊织，志保，ひなた，千鹤】，亚美，美奈�
 新增物品：十连卷（入手条件不明）
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1743#       发表于 2017-9-12 14:37
@@ -2862,7 +2862,7 @@ DJgOhQWVYAA1KYR.jpg
 <img src="https://img.saraba1st.com/forum/201709/12/143708g25uz5bmgb5q7r77.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kohos  
 ##### 1744#       发表于 2017-9-12 14:41
@@ -2871,7 +2871,7 @@ DJgOhQWVYAA1KYR.jpg
 楼上两位大佬都是玩解包的么……感觉你们的图片都不是一般情况能弄到的
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1745#       发表于 2017-9-12 14:50
@@ -2883,7 +2883,7 @@ DJgOhQWVYAA1KYR.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">我只是转资料站而已，上面那位是真拆包大佬
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1746#       发表于 2017-9-12 14:58
@@ -2933,7 +2933,7 @@ DJgOhQWVYAA1KYR.jpg
 <img src="https://img.saraba1st.com/forum/201709/12/150008jlkz4r2prbukebuw.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1747#       发表于 2017-9-12 15:10
@@ -2946,7 +2946,7 @@ DJgOhQWVYAA1KYR.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">但是觉醒后的卡面不如觉醒前
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 1748#       发表于 2017-9-12 16:31
@@ -2955,7 +2955,7 @@ DJgOhQWVYAA1KYR.jpg
 二连hibiki，出货歪到姥姥家了
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 1749#       发表于 2017-9-12 16:32
@@ -2964,7 +2964,7 @@ DJgOhQWVYAA1KYR.jpg
 不要啊公司拖欠我工资，我这是要借钱抽卡了QAQ
 
 
------
+*****
 
 ####  qw945  
 ##### 1750#       发表于 2017-9-12 16:52
@@ -2977,7 +2977,7 @@ DJgOhQWVYAA1KYR.jpg
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  一夜四次羊  
 ##### 1751#       发表于 2017-9-12 17:40
@@ -2986,7 +2986,7 @@ DJgOhQWVYAA1KYR.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歪出来的大概率也是碎片
 
 
------
+*****
 
 ####  枫紫  
 ##### 1752#       发表于 2017-9-12 17:51
@@ -2995,7 +2995,7 @@ DJgOhQWVYAA1KYR.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你们不是总说2P色不好看么，所以我们这次把1P色扔去做2P色了
 
 
------
+*****
 
 ####  hinarin  
 ##### 1753#       发表于 2017-9-12 18:21
@@ -3004,7 +3004,7 @@ DJgOhQWVYAA1KYR.jpg
 歪了个美也 结束时候之前再努力一把<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 1754#       发表于 2017-9-12 18:23
@@ -3015,7 +3015,7 @@ DJgOhQWVYAA1KYR.jpg
 老老实实等月末了
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1755#       发表于 2017-9-12 19:21
@@ -3024,7 +3024,7 @@ DJgOhQWVYAA1KYR.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">衣服好看结果看了一下午MV没有刷活动
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1756#       发表于 2017-9-12 19:59
@@ -3033,7 +3033,7 @@ DJgOhQWVYAA1KYR.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下午群里看到有人说茱莉亚杀马特笑喷了.....
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1757#       发表于 2017-9-12 20:20
@@ -3041,7 +3041,7 @@ DJgOhQWVYAA1KYR.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  sakurap  
 ##### 1758#       发表于 2017-9-12 22:05
@@ -3050,7 +3050,7 @@ DJgOhQWVYAA1KYR.jpg
 更新个卡包至于下载100MB的数据么，我的流量啊…
 
 
------
+*****
 
 ####  糖醋里脊和果子  
 ##### 1759#       发表于 2017-9-12 22:08
@@ -3059,7 +3059,7 @@ DJgOhQWVYAA1KYR.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">四破是怎么破啊…升星？
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1760#       发表于 2017-9-12 23:26
@@ -3071,7 +3071,7 @@ DJgOhQWVYAA1KYR.jpg
 SSR或者SR溢出的石头？升星
 
 
------
+*****
 
 ####  cxxx  
 ##### 1761#       发表于 2017-9-13 05:10
@@ -3080,7 +3080,7 @@ SSR或者SR溢出的石头？升星
 氪了两单抽茱莉亚，出了四张全是重复，心好累<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">两张四破了
 
 
------
+*****
 
 ####  糖醋里脊和果子  
 ##### 1762#       发表于 2017-9-13 09:00
@@ -3092,7 +3092,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://bbs.saraba1st.com/2b/thread-1497379-1-1.html)
 
 
------
+*****
 
 ####  TDRF  
 ##### 1763#       发表于 2017-9-13 10:33
@@ -3101,7 +3101,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 图鉴最后一页空出5位是什么情况？
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1764#       发表于 2017-9-13 14:13
@@ -3115,7 +3115,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 2、Live彩排功能，2000金币一次
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1765#       发表于 2017-9-13 16:29
@@ -3124,7 +3124,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">彩排是个啥玩意，用金币打歌，然后什么都不给吗
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1766#       发表于 2017-9-13 16:52
@@ -3136,7 +3136,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 就是啥都不给的练习模式 手残福音
 
 
------
+*****
 
 ####  qw945  
 ##### 1767#       发表于 2017-9-13 17:24
@@ -3147,7 +3147,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1768#       发表于 2017-9-13 17:55
@@ -3156,7 +3156,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 终于开练习模式了.....足！
 
 
------
+*****
 
 ####  Risa  
 ##### 1769#       发表于 2017-9-13 19:54
@@ -3165,7 +3165,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 刚开4倍就开始杀羊了，还有6天就开始战争 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zeroed  
 ##### 1770#       发表于 2017-9-13 23:51
@@ -3178,7 +3178,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 
 
 
------
+*****
 
 ####  一夜四次羊  
 ##### 1771#       发表于 2017-9-14 00:17
@@ -3191,7 +3191,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 这么想真的很没有意思
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1772#       发表于 2017-9-14 06:55
@@ -3206,7 +3206,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 我是不觉得肝帝会这么多......
 
 
------
+*****
 
 ####  枫紫  
 ##### 1773#       发表于 2017-9-14 09:37
@@ -3222,7 +3222,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">抱歉，因为见到过这种人，所以思路一下子就往那边拐了
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1774#       发表于 2017-9-14 16:43
@@ -3230,7 +3230,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  枫紫  
 ##### 1775#       发表于 2017-9-14 17:52
@@ -3239,7 +3239,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">彩排的运动服太棒了
 
 
------
+*****
 
 ####  镜hinata  
 ##### 1776#       发表于 2017-9-14 19:17
@@ -3251,7 +3251,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当然是留给不存在的人
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1777#       发表于 2017-9-14 19:28
@@ -3261,7 +3261,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 没有杂色队长不说...像我这样只有初始2ssr的只能挂sr凑数了....
 
 
------
+*****
 
 ####  qw945  
 ##### 1778#       发表于 2017-9-14 19:45
@@ -3272,7 +3272,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  hinarin  
 ##### 1779#       发表于 2017-9-14 23:00
@@ -3283,7 +3283,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 打了下Loco 问题是居然没有血条也没有成绩结算<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1780#       发表于 2017-9-14 23:16
@@ -3291,7 +3291,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  cqkxywj  
 ##### 1781#       发表于 2017-9-15 00:16
@@ -3299,7 +3299,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1782#       发表于 2017-9-15 06:38
@@ -3310,7 +3310,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 是bug，等下个版本修复
 
 
------
+*****
 
 ####  a4840639  
 ##### 1783#       发表于 2017-9-15 09:52
@@ -3321,7 +3321,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 敲碗等MV原组合功能
 
 
------
+*****
 
 ####  一夜四次羊  
 ##### 1784#       发表于 2017-9-15 17:20
@@ -3330,7 +3330,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">偏科党还是继续挂纯色gust比较好..
 
 
------
+*****
 
 ####  cxxx  
 ##### 1785#       发表于 2017-9-16 15:05
@@ -3339,7 +3339,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 一直工作都在5万以内，刚把道具清了一下1万多位，究竟是呀优依人气太低还是这游戏都没人玩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  v2c  
 ##### 1786#       发表于 2017-9-16 16:47
@@ -3352,7 +3352,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 开服之前压根就想不到这游戏能混到现在这副惨状，更想不到的是将近三个月只加了三首新曲，再蠢也不可能不知道音乐游戏不加新曲会是什么下场，只能说明ML在社内压根就不被重视
 
 
------
+*****
 
 ####  枫紫  
 ##### 1787#       发表于 2017-9-16 16:56
@@ -3361,7 +3361,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 本来200多首的歌到明年sparkle出完又至少增加52首，实装速度肯定会上去的，不然只有等砍企划才能追上Lantis这出曲的速度了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1788#       发表于 2017-9-16 17:47
@@ -3372,7 +3372,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 毕竟原来主机的dlc也是每个月一首新曲加两首旧曲的速度出的.....
 
 
------
+*****
 
 ####  Risa  
 ##### 1789#       发表于 2017-9-16 18:51
@@ -3381,7 +3381,7 @@ SSR或者SR溢出的石头？升星</blockquote><img src="https://static.saraba1
 没能力，强行搞太快也不好，总不能像konami要出那个心跳，一样搞成违和的僵尸舞吧。
 
 
------
+*****
 
 ####  キラ様  
 ##### 1790#       发表于 2017-9-16 18:57
@@ -3403,7 +3403,7 @@ TGS麻辣土豆还有主舞台live呢
 [http://tgs2017.bandainamcoent.co.jp/title/app.html](http://tgs2017.bandainamcoent.co.jp/title/app.html)
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1791#       发表于 2017-9-17 01:06
@@ -3415,7 +3415,7 @@ TGS麻辣土豆还有主舞台live呢
 跟草菇比肯定没戏，养活自己还是不成问题的。ML一贯的展开速度慢，去年整整半年完全没动静都熬过来了，现在情况已经算不错了。
 
 
------
+*****
 
 ####  shadowof  
 ##### 1792#       发表于 2017-9-17 09:45
@@ -3424,7 +3424,7 @@ TGS麻辣土豆还有主舞台live呢
 メガトン卖的勋章居然是m字勋章 太会玩了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1793#       发表于 2017-9-17 11:44
@@ -3433,7 +3433,7 @@ TGS麻辣土豆还有主舞台live呢
 <[img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天都去看live档线应该也不会有大动静吧，继续咸鱼
 
 
------
+*****
 
 ####  shadowof  
 ##### 1794#       发表于 2017-9-17 15:30
@@ -3449,7 +3449,7 @@ TGS麻辣土豆还有主舞台live呢
 [http://live.nicovideo.jp/watch/lv306220718](http://live.nicovideo.jp/watch/lv306220718)
 
 
------
+*****
 
 ####  hinarin  
 ##### 1795#       发表于 2017-9-17 18:21
@@ -3463,7 +3463,7 @@ TGS麻辣土豆还有主舞台live呢
 补齐静静和あずさ
 
 
------
+*****
 
 ####  キラ様  
 ##### 1796#       发表于 2017-9-17 18:32
@@ -3472,7 +3472,7 @@ TGS麻辣土豆还有主舞台live呢
 现场打歌环节那个号里的钻石数好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">100万
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1797#       发表于 2017-9-17 18:33
@@ -3481,7 +3481,7 @@ TGS麻辣土豆还有主舞台live呢
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">真好啊，我也想要100W石头抽抽抽
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1798#       发表于 2017-9-17 19:01
@@ -3489,7 +3489,7 @@ TGS麻辣土豆还有主舞台live呢
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  shadowof  
 ##### 1799#       发表于 2017-9-17 19:38
@@ -3498,7 +3498,7 @@ TGS麻辣土豆还有主舞台live呢
 ４ｔｈ的BD 明年1月17
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1800#       发表于 2017-9-17 19:41
@@ -3509,7 +3509,7 @@ TGS麻辣土豆还有主舞台live呢
 
 
 
------
+*****
 
 ####  daqi  
 ##### 1801#       发表于 2017-9-17 19:55
@@ -3518,7 +3518,7 @@ TGS麻辣土豆还有主舞台live呢
 1500石头，我抽25天每日好不好
 
 
------
+*****
 
 ####  一夜四次羊  
 ##### 1802#       发表于 2017-9-17 20:07
@@ -3527,7 +3527,7 @@ TGS麻辣土豆还有主舞台live呢
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">3500有偿换了3个sr还是以后抽抽每日吧
 
 
------
+*****
 
 ####  qw945  
 ##### 1803#       发表于 2017-9-17 20:36
@@ -3544,7 +3544,7 @@ TGS麻辣土豆还有主舞台live呢
 瞎了，原来要有偿啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wx98707707  
 ##### 1804#       发表于 2017-9-17 20:38
@@ -3563,7 +3563,7 @@ TGS麻辣土豆还有主舞台live呢
 安卓的礼品卡氪金时候碰到这个问题怎么解决？我试了下买60石头是可以的，但8400和4200就出错了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1805#       发表于 2017-9-17 20:44
@@ -3581,7 +3581,7 @@ TGS麻辣土豆还有主舞台live呢
 2是股沟play的某些权限没放开
 
 
------
+*****
 
 ####  一夜四次羊  
 ##### 1806#       发表于 2017-9-17 20:52
@@ -3590,7 +3590,7 @@ TGS麻辣土豆还有主舞台live呢
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还有一种不让课的情况是短时间课了太多需要打香港/台湾客服电话才能解封
 
 
------
+*****
 
 ####  wx98707707  
 ##### 1807#       发表于 2017-9-17 20:58
@@ -3606,7 +3606,7 @@ TGS麻辣土豆还有主舞台live呢
 关键是我买60石头都可以。但是后面的就不行。
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 1808#       发表于 2017-9-17 22:53
@@ -3615,7 +3615,7 @@ TGS麻辣土豆还有主舞台live呢
 3500石头换5个SR石头，赚了赚了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wx98707707  
 ##### 1809#       发表于 2017-9-17 23:00
@@ -3626,7 +3626,7 @@ TGS麻辣土豆还有主舞台live呢
 额，1个SSR2个SR石头
 
 
------
+*****
 
 ####  daqi  
 ##### 1810#       发表于 2017-9-17 23:16
@@ -3637,7 +3637,7 @@ TGS麻辣土豆还有主舞台live呢
 是新号么，新号大额氪金有限制，一周之后一般就好了
 
 
------
+*****
 
 ####  wx98707707  
 ##### 1811#       发表于 2017-9-17 23:28
@@ -3649,7 +3649,7 @@ TGS麻辣土豆还有主舞台live呢
 不是新号，我也不懂怎么回事，反正换了部手机买就好了
 
 
------
+*****
 
 ####  shadowof  
 ##### 1812#       发表于 2017-9-18 02:02
@@ -3663,7 +3663,7 @@ TGS麻辣土豆还有主舞台live呢
 全篇 直接拖出来的
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1813#       发表于 2017-9-18 09:29
@@ -3672,7 +3672,7 @@ TGS麻辣土豆还有主舞台live呢
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">完整版蜂鸟听得都要哭出来，太赞了
 
 
------
+*****
 
 ####  kohos  
 ##### 1814#       发表于 2017-9-18 09:42
@@ -3681,7 +3681,7 @@ TGS麻辣土豆还有主舞台live呢
 哎，两次10连加8次单抽都没出货，氪金又打水漂了，桑心
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1815#       发表于 2017-9-18 12:00
@@ -3693,7 +3693,7 @@ TGS麻辣土豆还有主舞台live呢
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
 
 
------
+*****
 
 ####  lostz1991  
 ##### 1816#       发表于 2017-9-18 12:51
@@ -3702,7 +3702,7 @@ TGS麻辣土豆还有主舞台live呢
 一发两个ssr静香还行 运气总是用在奇怪的地方
 
 
------
+*****
 
 ####  cxxx  
 ##### 1817#       发表于 2017-9-18 22:02
@@ -3711,7 +3711,7 @@ TGS麻辣土豆还有主舞台live呢
 第五张梓了，大姐放过我吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1818#       发表于 2017-9-19 08:50
@@ -3720,7 +3720,7 @@ TGS麻辣土豆还有主舞台live呢
 最后一天这分飙的可以啊....平刷保不住一万名....
 
 
------
+*****
 
 ####  枫紫  
 ##### 1819#       发表于 2017-9-19 16:13
@@ -3729,7 +3729,7 @@ TGS麻辣土豆还有主舞台live呢
 根据上次的经验来说，最后一天都会爆炸的
 
 
------
+*****
 
 ####  qw945  
 ##### 1820#       发表于 2017-9-19 17:01
@@ -3740,7 +3740,7 @@ TGS麻辣土豆还有主舞台live呢
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  shadowof  
 ##### 1821#       发表于 2017-9-19 17:33
@@ -3757,7 +3757,7 @@ TGS麻辣土豆还有主舞台live呢
 反正我又刷过头了
 
 
------
+*****
 
 ####  Fingest  
 ##### 1822#       发表于 2017-9-19 18:18
@@ -3768,7 +3768,7 @@ TGS麻辣土豆还有主舞台live呢
 本期记忆：活动曲第一次fc时出了淑女的衣服
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1823#       发表于 2017-9-19 20:53
@@ -3777,7 +3777,7 @@ TGS麻辣土豆还有主舞台live呢
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2w不保.....还好5w有卡......
 
 
------
+*****
 
 ####  hinarin  
 ##### 1824#       发表于 2017-9-19 22:10
@@ -3786,7 +3786,7 @@ TGS麻辣土豆还有主舞台live呢
 狂嗑到期的瓶子 结束前8300不知道会不会被爆<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Risa  
 ##### 1825#       发表于 2017-9-19 23:12
@@ -3797,7 +3797,7 @@ TGS麻辣土豆还有主舞台live呢
 也难怪，好友里毕竟AFK了一半人了。
 
 
------
+*****
 
 ####  斑驳的阴影  
 ##### 1826#       发表于 2017-9-20 09:54
@@ -3806,7 +3806,7 @@ TGS麻辣土豆还有主舞台live呢
 昨晚最后1分钟才达成30次活动曲的任务，紧张死了。。。差不多2w7分，应该能保住5w吧
 
 
------
+*****
 
 ####  Gohnny  
 ##### 1827#       发表于 2017-9-20 10:23
@@ -3815,7 +3815,7 @@ TGS麻辣土豆还有主舞台live呢
 活动页面上显示的时间是本地时间，我还一直以为是7点活动结束来着
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1828#       发表于 2017-9-20 11:24
@@ -3837,7 +3837,7 @@ DKHo81fUIAAfY2C.jpg
 <img src="https://img.saraba1st.com/forum/201709/20/112406ltl5sqjssfq7sdfb.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  loveconankid  
 ##### 1829#       发表于 2017-9-20 12:02
@@ -3853,7 +3853,7 @@ what？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/003
 ----发送自 [Sony G8232,Android 7.1.1](http://stage1.5j4m.com/?1.29)
 
 
------
+*****
 
 ####  Gohnny  
 ##### 1830#       发表于 2017-9-20 12:57
@@ -3869,7 +3869,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 
 
 
------
+*****
 
 ####  枫紫  
 ##### 1831#       发表于 2017-9-20 12:59
@@ -3878,7 +3878,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">原来不止我一个人被活动页面的本机时间骗到过啊...
 
 
------
+*****
 
 ####  shadowof  
 ##### 1832#       发表于 2017-9-20 13:00
@@ -3896,7 +3896,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 今天先去把巧克力活动啃完
 
 
------
+*****
 
 ####  枫紫  
 ##### 1833#       发表于 2017-9-20 13:20
@@ -3912,7 +3912,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 月底按顺序应该是pr限定，估计美奈子带伊织，你暂时应该是安全的
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1834#       发表于 2017-9-20 14:25
@@ -3924,7 +3924,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 当前SSR候补：伊织，ひなた，千鹤，亚美，美奈子，roco
 
 
------
+*****
 
 ####  qw945  
 ##### 1835#       发表于 2017-9-20 14:31
@@ -3933,7 +3933,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 大阪人说东京腔挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1836#       发表于 2017-9-20 14:33
@@ -3942,7 +3942,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">不知道何时才有我家奈绪SSR。不过这次的新SR也很赞
 
 
------
+*****
 
 ####  kohos  
 ##### 1837#       发表于 2017-9-20 14:45
@@ -3960,7 +3960,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 之前解这个新组合里面静香有衣服，可能是上位
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1838#       发表于 2017-9-20 15:05
@@ -3968,7 +3968,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  bwjx88  
 ##### 1839#       发表于 2017-9-20 15:39
@@ -3977,7 +3977,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 新歌MV开头能看到胖次。。
 
 
------
+*****
 
 ####  Risa  
 ##### 1840#       发表于 2017-9-20 18:09
@@ -3986,7 +3986,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 一个月2首基本稳定了，能保证质量，慢慢增加速度就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qw945  
 ##### 1841#       发表于 2017-9-21 00:41
@@ -3997,7 +3997,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  Risa  
 ##### 1842#       发表于 2017-9-21 06:01
@@ -4012,7 +4012,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 其实不出也没什么，以后粉币也会出的。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1843#       发表于 2017-9-21 07:04
@@ -4023,7 +4023,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哈？ミリコレ的卡粉币池能出？
 
 
------
+*****
 
 ####  Risa  
 ##### 1844#       发表于 2017-9-21 07:27
@@ -4032,7 +4032,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 举个例子，7月23号开始，31号结束的ミリコレ，まつり那张R卡，你们粉币应该抽到过好几次了吧，我都抽到过3次了。
 
 
------
+*****
 
 ####  shadowof  
 ##### 1845#       发表于 2017-9-21 14:17
@@ -4046,7 +4046,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 最多1万4
 
 
------
+*****
 
 ####  华发夜眼[CN]  
 ##### 1846#       发表于 2017-9-21 14:18
@@ -4055,7 +4055,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 志保ssr快出，我好安心买初始<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qw945  
 ##### 1847#       发表于 2017-9-21 15:03
@@ -4064,7 +4064,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 非洲人还是不要想太多，安心活动抽干吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1848#       发表于 2017-9-21 15:13
@@ -4073,7 +4073,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 数据拆包。主线12话：惠美Solo
 
 
------
+*****
 
 ####  枫紫  
 ##### 1849#       发表于 2017-9-21 21:19
@@ -4082,7 +4082,7 @@ what？？？？我记得上次活动还是日本时间的…刷到七点就关�
 megumi happy的时间啦！！！
 
 
------
+*****
 
 ####  qw945  
 ##### 1850#       发表于 2017-9-21 23:40
@@ -4091,7 +4091,7 @@ megumi happy的时间啦！！！
 这次抽卡出货率好像不错，6个十连出了18个非无限了，稳<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  镜hinata  
 ##### 1851#       发表于 2017-9-22 07:50
@@ -4103,7 +4103,7 @@ megumi happy的时间啦！！！
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">要megumi蛤啤了
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1852#       发表于 2017-9-23 13:46
@@ -4131,7 +4131,7 @@ STANDING ALIVE
 歌名不详 （最上静香、北沢志保、白石紬、所恵美、ジュリア）
 
 
------
+*****
 
 ####  shadowof  
 ##### 1853#       发表于 2017-9-23 13:47
@@ -4148,7 +4148,7 @@ STANDING ALIVE
 <img src="https://i.imgur.com/grMUyyN.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1854#       发表于 2017-9-23 13:53
@@ -4157,7 +4157,7 @@ STANDING ALIVE
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">要发力啦
 
 
------
+*****
 
 ####  任天索尼子  
 ##### 1855#       发表于 2017-9-23 14:06
@@ -4166,7 +4166,7 @@ STANDING ALIVE
 运营终于不装死了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 1856#       发表于 2017-9-23 14:10
@@ -4175,7 +4175,7 @@ STANDING ALIVE
 最近每次活动时间都不准时 活动还没结束就开始发石头发短信了
 
 
------
+*****
 
 ####  枫紫  
 ##### 1857#       发表于 2017-9-23 14:14
@@ -4184,7 +4184,7 @@ STANDING ALIVE
 surprise估计是本家曲的哪首吧
 
 
------
+*****
 
 ####  qw945  
 ##### 1858#       发表于 2017-9-23 14:21
@@ -4193,7 +4193,7 @@ surprise估计是本家曲的哪首吧
 神秘新曲可以的<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1859#       发表于 2017-9-23 14:33
@@ -4202,7 +4202,7 @@ surprise估计是本家曲的哪首吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">390石还行......3900不好吗？
 
 
------
+*****
 
 ####  Risa  
 ##### 1860#       发表于 2017-9-23 17:00
@@ -4213,7 +4213,7 @@ surprise估计是本家曲的哪首吧
 
 
 
------
+*****
 
 ####  Chia  
 ##### 1861#       发表于 2017-9-23 17:24
@@ -4225,7 +4225,7 @@ surprise估计是本家曲的哪首吧
 这组美如画<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 1862#       发表于 2017-9-23 19:21
@@ -4234,7 +4234,7 @@ surprise估计是本家曲的哪首吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2首活动曲，1首solo，1首unit，一个月实装4曲，起飞了起飞了
 
 
------
+*****
 
 ####  hinarin  
 ##### 1863#       发表于 2017-9-23 20:27
@@ -4243,7 +4243,7 @@ surprise估计是本家曲的哪首吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">好想玩到本家的歌
 
 
------
+*****
 
 ####  cxxx  
 ##### 1864#       发表于 2017-9-24 00:04
@@ -4252,7 +4252,7 @@ surprise估计是本家曲的哪首吧
 奶下一首本家曲购买wii<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1865#       发表于 2017-9-24 09:30
@@ -4264,7 +4264,7 @@ surprise估计是本家曲的哪首吧
 下一首本家曲是自分REST@RT，五人动作差分。什么时候实装就不知道了，应该不会是10月的神秘新曲。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1866#       发表于 2017-9-24 10:07
@@ -4273,7 +4273,7 @@ surprise估计是本家曲的哪首吧
 自己重启还行.....感觉会是第2首18难度吧?....
 
 
------
+*****
 
 ####  shadowof  
 ##### 1867#       发表于 2017-9-24 11:56
@@ -4282,7 +4282,7 @@ surprise估计是本家曲的哪首吧
 コロムビア那边全体曲也可能加剧场版的歌，还有Music之类
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1868#       发表于 2017-9-24 13:05
@@ -4295,7 +4295,7 @@ surprise估计是本家曲的哪首吧
 ml的曲子不是属烂铁的吗？
 
 
------
+*****
 
 ####  killcal  
 ##### 1869#       发表于 2017-9-24 18:54
@@ -4304,7 +4304,7 @@ ml的曲子不是属烂铁的吗？
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">今天下午开始就一直上不去，换了个科学都不行，什么鬼
 
 
------
+*****
 
 ####  shadowof  
 ##### 1870#       发表于 2017-9-24 19:28
@@ -4324,7 +4324,7 @@ as和ミリオン反正都归バンナム说了算
 这种合作反正是越多越好
 
 
------
+*****
 
 ####  shadowof  
 ##### 1871#       发表于 2017-9-27 07:29
@@ -4333,7 +4333,7 @@ as和ミリオン反正都归バンナム说了算
 BC最新一话，紬和歌織这就登场了，新人待遇真好 
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1872#       发表于 2017-9-27 14:27
@@ -4351,7 +4351,7 @@ BC最新一话，紬和歌織这就登场了，新人待遇真好
 喜报：更新了一条琴叶的对话，回归进入倒计时？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Chia  
 ##### 1873#       发表于 2017-9-27 15:19
@@ -4366,7 +4366,7 @@ BC最新一话，紬和歌織这就登场了，新人待遇真好
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">眼泪都要流出来了
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 1874#       发表于 2017-9-27 15:29
@@ -4375,7 +4375,7 @@ BC最新一话，紬和歌織这就登场了，新人待遇真好
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">配合武道馆搞个大新闻
 
 
------
+*****
 
 ####  朝奈  
 ##### 1875#       发表于 2017-9-27 15:31
@@ -4388,7 +4388,7 @@ Growing Storm
 所以上位是百合子或者未来?
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1876#       发表于 2017-9-27 15:34
@@ -4397,7 +4397,7 @@ Growing Storm
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">竟然不なんとっ了，丧尽天良！
 
 
------
+*****
 
 ####  shadowof  
 ##### 1877#       发表于 2017-9-27 15:45
@@ -4414,7 +4414,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 另外10月5日是琴葉生日，要是语音加的是生日问候，GREE那边如果也更新语音的话，不排除是很久以前录的 
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1878#       发表于 2017-9-27 16:08
@@ -4423,7 +4423,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少说明5号的时候有个会动的琴叶出来迎接并说话
 
 
------
+*****
 
 ####  枫紫  
 ##### 1879#       发表于 2017-9-27 17:28
@@ -4437,7 +4437,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 我如果没记错去年生日是没语音的，所以以前录的不太可能
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 1880#       发表于 2017-9-27 17:35
@@ -4446,7 +4446,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 录个语音不是多大点事，前段时间种已经出来唱歌了
 
 
------
+*****
 
 ####  吉诺爱比利  
 ##### 1881#       发表于 2017-9-28 11:06
@@ -4455,7 +4455,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 讲道理，琴叶回归的时候，送件衣服不过分吧
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 1882#       发表于 2017-9-28 11:13
@@ -4464,7 +4464,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">愣是刷到1W4才拿到贵音，好气呀
 
 
------
+*****
 
 ####  三千院飒  
 ##### 1883#       发表于 2017-9-28 20:18
@@ -4473,7 +4473,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 最后时刻靠灌药刷工作赚绿币3k+，1w4拿到贵音。
 
 
------
+*****
 
 ####  Chia  
 ##### 1884#       发表于 2017-9-28 20:20
@@ -4484,7 +4484,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 只能拿个25的任务奖励了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1885#       发表于 2017-9-28 21:12
@@ -4493,7 +4493,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 <img src="https://static.saraba1st.com/image/smiley/face2017/158.png" referrerpolicy="no-referrer">13800压哨贵音，要不要这样啊
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1886#       发表于 2017-9-29 14:32
@@ -4508,7 +4508,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 活动上位：未来，百合子。两人都有服装，要么是双上位卡（高分给卡？），要么是以其他方式实装，要么就是临时工改错数据了，反正明天就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ptshiki  
 ##### 1887#       发表于 2017-9-29 14:42
@@ -4517,7 +4517,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 看剪影可能百合子上位，难道未来打歌掉衣服？
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1888#       发表于 2017-9-29 14:46
@@ -4525,7 +4525,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  枫紫  
 ##### 1889#       发表于 2017-9-29 16:29
@@ -4534,7 +4534,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">风之战士们加油吧，看戏
 
 
------
+*****
 
 ####  shadowof  
 ##### 1890#       发表于 2017-9-29 16:48
@@ -4547,7 +4547,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 
 
 
------
+*****
 
 ####  hinarin  
 ##### 1891#       发表于 2017-9-29 20:39
@@ -4556,7 +4556,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 <img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">要是高分给卡我要死了
 
 
------
+*****
 
 ####  枫紫  
 ##### 1892#       发表于 2017-9-29 20:40
@@ -4568,7 +4568,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 手残+微课共勉<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1893#       发表于 2017-9-29 20:55
@@ -4577,7 +4577,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">高分追加下位卡的衣服还能接受......要是高分奖卡我这目前lp还没上700的给跪了.....
 
 
------
+*****
 
 ####  zoomegg  
 ##### 1894#       发表于 2017-9-30 11:07
@@ -4595,7 +4595,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 2017-9-30 11:07 上传
 
 
------
+*****
 
 ####  kohos  
 ##### 1895#       发表于 2017-9-30 11:29
@@ -4604,7 +4604,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 浏览器问题还是屏幕分辨率问题……总是就是被内侧框挡住了吧
 
 
------
+*****
 
 ####  qw945  
 ##### 1896#       发表于 2017-9-30 14:19
@@ -4615,7 +4615,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1897#       发表于 2017-9-30 14:33
@@ -4624,7 +4624,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 又又又歪了，我要大额头！
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1898#       发表于 2017-9-30 14:59
@@ -4650,7 +4650,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 查看全部评分
 
 
------
+*****
 
 ####  信长的呕吐  
 ##### 1899#       发表于 2017-9-30 15:32
@@ -4659,7 +4659,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 三单没有美奈子我要死了
 
 
------
+*****
 
 ####  shadowof  
 ##### 1900#       发表于 2017-9-30 16:24
@@ -4668,7 +4668,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 这次ボーダー不知道会不会比SSs高
 
 
------
+*****
 
 ####  cxxx  
 ##### 1901#       发表于 2017-9-30 17:44
@@ -4677,7 +4677,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 给隔壁准备了3单结果30连两张全出了，70连扔这边0ssr<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1902#       发表于 2017-10-1 21:26
@@ -4690,7 +4690,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 这种错误到底要范多少回啊........
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 1903#       发表于 2017-10-1 21:47
@@ -4706,7 +4706,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 啥情况？
 
 
------
+*****
 
 ####  shadowof  
 ##### 1904#       发表于 2017-10-2 09:54
@@ -4722,7 +4722,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 百合子这就认识到了世界的真相<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 1905#       发表于 2017-10-2 14:14
@@ -4733,7 +4733,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 我就納悶為何百合子會這麼說...
 
 
------
+*****
 
 ####  shadowof  
 ##### 1906#       发表于 2017-10-2 22:57
@@ -4752,7 +4752,7 @@ gree那边上次活动中间结算一天前的这时候500线才2.5亿,最后中
 <img src="https://i.imgur.com/B01vzFN.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 1907#       发表于 2017-10-3 17:52
@@ -4767,7 +4767,7 @@ https://twitter.com/make193/status/914652102789492736
 这就是所谓的良性bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sakurap  
 ##### 1908#       发表于 2017-10-3 21:36
@@ -4778,7 +4778,7 @@ https://twitter.com/make193/status/914652102789492736
 另外翼的发型才更像小鸟呢都没人吐槽
 
 
------
+*****
 
 ####  qw945  
 ##### 1909#       发表于 2017-10-4 00:17
@@ -4787,7 +4787,7 @@ https://twitter.com/make193/status/914652102789492736
 日本人不是不过农历了吗，怎么今天白板上那么大的赏月<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  任天索尼子  
 ##### 1910#       发表于 2017-10-4 02:12
@@ -4796,7 +4796,7 @@ https://twitter.com/make193/status/914652102789492736
 灰灰要办5TH上映和FMT了 要进军中国了？
 
 
------
+*****
 
 ####  Gohnny  
 ##### 1911#       发表于 2017-10-4 06:03
@@ -4807,7 +4807,7 @@ https://twitter.com/make193/status/914652102789492736
 阳历八月十五也不一定有月亮赏啊。这个他们还是按阴历来的
 
 
------
+*****
 
 ####  名取羽美  
 ##### 1912#       发表于 2017-10-4 14:13
@@ -4815,7 +4815,7 @@ https://twitter.com/make193/status/914652102789492736
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1913#       发表于 2017-10-4 15:00
@@ -4825,7 +4825,7 @@ https://twitter.com/make193/status/914652102789492736
 有大佬解包吗？
 
 
------
+*****
 
 ####  枫紫  
 ##### 1914#       发表于 2017-10-4 15:14
@@ -4834,7 +4834,7 @@ https://twitter.com/make193/status/914652102789492736
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">竟然是有下载的更新！我是不是可以期待下了！
 
 
------
+*****
 
 ####  qw945  
 ##### 1915#       发表于 2017-10-4 16:19
@@ -4845,7 +4845,7 @@ https://twitter.com/make193/status/914652102789492736
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1916#       发表于 2017-10-4 16:32
@@ -4863,7 +4863,7 @@ https://twitter.com/make193/status/914652102789492736
 3、活动后半战相关，背景音乐等更新<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  镜hinata  
 ##### 1917#       发表于 2017-10-4 16:42
@@ -4880,7 +4880,7 @@ https://twitter.com/make193/status/914652102789492736
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
 
 
------
+*****
 
 ####  MEKA  
 ##### 1918#       发表于 2017-10-4 17:29
@@ -4891,7 +4891,7 @@ https://twitter.com/make193/status/914652102789492736
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  枫紫  
 ##### 1919#       发表于 2017-10-4 17:33
@@ -4906,7 +4906,7 @@ https://twitter.com/make193/status/914652102789492736
 我已经把时区调日区了，一小时都不想多等
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1920#       发表于 2017-10-4 18:21
@@ -4917,7 +4917,7 @@ https://twitter.com/make193/status/914652102789492736
 
 
 
------
+*****
 
 ####  qw945  
 ##### 1921#       发表于 2017-10-4 18:24
@@ -4928,7 +4928,7 @@ https://twitter.com/make193/status/914652102789492736
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  sakurap  
 ##### 1922#       发表于 2017-10-4 18:25
@@ -4937,7 +4937,7 @@ https://twitter.com/make193/status/914652102789492736
 尼玛又是不打招呼直接下载数据包，我有再多流量也不是这么耗的好伐？
 
 
------
+*****
 
 ####  枫紫  
 ##### 1923#       发表于 2017-10-4 18:36
@@ -4949,7 +4949,7 @@ https://twitter.com/make193/status/914652102789492736
 当初想的是最差也就小鸟那样了，不做过分期待
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 1924#       发表于 2017-10-4 21:09
@@ -4961,7 +4961,7 @@ https://twitter.com/make193/status/914652102789492736
 因为昨天在推里说了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 1925#       发表于 2017-10-4 23:01
@@ -4973,7 +4973,7 @@ https://twitter.com/make193/status/914652102789492736
 没有开门问候<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1926#       发表于 2017-10-4 23:03
@@ -4982,7 +4982,7 @@ https://twitter.com/make193/status/914652102789492736
 奶死了，只有更新白板
 
 
------
+*****
 
 ####  qw945  
 ##### 1927#       发表于 2017-10-4 23:14
@@ -4991,7 +4991,7 @@ https://twitter.com/make193/status/914652102789492736
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">奶死了
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1928#       发表于 2017-10-4 23:20
@@ -5000,7 +5000,7 @@ https://twitter.com/make193/status/914652102789492736
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没道理错过这么好的日子啊，看到不少开始奶下午实装模型的
 
 
------
+*****
 
 ####  枫紫  
 ##### 1929#       发表于 2017-10-4 23:23
@@ -5009,7 +5009,7 @@ https://twitter.com/make193/status/914652102789492736
 这样挺好，高调回归反而招黑，感谢美咲酱
 
 
------
+*****
 
 ####  cxxx  
 ##### 1930#       发表于 2017-10-5 00:58
@@ -5018,7 +5018,7 @@ https://twitter.com/make193/status/914652102789492736
 给不存在于这个事务所的人过生日可真开心啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 1931#       发表于 2017-10-5 04:45
@@ -5029,7 +5029,7 @@ https://twitter.com/make193/status/914652102789492736
 想太多。你看你lx
 
 
------
+*****
 
 ####  MEKA  
 ##### 1932#       发表于 2017-10-5 08:28
@@ -5040,7 +5040,7 @@ https://twitter.com/make193/status/914652102789492736
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Rize  
 ##### 1933#       发表于 2017-10-5 11:56
@@ -5049,7 +5049,7 @@ https://twitter.com/make193/status/914652102789492736
 哎，有点遗憾
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1934#       发表于 2017-10-5 12:42
@@ -5060,7 +5060,7 @@ https://twitter.com/make193/status/914652102789492736
 和这游戏开服似的？
 
 
------
+*****
 
 ####  枫紫  
 ##### 1935#       发表于 2017-10-5 13:32
@@ -5069,7 +5069,7 @@ https://twitter.com/make193/status/914652102789492736
 附议，讲道理gree那边都没加语音也别想那么多了
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 1936#       发表于 2017-10-5 17:19
@@ -5078,7 +5078,7 @@ https://twitter.com/make193/status/914652102789492736
 请问演唱会场刊要怎么买呢？现在还有可能买到十月武道馆的场刊么？
 
 
------
+*****
 
 ####  shadowof  
 ##### 1937#       发表于 2017-10-5 17:49
@@ -5090,7 +5090,7 @@ https://twitter.com/make193/status/914652102789492736
 如果现场卖有剩的话lalabit会有事后物贩 
 
 
------
+*****
 
 ####  MEKA  
 ##### 1938#       发表于 2017-10-5 21:41
@@ -5101,7 +5101,7 @@ https://twitter.com/make193/status/914652102789492736
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1939#       发表于 2017-10-5 22:53
@@ -5120,7 +5120,7 @@ https://twitter.com/make193/status/914652102789492736
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">说完就不能用了
 
 
------
+*****
 
 ####  MEKA  
 ##### 1940#       发表于 2017-10-5 23:04
@@ -5132,7 +5132,7 @@ https://twitter.com/make193/status/914652102789492736
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  枫紫  
 ##### 1941#       发表于 2017-10-6 00:24
@@ -5141,7 +5141,7 @@ https://twitter.com/make193/status/914652102789492736
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">然后这就登不上了
 
 
------
+*****
 
 ####  MEKA  
 ##### 1942#       发表于 2017-10-6 00:31
@@ -5152,7 +5152,7 @@ https://twitter.com/make193/status/914652102789492736
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  キラ様  
 ##### 1943#       发表于 2017-10-6 00:47
@@ -5167,7 +5167,7 @@ https://twitter.com/make193/status/914652102789492736
 SS是什么情况。。。。晚上开始全部线路都超时。。。。
 
 
------
+*****
 
 ####  MEKA  
 ##### 1944#       发表于 2017-10-6 00:49
@@ -5179,7 +5179,7 @@ SS是什么情况。。。。晚上开始全部线路都超时。。。。</bloc
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 1945#       发表于 2017-10-6 01:47
@@ -5188,7 +5188,7 @@ SS是什么情况。。。。晚上开始全部线路都超时。。。。</bloc
 SS和UU都上不了。。。。。
 
 
------
+*****
 
 ####  白浊果酱  
 ##### 1946#       发表于 2017-10-6 02:10
@@ -5197,7 +5197,7 @@ SS和UU都上不了。。。。。
 网易UU炸了吗.......
 
 
------
+*****
 
 ####  Rize  
 ##### 1947#       发表于 2017-10-6 08:06
@@ -5206,7 +5206,7 @@ SS和UU都上不了。。。。。
 赛风还能用
 
 
------
+*****
 
 ####  shadowof  
 ##### 1948#       发表于 2017-10-6 10:27
@@ -5218,7 +5218,7 @@ SS和UU都上不了。。。。。
 这个花篮
 
 
------
+*****
 
 ####  キラ様  
 ##### 1949#       发表于 2017-10-6 10:54
@@ -5227,7 +5227,7 @@ SS和UU都上不了。。。。。
 好棒的花篮<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MEKA  
 ##### 1950#       发表于 2017-10-6 10:56
@@ -5240,7 +5240,7 @@ SS和UU都上不了。。。。。
 
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 1951#       发表于 2017-10-6 13:19
@@ -5249,7 +5249,7 @@ SS和UU都上不了。。。。。
 不用银色的吗(
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 1952#       发表于 2017-10-6 13:46
@@ -5258,7 +5258,7 @@ SS和UU都上不了。。。。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">UU炸了，完蛋
 
 
------
+*****
 
 ####  shadowof  
 ##### 1953#       发表于 2017-10-6 18:07
@@ -5271,7 +5271,7 @@ SS和UU都上不了。。。。。
 周末稍微可以期待一下
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1954#       发表于 2017-10-6 18:42
@@ -5280,7 +5280,7 @@ SS和UU都上不了。。。。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喉咙还没好，不奶了
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 1955#       发表于 2017-10-7 08:23
@@ -5289,7 +5289,7 @@ SS和UU都上不了。。。。。
 现在有能上的vpn么。。。。活动要完。。
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 1956#       发表于 2017-10-7 10:24
@@ -5303,7 +5303,7 @@ SS和UU都上不了。。。。。
 听说天行甚至uu选扶她狗进土豆都能解决
 
 
------
+*****
 
 ####  shadowof  
 ##### 1957#       发表于 2017-10-8 14:06
@@ -5317,7 +5317,7 @@ SS和UU都上不了。。。。。
 今天不知道会不会以ミリシタ为主
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1958#       发表于 2017-10-8 14:16
@@ -5326,7 +5326,7 @@ SS和UU都上不了。。。。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">这回出手大方
 
 
------
+*****
 
 ####  MEKA  
 ##### 1959#       发表于 2017-10-8 14:23
@@ -5337,7 +5337,7 @@ SS和UU都上不了。。。。。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  terry666  
 ##### 1960#       发表于 2017-10-8 15:14
@@ -5346,7 +5346,7 @@ SS和UU都上不了。。。。。
 国内ios现在有什么代理能上土豆？天行今天突然抽风了 
 
 
------
+*****
 
 ####  lostz1991  
 ##### 1961#       发表于 2017-10-8 15:23
@@ -5357,7 +5357,7 @@ SS和UU都上不了。。。。。
 普通的ss就可以 据说似乎是谷歌服务器的锅
 
 
------
+*****
 
 ####  任天索尼子  
 ##### 1962#       发表于 2017-10-8 15:39
@@ -5366,7 +5366,7 @@ SS和UU都上不了。。。。。
 十连两张sr 玩了这么久除了开服送的就一张ssr 我也是醉了。烧笋我最近都白嫖了四五张ssr了
 
 
------
+*****
 
 ####  qw945  
 ##### 1963#       发表于 2017-10-8 15:57
@@ -5377,7 +5377,7 @@ SS和UU都上不了。。。。。
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  三千院飒  
 ##### 1964#       发表于 2017-10-8 16:45
@@ -5388,7 +5388,7 @@ SS和UU都上不了。。。。。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  shadowof  
 ##### 1965#       发表于 2017-10-8 20:06
@@ -5406,7 +5406,7 @@ SS和UU都上不了。。。。。
 新曲 细节18日nico直播
 
 
------
+*****
 
 ####  MEKA  
 ##### 1966#       发表于 2017-10-8 20:10
@@ -5417,7 +5417,7 @@ SS和UU都上不了。。。。。
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 1967#       发表于 2017-10-8 20:27
@@ -5426,7 +5426,7 @@ SS和UU都上不了。。。。。
 日你娘哦，昨天还能用的赛风也死了
 
 
------
+*****
 
 ####  v2c  
 ##### 1968#       发表于 2017-10-8 20:30
@@ -5438,7 +5438,7 @@ SS和UU都上不了。。。。。
 新玩家可懒得管你曲子是哪家唱片公司出的，他们只能看到别的偶像类音游可以免费玩全部曲子，这家gacha坑钱不说还有买有料DLC曲
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1969#       发表于 2017-10-8 20:34
@@ -5449,7 +5449,7 @@ SS和UU都上不了。。。。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真让我猜到了....？
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1970#       发表于 2017-10-8 20:42
@@ -5466,7 +5466,7 @@ SS和UU都上不了。。。。。
 估计是流水真的不太好看？
 
 
------
+*****
 
 ####  DioxinsX  
 ##### 1971#       发表于 2017-10-8 20:53
@@ -5475,7 +5475,7 @@ SS和UU都上不了。。。。。
 问一个丢人的问题 手游里的歌选什么人上场都是一样的声音吗 不像主机上谁上场都声音都不同<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  糖醋里脊和果子  
 ##### 1972#       发表于 2017-10-8 20:53
@@ -5488,7 +5488,7 @@ SS和UU都上不了。。。。。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 1973#       发表于 2017-10-8 20:53
@@ -5512,7 +5512,7 @@ SS和UU都上不了。。。。。
 再说喷60买歌的话，那烧笋2500买衣服情以何堪<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  terry666  
 ##### 1974#       发表于 2017-10-8 20:54
@@ -5524,7 +5524,7 @@ SS和UU都上不了。。。。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">手游假唱是惯例了，倒不如说MLTD有两首歌录了50个音轨已经是破天荒了。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1975#       发表于 2017-10-8 20:56
@@ -5543,7 +5543,7 @@ SS和UU都上不了。。。。。
 估计都是主机dlc1200yen一首歌的受害者......
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 1976#       发表于 2017-10-8 20:56
@@ -5555,7 +5555,7 @@ SS和UU都上不了。。。。。
 看什么歌，目前就DNT和thankyou有换声
 
 
------
+*****
 
 ####  hinarin  
 ##### 1977#       发表于 2017-10-8 20:57
@@ -5564,7 +5564,7 @@ SS和UU都上不了。。。。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">60还有什么好说的 有多少来多少
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 1978#       发表于 2017-10-8 20:59
@@ -5581,7 +5581,7 @@ SS和UU都上不了。。。。。
 看人吧，反正至少目前自分re跟免费没差，60也感觉不到痛（重点？）
 
 
------
+*****
 
 ####  terry666  
 ##### 1979#       发表于 2017-10-8 21:00
@@ -5592,7 +5592,7 @@ SS和UU都上不了。。。。。
 而追加收费歌曲每个月也就1-2首，这点钻根本不是问题。而且按惯例多半会开头一个星期给你免费<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qw945  
 ##### 1980#       发表于 2017-10-8 21:08
@@ -5603,7 +5603,7 @@ SS和UU都上不了。。。。。
 
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 1981#       发表于 2017-10-8 21:17
@@ -5614,7 +5614,7 @@ SS和UU都上不了。。。。。
 料定了你肯定会花60买歌...每人掏60可比单人掏60000收入多......
 
 
------
+*****
 
 ####  v2c  
 ##### 1982#       发表于 2017-10-8 21:18
@@ -5626,7 +5626,7 @@ SS和UU都上不了。。。。。
 另外看玩家反映也别光去看信者的，上2ch和推特看看其他几个偶像音游的玩家（其实主要就是隔壁的玩家）对这事的看法，想让MLTD做大不是光靠目前这几万活跃玩家就能搞定的吧
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 1983#       发表于 2017-10-8 21:38
@@ -5638,7 +5638,7 @@ SS和UU都上不了。。。。。
 我很想认同你的话尤其是最后那句，可惜现实是你土豆加多10个免费的本家歌也未必能多多少人。反过来说不看以后怎么卖也不能说得太死/劝 退 预 定。
 
 
------
+*****
 
 ####  shadowof  
 ##### 1984#       发表于 2017-10-8 21:42
@@ -5688,7 +5688,7 @@ AS組 俠気乱舞，让雪歩唱
 整场下来最大感想是若林神和ミンゴス精神太好了
 
 
------
+*****
 
 ####  MEKA  
 ##### 1985#       发表于 2017-10-8 21:42
@@ -5697,7 +5697,7 @@ AS組 俠気乱舞，让雪歩唱
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">上位SR送衣服已经够良心了，不过这商法确实挺聪明的60不一点都不心疼=w=
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 1986#       发表于 2017-10-8 21:50
@@ -5708,7 +5708,7 @@ AS組 俠気乱舞，让雪歩唱
 。
 
 
------
+*****
 
 ####  安广多惠子  
 ##### 1987#       发表于 2017-10-8 22:14
@@ -5724,7 +5724,7 @@ MEGARE!和ココロエクササイ ...</blockquote>
 リア充组真的没想到233
 
 
------
+*****
 
 ####  shadowof  
 ##### 1988#       发表于 2017-10-8 22:24
@@ -5735,7 +5735,7 @@ MEGARE!和ココロエクササイ ...</blockquote>
 换来HHb多一组みきつば
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 1989#       发表于 2017-10-8 23:09
@@ -5744,7 +5744,7 @@ MEGARE!和ココロエクササイ ...</blockquote>
 mltd这两个月登录送石头几乎没停过，只因为60一首歌就删游戏太过危言耸听
 
 
------
+*****
 
 ####  charlygaol  
 ##### 1990#       发表于 2017-10-8 23:59
@@ -5798,7 +5798,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 查看全部评分
 
 
------
+*****
 
 ####  CnIV  
 ##### 1991#       发表于 2017-10-9 01:30
@@ -5807,7 +5807,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 噫……到现在应该抽了70连了……一个ssr都没有……说好的3%呢
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 1992#       发表于 2017-10-9 02:36
@@ -5816,7 +5816,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 折腾一晚上终于能上游戏了，怒抽三十连三保底<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 1993#       发表于 2017-10-9 12:23
@@ -5847,7 +5847,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 エモさが
 
 
------
+*****
 
 ####  絹川健一  
 ##### 1994#       发表于 2017-10-9 13:58
@@ -5859,7 +5859,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 我停之前抽了一个半月的月票，连张SR都没有出过，这游戏的掉率是说说看的而已
 
 
------
+*****
 
 ####  sakurap  
 ##### 1995#       发表于 2017-10-9 18:14
@@ -5868,7 +5868,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 教练我也想去HOTCHPOTCH<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 1996#       发表于 2017-10-10 19:04
@@ -5880,7 +5880,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 2000线看来以后15万就没问题，新组合不知道能不能创新高
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 1997#       发表于 2017-10-10 19:50
@@ -5889,7 +5889,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">前几天还觉得12万就能收官的，要不是官方的2500石头搞得一档飙
 
 
------
+*****
 
 ####  nukecole  
 ##### 1998#       发表于 2017-10-10 20:03
@@ -5898,7 +5898,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 42351，不知道能不能挤进三挡。。。
 
 
------
+*****
 
 ####  hinarin  
 ##### 1999#       发表于 2017-10-10 20:34
@@ -5907,7 +5907,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">48000 稳定的1W线
 
 
------
+*****
 
 ####  qw945  
 ##### 2000#       发表于 2017-10-10 21:53
@@ -5918,7 +5918,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  MEKA  
 ##### 2001#       发表于 2017-10-10 22:27
@@ -5929,7 +5929,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2002#       发表于 2017-10-10 23:05
@@ -5939,7 +5939,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 这次下位只打到了3凸，感觉比上次下位4凸排名还高一点...
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2003#       发表于 2017-10-11 10:25
@@ -5948,7 +5948,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 这次除了2000位拼得比较高，快接近射星星了，后面的都还相对比较修仙啊
 
 
------
+*****
 
 ####  fw441  
 ##### 2004#       发表于 2017-10-11 11:33
@@ -5959,7 +5959,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 下午准备抽日向 太可爱拉
 
 
------
+*****
 
 ####  shadowof  
 ##### 2005#       发表于 2017-10-11 13:12
@@ -5969,7 +5969,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 <img src="https://i.imgur.com/jVRGLsr.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2006#       发表于 2017-10-11 14:02
@@ -5978,7 +5978,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">目前几次活动来说对只是想低保拿卡的真的很轻松了，倒是前排肝帝乱舞比较可怕
 
 
------
+*****
 
 ####  朝奈  
 ##### 2007#       发表于 2017-10-11 14:11
@@ -5999,7 +5999,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 人的确是越来越少啊.......
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2008#       发表于 2017-10-11 14:12
@@ -6008,7 +6008,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">自从没有了showtime，我的金钱更缺了
 
 
------
+*****
 
 ####  朝奈  
 ##### 2009#       发表于 2017-10-11 14:20
@@ -6019,7 +6019,7 @@ arcadia 前半最燃曲，こーり歌唱力比Megaton又进化了，这次完�
 金钱和R训练卡嗖嗖就没了.......
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2010#       发表于 2017-10-11 14:21
@@ -6053,7 +6053,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2011#       发表于 2017-10-11 14:23
@@ -6062,7 +6062,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 感谢大佬拆包，土豆总算是走上正规了啊。。。
 
 
------
+*****
 
 ####  咩酱  
 ##### 2012#       发表于 2017-10-11 14:28
@@ -6071,7 +6071,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 感谢拆包。之前知道千鹤SSR要来了就一直存石头，现在能60连，感觉千鹤不会是限定，希望能出货……
 
 
------
+*****
 
 ####  wx98707707  
 ##### 2013#       发表于 2017-10-11 14:34
@@ -6082,7 +6082,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 要是双卡池的话可能就是千鹤限定亚美常驻了，当然也有可能是roco限定亚美常驻
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2014#       发表于 2017-10-11 14:44
@@ -6091,7 +6091,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 之前的ml+本家双SSR的模式是P+F——F+A——A+P，已经走完一圈了，如果再按这模式走的话这3张都不太可能
 
 
------
+*****
 
 ####  咩酱  
 ##### 2015#       发表于 2017-10-11 14:48
@@ -6103,7 +6103,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 根据人气来看下次更常驻千鹤下月初roco限定亚美常驻的可能性比较大w
 
 
------
+*****
 
 ####  shadowof  
 ##### 2016#       发表于 2017-10-11 14:54
@@ -6116,7 +6116,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 预告的背景是星梨花SR的卡面背景
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2017#       发表于 2017-10-11 15:03
@@ -6125,7 +6125,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 话说这活动剧情啥时候能像页游那样疯狂neta吗？
 
 
------
+*****
 
 ####  shadowof  
 ##### 2018#       发表于 2017-10-11 15:09
@@ -6144,7 +6144,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 <img src="https://i.imgur.com/vZs3jFm.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2019#       发表于 2017-10-11 15:56
@@ -6153,7 +6153,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 <img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">话说回来，惠美的剧情里没有琴叶还真是感觉少了点什么……期待种田早日复出啊
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2020#       发表于 2017-10-11 16:01
@@ -6161,7 +6161,7 @@ STANDING ALIVE（篠宮可憐、四条貴音、島原エレナ、百瀬莉緒、
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2021#       发表于 2017-10-11 16:10
@@ -6183,7 +6183,7 @@ CP厨真可怕</blockquote>
 大致翻了一圈，亲和P还是占多数啊，大多在吐槽TSV激进党<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2022#       发表于 2017-10-11 16:44
@@ -6197,7 +6197,7 @@ CP厨真可怕</blockquote>
 所以有人藉机喊退坑吗？（md就没有吃爆米花的麻将脸吗？<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">）
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2023#       发表于 2017-10-11 16:55
@@ -6209,7 +6209,7 @@ CP厨真可怕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">没看到，大概过了战争高峰期了，基本是亲和P在吐槽。不过一般也不会这样就退坑吧
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2024#       发表于 2017-10-11 18:06
@@ -6231,7 +6231,7 @@ CP厨真可怕</blockquote>
 <img src="https://img.saraba1st.com/forum/201710/11/180617qhdudhuvu1ggcvog.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2025#       发表于 2017-10-11 18:23
@@ -6250,7 +6250,7 @@ CP厨真可怕</blockquote>
 <img src="https://i.imgur.com/lNYoJI9.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cxxx  
 ##### 2026#       发表于 2017-10-11 19:01
@@ -6259,7 +6259,7 @@ CP厨真可怕</blockquote>
 最后一天没打20000出头都拿卡了，你游运营越来越好，玩家越来越少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 2027#       发表于 2017-10-11 19:09
@@ -6271,7 +6271,7 @@ CP厨真可怕</blockquote>
 但为了这事吵起来那是另外一回事了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2028#       发表于 2017-10-11 19:27
@@ -6286,7 +6286,7 @@ CP厨真可怕</blockquote>
 突然感到一股沮丧感
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2029#       发表于 2017-10-11 19:33
@@ -6294,7 +6294,7 @@ CP厨真可怕</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  lostz1991  
 ##### 2030#       发表于 2017-10-11 19:40
@@ -6303,7 +6303,7 @@ CP厨真可怕</blockquote>
 终究还是错过了美奈子,看来是缘分没到 (<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 充值不够
 
 
------
+*****
 
 ####  hinarin  
 ##### 2031#       发表于 2017-10-11 20:47
@@ -6327,7 +6327,7 @@ CP厨真可怕</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  Risa  
 ##### 2032#       发表于 2017-10-11 20:53
@@ -6336,7 +6336,7 @@ CP厨真可怕</blockquote>
 能1~2个月更新一首全角色音轨曲就美了
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2033#       发表于 2017-10-11 21:58
@@ -6348,7 +6348,7 @@ megumi这剧情真的是太好了......
 要是琴叶在估计就不是这个展开了
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2034#       发表于 2017-10-12 11:52
@@ -6359,7 +6359,7 @@ megumi这剧情真的是太好了......
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">看拆包说下个卡池是千鹤，月末是志保限定+亚美恒长
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2035#       发表于 2017-10-12 12:22
@@ -6380,7 +6380,7 @@ megumi这剧情真的是太好了......
 （还有几个固有动作的角色 环 育和马场，估计这是接下来的ssr吧）
 
 
------
+*****
 
 ####  MEKA  
 ##### 2036#       发表于 2017-10-12 12:51
@@ -6391,7 +6391,7 @@ megumi这剧情真的是太好了......
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  fw441  
 ##### 2037#       发表于 2017-10-12 13:02
@@ -6400,7 +6400,7 @@ megumi这剧情真的是太好了......
 这个tour的活动形式是怎么样，跟隔壁CGSS一样吗
 
 
------
+*****
 
 ####  terry666  
 ##### 2038#       发表于 2017-10-12 13:04
@@ -6415,7 +6415,7 @@ megumi这剧情真的是太好了......
 上个月隔壁空调厂志保刚出的抽卡，这边土豆又是限定卡池又要氪金打活动，完全不给活路。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2039#       发表于 2017-10-12 13:27
@@ -6425,7 +6425,7 @@ megumi这剧情真的是太好了......
 工会排名不知道会不会有衣服奖？
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2040#       发表于 2017-10-12 13:38
@@ -6436,7 +6436,7 @@ megumi这剧情真的是太好了......
 
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2041#       发表于 2017-10-12 13:59
@@ -6445,7 +6445,7 @@ megumi这剧情真的是太好了......
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只希望活动卡别和工会排名绑定就行了
 
 
------
+*****
 
 ####  枫紫  
 ##### 2042#       发表于 2017-10-12 14:11
@@ -6454,7 +6454,7 @@ megumi这剧情真的是太好了......
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">工会排名的话大概要把登录领石和不登录的清一下了
 
 
------
+*****
 
 ####  朝奈  
 ##### 2043#       发表于 2017-10-12 15:47
@@ -6469,7 +6469,7 @@ megumi这剧情真的是太好了......
 "起床打团了"
 
 
------
+*****
 
 ####  キラ様  
 ##### 2044#       发表于 2017-10-12 16:25
@@ -6480,7 +6480,7 @@ megumi这剧情真的是太好了......
 清一清
 
 
------
+*****
 
 ####  吉诺爱比利  
 ##### 2045#       发表于 2017-10-12 17:01
@@ -6489,7 +6489,7 @@ megumi这剧情真的是太好了......
 有没有低保咸鱼团，每次排名都精准控在2W左右的求收
 
 
------
+*****
 
 ####  MEKA  
 ##### 2046#       发表于 2017-10-12 17:54
@@ -6500,7 +6500,7 @@ megumi这剧情真的是太好了......
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  shadowof  
 ##### 2047#       发表于 2017-10-12 18:49
@@ -6510,7 +6510,7 @@ megumi这剧情真的是太好了......
 [http://v.youku.com/v_show/id_XMzA4MTA3MTIxMg==.html](http://v.youku.com/v_show/id_XMzA4MTA3MTIxMg==.html)
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2048#       发表于 2017-10-12 18:51
@@ -6519,7 +6519,7 @@ megumi这剧情真的是太好了......
 微氪希望不会拖后腿<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sakurap  
 ##### 2049#       发表于 2017-10-12 23:47
@@ -6529,7 +6529,7 @@ megumi这剧情真的是太好了......
 又可以去横滨Arena前的鹤见川畔圣地巡礼了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2050#       发表于 2017-10-13 11:10
@@ -6541,7 +6541,7 @@ megumi这剧情真的是太好了......
 最后一场了
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2051#       发表于 2017-10-13 14:09
@@ -6552,7 +6552,7 @@ megumi这剧情真的是太好了......
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">开必得了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2052#       发表于 2017-10-13 14:13
@@ -6562,7 +6562,7 @@ megumi这剧情真的是太好了......
 果然重复卡能凸是有预谋的....
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2053#       发表于 2017-10-13 14:16
@@ -6579,7 +6579,7 @@ megumi这剧情真的是太好了......
 结果还是抽了，梓姐！还顺带出了前两期的新SR奈绪，大满足<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hinarin  
 ##### 2054#       发表于 2017-10-13 14:32
@@ -6590,7 +6590,7 @@ megumi这剧情真的是太好了......
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就差未来了 1/14失败 结晶+1
 
 
------
+*****
 
 ####  shadowof  
 ##### 2055#       发表于 2017-10-13 14:33
@@ -6601,7 +6601,7 @@ megumi这剧情真的是太好了......
 ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下只出了2
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2056#       发表于 2017-10-13 14:45
@@ -6612,7 +6612,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 然後這次ミリコレ只有六日
 
 
------
+*****
 
 ####  KuonjiClara  
 ##### 2057#       发表于 2017-10-13 15:12
@@ -6623,7 +6623,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  朝奈  
 ##### 2058#       发表于 2017-10-13 16:29
@@ -6634,7 +6634,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 结果果然还是碎
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2059#       发表于 2017-10-13 17:09
@@ -6643,7 +6643,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 2/14 ,果不其然是碎<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2060#       发表于 2017-10-13 17:15
@@ -6652,7 +6652,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 4/14，都猜到是碎了为什么我还要拼命<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qw945  
 ##### 2061#       发表于 2017-10-13 17:16
@@ -6661,7 +6661,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 13/14,非洲人自信new<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2062#       发表于 2017-10-13 17:30
@@ -6670,7 +6670,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 11/14出new静静，幸亏平常储石<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  洋葱葱  
 ##### 2063#       发表于 2017-10-13 17:37
@@ -6679,7 +6679,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 7/14new了，有点惊险
 
 
------
+*****
 
 ####  dystopiaground  
 ##### 2064#       发表于 2017-10-13 18:13
@@ -6687,7 +6687,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  qw945  
 ##### 2065#       发表于 2017-10-13 18:34
@@ -6698,7 +6698,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0-play
 
 
------
+*****
 
 ####  キラ様  
 ##### 2066#       发表于 2017-10-13 19:14
@@ -6707,7 +6707,7 @@ ssr全齐的 还在犹豫要不要为了狗粮多转几下之前打ち上げ4下
 ssr碎片喜加一，很气
 
 
------
+*****
 
 ####  MEKA  
 ##### 2067#       发表于 2017-10-13 19:22
@@ -6718,7 +6718,7 @@ ssr碎片喜加一，很气
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2068#       发表于 2017-10-13 19:45
@@ -6727,7 +6727,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">必然碎片，没什么顾虑
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2069#       发表于 2017-10-13 20:06
@@ -6736,7 +6736,7 @@ ssr碎片喜加一，很气
 抽到了面妖，美滋滋<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  キラ様  
 ##### 2070#       发表于 2017-10-13 21:22
@@ -6750,7 +6750,7 @@ ssr碎片喜加一，很气
 
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2071#       发表于 2017-10-13 22:06
@@ -6759,7 +6759,7 @@ ssr碎片喜加一，很气
 4/14，2碎片<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2072#       发表于 2017-10-13 22:35
@@ -6768,7 +6768,7 @@ ssr碎片喜加一，很气
 响和贵音<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2073#       发表于 2017-10-14 10:57
@@ -6779,7 +6779,7 @@ ssr碎片喜加一，很气
 这次1200星梨花就出了
 
 
------
+*****
 
 ####  Rize  
 ##### 2074#       发表于 2017-10-14 11:52
@@ -6788,7 +6788,7 @@ ssr碎片喜加一，很气
 种酱怎么这么瘦了😭
 
 
------
+*****
 
 ####  qw945  
 ##### 2075#       发表于 2017-10-14 12:15
@@ -6800,7 +6800,7 @@ ssr碎片喜加一，很气
 简直是干了，根本认不出来<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  人形灾害  
 ##### 2076#       发表于 2017-10-14 12:24
@@ -6811,7 +6811,7 @@ ssr碎片喜加一，很气
 是梯子问题吗？换了几个都上不去
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2077#       发表于 2017-10-14 12:48
@@ -6820,7 +6820,7 @@ ssr碎片喜加一，很气
 种酱瘦的。。。心疼<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 2078#       发表于 2017-10-14 12:56
@@ -6829,7 +6829,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">心疼我种，瘦成这样...正脸完全换了个人，倒是比原来更漂亮了
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2079#       发表于 2017-10-14 13:37
@@ -6846,7 +6846,7 @@ ssr碎片喜加一，很气
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
 
 
------
+*****
 
 ####  不起眼の路人  
 ##### 2080#       发表于 2017-10-14 14:58
@@ -6857,7 +6857,7 @@ ssr碎片喜加一，很气
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  qw945  
 ##### 2081#       发表于 2017-10-15 16:36
@@ -6866,7 +6866,7 @@ ssr碎片喜加一，很气
 第一天原谅币还挺多的，这两天怎么好少，开出来的东西也是N和200居多了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fw441  
 ##### 2082#       发表于 2017-10-15 17:48
@@ -6877,7 +6877,7 @@ ssr碎片喜加一，很气
 不过我很想要日向...可惜不在池子里
 
 
------
+*****
 
 ####  shadowof  
 ##### 2083#       发表于 2017-10-15 18:04
@@ -6888,7 +6888,7 @@ ssr碎片喜加一，很气
 慢慢刷1万8
 
 
------
+*****
 
 ####  三千院飒  
 ##### 2084#       发表于 2017-10-16 08:55
@@ -6897,7 +6897,7 @@ ssr碎片喜加一，很气
 蛋疼，p9会员的两个日本ss都挂了，美国的又10403。求推荐可以udp转发的稳定代理
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2085#       发表于 2017-10-16 16:34
@@ -6909,7 +6909,7 @@ ssr碎片喜加一，很气
 我是自建SS中转到日本绕开墙，再连shadowsocks.com.au这家的海外线路绕土豆的IP限制，真的麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  OsaHoshi  
 ##### 2086#       发表于 2017-10-16 16:57
@@ -6918,7 +6918,7 @@ ssr碎片喜加一，很气
 这两天登个游戏真麻烦
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2087#       发表于 2017-10-16 16:58
@@ -6928,7 +6928,7 @@ ssr碎片喜加一，很气
 问下有用aws搭的么.....是否被ban？
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2088#       发表于 2017-10-16 17:47
@@ -6937,7 +6937,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在用的被ban了好几条了，看哪天会被全ban完
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2089#       发表于 2017-10-16 18:41
@@ -6952,7 +6952,7 @@ ssr碎片喜加一，很气
 目前活动文本还没实装信息不全，【推测】是特殊工作获得特殊活动票来打歌，是否一次Tour必须连续完成未知。要是不能中途退出又是一场好肝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2090#       发表于 2017-10-16 23:25
@@ -6963,7 +6963,7 @@ ssr碎片喜加一，很气
 拿到下位SR还是靠的8k的消费报酬.....
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2091#       发表于 2017-10-17 09:16
@@ -6973,7 +6973,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">但是我想继续休闲
 
 
------
+*****
 
 ####  terry666  
 ##### 2092#       发表于 2017-10-17 11:46
@@ -6982,7 +6982,7 @@ ssr碎片喜加一，很气
 有谁记得上期美奈子限定是几号到几号么？想先抽这月月末限定再决定要不要打活动一档，不过我算了算，活动时间是不是刚好和限定卡池完美错开了？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kohos  
 ##### 2093#       发表于 2017-10-17 11:54
@@ -6991,7 +6991,7 @@ ssr碎片喜加一，很气
 之前限定全都是月底出吧
 
 
------
+*****
 
 ####  Fingest  
 ##### 2094#       发表于 2017-10-17 12:34
@@ -7000,7 +7000,7 @@ ssr碎片喜加一，很气
 碎片加一 确定券的歌织 看到了新加的衣装台词
 
 
------
+*****
 
 ####  shadowof  
 ##### 2095#       发表于 2017-10-17 23:32
@@ -7015,7 +7015,7 @@ ssr碎片喜加一，很气
 文字上有写 新的属性曲一共三曲
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2096#       发表于 2017-10-18 00:09
@@ -7026,7 +7026,7 @@ ssr碎片喜加一，很气
 是つむつむ大概要血拚了...
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2097#       发表于 2017-10-18 00:27
@@ -7036,7 +7036,7 @@ ssr碎片喜加一，很气
 上面这图紬这头转的脖子断了吧.....
 
 
------
+*****
 
 ####  shadowof  
 ##### 2098#       发表于 2017-10-18 11:27
@@ -7048,7 +7048,7 @@ ssr碎片喜加一，很气
 ミリコレ也是今晚结束
 
 
------
+*****
 
 ####  OsaHoshi  
 ##### 2099#       发表于 2017-10-18 14:14
@@ -7057,7 +7057,7 @@ ssr碎片喜加一，很气
 听说刚才更新拆包有超得
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2100#       发表于 2017-10-18 14:18
@@ -7088,7 +7088,7 @@ ssr碎片喜加一，很气
 
 
 
------
+*****
 
 ####  fw441  
 ##### 2101#       发表于 2017-10-18 14:21
@@ -7097,7 +7097,7 @@ ssr碎片喜加一，很气
 超 超得？
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2102#       发表于 2017-10-18 14:35
@@ -7110,7 +7110,7 @@ ssr碎片喜加一，很气
 哦拆包，不过还是太快了吧
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2103#       发表于 2017-10-18 14:48
@@ -7119,7 +7119,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">压灭咯！欧捏该！
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2104#       发表于 2017-10-18 14:50
@@ -7128,7 +7128,7 @@ ssr碎片喜加一，很气
 庆祝19th开超得<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  洋葱葱  
 ##### 2105#       发表于 2017-10-18 14:52
@@ -7137,7 +7137,7 @@ ssr碎片喜加一，很气
 才开的必得，这么快就超得了..
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2106#       发表于 2017-10-18 15:32
@@ -7148,7 +7148,7 @@ ssr碎片喜加一，很气
 艹....之前必得把想要的都抽到了，超得不知道买谁了....
 
 
------
+*****
 
 ####  キラ様  
 ##### 2107#       发表于 2017-10-18 15:41
@@ -7157,7 +7157,7 @@ ssr碎片喜加一，很气
 开心，麻辣土豆蒸蒸日上
 
 
------
+*****
 
 ####  朝奈  
 ##### 2108#       发表于 2017-10-18 17:58
@@ -7168,7 +7168,7 @@ ssr碎片喜加一，很气
 你们觉得超得有可能这么快开卖吗
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2109#       发表于 2017-10-18 18:14
@@ -7177,7 +7177,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开服一百天的时候开吧，毕竟百（万）嘛，理由也不错
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2110#       发表于 2017-10-18 18:23
@@ -7185,7 +7185,7 @@ ssr碎片喜加一，很气
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2111#       发表于 2017-10-18 19:09
@@ -7197,7 +7197,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">上游戏看了下确实领到100天的头衔了，时间过得真快啊，我还以为开服才两个多月
 
 
------
+*****
 
 ####  qw945  
 ##### 2112#       发表于 2017-10-18 20:06
@@ -7208,7 +7208,7 @@ ssr碎片喜加一，很气
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.0-play
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2113#       发表于 2017-10-18 20:15
@@ -7217,7 +7217,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我1w4都没抽出星犁花........
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2114#       发表于 2017-10-18 20:23
@@ -7225,7 +7225,7 @@ ssr碎片喜加一，很气
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2115#       发表于 2017-10-18 20:47
@@ -7236,7 +7236,7 @@ ssr碎片喜加一，很气
 所以几时烧笋能邀请武内来传授下如何FC tokimeki,仇剑，つほみ，秘密トワレ等等呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2116#       发表于 2017-10-18 20:53
@@ -7245,7 +7245,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">新活动曲炒鸡棒啊！
 
 
------
+*****
 
 ####  hinarin  
 ##### 2117#       发表于 2017-10-18 20:58
@@ -7254,7 +7254,7 @@ ssr碎片喜加一，很气
 小Drama和新歌好棒<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2118#       发表于 2017-10-18 20:59
@@ -7269,7 +7269,7 @@ ssr碎片喜加一，很气
 又是全齐没关系的事
 
 
------
+*****
 
 ####  朝奈  
 ##### 2119#       发表于 2017-10-18 21:02
@@ -7278,7 +7278,7 @@ ssr碎片喜加一，很气
 超得时装的有点快啊喂(奶出来了)
 
 
------
+*****
 
 ####  qw945  
 ##### 2120#       发表于 2017-10-18 21:09
@@ -7287,7 +7287,7 @@ ssr碎片喜加一，很气
 超得好快<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">怕是真的氪金感人冲业绩了
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2121#       发表于 2017-10-18 21:27
@@ -7296,7 +7296,7 @@ ssr碎片喜加一，很气
 换了一张美也回来<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hinarin  
 ##### 2122#       发表于 2017-10-18 21:41
@@ -7305,7 +7305,7 @@ ssr碎片喜加一，很气
 换了张未来 恒常终于齐了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2123#       发表于 2017-10-18 21:54
@@ -7316,7 +7316,7 @@ ssr碎片喜加一，很气
 然後期待活動
 
 
------
+*****
 
 ####  shadowof  
 ##### 2124#       发表于 2017-10-18 22:41
@@ -7330,7 +7330,7 @@ ssr碎片喜加一，很气
 <img src="https://i.imgur.com/pnaSePC.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qw945  
 ##### 2125#       发表于 2017-10-18 22:48
@@ -7343,7 +7343,7 @@ ssr碎片喜加一，很气
 大佬太强了，全满破<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2126#       发表于 2017-10-19 00:40
@@ -7354,7 +7354,7 @@ ssr碎片喜加一，很气
 <img src="https://i.imgur.com/iq7Qlsx.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2127#       发表于 2017-10-19 00:50
@@ -7363,7 +7363,7 @@ ssr碎片喜加一，很气
 所以说つむつむ这脖子……正式上线之前能不能修正一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2128#       发表于 2017-10-19 00:59
@@ -7372,7 +7372,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">女仆装72！
 
 
------
+*****
 
 ####  nc4  
 ##### 2129#       发表于 2017-10-19 13:33
@@ -7382,7 +7382,7 @@ ssr碎片喜加一，很气
 已经一周登陆不能了心急如焚
 
 
------
+*****
 
 ####  qw945  
 ##### 2130#       发表于 2017-10-19 14:38
@@ -7393,7 +7393,7 @@ ssr碎片喜加一，很气
 
 
 
------
+*****
 
 ####  hinarin  
 ##### 2131#       发表于 2017-10-19 15:13
@@ -7402,7 +7402,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">坐观前排大佬斗法
 
 
------
+*****
 
 ####  洋葱葱  
 ##### 2132#       发表于 2017-10-19 15:31
@@ -7411,7 +7411,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">还有公会收人吗
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2133#       发表于 2017-10-19 16:28
@@ -7420,7 +7420,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">留肝等奈绪和歌织上位的时候再说， 莉绪也看情况拼拼
 
 
------
+*****
 
 ####  枫紫  
 ##### 2134#       发表于 2017-10-19 22:25
@@ -7432,7 +7432,7 @@ ssr碎片喜加一，很气
 今天UU和SS都连不上，都连上了我清掉个32天没登录的加你
 
 
------
+*****
 
 ####  洋葱葱  
 ##### 2135#       发表于 2017-10-19 22:30
@@ -7444,7 +7444,7 @@ ssr碎片喜加一，很气
 <img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">5XPUDVVK 谢谢大佬了
 
 
------
+*****
 
 ####  枫紫  
 ##### 2136#       发表于 2017-10-19 23:17
@@ -7456,7 +7456,7 @@ ssr碎片喜加一，很气
 加了，共勉
 
 
------
+*****
 
 ####  吉诺爱比利  
 ##### 2137#       发表于 2017-10-20 07:12
@@ -7465,7 +7465,7 @@ ssr碎片喜加一，很气
 YA5DAA5N  还有多余的坑吗
 
 
------
+*****
 
 ####  砸碎你黄瓜  
 ##### 2138#       发表于 2017-10-20 08:41
@@ -7474,7 +7474,7 @@ YA5DAA5N  还有多余的坑吗
 96FUBF5U  还有没有公会收人的w
 
 
------
+*****
 
 ####  6mori  
 ##### 2139#       发表于 2017-10-20 09:09
@@ -7483,7 +7483,7 @@ YA5DAA5N  还有多余的坑吗
 J235V3D5 同求一个公会
 
 
------
+*****
 
 ####  qw945  
 ##### 2140#       发表于 2017-10-20 09:32
@@ -7494,7 +7494,7 @@ J235V3D5 同求一个公会
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-play
 
 
------
+*****
 
 ####  枫紫  
 ##### 2141#       发表于 2017-10-20 09:33
@@ -7503,7 +7503,7 @@ J235V3D5 同求一个公会
 还剩一个位但人太多所以建议楼上几位可以新建一会
 
 
------
+*****
 
 ####  Gohnny  
 ##### 2142#       发表于 2017-10-20 09:48
@@ -7512,7 +7512,7 @@ J235V3D5 同求一个公会
 ZLUWZ5ZB，一直没加公会，求加个
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2143#       发表于 2017-10-20 10:32
@@ -7525,7 +7525,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 忘了加ID:GMVJS732
 
 
------
+*****
 
 ####  qw945  
 ##### 2144#       发表于 2017-10-20 12:09
@@ -7539,7 +7539,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 加了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2145#       发表于 2017-10-20 14:28
@@ -7548,7 +7548,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这边活动里面打的普通曲记录好像也算，不必担心万一fc了不算的懊恼了......
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2146#       发表于 2017-10-20 14:30
@@ -7557,7 +7557,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这活动换了个模式其实和原本的没区别吧？就是多个push歌点数更多，然后打五次普通歌能打一次活动歌？
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2147#       发表于 2017-10-20 14:31
@@ -7566,7 +7566,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">活动给的倍率好像是随机的还是累计的？准备了2次发现倍率5.0了
 
 
------
+*****
 
 ####  qw945  
 ##### 2148#       发表于 2017-10-20 14:38
@@ -7579,7 +7579,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 票好像不算，存的400票要堆仓库了
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2149#       发表于 2017-10-20 14:42
@@ -7588,7 +7588,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 5次15体也能打一次30体的活动曲吗？？？
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2150#       发表于 2017-10-20 14:43
@@ -7601,7 +7601,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 最稳妥的应该是MM打1.2倍的歌曲然后遇到5倍就打活动歌吧
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2151#       发表于 2017-10-20 14:44
@@ -7614,7 +7614,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 妈的这活动还要凹5倍有点坑.....
 
 
------
+*****
 
 ####  Renes  
 ##### 2152#       发表于 2017-10-20 14:44
@@ -7625,7 +7625,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 主要是这活动里表现值算法和通常打歌是一样的 隔壁不行主要还是不管协力还是3+1和巡演 都是是不同的表现值算法…所以不进常规统计
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2153#       发表于 2017-10-20 14:51
@@ -7634,7 +7634,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以活动攻略就是——疯狂15体力打工，凹出来5倍活动曲再淦？
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2154#       发表于 2017-10-20 14:54
@@ -7648,7 +7648,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 问题是现在5倍怎么凹？
 
 
------
+*****
 
 ####  咩酱  
 ##### 2155#       发表于 2017-10-20 14:59
@@ -7659,7 +7659,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 好吧就抽抽每日60了，心快死了
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2156#       发表于 2017-10-20 14:59
@@ -7673,7 +7673,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 只能看运气了，刚试了下进选曲画面退出再进不会刷新，一定要进行一次后才会刷（总有种这样一直凹然后活动材料屯着用不掉的预感<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">）
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2157#       发表于 2017-10-20 15:00
@@ -7687,7 +7687,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 5倍就别强求了，2M打工存心，等体力回满打MM，出4倍以上就打活动歌，没出就打1.2，有些东西不能追求太极致。。。
 
 
------
+*****
 
 ####  白浊果酱  
 ##### 2158#       发表于 2017-10-20 15:03
@@ -7696,7 +7696,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么凹五倍曲....朋友连着三次都是5倍,我都是3.5
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2159#       发表于 2017-10-20 15:04
@@ -7707,7 +7707,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 我看下来是没法凹，退出再进结果和你刚才进的那一次是一样的
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2160#       发表于 2017-10-20 15:05
@@ -7721,7 +7721,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 
 
 
------
+*****
 
 ####  咩酱  
 ##### 2161#       发表于 2017-10-20 15:17
@@ -7733,7 +7733,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 服了。mltd这边也是休闲玩不打算课10连了，直接等超得了，伤心
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2162#       发表于 2017-10-20 15:19
@@ -7742,7 +7742,7 @@ ZLUWZ5ZB，一直没加公会，求加个
 mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在只抽60每日和必得超得了
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2163#       发表于 2017-10-20 15:20
@@ -7775,7 +7775,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 顺便据说MM出5倍的几率很高
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2164#       发表于 2017-10-20 15:20
@@ -7787,7 +7787,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 也是同期的另一个限定出了3张，卵用直接井出来的....
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2165#       发表于 2017-10-20 15:24
@@ -7796,7 +7796,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 粗略算了一下，不浪费体力的话，起码能打3W2+的PT，看来可以喝点药拿4星下位了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2166#       发表于 2017-10-20 15:28
@@ -7811,7 +7811,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 反正限定一来都要暴死
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2167#       发表于 2017-10-20 15:28
@@ -7832,7 +7832,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 （最后卵尼玛）
 
 
------
+*****
 
 ####  朝奈  
 ##### 2168#       发表于 2017-10-20 15:30
@@ -7848,7 +7848,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 普通人抽的出7%???
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2169#       发表于 2017-10-20 15:32
@@ -7860,7 +7860,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 有点存石上瘾舍不得抽了.....
 
 
------
+*****
 
 ####  shadowof  
 ##### 2170#       发表于 2017-10-20 15:32
@@ -7877,7 +7877,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 超得必得都已经没关系了
 
 
------
+*****
 
 ####  qw945  
 ##### 2171#       发表于 2017-10-20 15:44
@@ -7888,7 +7888,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 好奇问下，这活动前排大佬刷出百万pt会比之前的活动难吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">还是说砸钱无限工作瞬间百万连歌都不用打？
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2172#       发表于 2017-10-20 15:50
@@ -7956,7 +7956,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 查看全部评分
 
 
------
+*****
 
 ####  lostz1991  
 ##### 2173#       发表于 2017-10-20 16:24
@@ -7967,7 +7967,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 求个公会，每次活动差不多3W分低保拿卡的<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 2174#       发表于 2017-10-20 17:02
@@ -7983,7 +7983,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 可能只有大佬的池在开fes吧
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2175#       发表于 2017-10-20 17:33
@@ -7992,7 +7992,7 @@ mltd的UP看看就行了，上次强氪风花的结果就是6张hibiki，现在�
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">感觉要点的键更多了，唯一的好处大概是摸鱼的时候也可以点点点
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2176#       发表于 2017-10-20 17:50
@@ -8012,7 +8012,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 萝莉控钱包不保<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2177#       发表于 2017-10-20 17:59
@@ -8028,7 +8028,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 這次活動曲有點難,6M都要13...
 
 
------
+*****
 
 ####  同调承太郎  
 ##### 2178#       发表于 2017-10-20 19:27
@@ -8043,7 +8043,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 我智商不够<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  同调承太郎  
 ##### 2179#       发表于 2017-10-20 19:28
@@ -8058,7 +8058,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 5倍 4倍的概率是怎么算出来的？
 
 
------
+*****
 
 ####  furui3132  
 ##### 2180#       发表于 2017-10-20 20:36
@@ -8067,7 +8067,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">这次活动曲爆炸好听
 
 
------
+*****
 
 ####  shadowof  
 ##### 2181#       发表于 2017-10-20 22:21
@@ -8079,7 +8079,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 ジャージ下面是裙子 うえしゃま太色情了啊 
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2182#       发表于 2017-10-20 22:44
@@ -8088,7 +8088,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 强迫症这活动打得蛋疼<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  terry666  
 ##### 2183#       发表于 2017-10-20 23:38
@@ -8107,7 +8107,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 从这次打分的体验来看，上分比以前的活动快多了，所以可能不会开4倍了。
 
 
------
+*****
 
 ####  shadowof  
 ##### 2184#       发表于 2017-10-21 00:39
@@ -8121,7 +8121,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 3位数以上的上位一定是群魔乱舞 
 
 
------
+*****
 
 ####  枫紫  
 ##### 2185#       发表于 2017-10-21 10:44
@@ -8130,7 +8130,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 所以正确打法是2M工作拼命攒星然后攒够了发力？
 
 
------
+*****
 
 ####  killcal  
 ##### 2186#       发表于 2017-10-21 13:35
@@ -8139,7 +8139,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">玩个游戏还要算期望，也是服了。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2187#       发表于 2017-10-21 13:53
@@ -8151,7 +8151,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">发力的时候还得看好倍率....低于3还是要打mmpush
 
 
------
+*****
 
 ####  吉诺爱比利  
 ##### 2188#       发表于 2017-10-21 14:59
@@ -8160,7 +8160,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 活动歌也有FC奖励，还是要打3把低难度拿125石
 
 
------
+*****
 
 ####  朝奈  
 ##### 2189#       发表于 2017-10-21 16:11
@@ -8173,7 +8173,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 要不是群里有人次次5倍4.5我还以为第二天暗改了呢
 
 
------
+*****
 
 ####  shadowof  
 ##### 2190#       发表于 2017-10-21 20:49
@@ -8189,7 +8189,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2191#       发表于 2017-10-21 22:16
@@ -8198,7 +8198,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">这活动打界王拳是对自己的脸有多自信啊....
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2192#       发表于 2017-10-22 09:59
@@ -8210,7 +8210,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 大家都是2M工作攒心的前提下多倍攒心用处不大。至于多倍用心，如果可以看到MM倍率之后再选择是否界王拳，可以提升理论效率（非4.5倍以上不打）
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2193#       发表于 2017-10-22 10:39
@@ -8226,7 +8226,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 消耗判定都是在选择以后发生的
 
 
------
+*****
 
 ####  wx98707707  
 ##### 2194#       发表于 2017-10-22 12:23
@@ -8235,7 +8235,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 这活动最不爽的是劵没有用导致体力一溢出就很尴尬了，比如说剩7、8点体力时碎钻就是浪费了，不碎钻又要等时间。
 
 
------
+*****
 
 ####  qw945  
 ##### 2195#       发表于 2017-10-22 13:28
@@ -8246,7 +8246,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 —— 来自 Sony G8142, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-play
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2196#       发表于 2017-10-22 14:17
@@ -8255,7 +8255,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 这分数线太可怕了
 
 
------
+*****
 
 ####  terry666  
 ##### 2197#       发表于 2017-10-22 14:37
@@ -8266,7 +8266,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 这才48个小时左右，就逼近4W了，最后满突静香的分数线20W+是肯定有的
 
 
------
+*****
 
 ####  二月十日  
 ##### 2198#       发表于 2017-10-22 14:42
@@ -8275,7 +8275,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 总之最后一天前囤着99个勇气+顺位在2000以内就没问题了对吧^p^(放弃思考)
 
 
------
+*****
 
 ####  wx98707707  
 ##### 2199#       发表于 2017-10-22 15:22
@@ -8284,7 +8284,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 这活动2000位现在是同期gs的3倍。贴吧已经预测40w了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2200#       发表于 2017-10-22 16:06
@@ -8293,7 +8293,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我就问问拿卡咸鱼线和前几次比估计会不会有一个什么方向的变化吗？
 
 
------
+*****
 
 ####  terry666  
 ##### 2201#       发表于 2017-10-22 16:20
@@ -8305,7 +8305,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 肯定会啊，以前平打要打3W6，不能浪费太多体力的，这次随便上3W6
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2202#       发表于 2017-10-22 16:43
@@ -8316,7 +8316,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 这次活动体力转pt的效率是传统活动几乎两倍，分数绝对值高也是正常
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2203#       发表于 2017-10-22 21:31
@@ -8325,7 +8325,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 对了，问下解包的大佬，后来工会聊天新加的表情有素材了吗？
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2204#       发表于 2017-10-23 00:32
@@ -8336,7 +8336,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">排名靠前ID一堆エンジュ是什么操作
 
 
------
+*****
 
 ####  キラ様  
 ##### 2205#       发表于 2017-10-23 19:01
@@ -8345,7 +8345,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 这次明显打的人比上次多了
 
 
------
+*****
 
 ####  qw945  
 ##### 2206#       发表于 2017-10-24 14:48
@@ -8354,7 +8354,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 后排的分也涨得好猛啊，怕是咸鱼都当不了了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sniper  
 ##### 2207#       发表于 2017-10-24 21:47
@@ -8366,7 +8366,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 券有用的呀……每日歌曲任务的20体力瓶可以用券完成嘛！如果天天打MM做任务，400券还是要攒的。
 
 
------
+*****
 
 ####  朝奈  
 ##### 2208#       发表于 2017-10-25 00:09
@@ -8380,7 +8380,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 感觉10天打个5W躺着打啊......
 
 
------
+*****
 
 ####  qw945  
 ##### 2209#       发表于 2017-10-25 01:06
@@ -8394,7 +8394,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 就是因为躺着五万所以五档咸鱼都不好当了啊<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白川一河  
 ##### 2210#       发表于 2017-10-25 01:20
@@ -8403,7 +8403,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 这次后排的分数感觉也没有之前咸鱼了，明天就要开界王拳了，害怕。。。。。
 
 
------
+*****
 
 ####  Gohnny  
 ##### 2211#       发表于 2017-10-25 10:07
@@ -8412,7 +8412,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 昨天2档速度减缓了点，看来都开始存心了
 
 
------
+*****
 
 ####  wx98707707  
 ##### 2212#       发表于 2017-10-25 14:19
@@ -8421,7 +8421,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 开3倍后活动歌最佳倍率是多少？
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2213#       发表于 2017-10-25 14:22
@@ -8439,7 +8439,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 3、公会活动排位，应该只是显示公会成员历届活动的排名，并不是工会战。
 
 
------
+*****
 
 ####  朝奈  
 ##### 2214#       发表于 2017-10-25 14:41
@@ -8453,7 +8453,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 你叫人怎么算期望......
 
 
------
+*****
 
 ####  terry666  
 ##### 2215#       发表于 2017-10-25 14:50
@@ -8462,7 +8462,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 低难度攒心，然后赌MM难度的4.5倍和5倍就是了，刷到低倍率大不了30体力营业一次再刷新。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2216#       发表于 2017-10-25 14:51
@@ -8472,7 +8472,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 可以看到倍率后再选开不开界王拳吗？
 
 
------
+*****
 
 ####  sniper  
 ##### 2217#       发表于 2017-10-25 15:15
@@ -8485,7 +8485,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  shadowof  
 ##### 2218#       发表于 2017-10-25 19:03
@@ -8502,7 +8502,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 分数线附近会很危险
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2219#       发表于 2017-10-25 19:13
@@ -8513,7 +8513,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 。
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2220#       发表于 2017-10-25 19:15
@@ -8524,7 +8524,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 
 
 
------
+*****
 
 ####  qw945  
 ##### 2221#       发表于 2017-10-25 19:17
@@ -8533,7 +8533,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 会不会再来个99心不给工作，满心N卡自爆流工作狂啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2222#       发表于 2017-10-25 19:28
@@ -8546,7 +8546,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 我反正一档最后两小时前肯定拉开15万再去吃饭洗澡
 
 
------
+*****
 
 ####  terry666  
 ##### 2223#       发表于 2017-10-25 21:44
@@ -8557,7 +8557,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 真正问题是最后一天晚上的时候，爆菊的速度比前面三次活动要快的多，压线的那堆人真杀红了眼稍微松懈一点就GG。
 
 
------
+*****
 
 ####  wx98707707  
 ##### 2224#       发表于 2017-10-25 22:06
@@ -8566,7 +8566,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 上次送了2500最大速度也就1w多，这次估计不到3w
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2225#       发表于 2017-10-26 10:35
@@ -8575,7 +8575,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 感觉开了3倍后上升速度还是比较平稳
 
 
------
+*****
 
 ####  shadowof  
 ##### 2226#       发表于 2017-10-27 11:39
@@ -8586,7 +8586,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 04延期了..
 
 
------
+*****
 
 ####  枫紫  
 ##### 2227#       发表于 2017-10-27 17:51
@@ -8595,7 +8595,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 竟然不是延期到25号
 
 
------
+*****
 
 ####  lostz1991  
 ##### 2228#       发表于 2017-10-28 01:06
@@ -8611,7 +8611,7 @@ SSR卡池候补：志保，亚美，<strong>育，环</strong>
 ID 5RPHLLVR
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2229#       发表于 2017-10-28 16:41
@@ -8620,7 +8620,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">周末档线也没多大动静，感觉很稳
 
 
------
+*****
 
 ####  killcal  
 ##### 2230#       发表于 2017-10-29 09:13
@@ -8629,7 +8629,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">非洲人没法玩，4次3倍
 
 
------
+*****
 
 ####  洋葱葱  
 ##### 2231#       发表于 2017-10-29 10:13
@@ -8638,7 +8638,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">心越清越多了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2232#       发表于 2017-10-29 14:59
@@ -8676,7 +8676,7 @@ ID 5RPHLLVR
 查看全部评分
 
 
------
+*****
 
 ####  nukecole  
 ##### 2233#       发表于 2017-10-29 16:07
@@ -8688,7 +8688,7 @@ ID 5RPHLLVR
 别说3倍了，昨天晚上我第一次知道原来MM难度还有2.5倍的。。。
 
 
------
+*****
 
 ####  枫紫  
 ##### 2234#       发表于 2017-10-29 17:29
@@ -8700,7 +8700,7 @@ ID 5RPHLLVR
 上面那个ロコ展的直播，有点想去<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2235#       发表于 2017-10-29 18:54
@@ -8711,7 +8711,7 @@ ID 5RPHLLVR
 明天星期一，今晚冲的人应该不少，明天一天增长量算他翻个倍，40万应该差不多就够了
 
 
------
+*****
 
 ####  枫紫  
 ##### 2236#       发表于 2017-10-29 22:47
@@ -8720,7 +8720,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你95个勇气明天来得及用么...
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2237#       发表于 2017-10-30 09:58
@@ -8729,7 +8729,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">囤95心真勇啊，不过不求4倍以上直接刷的话应该还算好
 
 
------
+*****
 
 ####  ldenny  
 ##### 2238#       发表于 2017-10-30 10:59
@@ -8740,7 +8740,7 @@ ID 5RPHLLVR
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1
 
 
------
+*****
 
 ####  shadowof  
 ##### 2239#       发表于 2017-10-30 11:03
@@ -8754,7 +8754,7 @@ ID 5RPHLLVR
 <img src="https://i.imgur.com/BirnEhU.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 2240#       发表于 2017-10-30 11:11
@@ -8763,7 +8763,7 @@ ID 5RPHLLVR
 平行世界完结了，以后专心搞土豆了么……
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2241#       发表于 2017-10-30 11:14
@@ -8772,7 +8772,7 @@ ID 5RPHLLVR
 。。。。moba都活得好好的空调厂咋就说倒就倒了，不过空调厂运营的确是傻逼
 
 
------
+*****
 
 ####  hinarin  
 ##### 2242#       发表于 2017-10-30 11:23
@@ -8781,7 +8781,7 @@ ID 5RPHLLVR
 反正土豆的新参也不会去那边 集中资源搞这边的更新了么
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2243#       发表于 2017-10-30 11:25
@@ -8789,7 +8789,7 @@ ID 5RPHLLVR
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  糖醋里脊和果子  
 ##### 2244#       发表于 2017-10-30 11:29
@@ -8801,7 +8801,7 @@ ID 5RPHLLVR
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Gohnny  
 ##### 2245#       发表于 2017-10-30 11:35
@@ -8810,7 +8810,7 @@ ID 5RPHLLVR
 空调号好久没登了，上面的剧情视频不知道网上有没有保存的地方
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2246#       发表于 2017-10-30 11:47
@@ -8819,7 +8819,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">虽然不玩但还是感觉有点伤感，以后土豆多加油吧
 
 
------
+*****
 
 ####  枫紫  
 ##### 2247#       发表于 2017-10-30 11:50
@@ -8828,7 +8828,7 @@ ID 5RPHLLVR
 剧情和卡面好歹有希望继承，那些个人物表情是彻底没了
 
 
------
+*****
 
 ####  矢吹可奈  
 ##### 2248#       发表于 2017-10-30 12:53
@@ -8837,7 +8837,7 @@ ID 5RPHLLVR
 据说空调厂财报很差？（不是greemas是整个空调厂
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2249#       发表于 2017-10-30 13:22
@@ -8845,7 +8845,7 @@ ID 5RPHLLVR
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2250#       发表于 2017-10-30 13:24
@@ -8856,7 +8856,7 @@ ID 5RPHLLVR
 
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2251#       发表于 2017-10-30 13:40
@@ -8866,7 +8866,7 @@ ID 5RPHLLVR
 按bn这作风怕不是新页游一出旧四家直接冷了....
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2252#       发表于 2017-10-30 13:45
@@ -8875,7 +8875,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那个h5平台不就一个试水的东西吗，一个新系列就凭个页游就能抗衡几年的老系列，完全想多了，等着看页游暴死
 
 
------
+*****
 
 ####  hinarin  
 ##### 2253#       发表于 2017-10-30 14:18
@@ -8884,7 +8884,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">美咲酱只给一天休息
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2254#       发表于 2017-10-30 14:45
@@ -8893,7 +8893,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">美咲酱精力旺盛，快受不了了
 
 
------
+*****
 
 ####  不起眼の路人  
 ##### 2255#       发表于 2017-10-30 14:49
@@ -8904,7 +8904,7 @@ ID 5RPHLLVR
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2256#       发表于 2017-10-30 15:04
@@ -8913,7 +8913,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">可怕，ミリコレ都没了，这下可是没人说活动凑数了
 
 
------
+*****
 
 ####  枫紫  
 ##### 2257#       发表于 2017-10-30 15:05
@@ -8922,7 +8922,7 @@ ID 5RPHLLVR
 看了下停更公告，总觉得是在告诉我琴叶语音压根还没录
 
 
------
+*****
 
 ####  枫紫  
 ##### 2258#       发表于 2017-10-30 15:07
@@ -8933,7 +8933,7 @@ ID 5RPHLLVR
 那玩意在月中呢
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2259#       发表于 2017-10-30 15:35
@@ -8945,7 +8945,7 @@ ID 5RPHLLVR
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2260#       发表于 2017-10-30 15:40
@@ -8954,7 +8954,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">啥？后天就新活动？？？不要啊，求求你
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2261#       发表于 2017-10-30 16:41
@@ -8963,7 +8963,7 @@ ID 5RPHLLVR
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">心疼一下你们琴叶P，等到倒闭都没有新的语音
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2262#       发表于 2017-10-30 16:44
@@ -8985,7 +8985,7 @@ gree上周末自己就已经卖股票了
 <img src="https://img.saraba1st.com/forum/201710/30/164225y54xcg4wz4q2pcw5.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2263#       发表于 2017-10-30 18:31
@@ -8997,7 +8997,7 @@ gree上周末自己就已经卖股票了
 这个时间点搞STANDING ALIVE..........
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2264#       发表于 2017-10-30 18:52
@@ -9014,7 +9014,7 @@ gree上周末自己就已经卖股票了
 给BN敲敲警钟也是好事。提醒一下膨胀的上层，不是随便做什么挂个爱马仕牌子用户就无条件买账的，没有新规光靠老害并不能养活一个企划，好好向隔壁CG学吧。
 
 
------
+*****
 
 ####  v2c  
 ##### 2265#       发表于 2017-10-30 22:52
@@ -9026,7 +9026,7 @@ gree上周末自己就已经卖股票了
 这次ML宣布关服就是压死我的最后一根稻草，反正我也自觉是蝗虫玩家，与其看着企划一步步衰落折磨自己还不如趁早弃掉去蝗更有前途的游戏，跟到死也不撒手有一个バトガ就够我受的了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2266#       发表于 2017-10-30 23:30
@@ -9041,7 +9041,7 @@ gree上周末自己就已经卖股票了
 [http://www.e-onkyo.com/music/album/lacm14632a/](http://www.e-onkyo.com/music/album/lacm14632a/)
 
 
------
+*****
 
 ####  qw945  
 ##### 2267#       发表于 2017-10-31 00:54
@@ -9050,7 +9050,7 @@ gree上周末自己就已经卖股票了
 最后关头惨遭爆菊<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">八点前还忘了清剩下的心
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2268#       发表于 2017-10-31 04:36
@@ -9062,7 +9062,7 @@ gree上周末自己就已经卖股票了
 最后一句才是重点吧<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2269#       发表于 2017-10-31 11:29
@@ -9073,7 +9073,7 @@ gree上周末自己就已经卖股票了
 另外 竜宮小町的SSR齐了
 
 
------
+*****
 
 ####  枫紫  
 ##### 2270#       发表于 2017-10-31 12:36
@@ -9082,7 +9082,7 @@ gree上周末自己就已经卖股票了
 亚美的衣服不知道有没有龙宫感
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2271#       发表于 2017-10-31 14:15
@@ -9095,7 +9095,7 @@ gree上周末自己就已经卖股票了
 <strong>11月下旬活动</strong>：Angel新曲，翼上位（伊吹翼、箱崎星梨花、望月杏奈、北上麗花、桜守歌織）
 
 
------
+*****
 
 ####  fw441  
 ##### 2272#       发表于 2017-10-31 14:15
@@ -9110,7 +9110,7 @@ SR可奈也没抽到
 UP都是骗人的
 
 
------
+*****
 
 ####  shadowof  
 ##### 2273#       发表于 2017-10-31 14:16
@@ -9119,7 +9119,7 @@ UP都是骗人的
 志保60连收工
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2274#       发表于 2017-10-31 14:18
@@ -9132,7 +9132,7 @@ UP都是骗人的
 然後活動排名6321位
 
 
------
+*****
 
 ####  hinarin  
 ##### 2275#       发表于 2017-10-31 14:25
@@ -9145,7 +9145,7 @@ UP都是骗人的
 本来做好了和上次美奈子一样リセマラ財布大破的觉悟<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2276#       发表于 2017-10-31 14:32
@@ -9161,7 +9161,7 @@ iTunes1位了
 [https://itunes.apple.com/jp/arti ... 3%82%88/id677315926](https://itunes.apple.com/jp/artist/%E3%83%95%E3%82%A7%E3%82%A2%E3%83%AA%E3%83%BC%E3%82%B9%E3%82%BF%E3%83%BC%E3%82%BA-%E6%9C%80%E4%B8%8A%E9%9D%99%E9%A6%99-cv-%E7%94%B0%E6%89%80%E3%81%82%E3%81%9A%E3%81%95-%E7%99%BD%E7%9F%B3-%E7%B4%AC-cv-%E5%8D%97-%E6%97%A9%E7%B4%80-%E6%89%80-%E6%81%B5%E7%BE%8E-cv-%E8%97%A4%E4%BA%95%E3%82%86%E3%81%8D%E3%82%88/id677315926)
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2277#       发表于 2017-10-31 15:13
@@ -9176,7 +9176,7 @@ SR可奈也没抽到
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">20连3ssr就别嫌up骗人了吧.....
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2278#       发表于 2017-10-31 15:55
@@ -9185,7 +9185,7 @@ SR可奈也没抽到
 20连SSR志保+SR加奈+2SSR石 志保四凸 正好志保vi+静静vi，我的vi蓝队即将成形<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2279#       发表于 2017-10-31 16:15
@@ -9197,7 +9197,7 @@ SR可奈也没抽到
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2280#       发表于 2017-10-31 16:37
@@ -9209,7 +9209,7 @@ SR可奈也没抽到
 
 
 
------
+*****
 
 ####  朝奈  
 ##### 2281#       发表于 2017-10-31 17:16
@@ -9218,7 +9218,7 @@ SR可奈也没抽到
 都说了好好玩自己的游戏为什么要看专楼海豹伤害自己?
 
 
------
+*****
 
 ####  ldenny  
 ##### 2282#       发表于 2017-10-31 17:42
@@ -9229,7 +9229,7 @@ SR可奈也没抽到
 —— 来自 Xiaomi MI 6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1
 
 
------
+*****
 
 ####  terry666  
 ##### 2283#       发表于 2017-10-31 18:07
@@ -9242,7 +9242,7 @@ SR可奈也没抽到
 可惜昨天活动最后一小时网络出问题，整整40分钟登不上游戏，结果36.5W暴死。拿不到FT的白金称号太膈应人了，本来可以给这个月来个完美收尾然后养老的。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不能让 しずしほ的异色上位服装同时上场太遗憾了。
 
 
------
+*****
 
 ####  dystopiaground  
 ##### 2284#       发表于 2017-10-31 18:14
@@ -9250,7 +9250,7 @@ SR可奈也没抽到
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2285#       发表于 2017-10-31 18:37
@@ -9259,7 +9259,7 @@ SR可奈也没抽到
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实我都是为了看新消息及解包来泥潭的，结果每次目害
 
 
------
+*****
 
 ####  糖醋里脊和果子  
 ##### 2286#       发表于 2017-10-31 19:31
@@ -9274,7 +9274,7 @@ SR可奈也没抽到
 一发入魂
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2287#       发表于 2017-10-31 20:13
@@ -9286,7 +9286,7 @@ SR可奈也没抽到
 因为之前好像都是非洲人货，结果现在大家突然上岸了（（（
 
 
------
+*****
 
 ####  白夜羽  
 ##### 2288#       发表于 2017-10-31 20:23
@@ -9298,7 +9298,7 @@ SR可奈也没抽到
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  terry666  
 ##### 2289#       发表于 2017-10-31 21:21
@@ -9309,7 +9309,7 @@ SR可奈也没抽到
 11月 月底限定兔子 恒常本家雪步
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2290#       发表于 2017-10-31 21:53
@@ -9318,7 +9318,7 @@ SR可奈也没抽到
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">楼上消息挺有趣的.....为什么编辑了.....
 
 
------
+*****
 
 ####  terry666  
 ##### 2291#       发表于 2017-10-31 21:57
@@ -9370,7 +9370,7 @@ An  岛原艾蕾娜 野野原茜 马场木实 北上丽花 篠宮可怜
 PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 
 
------
+*****
 
 ####  洋葱葱  
 ##### 2292#       发表于 2017-10-31 22:26
@@ -9379,7 +9379,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">忍不住抽了发十连并没有SSR，继续攒石等bba了
 
 
------
+*****
 
 ####  キラ様  
 ##### 2293#       发表于 2017-10-31 22:43
@@ -9394,7 +9394,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 高手！
 
 
------
+*****
 
 ####  朝奈  
 ##### 2294#       发表于 2017-10-31 23:21
@@ -9413,7 +9413,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 某种程度可以估计本家角色可能实装的顺序(好无聊)
 
 
------
+*****
 
 ####  qw945  
 ##### 2295#       发表于 2017-11-1 13:01
@@ -9422,7 +9422,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 那么美希的实装时间估算大概是什么时候？<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  天涯夹心人  
 ##### 2296#       发表于 2017-11-1 13:46
@@ -9431,7 +9431,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 没想到页游竟然关了，缅怀下以前上班摸鱼玩了半年的时光。
 
 
------
+*****
 
 ####  hinarin  
 ##### 2297#       发表于 2017-11-1 13:55
@@ -9440,7 +9440,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 新参去下了个本家，コミュ还挺有意思，有点可惜
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2298#       发表于 2017-11-1 14:05
@@ -9452,7 +9452,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 明年4月底大概
 
 
------
+*****
 
 ####  qw945  
 ##### 2299#       发表于 2017-11-1 15:15
@@ -9465,7 +9465,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-play
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2300#       发表于 2017-11-1 15:50
@@ -9473,7 +9473,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2301#       发表于 2017-11-1 17:05
@@ -9486,7 +9486,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 应该昨晚来逛一下专楼的，刚把囤的1W5石头抽完（没出志保）<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Gohnny  
 ##### 2302#       发表于 2017-11-1 20:22
@@ -9495,7 +9495,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 4单出志保，最后10连都没跳记者，已经放弃了，结果出了志保，很满足了
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2303#       发表于 2017-11-2 00:04
@@ -9504,7 +9504,7 @@ PS：12轮刚好1年，第二轮估计无缝接周年限定池了。。
 Umi SSR出来前不再抽10连了，攒石头
 
 
------
+*****
 
 ####  斑驳的阴影  
 ##### 2304#       发表于 2017-11-2 10:47
@@ -9515,7 +9515,7 @@ Umi SSR出来前不再抽10连了，攒石头
 更心塞的是开服初期的那批SR唯独只缺千早，气死了
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2305#       发表于 2017-11-2 14:28
@@ -9529,7 +9529,7 @@ Umi SSR出来前不再抽10连了，攒石头
 <img src="http://ww1.sinaimg.cn/large/abbcfc23ly1fl3qald9ruj206001874h.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hinarin  
 ##### 2306#       发表于 2017-11-2 14:38
@@ -9541,7 +9541,7 @@ Umi SSR出来前不再抽10连了，攒石头
 秃了
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2307#       发表于 2017-11-2 16:34
@@ -9549,7 +9549,7 @@ Umi SSR出来前不再抽10连了，攒石头
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  枫紫  
 ##### 2308#       发表于 2017-11-2 16:48
@@ -9558,7 +9558,7 @@ Umi SSR出来前不再抽10连了，攒石头
 喷了，争不起争不起...
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2309#       发表于 2017-11-2 17:23
@@ -9567,7 +9567,7 @@ Umi SSR出来前不再抽10连了，攒石头
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">只能一队5个同样的人物狂刷了
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2310#       发表于 2017-11-2 18:06
@@ -9580,7 +9580,7 @@ Umi SSR出来前不再抽10连了，攒石头
 
 
 
------
+*****
 
 ####  shadowof  
 ##### 2311#       发表于 2017-11-2 18:06
@@ -9635,7 +9635,7 @@ Umi SSR出来前不再抽10连了，攒石头
 発売日：【変更前】2018年3月21日（水）⇒ 【変更後】2018年4月4日（水）
 
 
------
+*****
 
 ####  shadowof  
 ##### 2312#       发表于 2017-11-2 18:08
@@ -9649,7 +9649,7 @@ Umi SSR出来前不再抽10连了，攒石头
 [https://youtu.be/AFVU0iWWzTI](https://youtu.be/AFVU0iWWzTI)
 
 
------
+*****
 
 ####  shadowof  
 ##### 2313#       发表于 2017-11-2 18:38
@@ -9663,7 +9663,7 @@ Umi SSR出来前不再抽10连了，攒石头
 怎么说呢。。。非常アイマス
 
 
------
+*****
 
 ####  洋葱葱  
 ##### 2314#       发表于 2017-11-2 18:46
@@ -9678,7 +9678,7 @@ https://twitter.com/imasml_theater/status/926030967671623681
 评论里的KAIXA笑死<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2315#       发表于 2017-11-2 21:31
@@ -9689,7 +9689,7 @@ https://twitter.com/imasml_theater/status/926030967671623681
 话说灰姑娘里面有没有这种来着？
 
 
------
+*****
 
 ####  shadowof  
 ##### 2316#       发表于 2017-11-2 22:14
@@ -9704,7 +9704,7 @@ LTH组的服装变化
 发光这个也是从無印就有的传统了...LTH当时这套衣服就很有延续本家设计的感觉。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2317#       发表于 2017-11-2 23:00
@@ -9714,7 +9714,7 @@ LTH组的服装变化
 好像ps里面没有那么夸张了？
 
 
------
+*****
 
 ####  枫紫  
 ##### 2318#       发表于 2017-11-2 23:04
@@ -9726,7 +9726,7 @@ LTH组的服装变化
 喷了，全面延期啊，看来是发生了什么啊
 
 
------
+*****
 
 ####  烈之斩  
 ##### 2319#       发表于 2017-11-3 06:46
@@ -9738,7 +9738,7 @@ LTH组的服装变化
 我知道是tilte画面再按一次返回就可以退出，但是虚拟按键的话，每次要退出全屏（否则点不了返回键）得先滑动一下，结果这一滑动就又进游戏去了，十次能成功退出一次<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2320#       发表于 2017-11-3 07:08
@@ -9753,7 +9753,7 @@ LTH组的服装变化
 去设定，那边就有退出选项。cgss同理
 
 
------
+*****
 
 ####  烈之斩  
 ##### 2321#       发表于 2017-11-3 09:13
@@ -9765,7 +9765,7 @@ LTH组的服装变化
 设定里只有回title吧…
 
 
------
+*****
 
 ####  shadowof  
 ##### 2322#       发表于 2017-11-3 09:37
@@ -9777,7 +9777,7 @@ LTH组的服装变化
 说好的SSR呢，到现在ロコ还是只有R，虽然有メインコミュ...
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2323#       发表于 2017-11-3 10:13
@@ -9786,7 +9786,7 @@ LTH组的服装变化
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">花式暗示roco，就是不出SSR
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2324#       发表于 2017-11-3 10:19
@@ -9795,7 +9795,7 @@ LTH组的服装变化
 ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月过去了还是没实装 运营的套路看不透<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sniper  
 ##### 2325#       发表于 2017-11-3 11:34
@@ -9804,7 +9804,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 光和辉……真成了美丽秃头了<img src="https://static.saraba1st.com/image/smiley/face/106.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2326#       发表于 2017-11-3 17:01
@@ -9813,7 +9813,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 好友里看见了SS级200级+ 紬辉头衔的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2327#       发表于 2017-11-4 19:19
@@ -9822,7 +9822,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这次活动真的是完全不想打
 
 
------
+*****
 
 ####  キラ様  
 ##### 2328#       发表于 2017-11-5 19:39
@@ -9834,7 +9834,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 球解析大大神解包<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2329#       发表于 2017-11-5 22:07
@@ -9849,7 +9849,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 应该只是活动4倍而已，有其他资料就等ls那位大佬那
 
 
------
+*****
 
 ####  a4840639  
 ##### 2330#       发表于 2017-11-6 12:24
@@ -9858,7 +9858,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 这新界面简直蠢爆了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2331#       发表于 2017-11-6 12:57
@@ -9867,7 +9867,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 工会好像可以升级扩容了？
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2332#       发表于 2017-11-6 14:11
@@ -9876,7 +9876,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 设计这UI的该拖出去毙了，切个房间都还要点个箭头才能点，智障吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2333#       发表于 2017-11-6 15:40
@@ -9885,7 +9885,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">介绍能显示服装数那个图片里百合子的衣服数是6，是不是在暗示什么
 
 
------
+*****
 
 ####  shadowof  
 ##### 2334#       发表于 2017-11-6 15:52
@@ -9899,7 +9899,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 现在静香和志保也都是6
 
 
------
+*****
 
 ####  枫紫  
 ##### 2335#       发表于 2017-11-6 16:06
@@ -9910,7 +9910,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 默认，序章红，限定和活动的正反色
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2336#       发表于 2017-11-6 16:07
@@ -9922,7 +9922,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 算上ssr四破和活动四破就是6件啊，志保和静静也是6件，不久的将来小翅膀和未来也是6件了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2337#       发表于 2017-11-6 16:08
@@ -9934,7 +9934,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">哦，丢人了，忘记2P色算一件
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2338#       发表于 2017-11-6 18:13
@@ -9951,7 +9951,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 每天摸小人这么高频的操作，这设计师应该就地打死，就不能直接双指滑动切换房间吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2339#       发表于 2017-11-6 18:36
@@ -9960,7 +9960,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这波更新唯一加强的只有打工速度，也就是花钱碎石更快了（
 
 
------
+*****
 
 ####  朝奈  
 ##### 2340#       发表于 2017-11-6 18:38
@@ -9971,7 +9971,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 
 
 
------
+*****
 
 ####  shadowof  
 ##### 2341#       发表于 2017-11-6 19:24
@@ -9982,7 +9982,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 工作的正确选项眼看着越刷越高了。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2342#       发表于 2017-11-6 19:33
@@ -9991,7 +9991,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 什么时候加模型鉴赏啊.....隔壁都有拍照小屋了........
 
 
------
+*****
 
 ####  killcal  
 ##### 2343#       发表于 2017-11-6 19:38
@@ -10000,7 +10000,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 这次活动怎么感觉分不高？
 
 
------
+*****
 
 ####  hinarin  
 ##### 2344#       发表于 2017-11-6 20:10
@@ -10009,7 +10009,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">怕是不会超过ぐっすり
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2345#       发表于 2017-11-6 20:58
@@ -10024,7 +10024,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 5步变6步，可以的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zeroed  
 ##### 2346#       发表于 2017-11-6 23:28
@@ -10033,7 +10033,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">昨天看到官托单抽出志保，我看着推特单抽个azusa，今天又看着那条推特单抽一发出了个金鱼，志保马上要来了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2347#       发表于 2017-11-7 00:00
@@ -10044,7 +10044,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">谢大佬，看了你这贴单抽出了爱美....
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2348#       发表于 2017-11-7 01:13
@@ -10053,7 +10053,7 @@ ROCO的SSR语音和剧情数据从开服那天就装在客户端里了 四个月
 standing alive从左到右怎么放人才是正确的?
 
 
------
+*****
 
 ####  shadowof  
 ##### 2349#       发表于 2017-11-7 02:19
@@ -10076,7 +10076,7 @@ standing alive从左到右怎么放人才是正确的?</blockquote>
 故意这样设计的
 
 
------
+*****
 
 ####  shadowof  
 ##### 2350#       发表于 2017-11-7 02:25
@@ -10094,7 +10094,7 @@ GREE那边宣布停更以后，ミリシタ第二天宣布event STANDING ALIVE
 歌词很有效果。
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2351#       发表于 2017-11-7 13:25
@@ -10103,7 +10103,7 @@ GREE那边宣布停更以后，ミリシタ第二天宣布event STANDING ALIVE
 是帧数变高了还是模型分辨率变高了，感觉比以前的看着舒服很多
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2352#       发表于 2017-11-7 18:54
@@ -10112,7 +10112,7 @@ GREE那边宣布停更以后，ミリシタ第二天宣布event STANDING ALIVE
 hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qw945  
 ##### 2353#       发表于 2017-11-7 20:54
@@ -10123,7 +10123,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-play
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2354#       发表于 2017-11-8 01:54
@@ -10132,7 +10132,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">终于在100体力之前把prologue rouge收齐了,什么时候实装grateful blue
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2355#       发表于 2017-11-8 15:10
@@ -10144,7 +10144,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 晕，数了一下，为什么我100体衣服还差7件 T T
 
 
------
+*****
 
 ####  qw945  
 ##### 2356#       发表于 2017-11-8 16:42
@@ -10157,7 +10157,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-play
 
 
------
+*****
 
 ####  キラ様  
 ##### 2357#       发表于 2017-11-8 19:14
@@ -10166,7 +10166,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 101差12件。。。
 
 
------
+*****
 
 ####  shadowof  
 ##### 2358#       发表于 2017-11-8 22:19
@@ -10177,7 +10177,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 顺便打开万年没看的同僚申请，估计申请太多怎刷都超时进不去<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  烈之斩  
 ##### 2359#       发表于 2017-11-9 09:36
@@ -10186,7 +10186,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 活动不是早上六点结束么，为啥还能打
 
 
------
+*****
 
 ####  キラ様  
 ##### 2360#       发表于 2017-11-9 10:32
@@ -10195,7 +10195,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 楼上是海外党吧，今晚九点结束，jst
 
 
------
+*****
 
 ####  烈之斩  
 ##### 2361#       发表于 2017-11-9 12:34
@@ -10207,7 +10207,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 原来显示的是当地时间。。我脑内转换了一下<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2362#       发表于 2017-11-9 20:11
@@ -10218,7 +10218,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 果然还是至少得拉开两小时的最大风速
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2363#       发表于 2017-11-10 11:12
@@ -10230,7 +10230,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 11月确定SSR：环，育，【雪步，杏奈】。后续SSR：纱代子，步，奈绪
 
 
------
+*****
 
 ####  shadowof  
 ##### 2364#       发表于 2017-11-10 11:21
@@ -10251,7 +10251,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 和ぐっすり一样，最后blog的图CD封面站位。
 
 
------
+*****
 
 ####  SchwarzX  
 ##### 2365#       发表于 2017-11-10 11:34
@@ -10260,7 +10260,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 郁闷了，活动结算的界面和主页的活动窗口又消失。有啥方法可以解决<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kohos  
 ##### 2366#       发表于 2017-11-10 12:02
@@ -10269,7 +10269,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 重启游戏或者换个好代理
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2367#       发表于 2017-11-10 14:01
@@ -10278,7 +10278,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">奈绪要来了，既兴奋又害怕
 
 
------
+*****
 
 ####  shadowof  
 ##### 2368#       发表于 2017-11-10 14:12
@@ -10297,7 +10297,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 全连的数字是417(しいな)
 
 
------
+*****
 
 ####  枫紫  
 ##### 2369#       发表于 2017-11-10 14:34
@@ -10310,7 +10310,7 @@ hhhhhhhhhhhhhhhhhhhh实装黑井的登入语言hhhhhhhhhhhhhhhhhhh怎能怎么�
 恭喜。100位的战况真可怕……
 
 
------
+*****
 
 ####  Gohnny  
 ##### 2370#       发表于 2017-11-10 15:08
@@ -10321,7 +10321,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2371#       发表于 2017-11-10 15:26
@@ -10331,7 +10331,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 我特么中午看还一万名左右，晚上清完下线，今天一看爆出两万名了.....
 
 
------
+*****
 
 ####  shadowof  
 ##### 2372#       发表于 2017-11-10 19:01
@@ -10345,7 +10345,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 月底属性曲的活动随时随地都能靠砸钱无脑工作达到最大风速，有钱就能当ポチポチゲー刷，最后阶段存东西也拉不开大差距。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2373#       发表于 2017-11-10 19:31
@@ -10354,7 +10354,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 新剧情喷了.....天才下田个人show啊这是......
 
 
------
+*****
 
 ####  zeroed  
 ##### 2374#       发表于 2017-11-10 23:39
@@ -10363,7 +10363,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">群里看见别人晒志保，我也一发单抽出个美也，官托推特还是有用
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2375#       发表于 2017-11-11 00:50
@@ -10372,7 +10372,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 一井了,还是没保
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2376#       发表于 2017-11-11 00:57
@@ -10381,7 +10381,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">可怕....然而这边没有井....我还是继续屯石吧....
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2377#       发表于 2017-11-11 03:18
@@ -10390,7 +10390,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 一井是多少？
 
 
------
+*****
 
 ####  terry666  
 ##### 2378#       发表于 2017-11-11 08:19
@@ -10401,7 +10401,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 300抽
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2379#       发表于 2017-11-11 11:02
@@ -10412,7 +10412,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 瑟瑟发抖……
 
 
------
+*****
 
 ####  shadowof  
 ##### 2380#       发表于 2017-11-11 14:24
@@ -10423,7 +10423,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 这帮人的预测真不靠谱
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2381#       发表于 2017-11-11 23:36
@@ -10432,7 +10432,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 第二次硬币出ssr，然而是old <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2382#       发表于 2017-11-13 02:27
@@ -10443,7 +10443,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 400级
 
 
------
+*****
 
 ####  キラ様  
 ##### 2383#       发表于 2017-11-13 08:28
@@ -10452,7 +10452,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 400级有多少体力啊。。
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2384#       发表于 2017-11-13 08:34
@@ -10464,7 +10464,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 182
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2385#       发表于 2017-11-13 09:21
@@ -10474,7 +10474,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 突然感觉这游戏不咸了....
 
 
------
+*****
 
 ####  qw945  
 ##### 2386#       发表于 2017-11-13 11:30
@@ -10485,7 +10485,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 —— 来自 Sony G8142, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-play
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2387#       发表于 2017-11-13 14:28
@@ -10520,7 +10520,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 <img src="https://img.saraba1st.com/forum/201711/13/142748x9xk3mudcc73i6m6.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  bwjx88  
 ##### 2388#       发表于 2017-11-14 03:58
@@ -10529,7 +10529,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 我抽了320抽才抽到保 前110抽 1ssr
 
 
------
+*****
 
 ####  shadowof  
 ##### 2389#       发表于 2017-11-15 16:25
@@ -10540,7 +10540,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 之前截图活动的结果
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2390#       发表于 2017-11-15 16:48
@@ -10549,7 +10549,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">缺德图是不可能上榜的
 
 
------
+*****
 
 ####  shadowof  
 ##### 2391#       发表于 2017-11-15 16:53
@@ -10558,7 +10558,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 高跟鞋うみみ走法那张喷了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2392#       发表于 2017-11-15 17:10
@@ -10578,7 +10578,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 其他还有一堆加快演出的短信有分类查询了
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2393#       发表于 2017-11-15 18:12
@@ -10587,7 +10587,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">可以放大平移看白板了
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2394#       发表于 2017-11-15 18:14
@@ -10596,7 +10596,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 这UI设计师果然该砍了，上面宁愿空一格也不愿意右移是什么心态<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  キラ様  
 ##### 2395#       发表于 2017-11-15 18:39
@@ -10605,7 +10605,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 麻辣土豆天下第一！
 
 
------
+*****
 
 ####  fw441  
 ##### 2396#       发表于 2017-11-15 22:26
@@ -10614,7 +10614,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">这个UI给我做都不会这么烂。。。
 
 
------
+*****
 
 ####  qw945  
 ##### 2397#       发表于 2017-11-16 00:28
@@ -10623,7 +10623,7 @@ Happy Darling<img src="https://static.saraba1st.com/image/smiley/face2017/077.pn
 看来下周还得更新UI<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2398#       发表于 2017-11-16 18:45
@@ -10641,7 +10641,7 @@ MS04うみみ和杏奈的试听
 开幕就笑喷了<img src="https://i.imgur.com/Cw7ZJSd.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2399#       发表于 2017-11-16 19:33
@@ -10650,7 +10650,7 @@ MS04うみみ和杏奈的试听
 <img src="https://i.imgur.com/Pb8pRic.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 2400#       发表于 2017-11-16 21:27
@@ -10661,7 +10661,7 @@ MS04うみみ和杏奈的试听
 
 
 
------
+*****
 
 ####  shadowof  
 ##### 2401#       发表于 2017-11-16 21:43
@@ -10676,7 +10676,7 @@ Angelic Parade♪
 生放送渣画质
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2402#       发表于 2017-11-17 00:53
@@ -10685,7 +10685,7 @@ Angelic Parade♪
 新曲非常的霹雳Q娃…
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2403#       发表于 2017-11-17 02:04
@@ -10694,7 +10694,7 @@ Angelic Parade♪
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这新曲试听太屌了,无缝接pv
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2404#       发表于 2017-11-17 11:11
@@ -10703,7 +10703,7 @@ Angelic Parade♪
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">昨晚生放来着？忘记看了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2405#       发表于 2017-11-20 14:58
@@ -10718,7 +10718,7 @@ Angelic Parade♪
 明天开始又要猛刷工作，多了点乐趣。
 
 
------
+*****
 
 ####  fw441  
 ##### 2406#       发表于 2017-11-21 14:14
@@ -10727,7 +10727,7 @@ Angelic Parade♪
 不得不说 这次的改动让人看到了希望
 
 
------
+*****
 
 ####  shadowof  
 ##### 2407#       发表于 2017-11-21 14:52
@@ -10736,7 +10736,7 @@ Angelic Parade♪
 不算时间，直接一直MM的live就可以最大效率了，累积到40出5倍还可以直接消费两个物品。下次这活动再修改倍率设定直接改没得了。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2408#       发表于 2017-11-21 14:54
@@ -10746,7 +10746,7 @@ Angelic Parade♪
 不能平刷穿奖了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2409#       发表于 2017-11-21 15:19
@@ -10758,7 +10758,7 @@ Angelic Parade♪
 <img src="https://i.imgur.com/0NUQmzd.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2410#       发表于 2017-11-21 15:24
@@ -10767,7 +10767,7 @@ Angelic Parade♪
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就是说这次活动正常刷就行吧
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2411#       发表于 2017-11-21 17:53
@@ -10776,7 +10776,7 @@ Angelic Parade♪
 话说这次更新了100多兆，有什么新内容吗？
 
 
------
+*****
 
 ####  qw945  
 ##### 2412#       发表于 2017-11-21 19:24
@@ -10785,7 +10785,7 @@ Angelic Parade♪
 刷着刷着出来一个5.0倍确定<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">改动后直接平刷了吧
 
 
------
+*****
 
 ####  Chia  
 ##### 2413#       发表于 2017-11-21 20:13
@@ -10795,7 +10795,7 @@ Angelic Parade♪
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">给我界王拳啊
 
 
------
+*****
 
 ####  shadowof  
 ##### 2414#       发表于 2017-11-22 16:56
@@ -10815,7 +10815,7 @@ Angelic Parade♪
 又试了试，那个分数区间应该是按歌曲完成时的评价给的，S评价应该都是给最大值。工作的话只有出CHANCE的时候才能到最大值
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2415#       发表于 2017-11-22 23:41
@@ -10824,7 +10824,7 @@ Angelic Parade♪
 虹色ミラクル Ready Change和另外两首未知曲目已经进入数据中
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2416#       发表于 2017-11-22 23:42
@@ -10833,7 +10833,7 @@ Angelic Parade♪
 未知曲应该有一首是红队的活动原创曲吧？
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2417#       发表于 2017-11-23 00:37
@@ -10867,7 +10867,7 @@ Angelic Parade♪
 ⑨不是很可信的一条：Pr tour之后的传统活动是リコッタ SR是arisa和桃子
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2418#       发表于 2017-11-23 09:52
@@ -10876,7 +10876,7 @@ Angelic Parade♪
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这次活动曲是越听越好听的类型啊，初听感觉挺一般的，多听了几次感觉曲调真棒
 
 
------
+*****
 
 ####  枫紫  
 ##### 2419#       发表于 2017-11-23 09:54
@@ -10885,7 +10885,7 @@ Angelic Parade♪
 工会币么，可以，就是再想要些两个页游都有的buff系功能
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2420#       发表于 2017-11-23 09:54
@@ -10896,7 +10896,7 @@ Angelic Parade♪
 +1，开头小翅膀唱的那几句真好听.....
 
 
------
+*****
 
 ####  しろの舞  
 ##### 2421#       发表于 2017-11-23 11:09
@@ -10907,7 +10907,7 @@ Angelic Parade♪
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  不起眼の路人  
 ##### 2422#       发表于 2017-11-23 11:52
@@ -10918,7 +10918,7 @@ Angelic Parade♪
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2423#       发表于 2017-11-23 12:04
@@ -10933,7 +10933,7 @@ Angelic Parade♪
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">从左往右，兔子 歌织 小翅膀 丽花 女儿 
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2424#       发表于 2017-11-23 13:43
@@ -10941,7 +10941,7 @@ Angelic Parade♪
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  枫紫  
 ##### 2425#       发表于 2017-11-23 15:42
@@ -10952,7 +10952,7 @@ Angelic Parade♪
 我怀疑你在说happy darling
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2426#       发表于 2017-11-23 16:46
@@ -10966,7 +10966,7 @@ Angelic Parade♪
 这个画面本身就很恶心了好吧
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2427#       发表于 2017-11-23 18:51
@@ -11047,7 +11047,7 @@ Angelic Parade♪
 2017-11-23 18:50 上传
 
 
------
+*****
 
 ####  枫紫  
 ##### 2428#       发表于 2017-11-23 19:55
@@ -11056,7 +11056,7 @@ Angelic Parade♪
 完美还原安全裤
 
 
------
+*****
 
 ####  shadowof  
 ##### 2429#       发表于 2017-11-23 20:22
@@ -11079,7 +11079,7 @@ MS04试听和4th第三天的ダイジェスト出了
 想想ミリシタ第一个见光的3D建模，现在还没实装。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2430#       发表于 2017-11-23 21:25
@@ -11092,7 +11092,7 @@ MS04试听和4th第三天的ダイジェスト出了
 
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2431#       发表于 2017-11-23 21:50
@@ -11105,7 +11105,7 @@ MS04试听和4th第三天的ダイジェスト出了
 种田之前还参加了点兔和射爆船。时间问题。
 
 
------
+*****
 
 ####  枫紫  
 ##### 2432#       发表于 2017-11-23 23:06
@@ -11114,7 +11114,7 @@ MS04试听和4th第三天的ダイジェスト出了
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">今年不指望了，明年5th之前给我实装就好，恩
 
 
------
+*****
 
 ####  しろの舞  
 ##### 2433#       发表于 2017-11-23 23:18
@@ -11123,7 +11123,7 @@ MS04试听和4th第三天的ダイジェスト出了
 SSA39人应该会齐吧
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2434#       发表于 2017-11-24 08:57
@@ -11132,7 +11132,7 @@ SSA39人应该会齐吧
 在骏河屋买二手场刊靠谱么？
 
 
------
+*****
 
 ####  Renes  
 ##### 2435#       发表于 2017-11-25 18:48
@@ -11141,7 +11141,7 @@ SSA39人应该会齐吧
 双倍活动PT 双倍进步度 很好 很好 
 
 
------
+*****
 
 ####  shadowof  
 ##### 2436#       发表于 2017-11-27 16:59
@@ -11166,7 +11166,7 @@ BC1卷
 <img src="https://i.imgur.com/U8oU4pv.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2437#       发表于 2017-11-28 00:00
@@ -11182,7 +11182,7 @@ BC1卷</blockquote>
 先買本一般版好了
 
 
------
+*****
 
 ####  shuigua  
 ##### 2438#       发表于 2017-11-28 11:25
@@ -11191,7 +11191,7 @@ BC1卷</blockquote>
 mltd打得快肝硬化了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  返魂蝶  
 ##### 2439#       发表于 2017-11-28 19:05
@@ -11200,7 +11200,7 @@ mltd打得快肝硬化了<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">这次最后两天还是工作日，涨幅太不正常了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2440#       发表于 2017-11-28 19:16
@@ -11216,7 +11216,7 @@ mltd打得快肝硬化了<img src="https://static.saraba1st.com/image/smiley/fac
 22万酱油个2000线
 
 
------
+*****
 
 ####  nukecole  
 ##### 2441#       发表于 2017-11-28 20:05
@@ -11225,7 +11225,7 @@ mltd打得快肝硬化了<img src="https://static.saraba1st.com/image/smiley/fac
 7W1。。。不知道有没有被踢出5000线。。
 
 
------
+*****
 
 ####  croix  
 ##### 2442#       发表于 2017-11-28 21:37
@@ -11233,7 +11233,7 @@ mltd打得快肝硬化了<img src="https://static.saraba1st.com/image/smiley/fac
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2443#       发表于 2017-11-29 11:08
@@ -11242,7 +11242,7 @@ mltd打得快肝硬化了<img src="https://static.saraba1st.com/image/smiley/fac
 showtime前辈复活啦
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2444#       发表于 2017-11-29 11:25
@@ -11251,7 +11251,7 @@ showtime前辈复活啦
 崩了！最近工作太忙没什么时间刷活动，就打到30562，结果5W线30620<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不起眼の路人  
 ##### 2445#       发表于 2017-11-29 12:07
@@ -11262,7 +11262,7 @@ showtime前辈复活啦
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2446#       发表于 2017-11-29 12:11
@@ -11271,7 +11271,7 @@ showtime前辈复活啦
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">运营：失去过showtime，你们才懂得珍惜
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2447#       发表于 2017-11-29 13:32
@@ -11280,7 +11280,7 @@ showtime前辈复活啦
 然而showtime就3天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shuigua  
 ##### 2448#       发表于 2017-11-29 16:54
@@ -11291,7 +11291,7 @@ showtime前辈复活啦
 能简单介绍下吗？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2449#       发表于 2017-11-29 20:06
@@ -11305,7 +11305,7 @@ showtime前辈复活啦
 开服初期打道具的凑数活动
 
 
------
+*****
 
 ####  枫紫  
 ##### 2450#       发表于 2017-11-29 21:36
@@ -11322,7 +11322,7 @@ showtime前辈复活啦
 然后开服最开始的7月这样的东西被当做活动出现了两次，直到10月才消失
 
 
------
+*****
 
 ####  shadowof  
 ##### 2451#       发表于 2017-11-29 23:15
@@ -11336,7 +11336,7 @@ Angelic Parade♪ 先行配信来了
 [http://www.e-onkyo.com/music/album/lacm14633a/](http://www.e-onkyo.com/music/album/lacm14633a/)
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2452#       发表于 2017-11-29 23:54
@@ -11346,7 +11346,7 @@ Angelic Parade♪ 先行配信来了
 明明上一曲不要童话还有来着
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2453#       发表于 2017-11-30 05:33
@@ -11355,7 +11355,7 @@ Angelic Parade♪ 先行配信来了
 终于能休息了都快精尽人亡了。。。。。什么？才3天，美咲你的体力太充沛了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2454#       发表于 2017-11-30 10:43
@@ -11364,7 +11364,7 @@ Angelic Parade♪ 先行配信来了
 哎，すき家的碗落了，还是挺想要的来着
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2455#       发表于 2017-11-30 11:08
@@ -11373,7 +11373,7 @@ Angelic Parade♪ 先行配信来了
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">提前一个月过圣诞了
 
 
------
+*****
 
 ####  不起眼の路人  
 ##### 2456#       发表于 2017-11-30 11:12
@@ -11384,7 +11384,7 @@ Angelic Parade♪ 先行配信来了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2457#       发表于 2017-11-30 13:02
@@ -11393,7 +11393,7 @@ Angelic Parade♪ 先行配信来了
 啊，兔子来了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2458#       发表于 2017-11-30 14:06
@@ -11403,7 +11403,7 @@ Angelic Parade♪ 先行配信来了
 <img src="https://i.imgur.com/vrMf3gZ.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2459#       发表于 2017-11-30 14:08
@@ -11418,7 +11418,7 @@ Angelic Parade♪ 先行配信来了
 后续SSR：紬（第二张），歌織（第二张），昴
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2460#       发表于 2017-11-30 14:26
@@ -11431,7 +11431,7 @@ Angelic Parade♪ 先行配信来了
 
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2461#       发表于 2017-11-30 14:29
@@ -11440,7 +11440,7 @@ Angelic Parade♪ 先行配信来了
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">新人才是亲女儿
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2462#       发表于 2017-11-30 14:48
@@ -11449,7 +11449,7 @@ Angelic Parade♪ 先行配信来了
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">新年卡池72+奈绪！氪踏马的！
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2463#       发表于 2017-11-30 15:08
@@ -11458,7 +11458,7 @@ Angelic Parade♪ 先行配信来了
 爆死爆死，你游的up从来没有正常运行过
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2464#       发表于 2017-11-30 15:32
@@ -11467,7 +11467,7 @@ Angelic Parade♪ 先行配信来了
 2个多月没出货今天总算听到响了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2465#       发表于 2017-11-30 15:38
@@ -11476,7 +11476,7 @@ Angelic Parade♪ 先行配信来了
 72终于要上了
 
 
------
+*****
 
 ####  Gohnny  
 ##### 2466#       发表于 2017-11-30 17:04
@@ -11485,7 +11485,7 @@ Angelic Parade♪ 先行配信来了
 碎片加2，还是攒钻肝未来吧
 
 
------
+*****
 
 ####  hinarin  
 ##### 2467#       发表于 2017-11-30 18:38
@@ -11496,7 +11496,7 @@ Angelic Parade♪ 先行配信来了
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2468#       发表于 2017-11-30 19:08
@@ -11506,7 +11506,7 @@ Angelic Parade♪ 先行配信来了
 <img src="http://wx3.sinaimg.cn/mw690/9dc2e85fgy1fm0bgseanhj20sg0lc1kx.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2469#       发表于 2017-11-30 19:44
@@ -11515,7 +11515,7 @@ Angelic Parade♪ 先行配信来了
 guna，当期up双黄海豹怎么这么多<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2470#       发表于 2017-11-30 19:49
@@ -11524,7 +11524,7 @@ guna，当期up双黄海豹怎么这么多<img src="https://static.saraba1st.com
 每次一出新池....楼内外就充满了欧洲人的体味......
 
 
------
+*****
 
 ####  枫紫  
 ##### 2471#       发表于 2017-11-30 20:00
@@ -11533,7 +11533,7 @@ guna，当期up双黄海豹怎么这么多<img src="https://static.saraba1st.com
 惯例的月底豹跳时间
 
 
------
+*****
 
 ####  吉诺爱比利  
 ##### 2472#       发表于 2017-11-30 20:46
@@ -11542,7 +11542,7 @@ guna，当期up双黄海豹怎么这么多<img src="https://static.saraba1st.com
 日哦，圣诞没过成就不该进这楼的
 
 
------
+*****
 
 ####  chri  
 ##### 2473#       发表于 2017-11-30 21:09
@@ -11592,7 +11592,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 查看全部评分
 
 
------
+*****
 
 ####  shadowof  
 ##### 2474#       发表于 2017-12-1 11:09
@@ -11603,7 +11603,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 走马灯
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2475#       发表于 2017-12-1 14:19
@@ -11614,7 +11614,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 说起来最后那段看到琴叶的模型了，不知道啥时候回归
 
 
------
+*****
 
 ####  shadowof  
 ##### 2476#       发表于 2017-12-1 17:09
@@ -11624,7 +11624,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 [http://live.nicovideo.jp/watch/lv309117784](http://live.nicovideo.jp/watch/lv309117784)
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2477#       发表于 2017-12-1 17:22
@@ -11633,7 +11633,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">恭喜top5
 
 
------
+*****
 
 ####  枫紫  
 ##### 2478#       发表于 2017-12-2 10:39
@@ -11648,7 +11648,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 这就第二轮了的话怕不是fes或者限定要来了，信号灯3个都有第二件衣服，所以给两个新人（加阁下？）第二件衣服
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2479#       发表于 2017-12-2 10:58
@@ -11657,7 +11657,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 真来fes还行，概率翻倍的话把囤的石抽一波
 
 
------
+*****
 
 ####  shadowof  
 ##### 2480#       发表于 2017-12-4 11:17
@@ -11668,7 +11668,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 <img src="https://i.imgur.com/ZYBtJqU.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2481#       发表于 2017-12-4 15:21
@@ -11677,7 +11677,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">连着三个活动都是黄组的歌
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2482#       发表于 2017-12-4 15:37
@@ -11686,7 +11686,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 连着三个都是黄曲，这次上位又是vo偏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">已经不懂了
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2483#       发表于 2017-12-6 14:23
@@ -11705,7 +11705,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 终于搞定了roco，一段时间不用凹FC了（摊
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2484#       发表于 2017-12-6 23:38
@@ -11714,7 +11714,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">单抽跳了摄影师，结果是sr.....伤心
 
 
------
+*****
 
 ####  fw441  
 ##### 2485#       发表于 2017-12-7 00:56
@@ -11726,7 +11726,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 平均3天跳一个SR的我表示看到摄影师已经内心毫无波动了...
 
 
------
+*****
 
 ####  shadowof  
 ##### 2486#       发表于 2017-12-10 22:01
@@ -11737,7 +11737,7 @@ ff017ccec3fdfc03ff2eb708dd3f8794a5c2262d.jpg
 FC的分差上下也太激烈了
 
 
------
+*****
 
 ####  枫紫  
 ##### 2487#       发表于 2017-12-10 22:41
@@ -11746,7 +11746,7 @@ FC的分差上下也太激烈了
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">毕竟这次歌不难，纯粹拼氪力了
 
 
------
+*****
 
 ####  Fingest  
 ##### 2488#       发表于 2017-12-12 11:25
@@ -11755,7 +11755,7 @@ FC的分差上下也太激烈了
 虽然昨晚结束就已经有预感的，但是看到20xx还是挺shock的<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2489#       发表于 2017-12-12 11:43
@@ -11766,7 +11766,7 @@ FC的分差上下也太激烈了
 マスピ不够用来凸下次的pr了
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2490#       发表于 2017-12-12 11:56
@@ -11779,7 +11779,7 @@ FC的分差上下也太激烈了
 
 
 
------
+*****
 
 ####  shadowof  
 ##### 2491#       发表于 2017-12-12 12:10
@@ -11787,7 +11787,7 @@ FC的分差上下也太激烈了
 提示: 该帖被管理员或版主屏蔽
 
 
------
+*****
 
 ####  不起眼の路人  
 ##### 2492#       发表于 2017-12-12 13:29
@@ -11798,7 +11798,7 @@ FC的分差上下也太激烈了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  shadowof  
 ##### 2493#       发表于 2017-12-12 14:13
@@ -11810,7 +11810,7 @@ FC的分差上下也太激烈了
 <img src="https://i.imgur.com/UpTH7HV.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2494#       发表于 2017-12-12 14:23
@@ -11819,7 +11819,7 @@ FC的分差上下也太激烈了
 从剧场版→新的漫画→可奈剧情，居然每次都看的津津有味，难道我其实是隐性的カナシホ党<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2495#       发表于 2017-12-12 15:00
@@ -11830,7 +11830,7 @@ FC的分差上下也太激烈了
 这边今天也没什么新解包情报吗？
 
 
------
+*****
 
 ####  枫紫  
 ##### 2496#       发表于 2017-12-12 22:14
@@ -11838,7 +11838,7 @@ FC的分差上下也太激烈了
 提示: 该帖被管理员或版主屏蔽
 
 
------
+*****
 
 ####  shadowof  
 ##### 2497#       发表于 2017-12-12 23:23
@@ -11853,7 +11853,7 @@ FC的分差上下也太激烈了
 目前流通那边放出来的信息是到07为止的，08的人选是直接把最后还没参加的角色加进去的推测，不出意外的话应该就是这样了。
 
 
------
+*****
 
 ####  枫紫  
 ##### 2498#       发表于 2017-12-13 00:00
@@ -11862,7 +11862,7 @@ FC的分差上下也太激烈了
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">惠美不在08啊，过分，还想吃糖的...08最后可能让美咲也唱一下吧
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2499#       发表于 2017-12-13 14:34
@@ -11894,7 +11894,7 @@ FC的分差上下也太激烈了
 亚利沙 桃子 律子 木下 志保 千鹤 响 朋花 马场 春香
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2500#       发表于 2017-12-13 14:40
@@ -11909,7 +11909,7 @@ FC的分差上下也太激烈了
 后续SSR：紬２ 昴 歌織２ 可憐
 
 
------
+*****
 
 ####  shadowof  
 ##### 2501#       发表于 2017-12-14 13:25
@@ -11930,7 +11930,7 @@ N卡4凸原来也有特殊语音。，。强迫症又有事做了。。
 菜单的美咲也能动，其他地方的还是静止的。。
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2502#       发表于 2017-12-14 13:41
@@ -11949,7 +11949,7 @@ N卡4凸原来也有特殊语音。，。强迫症又有事做了。。
 亮点自寻 
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2503#       发表于 2017-12-14 13:51
@@ -11958,7 +11958,7 @@ N卡4凸原来也有特殊语音。，。强迫症又有事做了。。
 <img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">一眼看到个fes石
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2504#       发表于 2017-12-14 13:58
@@ -11966,7 +11966,7 @@ N卡4凸原来也有特殊语音。，。强迫症又有事做了。。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2505#       发表于 2017-12-14 14:22
@@ -11989,7 +11989,7 @@ N卡4凸原来也有特殊语音。，。强迫症又有事做了。。
 4、新卡标签“FES”，只能用FES强化石，估计会对应两名新人的第二张SSR。
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2506#       发表于 2017-12-14 17:33
@@ -11998,7 +11998,7 @@ N卡4凸原来也有特殊语音。，。强迫症又有事做了。。
 好像还多了意思天井的机制，还有个什么限定10次的蛋池
 
 
------
+*****
 
 ####  shadowof  
 ##### 2507#       发表于 2017-12-14 18:54
@@ -12021,7 +12021,7 @@ MS05
 [http://live.nicovideo.jp/watch/lv309117784](http://live.nicovideo.jp/watch/lv309117784)
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2508#       发表于 2017-12-14 22:02
@@ -12029,7 +12029,7 @@ MS05
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  斯卡蕾特  
 ##### 2509#       发表于 2017-12-14 22:14
@@ -12047,7 +12047,7 @@ MS05
 所以之前解包的本家曲什么时候才能实装，我想买爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2510#       发表于 2017-12-14 23:10
@@ -12056,7 +12056,7 @@ MS05
 工会奖励一实装，我这种plv 100都没有的死鱼怕不是要被踢了
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2511#       发表于 2017-12-14 23:49
@@ -12072,7 +12072,7 @@ MS05
 这封面说明了穿和服去神社的都是假鬼子
 
 
------
+*****
 
 ####  shadowof  
 ##### 2512#       发表于 2017-12-15 21:13
@@ -12084,7 +12084,7 @@ MS05
 初星的lantis会场CD
 
 
------
+*****
 
 ####  shadowof  
 ##### 2513#       发表于 2017-12-15 21:27
@@ -12101,7 +12101,7 @@ MS05
 <img src="https://i.imgur.com/CoUYeal.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2514#       发表于 2017-12-15 21:29
@@ -12110,7 +12110,7 @@ MS05
 可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2515#       发表于 2017-12-15 21:32
@@ -12130,7 +12130,7 @@ MS05
 <img src="https://i.imgur.com/18onAVp.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2516#       发表于 2017-12-15 21:37
@@ -12149,7 +12149,7 @@ SSR一发又来了
 又发了390石头
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2517#       发表于 2017-12-15 21:55
@@ -12157,7 +12157,7 @@ SSR一发又来了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2518#       发表于 2017-12-15 22:02
@@ -12166,7 +12166,7 @@ SSR一发又来了
 環確定ガシャ还行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2519#       发表于 2017-12-15 22:06
@@ -12175,7 +12175,7 @@ SSR一发又来了
 TB的情报战已经开始了啊，不知道能不能看到具体的投票数。
 
 
------
+*****
 
 ####  shadowof  
 ##### 2520#       发表于 2017-12-15 22:29
@@ -12191,7 +12191,7 @@ TB的情报战已经开始了啊，不知道能不能看到具体的投票数。
 
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2521#       发表于 2017-12-15 22:46
@@ -12202,7 +12202,7 @@ TB的情报战已经开始了啊，不知道能不能看到具体的投票数。
 卧槽终于肯放出来了，买爆买爆
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2522#       发表于 2017-12-15 22:54
@@ -12211,7 +12211,7 @@ TB的情报战已经开始了啊，不知道能不能看到具体的投票数。
 这活动曲听着就好难.....
 
 
------
+*****
 
 ####  shadowof  
 ##### 2523#       发表于 2017-12-15 23:05
@@ -12222,7 +12222,7 @@ TB战争已经开始了
 这排行榜实时更新
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2524#       发表于 2017-12-15 23:11
@@ -12230,7 +12230,7 @@ TB战争已经开始了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2525#       发表于 2017-12-15 23:23
@@ -12239,7 +12239,7 @@ TB战争已经开始了
 RocoP真团结啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2526#       发表于 2017-12-15 23:36
@@ -12248,7 +12248,7 @@ RocoP真团结啊<img src="https://static.saraba1st.com/image/smiley/face2017/06
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">土豆现在这个聊天室太小了啊...战略讨论还得回空调
 
 
------
+*****
 
 ####  oaf90ju  
 ##### 2527#       发表于 2017-12-16 00:05
@@ -12257,7 +12257,7 @@ RocoP真团结啊<img src="https://static.saraba1st.com/image/smiley/face2017/06
 先去投琴叶了，稍微留点票到后面看看情况
 
 
------
+*****
 
 ####  chri  
 ##### 2528#       发表于 2017-12-16 00:34
@@ -12266,7 +12266,7 @@ RocoP真团结啊<img src="https://static.saraba1st.com/image/smiley/face2017/06
 ssr碎片喜加一<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2529#       发表于 2017-12-16 00:36
@@ -12277,7 +12277,7 @@ SSR確定抽到可奈,很好我沒有,而且貼題
 小人不懂如何為紬ちゃん贏一個角色回來...
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2530#       发表于 2017-12-16 00:55
@@ -12285,7 +12285,7 @@ SSR確定抽到可奈,很好我沒有,而且貼題
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2531#       发表于 2017-12-16 00:56
@@ -12294,7 +12294,7 @@ SSR確定抽到可奈,很好我沒有,而且貼題
 greemas有聊天室,土豆没有
 
 
------
+*****
 
 ####  IPoke  
 ##### 2532#       发表于 2017-12-16 01:09
@@ -12306,7 +12306,7 @@ TA的时候兔子几乎就是输在了分票上，最后和百合子的票差也
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2533#       发表于 2017-12-16 01:12
@@ -12315,7 +12315,7 @@ TA的时候兔子几乎就是输在了分票上，最后和百合子的票差也
 琴叶3小时破1000票<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2534#       发表于 2017-12-16 01:46
@@ -12326,7 +12326,7 @@ TA的时候兔子几乎就是输在了分票上，最后和百合子的票差也
 請投高坂海美新入生一票，谢谢 
 
 
------
+*****
 
 ####  斑驳的阴影  
 ##### 2535#       发表于 2017-12-16 01:49
@@ -12335,7 +12335,7 @@ TA的时候兔子几乎就是输在了分票上，最后和百合子的票差也
 看起来P吉生放加持后纱代子的先辈定位还是很集中的嘛
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2536#       发表于 2017-12-16 01:52
@@ -12343,7 +12343,7 @@ TA的时候兔子几乎就是输在了分票上，最后和百合子的票差也
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  shadowof  
 ##### 2537#       发表于 2017-12-16 02:07
@@ -12369,7 +12369,7 @@ BC2卷+CD
 [https://pan.baidu.com/s/1i4NYCtB](https://pan.baidu.com/s/1i4NYCtB)
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2538#       发表于 2017-12-16 02:58
@@ -12378,7 +12378,7 @@ BC2卷+CD
 志保和静静的票太分散了
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2539#       发表于 2017-12-16 03:16
@@ -12389,7 +12389,7 @@ BC2卷+CD
 请支持时而羞涩时而热情的面点师兼侍者的吉祥物，咖啡店三女的望月杏奈！谢谢大家！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2540#       发表于 2017-12-16 07:19
@@ -12398,7 +12398,7 @@ BC2卷+CD
 喷了，你们来这里拉票有多大用啊...
 
 
------
+*****
 
 ####  Risa  
 ##### 2541#       发表于 2017-12-16 07:36
@@ -12407,7 +12407,7 @@ BC2卷+CD
 没本家，全投给桃子吧
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2542#       发表于 2017-12-16 07:36
@@ -12415,7 +12415,7 @@ BC2卷+CD
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2543#       发表于 2017-12-16 09:08
@@ -12424,7 +12424,7 @@ BC2卷+CD
 全力推杏奈咖啡店三女，请各位期待<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2544#       发表于 2017-12-16 09:14
@@ -12433,7 +12433,7 @@ BC2卷+CD
 全力推杏奈咖啡店三女，请各位期待<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 2545#       发表于 2017-12-16 10:36
@@ -12442,7 +12442,7 @@ BC2卷+CD
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不想分散票数又不想让琴叶做新女主的我心情很是复杂，先攒着票看情况了
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2546#       发表于 2017-12-16 10:39
@@ -12451,7 +12451,7 @@ BC2卷+CD
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">不懂，先围观好了
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2547#       发表于 2017-12-16 11:30
@@ -12463,7 +12463,7 @@ SNS吸散很重要的
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2548#       发表于 2017-12-16 11:50
@@ -12472,7 +12472,7 @@ SNS吸散很重要的
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">貌似其他人名和姓之间都有空格，只有琴叶没打空格
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2549#       发表于 2017-12-16 14:46
@@ -12480,7 +12480,7 @@ SNS吸散很重要的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  斑驳的阴影  
 ##### 2550#       发表于 2017-12-16 22:22
@@ -12493,7 +12493,7 @@ SNS吸散很重要的
 
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2551#       发表于 2017-12-16 22:36
@@ -12502,7 +12502,7 @@ SNS吸散很重要的
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">blooming clover第二卷的drama好甜啊，カナシホ真好啊
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2552#       发表于 2017-12-16 22:40
@@ -12510,7 +12510,7 @@ SNS吸散很重要的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  shadowof  
 ##### 2553#       发表于 2017-12-16 23:38
@@ -12530,7 +12530,7 @@ SNS吸散很重要的
 21号起60ガシャ也带票，还有活动给的票不知道是通过什么形式给。
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2554#       发表于 2017-12-17 03:26
@@ -12539,7 +12539,7 @@ SNS吸散很重要的
 紬紬总票数挺可怕的....
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2555#       发表于 2017-12-17 05:56
@@ -12555,7 +12555,7 @@ SNS吸散很重要的
 MAGA!
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2556#       发表于 2017-12-17 09:00
@@ -12565,7 +12565,7 @@ MAGA!
 有什么卡投什么角真是太没新意了....
 
 
------
+*****
 
 ####  枫紫  
 ##### 2557#       发表于 2017-12-17 11:47
@@ -12579,7 +12579,7 @@ MAGA!
 附议， 这也是我手上的票没投出去的原因
 
 
------
+*****
 
 ####  shadowof  
 ##### 2558#       发表于 2017-12-17 11:53
@@ -12591,7 +12591,7 @@ MAGA!
 <img src="https://i.imgur.com/7zTkhq0_d.jpg?maxwidth=640&amp;shape=thumb&amp;fidelity=medium" id="aimg_r8y1z" onclick="zoom(this, this.src, 0, 0, 0)" width="640"/)
 
 
------
+*****
 
 ####  枫紫  
 ##### 2559#       发表于 2017-12-17 12:30
@@ -12600,7 +12600,7 @@ MAGA!
 就算两边都得第一也看票数最高的那边，所以比起自己的想法只能以民意为重了，总比没被选上强<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">当然还有选上后里面的人的关系
 
 
------
+*****
 
 ####  chri  
 ##### 2560#       发表于 2017-12-17 12:55
@@ -12611,7 +12611,7 @@ MAGA!
 只能全力投美奈子次女了
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2561#       发表于 2017-12-17 13:01
@@ -12619,7 +12619,7 @@ MAGA!
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  fw441  
 ##### 2562#       发表于 2017-12-17 13:11
@@ -12628,7 +12628,7 @@ MAGA!
 可奈P瑟瑟发抖 日本的朋友们还在讨论可奈是新入生还是同级生...
 
 
------
+*****
 
 ####  IPoke  
 ##### 2563#       发表于 2017-12-17 13:35
@@ -12640,7 +12640,7 @@ MAGA!
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  斯卡蕾特  
 ##### 2564#       发表于 2017-12-17 14:27
@@ -12656,7 +12656,7 @@ MAGA!
 嘛，只是做做梦罢了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2565#       发表于 2017-12-17 14:41
@@ -12664,7 +12664,7 @@ MAGA!
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2566#       发表于 2017-12-17 15:42
@@ -12673,7 +12673,7 @@ MAGA!
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能选本家，作为路人我连39个人都认不全的情况下就出了这个投票，要说运营没有刻意指向也是不太信
 
 
------
+*****
 
 ####  shadowof  
 ##### 2567#       发表于 2017-12-17 16:37
@@ -12683,7 +12683,7 @@ MAGA!
 <img src="https://i.imgur.com/gtWCPBl.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2568#       发表于 2017-12-17 20:35
@@ -12694,7 +12694,7 @@ MAGA!
 我...我不想つむつむ不能贏得一個角色…
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2569#       发表于 2017-12-17 20:52
@@ -12703,7 +12703,7 @@ MAGA!
 のりこ好惨
 
 
------
+*****
 
 ####  oaf90ju  
 ##### 2570#       发表于 2017-12-17 22:03
@@ -12712,7 +12712,7 @@ MAGA!
 后11中有7个是之前TA有过角色的，是不是可以认为部分P选择战略性放弃了
 
 
------
+*****
 
 ####  枫紫  
 ##### 2571#       发表于 2017-12-17 22:10
@@ -12724,7 +12724,7 @@ MAGA!
 可能说明他们满足后投别人去了
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2572#       发表于 2017-12-17 22:50
@@ -12733,7 +12733,7 @@ MAGA!
 六个小时里紬的总票数分别比静静和美奈子高了200和370票，紬P若是能把票集中在次女上，现在1000票出头的劣势一周以内就能逆转，次女静香压力很大啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2573#       发表于 2017-12-17 23:48
@@ -12750,7 +12750,7 @@ MAGA!
 日常两票更新后半小时的统计，志保P统一完投票方向后一天就拿下首位了。
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2574#       发表于 2017-12-18 00:18
@@ -12759,7 +12759,7 @@ MAGA!
 杏奈P战斗力也很强，票差越来越大，总票数快追上金鱼了
 
 
------
+*****
 
 ####  キラ様  
 ##### 2575#       发表于 2017-12-18 01:35
@@ -12768,7 +12768,7 @@ MAGA!
 这投票投的胃疼。。
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2576#       发表于 2017-12-18 01:55
@@ -12777,7 +12777,7 @@ MAGA!
 老师跟紬紬主场实力不容小视啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shuigua  
 ##### 2577#       发表于 2017-12-18 10:02
@@ -12788,7 +12788,7 @@ MAGA!
 惠美P瑟瑟发抖<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2578#       发表于 2017-12-18 10:22
@@ -12799,7 +12799,7 @@ MAGA!
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">话说回来右腕クイーン是啥意思……
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2579#       发表于 2017-12-18 10:27
@@ -12814,7 +12814,7 @@ MAGA!
 沙排一边俩人啊，king的队友不就是queen
 
 
------
+*****
 
 ####  hinarin  
 ##### 2580#       发表于 2017-12-18 10:33
@@ -12827,7 +12827,7 @@ MAGA!
 
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2581#       发表于 2017-12-18 10:52
@@ -12841,7 +12841,7 @@ MAGA!
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">原来如此
 
 
------
+*****
 
 ####  糖醋里脊和果子  
 ##### 2582#       发表于 2017-12-18 11:00
@@ -12852,7 +12852,7 @@ MAGA!
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  fw441  
 ##### 2583#       发表于 2017-12-18 13:01
@@ -12861,7 +12861,7 @@ MAGA!
 救救同级生可奈吧<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2584#       发表于 2017-12-18 18:59
@@ -12872,7 +12872,7 @@ MAGA!
 上次TA投票，琴叶因为种田生病原因没上，第二位可胖上的。这次可胖P都还人情票了。
 
 
------
+*****
 
 ####  キラ様  
 ##### 2585#       发表于 2017-12-18 19:09
@@ -12881,7 +12881,7 @@ MAGA!
 发现春日未来开始发力了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2586#       发表于 2017-12-18 23:37
@@ -12899,7 +12899,7 @@ MAGA!
 次女那边一二位还是紧咬着一点都不放，紬P还没是没把足够的人数集中过来
 
 
------
+*****
 
 ####  shadowof  
 ##### 2587#       发表于 2017-12-18 23:41
@@ -12912,7 +12912,7 @@ MAGA!
 次女想要追上的话节奏得翻个倍
 
 
------
+*****
 
 ####  斑驳的阴影  
 ##### 2588#       发表于 2017-12-19 03:43
@@ -12921,7 +12921,7 @@ MAGA!
 三只猫手心手背都是肉，投哪个都很艰难啊，就不能养三只猫吗！<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2589#       发表于 2017-12-19 04:07
@@ -12930,7 +12930,7 @@ MAGA!
 现在紬和nao在右腕queen方面的差距反而比次女要小，紬P会考虑改变主攻方向么
 
 
------
+*****
 
 ####  shadowof  
 ##### 2590#       发表于 2017-12-19 23:44
@@ -12949,7 +12949,7 @@ MAGA!
 杏奈的总票数已经到2位了。
 
 
------
+*****
 
 ####  しろの舞  
 ##### 2591#       发表于 2017-12-19 23:50
@@ -12958,7 +12958,7 @@ MAGA!
 炸鸡P又开始到处投了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2592#       发表于 2017-12-20 00:25
@@ -12973,7 +12973,7 @@ MAGA!
 话说まかべ探偵阵营还真是不放弃啊。我要是朋花P现在就策划存票支持まかべ探偵了...虽然估计肯定赢不了百合子。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2593#       发表于 2017-12-20 07:08
@@ -12982,7 +12982,7 @@ MAGA!
 现在可以说炸鸡已经凉透了吧
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2594#       发表于 2017-12-20 08:17
@@ -12993,7 +12993,7 @@ MAGA!
 不好说，还有20来天呢，忽然醒悟的话，按这总票数要追上来不难
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2595#       发表于 2017-12-20 08:56
@@ -13008,7 +13008,7 @@ MAGA!
 就算讨论串里统一了意见，也根本没有宣传手段让浮动票都去投一个没什么说服力的其他角色，这次金鱼十五冠王是没跑了。
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2596#       发表于 2017-12-20 09:13
@@ -13017,7 +13017,7 @@ MAGA!
 不谈了，明天去popeye吃顿炸鸡去<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2597#       发表于 2017-12-20 09:26
@@ -13026,7 +13026,7 @@ MAGA!
 提到说服力的话，想问下右山 奈绪是怎么个讲法，感觉queen、反派、排球这三个属性和nao联系都不大……
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2598#       发表于 2017-12-20 09:31
@@ -13043,7 +13043,7 @@ MAGA!
 救救白石啊⋯⋯
 
 
------
+*****
 
 ####  shuigua  
 ##### 2599#       发表于 2017-12-20 12:29
@@ -13052,7 +13052,7 @@ MAGA!
 金鱼日常凉？
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2600#       发表于 2017-12-20 17:41
@@ -13060,7 +13060,7 @@ MAGA!
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  shadowof  
 ##### 2601#       发表于 2017-12-20 17:44
@@ -13074,7 +13074,7 @@ MAGA!
 总票数现在つむつむ已经超过琴葉排第三了
 
 
------
+*****
 
 ####  fw441  
 ##### 2602#       发表于 2017-12-20 18:13
@@ -13089,7 +13089,7 @@ MAGA!
 真是迷，大概这就是内战吧
 
 
------
+*****
 
 ####  terry666  
 ##### 2603#       发表于 2017-12-20 18:30
@@ -13105,7 +13105,7 @@ MAGA!
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">志保什么时候没事到处转啊？TA只是动作慢了，等票流失了才反应过来去追福田，加上福田属性更适合那个角色能拉路人票，福田P领先优势大的情况下也留了后手，志保最后反超了几次都被立刻拉开，明显是被控票了。
 
 
------
+*****
 
 ####  shadowof  
 ##### 2604#       发表于 2017-12-20 23:36
@@ -13119,7 +13119,7 @@ MAGA!
 60ガシャ多出来那票看来要等下午新ガシャ更新以后出，现在还是日常2票，ステラステージ发了390石头
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2605#       发表于 2017-12-21 00:07
@@ -13130,7 +13130,7 @@ MAGA!
 金鱼P终于找到了爆点，昨天一天侦探就造出了无数梗，现在开始团结全力投侦探还有6000票差，intresting<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2606#       发表于 2017-12-21 00:42
@@ -13146,7 +13146,7 @@ MAGA!
 乱斗又要开始了
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2607#       发表于 2017-12-21 01:40
@@ -13163,7 +13163,7 @@ MAGA!
 更新：一觉睡起来发现金鱼后劲没了，人生大起大落真是太刺激了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  shadowof  
 ##### 2608#       发表于 2017-12-21 09:40
@@ -13175,7 +13175,7 @@ MAGA!
 侦探比次女涨的快不少，但是要追上难度其实差不多，下午活动和ガシャ票更新以后再看了
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2609#       发表于 2017-12-21 09:49
@@ -13184,7 +13184,7 @@ MAGA!
 问下。下午的活动。以2000为目标的话。最稳健的方法是碎石营业还是碎石live好?
 
 
------
+*****
 
 ####  shadowof  
 ##### 2610#       发表于 2017-12-21 10:00
@@ -13195,7 +13195,7 @@ MAGA!
 
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2611#       发表于 2017-12-21 10:30
@@ -13206,7 +13206,7 @@ MAGA!
 谢谢
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2612#       发表于 2017-12-21 11:05
@@ -13216,7 +13216,7 @@ MAGA!
 真实坐地吸土
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2613#       发表于 2017-12-21 11:11
@@ -13228,7 +13228,7 @@ MAGA!
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2614#       发表于 2017-12-21 11:25
@@ -13238,7 +13238,7 @@ MAGA!
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">然而马上就奈绪了要留石头
 
 
------
+*****
 
 ####  shadowof  
 ##### 2615#       发表于 2017-12-21 14:02
@@ -13258,7 +13258,7 @@ MAGA!
 未来和まつり有加持了 
 
 
------
+*****
 
 ####  fw441  
 ##### 2616#       发表于 2017-12-21 14:08
@@ -13267,7 +13267,7 @@ MAGA!
 活动奖励里的思い出ピース是什么？
 
 
------
+*****
 
 ####  shadowof  
 ##### 2617#       发表于 2017-12-21 14:18
@@ -13278,7 +13278,7 @@ MAGA!
 编辑了下个月初的活动如果也带票的话，现在几千票的差距只要想追都不是问题
 
 
------
+*****
 
 ####  kohos  
 ##### 2618#       发表于 2017-12-21 14:19
@@ -13291,7 +13291,7 @@ MAGA!
 另外解包下期活动上位是亜利沙（大概
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2619#       发表于 2017-12-21 14:31
@@ -13309,7 +13309,7 @@ MAGA!
 下次活动上位：A.R.I.S.A
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2620#       发表于 2017-12-21 14:54
@@ -13322,7 +13322,7 @@ MAGA!
 话说下期arisa上位的话，活动曲应该是拿home sweet friendship吧？期待下位能是奈绪<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2621#       发表于 2017-12-21 15:29
@@ -13330,7 +13330,7 @@ MAGA!
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2622#       发表于 2017-12-21 15:52
@@ -13341,7 +13341,7 @@ MAGA!
 儲票去好了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2623#       发表于 2017-12-21 23:36
@@ -13366,7 +13366,7 @@ MAGA!
 这投票真是越来越有意思了
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2624#       发表于 2017-12-21 23:43
@@ -13375,7 +13375,7 @@ MAGA!
 炸鸡P开始发力了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2625#       发表于 2017-12-22 01:12
@@ -13383,7 +13383,7 @@ MAGA!
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2626#       发表于 2017-12-22 02:10
@@ -13399,7 +13399,7 @@ MAGA!
 Umimi加油吧，不论成败我会陪你战到最后一刻。
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2627#       发表于 2017-12-22 06:56
@@ -13408,7 +13408,7 @@ Umimi加油吧，不论成败我会陪你战到最后一刻。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">投票有优势的，要么什么都有，要么索性什么都没有
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2628#       发表于 2017-12-22 11:22
@@ -13428,7 +13428,7 @@ Umimi加油吧，不论成败我会陪你战到最后一刻。
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">扫了眼推特，百合子P都开始紧张了，炸鸡一副势不可挡的样子
 
 
------
+*****
 
 ####  shadowof  
 ##### 2629#       发表于 2017-12-22 12:20
@@ -13439,7 +13439,7 @@ Umimi加油吧，不论成败我会陪你战到最后一刻。
 局势变得太快，按这个速度这个周末等群众都开始刷活动以后，侦探这边估计就要近距离对决了
 
 
------
+*****
 
 ####  キラ様  
 ##### 2630#       发表于 2017-12-22 14:17
@@ -13448,7 +13448,7 @@ Umimi加油吧，不论成败我会陪你战到最后一刻。
 白石p终于找到了火力点么。。可惜百合子中枪啊
 
 
------
+*****
 
 ####  bwjx88  
 ##### 2631#       发表于 2017-12-22 15:43
@@ -13457,7 +13457,7 @@ Umimi加油吧，不论成败我会陪你战到最后一刻。
 120级 第一次友情 出货 new了二阶堂千鹤
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2632#       发表于 2017-12-22 15:46
@@ -13469,7 +13469,7 @@ Umimi加油吧，不论成败我会陪你战到最后一刻。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2633#       发表于 2017-12-22 16:01
@@ -13483,7 +13483,7 @@ Umimi加油吧，不论成败我会陪你战到最后一刻。
 是啊，说的好听是角色契合度，但是实际就是人气比拼<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">上次TA的角色这次又有快一半的在竞争位置
 
 
------
+*****
 
 ####  shadowof  
 ##### 2634#       发表于 2017-12-22 17:03
@@ -13495,7 +13495,7 @@ Umimi加油吧，不论成败我会陪你战到最后一刻。
 TA的时候很多P都是审查员视角的，自己担当稳定以后都去投其他地方了，这次TB流动票实在量太大，不全力支持担当根本没法玩，就算全力也可能被人气票轰爆。
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2635#       发表于 2017-12-22 17:07
@@ -13504,7 +13504,7 @@ TA的时候很多P都是审查员视角的，自己担当稳定以后都去投�
 <img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">奈绪这边应该稳了，这两天看看去支援谁好了
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2636#       发表于 2017-12-22 18:08
@@ -13513,7 +13513,7 @@ TA的时候很多P都是审查员视角的，自己担当稳定以后都去投�
 够刺激够混乱，我喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2637#       发表于 2017-12-22 18:13
@@ -13525,7 +13525,7 @@ TA的时候很多P都是审查员视角的，自己担当稳定以后都去投�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 2638#       发表于 2017-12-22 18:27
@@ -13538,7 +13538,7 @@ TA的时候很多P都是审查员视角的，自己担当稳定以后都去投�
 可能也不全是这原因，毕竟上次ta信号灯没一个入围的。这次百合子这边估计也不少人觉得她出场机会多卡多也参加过ta了所以投给紬了吧。
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2639#       发表于 2017-12-22 18:36
@@ -13546,7 +13546,7 @@ TA的时候很多P都是审查员视角的，自己担当稳定以后都去投�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2640#       发表于 2017-12-22 19:09
@@ -13555,7 +13555,7 @@ TA的时候很多P都是审查员视角的，自己担当稳定以后都去投�
 
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2641#       发表于 2017-12-22 19:21
@@ -13590,7 +13590,7 @@ TA的时候很多P都是审查员视角的，自己担当稳定以后都去投�
 Umimi加油
 
 
------
+*****
 
 ####  hinarin  
 ##### 2642#       发表于 2017-12-22 19:48
@@ -13599,7 +13599,7 @@ Umimi加油
 贴吧发一遍怎么这里又一遍
 
 
------
+*****
 
 ####  枫紫  
 ##### 2643#       发表于 2017-12-22 20:04
@@ -13613,7 +13613,7 @@ Umimi加油
 虽然想说些什么不过还是咽下去了， 加油吧，散票有余裕我也会帮忙投一下的
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2644#       发表于 2017-12-22 20:19
@@ -13628,7 +13628,7 @@ Umimi加油
 未来的可多多了。
 
 
------
+*****
 
 ####  ldenny  
 ##### 2645#       发表于 2017-12-22 22:00
@@ -13637,7 +13637,7 @@ Umimi加油
 行动派大佬好评，我最多也就做好自己，乌咪咪凉不凉透也是砸到底<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2646#       发表于 2017-12-22 22:08
@@ -13646,7 +13646,7 @@ Umimi加油
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">活动上下位的一波票貌似冲的差不多了？
 
 
------
+*****
 
 ####  shadowof  
 ##### 2647#       发表于 2017-12-22 23:03
@@ -13667,7 +13667,7 @@ Umimi加油
 现在看下来琴葉和歌織一开始拉开优势相当占便宜，真正票数比起来其实并不比现在几个激战区多
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2648#       发表于 2017-12-22 23:33
@@ -13676,7 +13676,7 @@ Umimi加油
 炸鸡登顶了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2649#       发表于 2017-12-22 23:45
@@ -13688,7 +13688,7 @@ Umimi加油
 <img src="https://i.imgur.com/CgtZfRz.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2650#       发表于 2017-12-23 00:04
@@ -13697,7 +13697,7 @@ Umimi加油
 三女看来稳了，票转百合子去
 
 
------
+*****
 
 ####  terry666  
 ##### 2651#       发表于 2017-12-23 00:35
@@ -13711,7 +13711,7 @@ Umimi加油
 PS：这次投票到目前为止其实连正戏都没开始，活动保底都有100票，2，3000票这种看似很大的差距，一个小团体都能轻易逆转。炸鸡P快速逆转其实也给其他角色提了个醒，像志保这种领先美也1700票的优势看起来很大，其实一天都能被逆转。
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2652#       发表于 2017-12-23 00:54
@@ -13720,7 +13720,7 @@ PS：这次投票到目前为止其实连正戏都没开始，活动保底都有
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">酸老师跟紬紬的空调人都来了,真是群魔乱舞
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2653#       发表于 2017-12-23 00:54
@@ -13729,7 +13729,7 @@ PS：这次投票到目前为止其实连正戏都没开始，活动保底都有
 <img src="http://imgsrc.baidu.com/forum/pic/item/879cee59d109b3dea638c49ec7bf6c81820a4c90.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IPoke  
 ##### 2654#       发表于 2017-12-23 01:56
@@ -13744,7 +13744,7 @@ TA的结果，有很多人气苦手一点的角色能够当选，中间的策略
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2655#       发表于 2017-12-23 02:45
@@ -13758,7 +13758,7 @@ TA的结果，有很多人气苦手一点的角色能够当选， ...</blockquot
 就是这么回事，这次高坂海美如果输了，我就AFK了，反正土豆里Umimi啥！都！没！有！ 等出了SSR、开活动了再说回归的事。
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2656#       发表于 2017-12-23 04:52
@@ -13771,7 +13771,7 @@ TA的结果，有很多人气苦手一点的角色能够当选， ...</blockquot
 然后讲个笑话一个不存在的偶像都能稳坐第一
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2657#       发表于 2017-12-23 05:00
@@ -13779,7 +13779,7 @@ TA的结果，有很多人气苦手一点的角色能够当选， ...</blockquot
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2658#       发表于 2017-12-23 09:25
@@ -13819,7 +13819,7 @@ TA的结果，有很多人气苦手一点的角色能够当选， ...</blockquot
 查看全部评分
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2659#       发表于 2017-12-23 10:13
@@ -13832,7 +13832,7 @@ TA的结果，有很多人气苦手一点的角色能够当选， ...</blockquot
 开开心心当个DD不好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2660#       发表于 2017-12-23 11:53
@@ -13841,7 +13841,7 @@ TA的结果，有很多人气苦手一点的角色能够当选， ...</blockquot
 我也就在泥潭话会多说几句。 微博贴吧受众多些我都几乎不提未来和未来P的。 未来P们可不是这样，这不，字幕组那边又发博讽刺我了，我一个小透明发宣却吸引未来P结队来战，真是辛苦你们了
 
 
------
+*****
 
 ####  SchwarzX  
 ##### 2661#       发表于 2017-12-23 11:55
@@ -13850,7 +13850,7 @@ TA的结果，有很多人气苦手一点的角色能够当选， ...</blockquot
 继续投つむつむ，所谓“老P”怎么想关我撚事<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  落羽飘尽  
 ##### 2662#       发表于 2017-12-23 12:58
@@ -13876,7 +13876,7 @@ TA的结果，有很多人气苦手一点的角色能够当选， ...</blockquot
 你既然觉得我们字幕组辛辛苦苦肝视频给未来拉票是仗势欺人不道义，那只好我们只好拿实际行动证明自己喽？
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2663#       发表于 2017-12-23 13:06
@@ -13914,7 +13914,7 @@ PS：感谢字幕组。
 （无语了，手机一换行就发出来了... 重新编辑）
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2664#       发表于 2017-12-23 13:10
@@ -13925,7 +13925,7 @@ PS：感谢字幕组。
 手机换行重复发了，编辑.....
 
 
------
+*****
 
 ####  落羽飘尽  
 ##### 2665#       发表于 2017-12-23 13:19
@@ -13941,7 +13941,7 @@ PS：感谢字幕组。
 前后自打脸好玩么？
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2666#       发表于 2017-12-23 13:25
@@ -13959,7 +13959,7 @@ PS：感谢字幕组。
 你随意吧。
 
 
------
+*****
 
 ####  shadowof  
 ##### 2667#       发表于 2017-12-23 13:26
@@ -14027,7 +14027,7 @@ Princess Be Ambitious!!
 查看全部评分
 
 
------
+*****
 
 ####  落羽飘尽  
 ##### 2668#       发表于 2017-12-23 13:32
@@ -14062,7 +14062,7 @@ Princess Be Ambitious!!
 非得未来P直接弃权不投了你才满意是不是？
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2669#       发表于 2017-12-23 13:45
@@ -14087,7 +14087,7 @@ Princess Be Ambitious!!
 无话可说了
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2670#       发表于 2017-12-23 14:05
@@ -14102,7 +14102,7 @@ Princess Be Ambitious!!
 
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2671#       发表于 2017-12-23 14:07
@@ -14112,7 +14112,7 @@ Princess Be Ambitious!!
 <img src="http://wx1.sinaimg.cn/large/dbd16ce1gy1fmqo1wxp14j216o1kwqlg.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2672#       发表于 2017-12-23 14:12
@@ -14135,7 +14135,7 @@ Princess Be Ambitious!!
 还有诸多的我都懒得总结了,你看看如何<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  落羽飘尽  
 ##### 2673#       发表于 2017-12-23 14:29
@@ -14174,7 +14174,7 @@ Princess Be Ambitious!!
 （最后，umi这种没ssr没主线的角色总票数都比惠美和翼这种有SSR有主线的战斗力高，umi没人气到底是哪个次元的说法？真当空调不存在的么？基本等于势均力敌的战斗都能被哭惨哭成这样，你让步P怎么想？）
 
 
------
+*****
 
 ####  落羽飘尽  
 ##### 2674#       发表于 2017-12-23 14:57
@@ -14198,7 +14198,7 @@ Princess Be Ambitious!!
 补充一点的话，目前土豆贴吧是没有吧主的，所以他说的“要求公平的人士的话都被你们未来P删了”这句话是怎么回事可以自己考虑一下。
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2675#       发表于 2017-12-23 15:30
@@ -14207,7 +14207,7 @@ Princess Be Ambitious!!
 删的是回复，lz有权，数数贴吧未来应援贴的楼层数就知道了。   本贴里谈公平问题的回复也不少，这问题还用想吗。   为何开活动就反超，有脑子都知道咋回事。
 
 
------
+*****
 
 ####  落羽飘尽  
 ##### 2676#       发表于 2017-12-23 15:53
@@ -14228,7 +14228,7 @@ umiP既然当时就决定了要和未来血拼到底，事到如今就不要抱�
 最后，跑到未来应援楼里支持umi这操作也算不上正经吧？谁拦着单独开贴的么？
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2677#       发表于 2017-12-23 16:14
@@ -14250,7 +14250,7 @@ TOUR活动是未来上位这可是投票前就决定好了的 ...</blockquote>
 最后，战事还久，我会倾尽全力战到最后！
 
 
------
+*****
 
 ####  落羽飘尽  
 ##### 2678#       发表于 2017-12-23 16:33
@@ -14299,7 +14299,7 @@ TOUR活动是未来上位这可是投票前就决定好了的 ...</blockquote>
 别逼老实人发火。
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2679#       发表于 2017-12-23 16:42
@@ -14312,7 +14312,7 @@ TOUR活动是未来上位这可是投票前就决定好了的 ...</blockquote>
 是我说的啊，排球部的强力新入生海美更适合，有问题吗？ 这有疑问吗？ 你要不要数数全网有多少路人说这角色适合海美。 可找得到一个人说未来更合适吗？  连跟我一起战fmt的未来P都说海美更合适……
 
 
------
+*****
 
 ####  落羽飘尽  
 ##### 2680#       发表于 2017-12-23 17:05
@@ -14345,7 +14345,7 @@ umi更适合这个角色=未来不合适？
 怪了，这真是我认识的未来P么？怎么听着更像是炸鸡P
 
 
------
+*****
 
 ####  dfminfo  
 ##### 2681#       发表于 2017-12-23 17:18
@@ -14366,7 +14366,7 @@ umi更适合这个角色=未来不合适？
 6：我不再发言了。
 
 
------
+*****
 
 ####  IPoke  
 ##### 2682#       发表于 2017-12-23 17:53
@@ -14378,7 +14378,7 @@ umi更适合这个角色=未来不合适？
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  洋葱葱  
 ##### 2683#       发表于 2017-12-23 18:15
@@ -14387,7 +14387,7 @@ umi更适合这个角色=未来不合适？
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">昨晚看了眼贴吧被楼里某人的言论恶心到，今天又过来专楼加戏了，能不能别给umiP们招黑啊
 
 
------
+*****
 
 ####  killcal  
 ##### 2684#       发表于 2017-12-23 18:52
@@ -14396,7 +14396,7 @@ umi更适合这个角色=未来不合适？
 没注意看，这次给的思い出ピース是做什么的？
 
 
------
+*****
 
 ####  hinarin  
 ##### 2685#       发表于 2017-12-23 18:55
@@ -14408,7 +14408,7 @@ umi更适合这个角色=未来不合适？
 往期活动如果缺席了，可以用这个道具解锁剧情
 
 
------
+*****
 
 ####  不起眼の路人  
 ##### 2686#       发表于 2017-12-23 18:57
@@ -14417,7 +14417,7 @@ umi更适合这个角色=未来不合适？
 这次歌确实打得挺爽快，根本停不下来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2687#       发表于 2017-12-23 23:32
@@ -14426,7 +14426,7 @@ umi更适合这个角色=未来不合适？
 无论投票结果如何，都不应该发表对其他偶像和担当P的负面言论。不懂基本礼仪简直给百万P丢人，本来就是小众中的小众了还要内哄让人看笑话么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2688#       发表于 2017-12-23 23:35
@@ -14453,7 +14453,7 @@ umi更适合这个角色=未来不合适？
 今天的登录美咲有特殊台词，明天登陆的话会有圣诞老人来
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2689#       发表于 2017-12-24 01:27
@@ -14465,7 +14465,7 @@ umi更适合这个角色=未来不合适？
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">某些群体的人就是等着看笑话啊
 
 
------
+*****
 
 ####  枫紫  
 ##### 2690#       发表于 2017-12-24 10:09
@@ -14474,7 +14474,7 @@ umi更适合这个角色=未来不合适？
 莉绪跑上来啦，那支持下好了
 
 
------
+*****
 
 ####  fw441  
 ##### 2691#       发表于 2017-12-24 10:15
@@ -14485,7 +14485,7 @@ umi更适合这个角色=未来不合适？
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2692#       发表于 2017-12-24 15:38
@@ -14493,7 +14493,7 @@ umi更适合这个角色=未来不合适？
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  wx98707707  
 ##### 2693#       发表于 2017-12-24 19:42
@@ -14504,7 +14504,7 @@ umi更适合这个角色=未来不合适？
 fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池结束后？要是这个卡池结束之后开到月底奈绪72前那不是只有3.4天时间？
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2694#       发表于 2017-12-24 19:54
@@ -14513,7 +14513,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 根据隔壁经验fes就是只有3天的....时间长了怎么让你们课爆......
 
 
------
+*****
 
 ####  shadowof  
 ##### 2695#       发表于 2017-12-24 23:36
@@ -14539,7 +14539,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 圣诞节演出详细里可以看全员份的
 
 
------
+*****
 
 ####  Risa  
 ##### 2696#       发表于 2017-12-24 23:49
@@ -14548,7 +14548,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 能不能别继续负面情绪了，都快搞了2页，学会闭嘴。
 
 
------
+*****
 
 ####  IPoke  
 ##### 2697#       发表于 2017-12-25 00:37
@@ -14560,7 +14560,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Risa  
 ##### 2698#       发表于 2017-12-25 00:45
@@ -14569,7 +14569,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 相比之下桃子远离战场幸福多了
 
 
------
+*****
 
 ####  terry666  
 ##### 2699#       发表于 2017-12-25 00:49
@@ -14578,7 +14578,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以之前到底吵什么？前几页我还说了未来反超是因为未来P先拿到36000pt的100票，umiP平刷拿到100票后追上来是迟早的事，淡定点默默拉票投票不就好了。就算上位活动确实对未来有利不算绝对公平，但那也是从活动开始就确定的活动。
 
 
------
+*****
 
 ####  枫紫  
 ##### 2700#       发表于 2017-12-25 00:54
@@ -14589,7 +14589,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 
 
 
------
+*****
 
 ####  Fingest  
 ##### 2701#       发表于 2017-12-25 01:23
@@ -14598,7 +14598,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 箱子里部分票是无期限的，该不会是可以留到TC的吧
 
 
------
+*****
 
 ####  斑驳的阴影  
 ##### 2702#       发表于 2017-12-25 02:38
@@ -14611,7 +14611,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 这次纱代子新卡太棒了，衣服也超可爱超可爱！而且我居然第一发十连就直接出货，果然纱代子也是爱我的！<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shuigua  
 ##### 2703#       发表于 2017-12-25 09:02
@@ -14622,7 +14622,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 惠美昨晚还给我送圣诞礼物啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2704#       发表于 2017-12-25 11:40
@@ -14633,7 +14633,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 奈绪这边还是保证着每小时300~400的涨幅啊，感觉还是有点怕被erena追上的样子
 
 
------
+*****
 
 ####  shadowof  
 ##### 2705#       发表于 2017-12-25 23:38
@@ -14659,7 +14659,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 翼的总投票数也已经接近1位的恵美，如果保持增长的话后期有十分的竞争力。
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2706#       发表于 2017-12-26 10:41
@@ -14668,7 +14668,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">开始转战客人那边的莉绪
 
 
------
+*****
 
 ####  shadowof  
 ##### 2707#       发表于 2017-12-26 23:34
@@ -14686,7 +14686,7 @@ fes大概什么时候开？这个卡池结束后还是下个奈绪 72的卡池�
 侦探的票差还在扩大，按现在的速度每天拉开2000票
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2708#       发表于 2017-12-27 11:04
@@ -14698,7 +14698,7 @@ fes开了，某些人又可以使劲黑强推新人咯<img src="https://static.s
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2709#       发表于 2017-12-27 11:05
@@ -14707,7 +14707,7 @@ fes开了，某些人又可以使劲黑强推新人咯<img src="https://static.s
 fes真是两位新人啊
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2710#       发表于 2017-12-27 11:13
@@ -14715,7 +14715,7 @@ fes真是两位新人啊
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2711#       发表于 2017-12-27 11:30
@@ -14724,7 +14724,7 @@ fes真是两位新人啊
 喷点:影响分榜or还没出齐就出第二张。可恶的s1手机不能发表情
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2712#       发表于 2017-12-27 11:37
@@ -14733,7 +14733,7 @@ fes真是两位新人啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">本来不就是在强推新人，侦探那边是更凉了
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2713#       发表于 2017-12-27 12:35
@@ -14742,7 +14742,7 @@ fes真是两位新人啊
 我倒宁愿新人上去，私心比较支持TA没出演的人上
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2714#       发表于 2017-12-27 13:46
@@ -14754,7 +14754,7 @@ fes真是两位新人啊
 真的话那我存石等下次了.....
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2715#       发表于 2017-12-27 14:02
@@ -14762,7 +14762,7 @@ fes真是两位新人啊
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2716#       发表于 2017-12-27 14:10
@@ -14771,7 +14771,7 @@ fes真是两位新人啊
 妈耶- -无偿20连把信号灯抽齐了，全是我有的卡，心碎，氪金去了
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2717#       发表于 2017-12-27 14:23
@@ -14780,7 +14780,7 @@ fes真是两位新人啊
 饶了一下推。讲个笑话。你游ssr方面最大的问题只有一个 ，就是还没出齐
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2718#       发表于 2017-12-27 14:26
@@ -14789,7 +14789,7 @@ fes真是两位新人啊
 ssr出率是高了，但就不出up
 
 
------
+*****
 
 ####  shadowof  
 ##### 2719#       发表于 2017-12-27 14:32
@@ -14809,7 +14809,7 @@ fes限的マスピ不够用
 つむつむanother真好看,歌織せんせー的网格丝袜太...色情了
 
 
------
+*****
 
 ####  Renes  
 ##### 2720#       发表于 2017-12-27 14:36
@@ -14818,7 +14818,7 @@ fes限的マスピ不够用
 出天井了 也是300抽
 
 
------
+*****
 
 ####  没落の翼  
 ##### 2721#       发表于 2017-12-27 15:22
@@ -14827,7 +14827,7 @@ fes限的マスピ不够用
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">200抽5个白石没有樱守，princess的也只抽到一个，还说多抽点princess把活动歌分打高一点的...
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2722#       发表于 2017-12-27 15:26
@@ -14836,7 +14836,7 @@ fes限的マスピ不够用
 6%是真的，up是假的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2723#       发表于 2017-12-27 15:44
@@ -14847,7 +14847,7 @@ fes限的マスピ不够用
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这fes卡技能也还是正常的combo加分啊……隔壁cgss第一个fes卡是新技能还是老技能来着？
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2724#       发表于 2017-12-27 15:48
@@ -14856,7 +14856,7 @@ fes限的マスピ不够用
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">普通SSR石头真是溢出了
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2725#       发表于 2017-12-27 15:49
@@ -14864,7 +14864,7 @@ fes限的マスピ不够用
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2726#       发表于 2017-12-27 16:33
@@ -14875,7 +14875,7 @@ fes限的マスピ不够用
 体感这掉率比cgss的6%高了好几倍
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2727#       发表于 2017-12-27 16:56
@@ -14884,7 +14884,7 @@ fes限的マスピ不够用
 不管贴吧微博这里都很好地证明你游没改几率（<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2728#       发表于 2017-12-27 17:25
@@ -14906,7 +14906,7 @@ fes限的マスピ不够用
 まんが4コマぱれっと的mizuki
 
 
------
+*****
 
 ####  Renes  
 ##### 2729#       发表于 2017-12-27 17:37
@@ -14917,7 +14917,7 @@ fes限的マスピ不够用
 老的 新技能直到第三次fes才出现 
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2730#       发表于 2017-12-27 17:47
@@ -14940,7 +14940,7 @@ fes限的マスピ不够用
 
 
 
------
+*****
 
 ####  枫紫  
 ##### 2731#       发表于 2017-12-27 17:49
@@ -14949,7 +14949,7 @@ fes限的マスピ不够用
 这四格好眼熟的画风
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2732#       发表于 2017-12-27 19:17
@@ -14960,7 +14960,7 @@ fes限的マスピ不够用
 是不是哪里看过
 
 
------
+*****
 
 ####  shadowof  
 ##### 2733#       发表于 2017-12-27 19:34
@@ -14987,7 +14987,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 这两个都是一迅社，现在都是隔月更
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2734#       发表于 2017-12-27 19:54
@@ -15001,7 +15001,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 新四格作者揭秘感謝
 
 
------
+*****
 
 ####  terry666  
 ##### 2735#       发表于 2017-12-27 22:16
@@ -15012,7 +15012,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 虽然微氪满突难度比较大
 
 
------
+*****
 
 ####  shadowof  
 ##### 2736#       发表于 2017-12-27 23:40
@@ -15036,7 +15036,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 因为投票的关系这次1万位分数线已经超过3万6
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2737#       发表于 2017-12-28 00:28
@@ -15045,7 +15045,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">为了星梨花能叫歌织姐姐，转战3女了，星梨花加油
 
 
------
+*****
 
 ####  shadowof  
 ##### 2738#       发表于 2017-12-28 00:36
@@ -15059,7 +15059,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 <img src="https://i.imgur.com/9g5RQyE.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  二月十日  
 ##### 2739#       发表于 2017-12-28 10:18
@@ -15072,7 +15072,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 我还是留着石头来抽担当吧...
 
 
------
+*****
 
 ####  loveconankid  
 ##### 2740#       发表于 2017-12-28 12:55
@@ -15081,7 +15081,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 昨天把存货都给了星梨花，一看票差，可以可以<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2741#       发表于 2017-12-28 16:13
@@ -15102,7 +15102,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 比炸鸡/枫之战士更称职的侦探P工作的时候到了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2742#       发表于 2017-12-28 22:29
@@ -15117,7 +15117,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 这个操作<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2743#       发表于 2017-12-29 00:09
@@ -15138,7 +15138,7 @@ mizuki，四格 バックステージ，GREE游戏内四格也是他画的，只
 探偵票差已经达到3万
 
 
------
+*****
 
 ####  shadowof  
 ##### 2744#       发表于 2017-12-29 01:05
@@ -15162,7 +15162,7 @@ Febri 03
 <img src="https://i.imgur.com/wAO7dHg.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  糖醋里脊和果子  
 ##### 2745#       发表于 2017-12-29 01:07
@@ -15173,7 +15173,7 @@ Febri 03
 虽然我觉得多半不会
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2746#       发表于 2017-12-29 01:21
@@ -15187,7 +15187,7 @@ Febri 03
 TA那时没，不过考虑到这次的影响对象（那边嫌疑很大）和名声（自己和偶像）应该不必担心，更担心怎么安抚，和这爆料者有没有自演嫌疑
 
 
------
+*****
 
 ####  shadowof  
 ##### 2747#       发表于 2017-12-29 23:21
@@ -15210,7 +15210,7 @@ Princess Be Ambitious!!
 <img src="https://i.imgur.com/Yvt1v0D.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2748#       发表于 2017-12-30 00:02
@@ -15218,7 +15218,7 @@ Princess Be Ambitious!!
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2749#       发表于 2017-12-30 00:02
@@ -15227,7 +15227,7 @@ Princess Be Ambitious!!
 一打二真恶心<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2750#       发表于 2017-12-30 09:43
@@ -15237,7 +15237,7 @@ Princess Be Ambitious!!
 cgss几个活动曲快等了一年了.....
 
 
------
+*****
 
 ####  daqi  
 ##### 2751#       发表于 2017-12-30 10:18
@@ -15246,7 +15246,7 @@ cgss几个活动曲快等了一年了.....
 90抽出了10来张ssr，但是new只有3个，没歌织，心情复杂，我一共就12常驻哪来的这么多重复呀，之后准备安心攒井了，这个重复率真的吃不消
 
 
------
+*****
 
 ####  daqi  
 ##### 2752#       发表于 2017-12-30 10:20
@@ -15255,7 +15255,7 @@ cgss几个活动曲快等了一年了.....
 土豆的概率确实比烧笋靠谱不少，最近烧笋抽限定，前后也是2井了也就10张出头的ssr，我怀疑这3%是假的
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2753#       发表于 2017-12-30 11:06
@@ -15267,7 +15267,7 @@ cgss几个活动曲快等了一年了.....
 第三套共通演出服准备实装。
 
 
------
+*****
 
 ####  枫紫  
 ##### 2754#       发表于 2017-12-30 11:23
@@ -15276,7 +15276,7 @@ cgss几个活动曲快等了一年了.....
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">最终日被爆菊了，以后看来要请假了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2755#       发表于 2017-12-30 11:40
@@ -15301,7 +15301,7 @@ cgss几个活动曲快等了一年了.....
 现在有一定票数累计，之后可能会有人组织集体投票。
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2756#       发表于 2017-12-30 12:43
@@ -15310,7 +15310,7 @@ cgss几个活动曲快等了一年了.....
 次女和三女起起落落真是刺激<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IPoke  
 ##### 2757#       发表于 2017-12-30 13:24
@@ -15322,7 +15322,7 @@ cgss几个活动曲快等了一年了.....
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  terry666  
 ##### 2758#       发表于 2017-12-30 14:55
@@ -15335,7 +15335,7 @@ cgss几个活动曲快等了一年了.....
 不排除官方是故意搞事让投票更有悬念，不过这样做对兔子P确实有失公平
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2759#       发表于 2017-12-30 15:14
@@ -15343,7 +15343,7 @@ cgss几个活动曲快等了一年了.....
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  terry666  
 ##### 2760#       发表于 2017-12-30 16:10
@@ -15357,7 +15357,7 @@ cgss几个活动曲快等了一年了.....
 
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2761#       发表于 2017-12-30 17:40
@@ -15372,7 +15372,7 @@ cgss几个活动曲快等了一年了.....
 所以建议运营下次投票期间，不开除 showtime以外全活动包括新卡漫画广播live以避免破坏民族团结<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枫紫  
 ##### 2762#       发表于 2017-12-30 17:56
@@ -15381,7 +15381,7 @@ cgss几个活动曲快等了一年了.....
 被官四格影响到的未必只有杏奈的三女，可能美奈子的次女也要因此被打下去<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">毕竟静香和星梨花的关系比美奈子和星梨花的关系好，三女如果成定局了的话散票很可能会浮动一部分去静香那
 
 
------
+*****
 
 ####  IPoke  
 ##### 2763#       发表于 2017-12-30 18:14
@@ -15394,7 +15394,7 @@ cgss几个活动曲快等了一年了.....
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2764#       发表于 2017-12-30 18:32
@@ -15403,7 +15403,7 @@ cgss几个活动曲快等了一年了.....
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">截至时间还比较久，继续观望，指不定之后又能弄出点什么事情来
 
 
------
+*****
 
 ####  Risa  
 ##### 2765#       发表于 2017-12-30 18:48
@@ -15412,7 +15412,7 @@ cgss几个活动曲快等了一年了.....
 我估计有好些人都是跟我差不多，攒票观望，最后找倒霉蛋背刺<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2766#       发表于 2017-12-30 20:15
@@ -15431,7 +15431,7 @@ cgss几个活动曲快等了一年了.....
 4thBD的宣传
 
 
------
+*****
 
 ####  shadowof  
 ##### 2767#       发表于 2017-12-30 23:35
@@ -15452,7 +15452,7 @@ cgss几个活动曲快等了一年了.....
 風花和ロコ的票数差距缩小到2000以内了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2768#       发表于 2018-1-3 13:03
@@ -15476,7 +15476,7 @@ cgss几个活动曲快等了一年了.....
 <img src="https://i.imgur.com/sCSQeC0.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2769#       发表于 2018-1-3 15:15
@@ -15485,7 +15485,7 @@ cgss几个活动曲快等了一年了.....
 刺激<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  吉诺爱比利  
 ##### 2770#       发表于 2018-1-3 15:32
@@ -15494,7 +15494,7 @@ cgss几个活动曲快等了一年了.....
 机会又来了吗，不枉我全部的票ALL IN百合子
 
 
------
+*****
 
 ####  枫紫  
 ##### 2771#       发表于 2018-1-3 15:36
@@ -15503,7 +15503,7 @@ cgss几个活动曲快等了一年了.....
 喷了，大概发生什么事我都不会奇怪了……
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2772#       发表于 2018-1-3 16:31
@@ -15512,7 +15512,7 @@ cgss几个活动曲快等了一年了.....
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么效应都有，1W9票差了
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2773#       发表于 2018-1-3 16:37
@@ -15521,7 +15521,7 @@ cgss几个活动曲快等了一年了.....
 现在什么都不好说，即使最后差距很大，万一官方砍脚本票说不好又是另一番景象，就看怎么处理脚本票了，虽然很大可能是装死<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2774#       发表于 2018-1-4 15:15
@@ -15530,7 +15530,7 @@ cgss几个活动曲快等了一年了.....
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">没仔细观察，体感这次刷歌掉落的素材增加了？
 
 
------
+*****
 
 ####  shadowof  
 ##### 2775#       发表于 2018-1-4 15:34
@@ -15541,7 +15541,7 @@ cgss几个活动曲快等了一年了.....
 这是给拿选票的速度加了把火
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2776#       发表于 2018-1-4 16:29
@@ -15556,7 +15556,7 @@ cgss几个活动曲快等了一年了.....
 二月SSR：海美、麗花、【このみ、？】
 
 
------
+*****
 
 ####  shadowof  
 ##### 2777#       发表于 2018-1-4 16:52
@@ -15577,7 +15577,7 @@ cgss几个活动曲快等了一年了.....
 <img src="https://i.imgur.com/hppBG3l.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ldenny  
 ##### 2778#       发表于 2018-1-4 20:47
@@ -15586,7 +15586,7 @@ cgss几个活动曲快等了一年了.....
 乌咪咪总算来了，然而石头都交给fes了，看来得给乌咪咪包大红包了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2779#       发表于 2018-1-4 22:48
@@ -15604,7 +15604,7 @@ cgss几个活动曲快等了一年了.....
 看来是miki了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2780#       发表于 2018-1-5 13:26
@@ -15620,7 +15620,7 @@ cgss几个活动曲快等了一年了.....
 希望不要坑了
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2781#       发表于 2018-1-5 17:32
@@ -15628,7 +15628,7 @@ cgss几个活动曲快等了一年了.....
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  shadowof  
 ##### 2782#       发表于 2018-1-5 18:20
@@ -15657,7 +15657,7 @@ cgss几个活动曲快等了一年了.....
 查看全部评分
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2783#       发表于 2018-1-6 19:27
@@ -15666,7 +15666,7 @@ cgss几个活动曲快等了一年了.....
 next life还是那么帅
 
 
------
+*****
 
 ####  shadowof  
 ##### 2784#       发表于 2018-1-7 18:37
@@ -15677,7 +15677,7 @@ Ready 14号前免费
 ASステラステージ服装2500石头带十连
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2785#       发表于 2018-1-7 20:10
@@ -15686,7 +15686,7 @@ ASステラステージ服装2500石头带十连
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">幸好没抽DAY1&amp;2，还有有偿石头买衣服
 
 
------
+*****
 
 ####  fw441  
 ##### 2786#       发表于 2018-1-7 20:47
@@ -15695,7 +15695,7 @@ ASステラステージ服装2500石头带十连
 READY五人独立动作 基本还原动画OP 我TM吹爆
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2787#       发表于 2018-1-7 21:26
@@ -15704,7 +15704,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 新歌新衣服，虚浮<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2788#       发表于 2018-1-7 21:32
@@ -15717,7 +15717,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">今天又被先生弄哭了……
 
 
------
+*****
 
 ####  Gohnny  
 ##### 2789#       发表于 2018-1-8 12:11
@@ -15726,7 +15726,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 桃子前辈看来得等到4月底了，十连券过期了都
 
 
------
+*****
 
 ####  shadowof  
 ##### 2790#       发表于 2018-1-8 19:09
@@ -15743,7 +15743,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2791#       发表于 2018-1-8 23:37
@@ -15752,7 +15752,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 <img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">客人也爆了，路人继续围观
 
 
------
+*****
 
 ####  shadowof  
 ##### 2792#       发表于 2018-1-8 23:37
@@ -15771,7 +15771,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 11号一波上位30票以后估计又要激变
 
 
------
+*****
 
 ####  terry666  
 ##### 2793#       发表于 2018-1-9 00:16
@@ -15780,7 +15780,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 感觉两次活动给的第一波100票入手之后，落后的一方都会反超一波，然后不出意外，等稳定下来之后又会被反超回来。
 
 
------
+*****
 
 ####  斑驳的阴影  
 ##### 2794#       发表于 2018-1-9 15:20
@@ -15793,7 +15793,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 初星整个策划感觉都很上心，歌单 服装 舞台 周边都非常非常棒
 
 
------
+*****
 
 ####  shadowof  
 ##### 2795#       发表于 2018-1-9 23:51
@@ -15826,7 +15826,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 都是日本时间
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2796#       发表于 2018-1-10 08:04
@@ -15835,7 +15835,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">最近有些路人送花，是通过签名拉票的一种方式？
 
 
------
+*****
 
 ####  キラ様  
 ##### 2797#       发表于 2018-1-10 08:32
@@ -15844,7 +15844,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 11号两大帮派直接火拼？
 
 
------
+*****
 
 ####  ldenny  
 ##### 2798#       发表于 2018-1-10 20:13
@@ -15853,7 +15853,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 咖啡店战争真的太可怕了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2799#       发表于 2018-1-10 20:28
@@ -15862,7 +15862,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">活动结束，看TB表演
 
 
------
+*****
 
 ####  shadowof  
 ##### 2800#       发表于 2018-1-10 20:32
@@ -15877,7 +15877,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 最大风速现在更新到24553
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2801#       发表于 2018-1-10 21:43
@@ -15886,7 +15886,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 【拉票】求支持客人百濑莉绪，让大姐姐有多上舞台唱歌的机会，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2802#       发表于 2018-1-10 22:31
@@ -15901,7 +15901,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 30分最大风速现在30446
 
 
------
+*****
 
 ####  shadowof  
 ##### 2803#       发表于 2018-1-10 22:40
@@ -15917,7 +15917,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 接下来马上进入日常3票时间
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2804#       发表于 2018-1-10 23:03
@@ -15927,7 +15927,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 南南大危机
 
 
------
+*****
 
 ####  shadowof  
 ##### 2805#       发表于 2018-1-10 23:11
@@ -15961,7 +15961,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
                    
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2806#       发表于 2018-1-10 23:13
@@ -15972,7 +15972,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 不過活動排名票最後會拿到多少呢...
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2807#       发表于 2018-1-10 23:15
@@ -15981,7 +15981,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">虽然觉得明天排名应该又会恢复原状，但今天一小时5W+的表现还是很棒的
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2808#       发表于 2018-1-10 23:57
@@ -15989,7 +15989,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  terry666  
 ##### 2809#       发表于 2018-1-11 00:15
@@ -16002,7 +16002,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 美奈子和静香基本就是看今天晚上那一波爆票了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2810#       发表于 2018-1-11 14:04
@@ -16016,7 +16016,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 <img src="https://i.imgur.com/cW2isdy.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qw945  
 ##### 2811#       发表于 2018-1-11 14:21
@@ -16025,7 +16025,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 新歌舞台效果不错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">特别是那面墙
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2812#       发表于 2018-1-11 14:22
@@ -16040,7 +16040,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 新增SSR数据：桃子
 
 
------
+*****
 
 ####  qw945  
 ##### 2813#       发表于 2018-1-11 14:26
@@ -16049,7 +16049,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 惊了，抽了DAY1&amp;2我已经没有有偿买衣服了啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">而且全灭了都没SSR
 
 
------
+*****
 
 ####  shadowof  
 ##### 2814#       发表于 2018-1-11 14:26
@@ -16060,7 +16060,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 最后阶段红色还是不少的
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2815#       发表于 2018-1-11 14:34
@@ -16068,7 +16068,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  fw441  
 ##### 2816#       发表于 2018-1-11 14:42
@@ -16077,7 +16077,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 这剧情好甜啊！かなしほ大歓喜
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2817#       发表于 2018-1-11 14:52
@@ -16086,7 +16086,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 果然情人节限定可能是桃子前辈不是瑞希啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2818#       发表于 2018-1-11 14:53
@@ -16097,7 +16097,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 自上次hotch potch之後就不敢抽打ち上げ了，買了トップクローバー現在只餘下千多有償石...
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2819#       发表于 2018-1-11 14:57
@@ -16105,7 +16105,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  shadowof  
 ##### 2820#       发表于 2018-1-11 20:37
@@ -16120,7 +16120,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2821#       发表于 2018-1-11 21:29
@@ -16129,7 +16129,7 @@ READY五人独立动作 基本还原动画OP 我TM吹爆
 liar rouge这AT力场效果是なんなん？
 
 
------
+*****
 
 ####  shadowof  
 ##### 2822#       发表于 2018-1-11 21:45
@@ -16143,7 +16143,7 @@ liar rouge这AT力场效果是なんなん？
 还有十五分钟次女的集体投票正面对决就要开始了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2823#       发表于 2018-1-11 22:32
@@ -16168,7 +16168,7 @@ liar rouge这AT力场效果是なんなん？
 　#北上麗花は同級生
 
 
------
+*****
 
 ####  shadowof  
 ##### 2824#       发表于 2018-1-11 23:35
@@ -16206,7 +16206,7 @@ liar rouge这AT力场效果是なんなん？
 15号是获得票数的最后期限
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2825#       发表于 2018-1-11 23:53
@@ -16217,7 +16217,7 @@ liar rouge这AT力场效果是なんなん？
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">king,neco,客人和元大女优不到最后鹿死谁手还不知道
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2826#       发表于 2018-1-14 21:10
@@ -16226,7 +16226,7 @@ liar rouge这AT力场效果是なんなん？
 今天什么情报都没,新低<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2827#       发表于 2018-1-14 21:39
@@ -16253,7 +16253,7 @@ liar rouge这AT力场效果是なんなん？
 21日  23:00 #次女静香
 
 
------
+*****
 
 ####  shadowof  
 ##### 2828#       发表于 2018-1-14 21:48
@@ -16269,7 +16269,7 @@ liar rouge这AT力场效果是なんなん？
 [https://twitter.com/uekibachi7/status/952526215386050560](https://twitter.com/uekibachi7/status/952526215386050560)
 
 
------
+*****
 
 ####  shadowof  
 ##### 2829#       发表于 2018-1-14 22:32
@@ -16284,7 +16284,7 @@ liar rouge这AT力场效果是なんなん？
 新入生未来集中投票30分和1小时
 
 
------
+*****
 
 ####  shadowof  
 ##### 2830#       发表于 2018-1-14 23:36
@@ -16302,7 +16302,7 @@ TB390票全部派完后30分钟。
 千票差距的地方应该会一直僵持到最后了
 
 
------
+*****
 
 ####  凭依华  
 ##### 2831#       发表于 2018-1-15 11:30
@@ -16324,7 +16324,7 @@ IMG_20180115_112134.jpg
 <img src="https://img.saraba1st.com/forum/201801/15/112739iss19il7w9zosi78.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2832#       发表于 2018-1-15 11:38
@@ -16333,7 +16333,7 @@ IMG_20180115_112134.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">土豆运营的操作一如既往看不懂
 
 
------
+*****
 
 ####  shadowof  
 ##### 2833#       发表于 2018-1-15 12:27
@@ -16344,7 +16344,7 @@ IMG_20180115_112134.jpg
 GREE版3月19号关服
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2834#       发表于 2018-1-15 14:14
@@ -16356,7 +16356,7 @@ GREE版3月19号关服
 目前有数据的SSR：昴、真美、海美、瑞希、【贵音２】、麗花、このみ、桃子
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2835#       发表于 2018-1-15 14:39
@@ -16370,7 +16370,7 @@ GREE版3月19号关服
 该不会故意等到情人节来发屠杀吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2836#       发表于 2018-1-15 14:44
@@ -16384,7 +16384,7 @@ GREE版3月19号关服
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以为剧透是FES，没想到是月中限定池
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2837#       发表于 2018-1-15 15:08
@@ -16398,7 +16398,7 @@ GREE版3月19号关服
 本家三巨头ssr高人气肯定是分散开的啊，大概本家通常倒数1、2个才会是miki
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2838#       发表于 2018-1-15 15:24
@@ -16407,7 +16407,7 @@ GREE版3月19号关服
 贵音2，我尿了...
 
 
------
+*****
 
 ####  宫宝兔丁  
 ##### 2839#       发表于 2018-1-15 15:30
@@ -16416,7 +16416,7 @@ GREE版3月19号关服
 春香两张卡的衣服都好可爱 疯狂看mv截图停不下来
 
 
------
+*****
 
 ####  枫紫  
 ##### 2840#       发表于 2018-1-15 16:08
@@ -16425,7 +16425,7 @@ GREE版3月19号关服
 看这次卡池结束后怎么处理了，已经做好以后每次都是限定带恒常的觉悟了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2841#       发表于 2018-1-15 23:03
@@ -16438,7 +16438,7 @@ GREE版3月19号关服
 次女美奈子一小时集中投票
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2842#       发表于 2018-1-16 00:11
@@ -16447,7 +16447,7 @@ GREE版3月19号关服
 攒着等bba吧…
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2843#       发表于 2018-1-16 11:04
@@ -16459,7 +16459,7 @@ GREE版3月19号关服
 请直接加QQ说明来意。243951195。
 
 
------
+*****
 
 ####  terry666  
 ##### 2844#       发表于 2018-1-16 12:06
@@ -16472,7 +16472,7 @@ GREE版3月19号关服
 然后月底继续把39人限定+本家恒常第一轮出完
 
 
------
+*****
 
 ####  斑驳的阴影  
 ##### 2845#       发表于 2018-1-16 14:50
@@ -16483,7 +16483,7 @@ GREE版3月19号关服
 18号保生日了，美也喵大危机<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2846#       发表于 2018-1-17 23:15
@@ -16492,7 +16492,7 @@ GREE版3月19号关服
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">高人气爆票果然恐怖
 
 
------
+*****
 
 ####  terry666  
 ##### 2847#       发表于 2018-1-17 23:21
@@ -16503,7 +16503,7 @@ GREE版3月19号关服
 这些人估计都是300多票压根没动过吧
 
 
------
+*****
 
 ####  shadowof  
 ##### 2848#       发表于 2018-1-17 23:51
@@ -16519,7 +16519,7 @@ GREE版3月19号关服
 之前一小时うみみ也集中了2万票
 
 
------
+*****
 
 ####  枫紫  
 ##### 2849#       发表于 2018-1-18 00:47
@@ -16528,7 +16528,7 @@ GREE版3月19号关服
 还差king和次女还有客人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2850#       发表于 2018-1-18 18:33
@@ -16546,7 +16546,7 @@ MS06试听 のりこ＋ジュリア
 
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2851#       发表于 2018-1-18 18:44
@@ -16559,7 +16559,7 @@ MS06试听 のりこ＋ジュリア
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2852#       发表于 2018-1-18 21:03
@@ -16586,7 +16586,7 @@ CD同unit有两首歌
 升级物品开了，物品可以换以前的上位卡，还可以换unit全员服装
 
 
------
+*****
 
 ####  shadowof  
 ##### 2853#       发表于 2018-1-18 21:35
@@ -16602,7 +16602,7 @@ MV
 换成了官方放出来的版本
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2854#       发表于 2018-1-18 21:41
@@ -16611,7 +16611,7 @@ MV
 PST石以及fairy屬性,這次要拼了...
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2855#       发表于 2018-1-18 21:46
@@ -16620,7 +16620,7 @@ PST石以及fairy屬性,這次要拼了...
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉已经完全不再是开服那个平打二档的咸鱼游戏了....
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2856#       发表于 2018-1-18 21:46
@@ -16629,7 +16629,7 @@ PST石以及fairy屬性,這次要拼了...
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">档线又要爆炸了吗
 
 
------
+*****
 
 ####  shadowof  
 ##### 2857#       发表于 2018-1-18 22:04
@@ -16640,7 +16640,7 @@ PST石以及fairy屬性,這次要拼了...
 TL上已经全是在期待重现以前那些活动了
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2858#       发表于 2018-1-18 22:15
@@ -16649,7 +16649,7 @@ TL上已经全是在期待重现以前那些活动了
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">牛逼疯了
 
 
------
+*****
 
 ####  fw441  
 ##### 2859#       发表于 2018-1-18 22:21
@@ -16658,7 +16658,7 @@ TL上已经全是在期待重现以前那些活动了
 我永远喜欢....
 
 
------
+*****
 
 ####  宫宝兔丁  
 ##### 2860#       发表于 2018-1-18 22:23
@@ -16667,7 +16667,7 @@ TL上已经全是在期待重现以前那些活动了
 制服改色还行，没色用了就出新制服<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2861#       发表于 2018-1-18 22:23
@@ -16676,7 +16676,7 @@ TL上已经全是在期待重现以前那些活动了
 吸血鬼和人类的爱恨情仇，期待活动剧情（舔雪代姐的男音已死
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2862#       发表于 2018-1-18 23:55
@@ -16685,7 +16685,7 @@ TL上已经全是在期待重现以前那些活动了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鼓吹百万已死,百万正统在空调的那些人呢
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2863#       发表于 2018-1-19 00:10
@@ -16694,7 +16694,7 @@ TL上已经全是在期待重现以前那些活动了
 我的天，这活动得肝爆炸。。。。
 
 
------
+*****
 
 ####  枫紫  
 ##### 2864#       发表于 2018-1-19 00:17
@@ -16703,7 +16703,7 @@ TL上已经全是在期待重现以前那些活动了
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">这正是我认识和期盼的百万活动
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2865#       发表于 2018-1-19 06:00
@@ -16714,7 +16714,7 @@ TL上已经全是在期待重现以前那些活动了
 谁知道，可能在忙着(                )呢(
 
 
------
+*****
 
 ####  oaf90ju  
 ##### 2866#       发表于 2018-1-19 10:58
@@ -16724,7 +16724,7 @@ TL上已经全是在期待重现以前那些活动了
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  佐藤和真  
 ##### 2867#       发表于 2018-1-19 11:10
@@ -16733,7 +16733,7 @@ TL上已经全是在期待重现以前那些活动了
 <img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">麻辣土豆天下第一
 
 
------
+*****
 
 ####  shadowof  
 ##### 2868#       发表于 2018-1-19 14:09
@@ -16744,7 +16744,7 @@ PST碎片完走50000点全拿
 1万线又要上升了
 
 
------
+*****
 
 ####  shuigua  
 ##### 2869#       发表于 2018-1-19 14:38
@@ -16753,7 +16753,7 @@ PST碎片完走50000点全拿
 已经当不起休闲玩家了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2870#       发表于 2018-1-19 14:46
@@ -16766,7 +16766,7 @@ PST碎片完走50000点全拿
 2分50秒曲子刷起来有点累
 
 
------
+*****
 
 ####  terry666  
 ##### 2871#       发表于 2018-1-19 15:09
@@ -16775,7 +16775,7 @@ PST碎片完走50000点全拿
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这MV太帅了，早说MLTD本身建模相比同类游戏就有优势，之前一直拘泥于舞台上跳舞这种表现形式真的是浪费了。
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2872#       发表于 2018-1-19 15:17
@@ -16784,7 +16784,7 @@ PST碎片完走50000点全拿
 <img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">互砍空气剑，不如双翼
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2873#       发表于 2018-1-19 15:37
@@ -16793,7 +16793,7 @@ PST碎片完走50000点全拿
 时间略长出手汗第一次打把屏幕打飞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2874#       发表于 2018-1-19 15:50
@@ -16801,7 +16801,7 @@ PST碎片完走50000点全拿
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  キラ様  
 ##### 2875#       发表于 2018-1-19 15:59
@@ -16816,7 +16816,7 @@ PST碎片完走50000点全拿
 お知らせ里有写，3到4要15个pst石头
 
 
------
+*****
 
 ####  terry666  
 ##### 2876#       发表于 2018-1-19 15:59
@@ -16831,7 +16831,7 @@ PST碎片完走50000点全拿
 上位卡3升4要15个石头
 
 
------
+*****
 
 ####  IPoke  
 ##### 2877#       发表于 2018-1-19 16:19
@@ -16842,7 +16842,7 @@ PST碎片完走50000点全拿
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  shadowof  
 ##### 2878#       发表于 2018-1-19 16:23
@@ -16854,7 +16854,7 @@ PST碎片完走50000点全拿
 话说之前更新アイドル詳細那个功能的时候，活动卡专门有凸４的语音，直接拿到2000以内报酬的没有升级这个步骤还只能在详细里面找那段语音。
 
 
------
+*****
 
 ####  超法拉  
 ##### 2879#       发表于 2018-1-19 16:37
@@ -16863,7 +16863,7 @@ PST碎片完走50000点全拿
 请问一下，现在土豆有SSRmiki了吗?想等出了之后直接找个初始入坑…
 
 
------
+*****
 
 ####  Duelector  
 ##### 2880#       发表于 2018-1-19 19:13
@@ -16877,7 +16877,7 @@ PST碎片完走50000点全拿
 
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2881#       发表于 2018-1-20 00:42
@@ -16886,7 +16886,7 @@ PST碎片完走50000点全拿
 那么idol heroes什么时候出？
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2882#       发表于 2018-1-21 04:36
@@ -16895,7 +16895,7 @@ PST碎片完走50000点全拿
 后知后觉，原来trysail三人的经纪人里有一位叫新田美波
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2883#       发表于 2018-1-21 12:08
@@ -16903,7 +16903,7 @@ PST碎片完走50000点全拿
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2884#       发表于 2018-1-21 14:24
@@ -16912,7 +16912,7 @@ PST碎片完走50000点全拿
 汉字写法确实是新田美波，BD的字幕里有写
 
 
------
+*****
 
 ####  shadowof  
 ##### 2885#       发表于 2018-1-21 15:04
@@ -16940,7 +16940,7 @@ PST碎片完走50000点全拿
    22:00 #カフェの三女杏奈
 
 
------
+*****
 
 ####  枫紫  
 ##### 2886#       发表于 2018-1-21 15:25
@@ -16949,7 +16949,7 @@ PST碎片完走50000点全拿
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这群人哪来的那么多票，看到分差拉开就集体做小号去了么
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2887#       发表于 2018-1-21 16:41
@@ -16960,7 +16960,7 @@ PST碎片完走50000点全拿
 现在做小号也拿不到票了啊
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2888#       发表于 2018-1-21 17:46
@@ -16972,7 +16972,7 @@ PST碎片完走50000点全拿
 之前就有人计算过， 似乎有高达60%票还在藏着
 
 
------
+*****
 
 ####  枫紫  
 ##### 2889#       发表于 2018-1-21 18:30
@@ -16984,7 +16984,7 @@ PST碎片完走50000点全拿
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">已经看到有人在卖票了，不是很懂这群人
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2890#       发表于 2018-1-21 18:47
@@ -16993,7 +16993,7 @@ PST碎片完走50000点全拿
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">脚本、卖票，投票期间还真是一副繁荣的景象
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2891#       发表于 2018-1-21 18:53
@@ -17005,7 +17005,7 @@ PST碎片完走50000点全拿
 求消息（可恶票已经allin了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">）
 
 
------
+*****
 
 ####  枫紫  
 ##### 2892#       发表于 2018-1-21 22:34
@@ -17017,7 +17017,7 @@ PST碎片完走50000点全拿
 <img src="https://static.saraba1st.com/image/smiley/carton2017/002.png" referrerpolicy="no-referrer">别这样，凉了不是还有TC么
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2893#       发表于 2018-1-21 23:13
@@ -17028,7 +17028,7 @@ PST碎片完走50000点全拿
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">tc怕不是theatre closed
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2894#       发表于 2018-1-22 15:20
@@ -17040,7 +17040,7 @@ tc怕不是theatre closed</blockquote>
 Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2895#       发表于 2018-1-22 16:51
@@ -17049,7 +17049,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 ネコ美也单项第一个超过100万票
 
 
------
+*****
 
 ####  shadowof  
 ##### 2896#       发表于 2018-1-22 22:15
@@ -17064,7 +17064,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 说完差距就拉开了
 
 
------
+*****
 
 ####  zeroed  
 ##### 2897#       发表于 2018-1-22 22:59
@@ -17073,7 +17073,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 <img src="https://static.saraba1st.com/image/smiley/face2017/156.png" referrerpolicy="no-referrer">ROCO输了,输的好惨啊
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2898#       发表于 2018-1-22 23:01
@@ -17082,7 +17082,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 <img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">终于结束了
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2899#       发表于 2018-1-22 23:01
@@ -17091,7 +17091,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">完结撒花？
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2900#       发表于 2018-1-22 23:26
@@ -17099,7 +17099,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  zqpm1235  
 ##### 2901#       发表于 2018-1-22 23:56
@@ -17108,7 +17108,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 除伪票我估计结果不会变，只是表明一种态度
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2902#       发表于 2018-1-23 00:01
@@ -17120,7 +17120,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 公布之后如果有逆转肯定一场炎上好戏，原来1位的喷运营黑幕，原来2位的喷1位担当素质差<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2903#       发表于 2018-1-23 02:00
@@ -17129,7 +17129,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不正票除了发包之外的怎么不正法
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2904#       发表于 2018-1-23 06:10
@@ -17140,7 +17140,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 还有买票，活动票，发布漫画/卡池几天内所有投漫画/卡池提及偶像的票。求补充((((
 
 
------
+*****
 
 ####  枫紫  
 ##### 2905#       发表于 2018-1-23 09:26
@@ -17149,7 +17149,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 最后时速那么高，是预想到有不少没屁股的票留到最后投自己喜欢的，但没想到有那么多
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2906#       发表于 2018-1-24 12:25
@@ -17161,7 +17161,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 不正票大概只有脚本挂机刷出的才算，买票如果是正常活动打的，你情我愿的事情怎么能算不正票，至于投四格和卡池的票这都是无担当或dd的自愿票，怎么就变成不正票了？（黑人问号
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2907#       发表于 2018-1-24 16:23
@@ -17173,7 +17173,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">请问阁下知道“(”的意思吗
 
 
------
+*****
 
 ####  shadowof  
 ##### 2908#       发表于 2018-1-24 19:22
@@ -17185,7 +17185,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 可信度请自行判断
 
 
------
+*****
 
 ####  oaf90ju  
 ##### 2909#       发表于 2018-1-24 21:59
@@ -17197,7 +17197,7 @@ Theater Caliphate<img src="https://static.saraba1st.com/image/smiley/face2017/01
 突然又慌了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2910#       发表于 2018-1-25 18:06
@@ -17217,7 +17217,7 @@ MS06 奈緒＆歩
 
 
 
------
+*****
 
 ####  oaf90ju  
 ##### 2911#       发表于 2018-1-25 18:56
@@ -17233,7 +17233,7 @@ http://v.youku.com/v_show/id_XMzM1MTgyNjU3Mg==.html
 美式乡村的编曲吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2912#       发表于 2018-1-25 20:00
@@ -17258,7 +17258,7 @@ E服B今天ミリラジ的おまけ稍微聊了一下曲子的歌词
 双关很多
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2913#       发表于 2018-1-26 16:34
@@ -17266,7 +17266,7 @@ E服B今天ミリラジ的おまけ稍微聊了一下曲子的歌词
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2914#       发表于 2018-1-26 18:14
@@ -17275,7 +17275,7 @@ E服B今天ミリラジ的おまけ稍微聊了一下曲子的歌词
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以到底之前为啥不能体力超出上限的.....明明都7102年了.....
 
 
------
+*****
 
 ####  IPoke  
 ##### 2915#       发表于 2018-1-26 18:18
@@ -17286,7 +17286,7 @@ E服B今天ミリラジ的おまけ稍微聊了一下曲子的歌词
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  shadowof  
 ##### 2916#       发表于 2018-1-26 18:57
@@ -17297,7 +17297,7 @@ E服B今天ミリラジ的おまけ稍微聊了一下曲子的歌词
 唯一要注意的是每小时最大速度降低了，而且随机性比原来大了点（工作会出机会），喜欢压活动截止线刷的需要多算算
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2917#       发表于 2018-1-26 19:10
@@ -17306,7 +17306,7 @@ E服B今天ミリラジ的おまけ稍微聊了一下曲子的歌词
 一发出了subaru<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">，现在就等umi和超得再氪个72了
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2918#       发表于 2018-1-27 00:11
@@ -17315,7 +17315,7 @@ E服B今天ミリラジ的おまけ稍微聊了一下曲子的歌词
 完整版居然才4分多钟,还期望着会有8-10分钟的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2919#       发表于 2018-1-27 11:44
@@ -17331,7 +17331,7 @@ E服B今天ミリラジ的おまけ稍微聊了一下曲子的歌词
 MTG 04，lantis主页上bnt的说明已经从17人改成16了
 
 
------
+*****
 
 ####  返魂蝶  
 ##### 2920#       发表于 2018-1-27 14:39
@@ -17344,7 +17344,7 @@ MTG 04，lantis主页上bnt的说明已经从17人改成16了
 不过描述似乎改过了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2921#       发表于 2018-1-27 14:44
@@ -17360,7 +17360,7 @@ MTG 04，lantis主页上bnt的说明已经从17人改成16了
 已经改16人了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2922#       发表于 2018-1-27 14:45
@@ -17369,7 +17369,7 @@ MTG 04，lantis主页上bnt的说明已经从17人改成16了
 官网是改了
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2923#       发表于 2018-1-27 14:50
@@ -17379,7 +17379,7 @@ MTG 04，lantis主页上bnt的说明已经从17人改成16了
 感觉这游戏是彻底不咸了.......
 
 
------
+*****
 
 ####  Askeladd  
 ##### 2924#       发表于 2018-1-27 14:51
@@ -17388,7 +17388,7 @@ MTG 04，lantis主页上bnt的说明已经从17人改成16了
 编辑掉，回错贴，怎么删233
 
 
------
+*****
 
 ####  返魂蝶  
 ##### 2925#       发表于 2018-1-27 15:18
@@ -17400,7 +17400,7 @@ MTG 04，lantis主页上bnt的说明已经从17人改成16了
 朋友已经心如死灰了<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shuigua  
 ##### 2926#       发表于 2018-1-27 17:29
@@ -17416,7 +17416,7 @@ MTG 04，lantis主页上bnt ...</blockquote>
 怎样才能实现这个画面？
 
 
------
+*****
 
 ####  枫紫  
 ##### 2927#       发表于 2018-1-27 21:15
@@ -17430,7 +17430,7 @@ MTG 04，lantis主页上bnt ...</blockquote>
 当然是假的
 
 
------
+*****
 
 ####  shuigua  
 ##### 2928#       发表于 2018-1-28 00:14
@@ -17442,7 +17442,7 @@ MTG 04，lantis主页上bnt ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2929#       发表于 2018-1-28 11:23
@@ -17468,7 +17468,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 第16话剧情：追加全体曲？（登场人物都出过Solo：杏奈，可奈，志保）
 
 
------
+*****
 
 ####  fw441  
 ##### 2930#       发表于 2018-1-28 14:30
@@ -17477,7 +17477,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 这个全体曲 估计是MTG05里面那首吧
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2931#       发表于 2018-1-28 16:08
@@ -17489,7 +17489,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
------
+*****
 
 ####  名取羽美  
 ##### 2932#       发表于 2018-1-29 14:27
@@ -17497,7 +17497,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2933#       发表于 2018-1-29 14:46
@@ -17508,7 +17508,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 —— 来自 Huawei Nexus 6P, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2934#       发表于 2018-1-29 17:32
@@ -17521,7 +17521,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 猛将传的衣服全员都开卖了，难道之后top！也会实装？
 
 
------
+*****
 
 ####  红楼白衣  
 ##### 2935#       发表于 2018-1-29 18:21
@@ -17530,7 +17530,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 同一套衣服怎么还能卖四次的
 
 
------
+*****
 
 ####  吉诺爱比利  
 ##### 2936#       发表于 2018-1-29 23:27
@@ -17539,7 +17539,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 今天的更新好评，好多地方更人性化了
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2937#       发表于 2018-1-30 02:03
@@ -17554,7 +17554,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 2、又偷偷更新了一点琴叶的数据，这次能奶出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2938#       发表于 2018-1-30 02:44
@@ -17569,7 +17569,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2939#       发表于 2018-1-30 05:09
@@ -17578,7 +17578,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 可是这衣服真的好难看啊
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2940#       发表于 2018-1-30 08:10
@@ -17595,7 +17595,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2941#       发表于 2018-1-30 08:52
@@ -17606,7 +17606,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 竟然给了我一种bnei是一个良心厂商的幻觉
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2942#       发表于 2018-1-30 14:10
@@ -17615,7 +17615,7 @@ SR卡池：エミリー５、エレナ５、美也６、亜美５、雪歩５、
 <img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">看来上位是钉宫了
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2943#       发表于 2018-1-31 14:09
@@ -17641,7 +17641,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 第16话剧情：追加全体曲？（登场人物都出过Solo：杏奈，可奈，志保）
 
 
------
+*****
 
 ####  希望之异热同心  
 ##### 2944#       发表于 2018-1-31 14:27
@@ -17650,7 +17650,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 30连下去0SSR，自杀了
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2945#       发表于 2018-1-31 14:31
@@ -17659,7 +17659,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">30连就自杀的话，我已经不知道死了多少次
 
 
------
+*****
 
 ####  shadowof  
 ##### 2946#       发表于 2018-1-31 14:36
@@ -17670,7 +17670,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 消耗体力比一般的多，30一次，算是弥补没了直接溢出换票子后，体力消耗速度
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2947#       发表于 2018-1-31 23:03
@@ -17679,7 +17679,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 南斗回来了！还会动了！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 2948#       发表于 2018-1-31 23:08
@@ -17688,7 +17688,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 公式なんなんとう喷了，难怪特意要搞節分而不是情人节的登陆奖励
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2949#       发表于 2018-1-31 23:17
@@ -17697,7 +17697,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">南南东
 
 
------
+*****
 
 ####  free切  
 ##### 2950#       发表于 2018-1-31 23:40
@@ -17706,7 +17706,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">新人想入坑。但是iOS我怎么都上不去，挂个vpn居然瞬间错误。有没有iOS大佬指点一下
 
 
------
+*****
 
 ####  枫紫  
 ##### 2951#       发表于 2018-2-1 09:59
@@ -17717,7 +17717,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 首先，要找个好点的梯子……然后才有然后
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2952#       发表于 2018-2-1 10:58
@@ -17729,7 +17729,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 这游戏是谷歌云服务，首先要爬墙。但是翻了墙也不一定能玩，很多VPN都被运营封了IP（游戏内错误码10403），需要买一个线路多的代理试哪个线路能用。
 
 
------
+*****
 
 ####  DEMOxN  
 ##### 2953#       发表于 2018-2-1 11:37
@@ -17740,7 +17740,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 最近几次55炸了用猪厂加速器是能上的
 
 
------
+*****
 
 ####  shadowof  
 ##### 2954#       发表于 2018-2-1 15:12
@@ -17751,7 +17751,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 也差不多该公开live人员了
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2955#       发表于 2018-2-1 15:33
@@ -17768,7 +17768,7 @@ MS08的成员公布，5th成员公布，新女主角公布
 看来留给琴叶的时间不多了，大概就这半个月？
 
 
------
+*****
 
 ####  枫紫  
 ##### 2956#       发表于 2018-2-1 15:35
@@ -17777,7 +17777,7 @@ MS08的成员公布，5th成员公布，新女主角公布
 错过这次生放，我觉得真的只有一周年能上了
 
 
------
+*****
 
 ####  shadowof  
 ##### 2957#       发表于 2018-2-1 15:43
@@ -17790,7 +17790,7 @@ live成员可以分几次公开，还可以拖
 按顺序的话2月活动是angel，三月princess，如果到时候也搞个直播之类的话，那时候说明的可能性会大一点。
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2958#       发表于 2018-2-1 16:11
@@ -17799,7 +17799,7 @@ live成员可以分几次公开，还可以拖
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那怕不是真要“第一个见到的土豆模型，整整一年后才在游戏里见到”
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2959#       发表于 2018-2-1 16:20
@@ -17808,7 +17808,7 @@ live成员可以分几次公开，还可以拖
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为纪念武道馆live一周年，我们将公开当初的单体模型，2500有偿购买送十连券这样吗
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2960#       发表于 2018-2-1 17:09
@@ -17820,7 +17820,7 @@ live成员可以分几次公开，还可以拖
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
------
+*****
 
 ####  shadowof  
 ##### 2961#       发表于 2018-2-1 18:27
@@ -17832,7 +17832,7 @@ live成员可以分几次公开，还可以拖
 MS06 千鶴
 
 
------
+*****
 
 ####  不起眼の路人  
 ##### 2962#       发表于 2018-2-1 18:46
@@ -17843,7 +17843,7 @@ MS06 千鶴
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  shuigua  
 ##### 2963#       发表于 2018-2-1 22:48
@@ -17854,7 +17854,7 @@ MS06 千鶴
 —— 来自 Huawei Nexus 6P, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
------
+*****
 
 ####  shadowof  
 ##### 2964#       发表于 2018-2-1 23:02
@@ -17872,7 +17872,7 @@ MS06 千鶴
 <img src="https://i.imgur.com/I0wZCwa.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  言藏美鹤  
 ##### 2965#       发表于 2018-2-2 09:31
@@ -17880,7 +17880,7 @@ MS06 千鶴
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  言藏美鹤  
 ##### 2966#       发表于 2018-2-2 09:57
@@ -17888,7 +17888,7 @@ MS06 千鶴
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  fw441  
 ##### 2967#       发表于 2018-2-3 10:04
@@ -17899,7 +17899,7 @@ MS06 千鶴
 顺便一提我是IPHONE6s ios10/IPAD mini 2 ios10
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2968#       发表于 2018-2-3 10:18
@@ -17911,7 +17911,7 @@ MS06 千鶴
 从开服开始一直都可以多设备登陆，而且两边还能同时操作。
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2969#       发表于 2018-2-3 10:48
@@ -17920,7 +17920,7 @@ MS06 千鶴
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">原来可以多设备登陆的吗，为什么我看那些用代充的说每次要删数据
 
 
------
+*****
 
 ####  fw441  
 ##### 2970#       发表于 2018-2-3 11:02
@@ -17934,7 +17934,7 @@ MS06 千鶴
 
 
 
------
+*****
 
 ####  キラ様  
 ##### 2971#       发表于 2018-2-3 11:43
@@ -17981,7 +17981,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 いじょう。
 
 
------
+*****
 
 ####  fw441  
 ##### 2972#       发表于 2018-2-3 12:12
@@ -17992,7 +17992,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  shadowof  
 ##### 2973#       发表于 2018-2-4 16:46
@@ -18001,7 +18001,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 4倍开了以后，追加到消耗60体力的工作，3倍速烧石头，弥补了之前直接转票子的效率
 
 
------
+*****
 
 ####  言藏美鹤  
 ##### 2974#       发表于 2018-2-5 09:50
@@ -18009,7 +18009,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  ptshiki  
 ##### 2975#       发表于 2018-2-6 18:04
@@ -18022,7 +18022,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 刚试了一下，不同icloud账号之间也可以直接引继不会踢掉其他设备上的账号了，可能是新版本或者最近改的吧。
 
 
------
+*****
 
 ####  fw441  
 ##### 2976#       发表于 2018-2-6 21:03
@@ -18034,7 +18034,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 我休息室里的日本友人也说现在可以多设备登陆了，应该就是最近改了
 
 
------
+*****
 
 ####  枫紫  
 ##### 2977#       发表于 2018-2-7 00:25
@@ -18043,7 +18043,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">恭喜各位可以开寺庙了
 
 
------
+*****
 
 ####  信长的呕吐  
 ##### 2978#       发表于 2018-2-7 23:02
@@ -18052,7 +18052,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 琴叶来啦！
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 2979#       发表于 2018-2-7 23:03
@@ -18061,7 +18061,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 突然琴叶还行……
 
 
------
+*****
 
 ####  fw441  
 ##### 2980#       发表于 2018-2-7 23:08
@@ -18070,7 +18070,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 琴叶来了 感动到哭了
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2981#       发表于 2018-2-7 23:09
@@ -18082,7 +18082,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 大半夜哭出来了
 
 
------
+*****
 
 ####  oaf90ju  
 ##### 2982#       发表于 2018-2-7 23:10
@@ -18091,7 +18091,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 终于奶出来了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  supergilaboy  
 ##### 2983#       发表于 2018-2-7 23:10
@@ -18100,7 +18100,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 琴叶，欢迎回来
 
 
------
+*****
 
 ####  镜hinata  
 ##### 2984#       发表于 2018-2-7 23:11
@@ -18109,7 +18109,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 回来了回来了回来<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2985#       发表于 2018-2-7 23:12
@@ -18118,7 +18118,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 恭喜你游正式开服
 
 
------
+*****
 
 ####  bwjx88  
 ##### 2986#       发表于 2018-2-7 23:16
@@ -18127,7 +18127,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 欢迎回来！
 
 
------
+*****
 
 ####  justinebelgium  
 ##### 2987#       发表于 2018-2-7 23:20
@@ -18136,7 +18136,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">内测结束
 
 
------
+*****
 
 ####  山崎はるか  
 ##### 2988#       发表于 2018-2-7 23:25
@@ -18145,7 +18145,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 欢迎，欢迎回来！
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2989#       发表于 2018-2-7 23:25
@@ -18154,7 +18154,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 不得了了，土豆开服啦！！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fhdelibird  
 ##### 2990#       发表于 2018-2-7 23:26
@@ -18165,7 +18165,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 歡迎回來
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2991#       发表于 2018-2-7 23:29
@@ -18177,7 +18177,7 @@ iphone側のバックアップ設定でミリシタをバックアップ対象�
 但是琴叶实际开口后还是哭出来了
 
 
------
+*****
 
 ####  charlygaol  
 ##### 2992#       发表于 2018-2-7 23:31
@@ -18201,7 +18201,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 第16话剧情：追加全体曲？（登场人物都出过Solo：杏奈，可奈，志保）
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2993#       发表于 2018-2-7 23:31
@@ -18210,7 +18210,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 <img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">说起来，之后要实装的welcome居然是这个意思吗，下得一手好棋啊
 
 
------
+*****
 
 ####  しろの舞  
 ##### 2994#       发表于 2018-2-7 23:35
@@ -18219,7 +18219,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 土豆今日正式开服
 
 
------
+*****
 
 ####  hypnossz86  
 ##### 2995#       发表于 2018-2-7 23:38
@@ -18228,7 +18228,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 所以今天的日常都是蓝色交响么......运营可以的
 
 
------
+*****
 
 ####  キラ様  
 ##### 2996#       发表于 2018-2-7 23:39
@@ -18237,7 +18237,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 祝贺祝贺
 
 
------
+*****
 
 ####  黑金队长  
 ##### 2997#       发表于 2018-2-7 23:44
@@ -18246,7 +18246,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然有点像梦话，不过后面エレナ上位的tour，如果是トライスタービジョン的活动的话怎么办
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 2998#       发表于 2018-2-7 23:52
@@ -18255,7 +18255,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 一声不吭就开服了，真是惊喜
 
 
------
+*****
 
 ####  枫紫  
 ##### 2999#       发表于 2018-2-7 23:54
@@ -18264,7 +18264,7 @@ SR卡池：エレナ５、美也６、雪歩５、まつり５、律子５、莉
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">幸福来的太突然
 
 
------
+*****
 
 ####  镜hinata  
 ##### 3000#       发表于 2018-2-8 00:05
