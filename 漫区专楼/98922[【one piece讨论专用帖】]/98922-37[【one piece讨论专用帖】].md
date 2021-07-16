@@ -16808,3 +16808,17 @@ cp9有道力值的，后面不玩这套了
 
 
                                                  
+
+-----
+
+####  斯塔久  
+##### 55408#       发表于 2021-7-16 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51973903&amp;ptid=98922" target="_blank">icer 发表于 2021-7-15 22:45</a>
+
+猜一个大和麒麟果实</blockquote>
+能不能换个不长鳞片的。<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+                                                 

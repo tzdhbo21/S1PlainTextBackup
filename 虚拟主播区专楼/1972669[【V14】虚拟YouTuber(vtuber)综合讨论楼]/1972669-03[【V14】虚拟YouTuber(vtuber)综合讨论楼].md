@@ -17142,3 +17142,307 @@ holostats没事，这种分类感觉还挺好的，建议以后都分社设立�
 
 
                                                  
+
+-----
+
+####  渡鸦骑士  
+##### 4279#       发表于 2021-7-16 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51984781&amp;ptid=1972669" target="_blank">空集 发表于 2021-7-16 18:12</a>
+
+都快不能拿歌势都没3d劈2434了时间好快。。
+
+hiyoko这是给甚么大手搞了啊  说实话很迷惑。现在比较关心历史 ...</blockquote>
+[https://twitter.com/hiyoko____club/status/1415976293988900865](https://twitter.com/hiyoko____club/status/1415976293988900865)
+
+自己的说法是家里有人大病了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 4280#       发表于 2021-7-16 19:08
+
+
+[https://www.youtube.com/watch?v=PiB1GmOL2h8](https://www.youtube.com/watch?v=PiB1GmOL2h8)
+
+Rain Drops Radio 『OBS』#2
+
+
+-----
+
+####  FCCHua  
+##### 4281#       发表于 2021-7-16 19:10
+
+
+电视剧片尾曲？！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nian1538  
+##### 4282#       发表于 2021-7-16 19:20
+
+
+HoloStats的同接也没了
+
+
+-----
+
+####  rzrbtk  
+##### 4283#       发表于 2021-7-16 19:39
+
+
+月之新曲MV一出，就感觉新砖真的快来了，希望给点好听的吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">…
+说起来社歌004也出了，琥珀还行！
+
+
+-----
+
+####  格林卡罗尔  
+##### 4284#       发表于 2021-7-16 20:00
+
+
+那我顺便再推几个管人mad
+三个茄子
+【【名取纱那】让我看看你的梦【PV】-哔哩哔哩】https://b23.tv/Zz76y9
+【【MAD】berry-哔哩哔哩】https://b23.tv/ULQIjX
+【【MAD】なとりとえいえんをいきるぼくたち-哔哩哔哩】https://b23.tv/BWBdCe
+【静止系//泡沫メモリ】Won't you hold my hand - 私の手を握ってくれないか-哔哩哔哩】https://b23.tv/izdcD4
+半成品，一个美兔一个爱丽丝
+https://b23.tv/MRK9Im
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  biye  
+##### 4285#       发表于 2021-7-16 20:01
+
+
+亚人3D开始了 
+[https://www.youtube.com/watch?v=h0Gr7iw_x3A](https://www.youtube.com/watch?v=h0Gr7iw_x3A)
+
+
+-----
+
+####  FCCHua  
+##### 4286#       发表于 2021-7-16 20:02
+
+
+开幕就唱，爽的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 4287#       发表于 2021-7-16 20:11
+
+
+1080也特别糊，亚人3d也太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/16/201051zfbtzldstajo8lol.png" referrerpolicy="no-referrer">
+
+
+<strong>【#レヴィ3D】亜人、3Dになル【にじさんじ:レヴィ・エリファ】.png</strong> (202.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-16 20:10 上传
+
+
+全乐队，以及社内优秀踩音箱文化
+
+
+-----
+
+####  空集  
+##### 4288#       发表于 2021-7-16 20:11
+
+
+草  亚人这明明也是3dlive才这数字 你虹阳盛阴衰有点恐怖
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  黑之和  
+##### 4289#       发表于 2021-7-16 20:14
+
+
+亚人好可爱，
+想当她姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 4290#       发表于 2021-7-16 20:16
+
+
+草 这丧尸是谁
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  黑之和  
+##### 4291#       发表于 2021-7-16 20:20
+
+
+ 本帖最后由 黑之和 于 2021-7-16 20:23 编辑 
+
+草，是gaku
+gaku3d恭喜捏
+
+连着猜错两个，还有Levi赢了的未来吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 4292#       发表于 2021-7-16 20:24
+
+
+第二个是兔头可还行 levi排面那么大的么
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  黑之和  
+##### 4293#       发表于 2021-7-16 20:26
+
+
+“是谁杀了谁？”
+“是我！杀！了！我！”
+
+
+-----
+
+####  空集  
+##### 4294#       发表于 2021-7-16 20:27
+
+
+最后是levi自己还行。。。 黑叔叔总结
+奇妙的参与人员名单  这个活还挺有趣的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  alcoholic1000  
+##### 4295#       发表于 2021-7-16 20:31
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-16 20:43 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/16/203113shmpmqw1rfe7xzqq.png" referrerpolicy="no-referrer">
+
+
+<strong>【#レヴィ3D】亜人、3Dになル【にじさんじ:レヴィ・エリファ】-2.png</strong> (173.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-16 20:31 上传
+
+
+原创曲来了
+
+
+<img src="https://img.saraba1st.com/forum/202107/16/203910wxb2nttd14yn61nf.png" referrerpolicy="no-referrer">
+
+
+<strong>【#レヴィ3D】亜人、3Dになル【にじさんじ:レヴィ・エリファ】-3.png</strong> (175.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-16 20:39 上传
+
+
+翔哥和亚人声音匹配度真高，之前歌投稿就有这感觉了
+
+
+<img src="https://img.saraba1st.com/forum/202107/16/204321au56vv95wr6h4qvj.png" referrerpolicy="no-referrer">
+
+
+<strong>【#レヴィ3D】亜人、3Dになル【にじさんじ:レヴィ・エリファ】-5.png</strong> (126.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-16 20:43 上传
+
+
+！！king
+
+
+-----
+
+####  渡鸦骑士  
+##### 4296#       发表于 2021-7-16 20:36
+
+
+梦追好像显得不太行阿（）<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 4297#       发表于 2021-7-16 20:39
+
+
+和翔哥对唱这首真不错...
+
+这么好玩的3D咋才5万同接，我印象里虹现在3D应该都稳上10万了
+
+
+-----
+
+####  黑之和  
+##### 4298#       发表于 2021-7-16 20:39
+
+
+ 本帖最后由 黑之和 于 2021-7-16 20:40 编辑 
+
+排面啊
+阿葛来了
+好听！！！！
+
+
+-----
+
+####  biye  
+##### 4299#       发表于 2021-7-16 20:39
+
+
+排面啊亚人
+
+
+-----
+
+####  biye  
+##### 4300#       发表于 2021-7-16 20:39
+
+
+排面啊亚人
+
+
+-----
+
+####  IDIDIDID  
+##### 4301#       发表于 2021-7-16 20:40
+
+
+亚人玩vr.jpg
+
+
+                                                

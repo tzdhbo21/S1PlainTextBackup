@@ -7955,3 +7955,49 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
 
                                                 
+
+-----
+
+####  cctvyt1  
+##### 12693#       发表于 2021-7-16 20:12
+
+
+ 本帖最后由 cctvyt1 于 2021-7-16 20:21 编辑 
+
+都特地去公司结果还是读SC杂谈
+
+只能说绫总现在只想混时数吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+在家开还要唸到完 去公司只要拖到关门就能准时下班了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12694#       发表于 2021-7-16 20:16
+
+
+遇到困难 摆大烂<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12695#       发表于 2021-7-16 20:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来收钱还迟到了 不能忍
+
+
+-----
+
+####  nian1538  
+##### 12696#       发表于 2021-7-16 20:30
+
+
+这下真可以永动了
+
+一个星期念2小时SC，剩下的下次再念，无限循环
+
+
+                                                 

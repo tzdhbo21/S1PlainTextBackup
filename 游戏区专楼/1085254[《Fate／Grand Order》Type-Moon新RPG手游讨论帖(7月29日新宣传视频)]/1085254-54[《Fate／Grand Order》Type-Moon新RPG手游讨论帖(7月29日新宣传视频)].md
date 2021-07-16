@@ -6386,3 +6386,45 @@ material9下月发售
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 80028#       发表于 2021-7-16 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51982794&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-7-16 15:44</a>
+剧情看完了，突然有种卡池安排得很怪的感觉
+
+后半明显是塑造摩根，这紧接着来个摩根池不得骗氪骗到爆，然而 ...</blockquote>
+那奥伯龙怎么放？明显8月是奥伯龙主场吧
+
+
+-----
+
+####  zakki  
+##### 80029#       发表于 2021-7-16 19:41
+
+
+不过不觉得8月4号会有新池子，8月1号才开周年池，如果奥伯龙是红拐那放在周年也很正常
+
+
+-----
+
+####  khxooo  
+##### 80030#       发表于 2021-7-16 20:00
+
+
+CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzxa  
+##### 80031#       发表于 2021-7-16 20:20
+
+
+8月4日应该是尾声了，后续请等2.65
+
+
+                                                 
