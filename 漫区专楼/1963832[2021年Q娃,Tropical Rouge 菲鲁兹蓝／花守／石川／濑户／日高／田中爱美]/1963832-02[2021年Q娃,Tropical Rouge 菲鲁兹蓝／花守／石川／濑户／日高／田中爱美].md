@@ -5566,3 +5566,17 @@ SS主要是连模板都差不多
 
 
                                                  
+
+-----
+
+####  Blackson  
+##### 1911#       发表于 2021-7-16 12:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960878&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-7-14 22:47</a>
+ 组曲的确是挺阿卡林得 毕竟被抓心压在后面 被傻笑挤在前面 那榜单我去查一下组曲就黑白猫上榜 艾莲还是在 ...</blockquote>
+想起星闪也是同样的情况（还是同为高桥晃人设），被拥抱压，被治愈挤。
+虽然当时榜单有人上榜，但很明显是吃正在播映的热度。若放在现在，可能跟着（组曲）一起阿卡林
+
+
+                                                 

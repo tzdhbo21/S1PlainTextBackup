@@ -5762,3 +5762,59 @@ e61190ef76c6a7ef2cc93c96f4faaf51f2de6697.jpg
 
 
                                                  
+
+-----
+
+####  JY要塞  
+##### 20031#       发表于 2021-7-16 11:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克民内部开始分化轻坦民和重坦民了
+
+
+-----
+
+####  时间在我手中  
+##### 20032#       发表于 2021-7-16 11:58
+
+
+坦总赢
+
+
+-----
+
+####  呓亘  
+##### 20033#       发表于 2021-7-16 12:06
+
+
+听说沙滨女人昨天和PTR那一段挺好玩的
+
+
+-----
+
+####  fgfg435  
+##### 20034#       发表于 2021-7-16 12:10
+
+
+轻坦民？肉体民!肉体民永远在赢<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 20035#       发表于 2021-7-16 12:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">今天有联动吗，我有点忘了。
+
+
+-----
+
+####  时间在我手中  
+##### 20036#       发表于 2021-7-16 12:29
+
+
+今天哪有联动，她日程昨天就基本安排结束了，明晚有个三周年批限就是了
+
+
+                                                 

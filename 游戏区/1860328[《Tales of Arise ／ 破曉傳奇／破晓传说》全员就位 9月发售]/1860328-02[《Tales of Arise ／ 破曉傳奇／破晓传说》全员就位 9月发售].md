@@ -7342,3 +7342,19 @@ deen唱的吗？</blockquote>
 
 
                                                  
+
+-----
+
+####  蓝雉  
+##### 2042#       发表于 2021-7-16 12:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51979260&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-16 11:27</a>
+https://www.youtube.com/watch?v=74APIbBbTeU
+
+
+官方更新了 罗 的角色预告片</blockquote>
+从目前的情报和op画面来看大概是为了保护什么委曲求全结果被背刺了
+
+
+                                                 
