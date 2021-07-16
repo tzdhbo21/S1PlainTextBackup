@@ -5602,3 +5602,20 @@ SS主要是连模板都差不多
 
 
                                                  
+
+-----
+
+####  dragrass  
+##### 1914#       发表于 2021-7-17 00:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51980904&amp;ptid=1963832" target="_blank">过气页游 发表于 2021-7-16 13:23</a>
+提到人设，川村敏江三部人气都名列前茅也是厉害，5gogo周边也是一直出</blockquote>
+川村是鸠尾p时代最后一代人设也是梅泽p时代最后一代人设也是佐藤p最后一代人设<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+不过川村在拥抱后期明显划水了，拥抱的二段变身真的有失水准
+
+— from vivo V2055A, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 

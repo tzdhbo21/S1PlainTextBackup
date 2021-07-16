@@ -1294,3 +1294,34 @@ sad，没有真的树登场。
 
 
                                                  
+
+-----
+
+####  最强惠酱  
+##### 87#       发表于 2021-7-17 00:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51990199&amp;ptid=2013210" target="_blank">北山玖公 发表于 2021-7-16 23:26</a>
+
+sad，没有真的树登场。
+
+消极先生这是腱鞘炎了？画画的职业病啊。林编还是温柔，各种哄和关心，简直就像在照 ...</blockquote>
+佐仓他们也吐槽了，消极这腱消炎更像是删跨页的借口，毕竟椅子可调<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  フリーレン  
+##### 88#         楼主| 发表于 2021-7-17 01:10
+
+
+<blockquote>最强惠酱 发表于 2021-7-17 00:12
+佐仓他们也吐槽了，消极这腱消炎更像是删跨页的借口，毕竟椅子可调 ...</blockquote>
+他們那一段真的很好笑
+
+仿佛看到小孩子跟媽媽說自己身體不舒服沒法去上學，結果媽媽馬上說我送你去急診
+
+被嚇到方的小孩馬上不用不用好像也沒那麼嚴重
+
+
+                                                 

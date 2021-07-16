@@ -17674,3 +17674,93 @@ HIMEHINA『フリコドウル』MV
 
 
                                                  
+
+-----
+
+####  qq845629713  
+##### 4320#       发表于 2021-7-16 23:36
+
+
+月丿做的越好，看了看头上的KING，这人内心就越不甘心吧，不过没办法，
+
+
+KING毕竟是KING 
+
+
+
+
+-----
+
+####  free  
+##### 4321#       发表于 2021-7-16 23:41
+
+
+YouTube Music Weekend开始了，今晚杏明晚虹，明天白天还有太子和dustcell，现在律可刚开始
+
+应该都是播片
+
+[https://www.youtube.com/watch?v=uf-OJWlY-FU](https://www.youtube.com/watch?v=uf-OJWlY-FU)
+
+
+<img src="https://img.saraba1st.com/forum/202107/16/234119sye8ldf2tyszqeyn.png" referrerpolicy="no-referrer">
+
+
+<strong>youtube.png</strong> (107.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-16 23:41 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 4322#       发表于 2021-7-16 23:52
+
+
+看到chima上3D好想黑屁一句小蜜蜂是不是明牌不续签了，不然不应该不出力推啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4323#       发表于 2021-7-16 23:54
+
+
+应该说现在冥府就ib披露了，fes上出现的跳了好几个，虽然最不理解的是为什么谢林要等这么久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 4324#       发表于 2021-7-16 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51990410&amp;ptid=1972669" target="_blank">free 发表于 2021-7-16 23:41</a>
+YouTube Music Weekend开始了，今晚杏明晚虹，明天白天还有太子和dustcell，现在律可刚开始
+
+应该都是播片</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">杏的不清楚，明天虹只有兔头是真live，其它是播片
+
+
+-----
+
+####  空き地卯木  
+##### 4325#       发表于 2021-7-17 00:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">YouTube自己整理了个杏虹的Playlist，满屏首播，只有雨滴和月之是直播，其中雨滴只有后半是直播的，还没有阿菜和胜
+
+顺便阿菜在会限
+
+
+-----
+
+####  Lucy_Diamonds  
+##### 4326#       发表于 2021-7-17 00:41
+
+
+阿菜会限说了一大堆 字里行间都写着雨滴live结束之后和0一天隐退一行大字 呜呜呜呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+                                                

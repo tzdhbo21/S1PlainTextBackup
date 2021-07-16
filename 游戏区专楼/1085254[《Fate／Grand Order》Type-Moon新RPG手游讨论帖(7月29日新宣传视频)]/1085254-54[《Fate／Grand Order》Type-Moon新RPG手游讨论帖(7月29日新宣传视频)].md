@@ -6521,3 +6521,83 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+-----
+
+####  zore  
+##### 80040#       发表于 2021-7-16 23:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公审延后了
+
+这剧情体验共十分怎么都得因为这拖沓发布减个一两分<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  exiaexa  
+##### 80041#       发表于 2021-7-16 23:58
+
+
+ 本帖最后由 exiaexa 于 2021-7-17 00:05 编辑 
+
+卡翻页，编辑了
+
+
+-----
+
+####  exiaexa  
+##### 80042#       发表于 2021-7-16 23:59
+
+
+ 本帖最后由 exiaexa 于 2021-7-17 00:28 编辑 
+
+直觉告诉我欧罗拉是提坦尼亚不然奥伯龙这个内就内得很奇怪，第二部分里突然从你的好大哥变成了仿佛在反复横跳的谜语人
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 80043#       发表于 2021-7-17 00:05
+
+
+ 本帖最后由 exiaexa 于 2021-7-17 00:48 编辑 
+
+卡了两次艹<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+————————————
+
+打完了，这么说吧
+
+还记得3周年的PV吗，最后的那句话
+
+“圣杯和英灵，然后是命运的故事”
+
+
+这2.6中间打完了感觉就是
+
+“莫名其妙给的圣杯和皮套人，然后是蘑菇你写了个JB的故事”
+
+这章这皮套人数量绝了我日哦，菌类你真的不想安排地球史从者剧情，你就全扔出去写月姬不行吗
+
+再不济你再去整个fe续续续作自high啊，我保证鸟都不鸟
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+我之前还喷252所有staff成员一点萝卜的浪漫都不懂把机神大战整了个什么傻逼玩意儿出来
+
+这2.6就让我感觉这群人是不是连基本的浪漫都不会整了，人均美强惨没个深度思考反思人生不配进剧本是吧
+就你看来看去就只有一个“哦”的感想，反正菌类你说什么我就听什么
+全程阳光的是唯一指定亲女儿梅芙亲（的皮套人）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+顺便阿瓦隆之庭的弱智桥段居然还能复刻一遍是真的没想到，大概菌类上辈子真的是被不列颠人吃了大米
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
