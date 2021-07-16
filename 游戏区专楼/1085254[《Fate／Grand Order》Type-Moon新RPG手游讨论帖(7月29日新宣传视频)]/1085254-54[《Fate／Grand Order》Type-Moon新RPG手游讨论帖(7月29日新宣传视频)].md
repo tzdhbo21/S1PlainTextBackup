@@ -6428,3 +6428,96 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 80032#       发表于 2021-7-16 21:55
+
+
+通完了....就说一句....SB剧情
+
+
+这是我第一次打完主线后想直接开骂的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  AbigailWilliams  
+##### 80033#       发表于 2021-7-16 22:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51988372&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-16 21:55</a>
+通完了....就说一句....SB剧情
+
+
+这是我第一次打完主线后想直接开骂的</blockquote>
+审判菌类的时候到了？细说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 80034#       发表于 2021-7-16 22:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51989581&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-7-16 22:45</a>
+
+审判菌类的时候到了？细说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">摩根的结局完全是在瞎写......我并不反感拥有强大力量的BOSS死在阴险小人的手里这种剧情....但你起码要写的合情合理啊
+
+
+现在就看8月4号后的剧情能不能来个大反转
+
+
+-----
+
+####  angelooo  
+##### 80035#       发表于 2021-7-16 23:01
+
+
+<blockquote>森兰丸 发表于 2021-7-16 22:57
+摩根的结局完全是在瞎写......我并不反感拥有强大力量的BOSS死在阴险小人的手里这种剧情....但你 ...</blockquote>
+卖摩根和妖崔的母女百合应该是想要感动人但我只想发笑，这段几个搞阴谋的妖精领主写得更有意思些
+
+
+-----
+
+####  仰望神的括约肌  
+##### 80036#       发表于 2021-7-16 23:02
+
+
+后篇开放后一直闭关推剧情 没看任何剧透 一边心里攒着吐槽一边想象网上对这里那里是怎样的讨论 现在打完了 我一句话都说不出<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sosgame67  
+##### 80037#       发表于 2021-7-16 23:03
+
+
+没关系，死掉的可以是分身/还有复活后手<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说实话蘑菇吹了半天的文本量现在看来完全没啥阅读体验，加上分割放送（8.4号要是搞不定还有265）这剧情体验实在糟糕，我已经迫不及待等8.4公审蘑菇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 80038#       发表于 2021-7-16 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51989844&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-7-16 23:01</a>
+
+卖摩根和妖崔的母女百合应该是想要感动人但我只想发笑，这段几个搞阴谋的妖精领主写得更有意思些 ...</blockquote>
+是啊，欧罗拉真的是狐狸，基本上全部人都被她玩弄了。幕后Boss不是奥伯龙就是她了。
+
+
+-----
+
+####  里村紅葉  
+##### 80039#       发表于 2021-7-16 23:22
+
+
+这六周年的洋芋环衣服怎么感觉跟没换一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

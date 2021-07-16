@@ -17520,3 +17520,157 @@ gaku3d恭喜捏
 
 
                                                  
+
+-----
+
+####  nian1538  
+##### 4308#       发表于 2021-7-16 21:39
+
+
+ 本帖最后由 nian1538 于 2021-7-16 21:50 编辑 
+
+[https://twitter.com/BlackShiba_chan/status/1416027533821104129](https://twitter.com/BlackShiba_chan/status/1416027533821104129)
+
+<img src="https://img.saraba1st.com/forum/202107/16/213927rx43q0qw4e3xw8qc.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (31.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-16 21:39 上传
+
+
+[https://twitter.com/chima_machita23/status/1416029494649884679](https://twitter.com/chima_machita23/status/1416029494649884679)
+
+
+<img src="https://img.saraba1st.com/forum/202107/16/215004wax7pjmppo5gxmm8.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (43.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-16 21:50 上传
+
+
+-----
+
+####  qq845629713  
+##### 4309#       发表于 2021-7-16 21:49
+
+
+<img src="https://img.saraba1st.com/forum/202107/16/214902v8a6zmf7ryrrypax.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210716214734.png</strong> (75.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-16 21:49 上传
+
+
+你虹的P图组不是很活跃，很喜欢扣图么？
+
+
+怎么到这里不扣了
+
+
+-----
+
+####  free  
+##### 4310#       发表于 2021-7-16 21:50
+
+
+[https://www.youtube.com/watch?v=5JZ0sLljwMI](https://www.youtube.com/watch?v=5JZ0sLljwMI)
+
+HIMEHINA『フリコドウル』MV
+
+
+[https://twitter.com/ponpokoka/status/1416017829246029831](https://twitter.com/ponpokoka/status/1416017829246029831)
+
+22号花生兄妹主催的糖豆人大会
+
+
+-----
+
+####  hulaoda007  
+##### 4311#       发表于 2021-7-16 22:00
+
+
+  亚人有些小动作好----------可爱...
+
+
+-----
+
+####  free  
+##### 4312#       发表于 2021-7-16 22:09
+
+
+批站终于出现万舰的V了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 4313#       发表于 2021-7-16 22:14
+
+
+お使いマオ、場違いチャイカ、様子見レナ<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4314#       发表于 2021-7-16 22:33
+
+
+阿柴终于！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 该ddd了
+
+
+-----
+
+####  patema  
+##### 4315#       发表于 2021-7-16 23:08
+
+
+兔头...这mv....本体的3D反而拖后腿的感觉
+
+
+-----
+
+####  εRemastered  
+##### 4316#       发表于 2021-7-16 23:09
+
+
+月撇这个MV 不是光人3D模型跳跳完事了，有点投入啊，你虹老大还是（
+
+
+-----
+
+####  渡鸦骑士  
+##### 4317#       发表于 2021-7-16 23:20
+
+
+画面越是渲染的好看，3d的低质感衣料和奇怪的手臂骨架都<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 4318#       发表于 2021-7-16 23:22
+
+
+索尼你这个老妖婆！为什么不给月之6000（代指制作费）<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">！
+
+
+-----
+
+####  OldGlory  
+##### 4319#       发表于 2021-7-16 23:30
+
+
+画面确实挺好看的，渲染组加鸡腿
+
+
+                                                 

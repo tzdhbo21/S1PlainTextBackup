@@ -5529,3 +5529,20 @@ Win11 22000.71版本更新
 
 
                                                  
+
+-----
+
+####  闻道沐心  
+##### 460#       发表于 2021-7-16 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51786004&amp;ptid=2011727" target="_blank">闻道沐心 发表于 2021-6-29 23:18</a>
+右下角音量网络时间这些根本点不开，大家有什么好办法吗
+
+—— 来自 realme RMX1931, Android 10上 ...</blockquote>
+重置之后解决了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX1931, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+                                                 
