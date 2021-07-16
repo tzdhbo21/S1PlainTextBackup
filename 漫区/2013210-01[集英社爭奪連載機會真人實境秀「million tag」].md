@@ -1325,3 +1325,31 @@ sad，没有真的树登场。
 
 
                                                  
+
+-----
+
+####  moeful  
+##### 89#       发表于 2021-7-17 02:02
+
+
+[https://www.youtube.com/watch?v=zZdXexQ8xJc](https://www.youtube.com/watch?v=zZdXexQ8xJc)  本周地址
+
+
+-----
+
+####  最强惠酱  
+##### 90#       发表于 2021-7-17 02:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51991366&amp;ptid=2013210" target="_blank">フリーレン 发表于 2021-7-17 01:10</a>
+他們那一段真的很好笑
+
+仿佛看到小孩子跟媽媽說自己身體不舒服沒法去上學，結果媽媽馬上說我送你去急診
+
+被 ...</blockquote>
+哈哈哈，确实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

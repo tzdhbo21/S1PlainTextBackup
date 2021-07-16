@@ -7369,3 +7369,29 @@ https://www.youtube.com/watch?v=74APIbBbTeU
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 2044#         楼主| 发表于 2021-7-17 01:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51979260&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-16 11:27</a>
+
+https://www.youtube.com/watch?v=74APIbBbTeU
+
+
+官方更新了 罗 的角色预告片</blockquote>
+已经有人在猜本作哪位角色暂时会和其他成员分道扬镳了，洛因为出身不好，可能性反而是最低的罢！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LMBS  
+##### 2045#       发表于 2021-7-17 03:07
+
+
+七月都过半了，试玩这个月能出吗
+
+
+                                                 
