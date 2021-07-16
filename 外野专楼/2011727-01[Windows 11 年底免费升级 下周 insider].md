@@ -5513,3 +5513,19 @@ win11最终版可能也会被砍掉。
 
 
                                                  
+
+-----
+
+####  dragrass  
+##### 459#       发表于 2021-7-16 21:03
+
+
+Win11 22000.71版本更新
+
+
+依然没有解决浅色主题在10bit色深下UI显示不正常的bug
+
+我到看看微软啥时候修这个BUG，别到时候正式版搞个不支持10bit屏<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+                                                 
