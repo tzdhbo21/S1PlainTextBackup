@@ -7325,3 +7325,20 @@ deen唱的吗？</blockquote>
 
 
                                                  
+
+-----
+
+####  qiyu1234  
+##### 2041#       发表于 2021-7-16 11:27
+
+
+[https://www.youtube.com/watch?v=74APIbBbTeU](https://www.youtube.com/watch?v=74APIbBbTeU)
+
+
+官方更新了 罗 的角色预告片
+
+
+让我感兴趣的是他是如何从皇协军狗腿子转变为“算我一个”的，如果写得好，这个角色会很出彩
+
+
+                                                 
