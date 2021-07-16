@@ -4502,3 +4502,107 @@ P2技解放給了C位8階分數上升跟回耐
 
 
                                                  
+
+-----
+
+####  yuugi  
+##### 334#       发表于 2021-7-16 18:27
+
+
+ 本帖最后由 yuugi 于 2021-7-16 18:40 编辑 
+<blockquote>Buffer在後續的關卡受到精神力及搶技的考驗
+讓使用難度較支援者高上許多
+VS關更是只有少部分有上場機會
+但要是能克服這兩點
+依舊能較支援者補足更多分數
+
+
+<strong>唯一神(無視一切所有場合皆能使用):</strong>
+<[img src="https://truth.bahamut.com.tw/s01/202107/13c2ea9c76bd9c6e65ca44bd484092c0.JPG" id="aimg_i9kog" onclick="zoom(this, this.src, 0, 0, 0)" width="50"/)](https://truth.bahamut.com.tw/s01/202107/13c2ea9c76bd9c6e65ca44bd484092c0.JPG)葵(做壞了做壞了)
+有在看關卡通關配置習慣的人應該很早就注意到
+啊怎麼每個關卡都有葵= =?
+A1技全遊戲獨一無二的雙SP位暴率上升
+還能持續76BEAT讓CT50轉好後繼續疊
+讓最重要的得分位暴率穩定上升
+A2也是無理的雙SP位強化延長
+光兩項技能就注定全關卡都能上
+但製作組很貼心的
+P技多一個舞力上升怕你忘記她是張藍卡...
+總合除了自身因素質低沒啥得分能力外就是強
+放在關卡<strong>多位+最早開A技的位置</strong>就沒錯了
+
+
+<strong>泛用技能組:</strong>
+<strong>
+</strong>
+<[img src="https://truth.bahamut.com.tw/s01/202107/9ee22f7fa2d3aaa61c2b4c31dc50371e.JPG" id="aimg_dKkQ9" onclick="zoom(this, this.src, 0, 0, 0)" width="50"/)](https://truth.bahamut.com.tw/s01/202107/9ee22f7fa2d3aaa61c2b4c31dc50371e.JPG)遙子(紅卡暴率擔當)
+依舊是紅關最強輔助之一
+A技全體演唱上升(CT30)
+P1則是1得分手的8階アピールスコア上升幫助搶技
+P2多了限定一次的隨機1人的強化延長+1人暴率上升(7階)
+因為具有隨機性導致得靠賭才能開在對的人身上
+但只要放對了會是紅卡拿最高分的關鍵
+
+
+<[img src="https://truth.bahamut.com.tw/s01/202107/ba23149e166dd2656ce5f9c9d7070478.JPG" id="aimg_bJz10" onclick="zoom(this, this.src, 0, 0, 0)" width="50"/)](https://truth.bahamut.com.tw/s01/202107/ba23149e166dd2656ce5f9c9d7070478.JPG)千紗(對黃卡C位)
+黃卡常用輔助
+A技全體視覺力上升(30CT)
+P1是C位的演奏力上升
+到了80等的P2技多了特殊的隨機1人集目效果
+能將其他人的粉絲加成集中於1人身上
+堪稱最強的搶技及得分能力
+但因為隨機性導致仍需要骰在對的人身上
+關卡排列組合時跟遙子都是很痛苦的一個點
+
+
+<[img src="https://truth.bahamut.com.tw/s01/202107/97f03d22f07214cef853873bfb690041.JPG" id="aimg_q0fem" onclick="zoom(this, this.src, 0, 0, 0)" width="50"/)](https://truth.bahamut.com.tw/s01/202107/97f03d22f07214cef853873bfb690041.JPG)瑠依(可以不要再用葵了嗎)
+被葵取代的最大受害者(O
+A1是雙SP位的演唱上升
+A2則是自身暴率上升
+雖然主打可輔可輸出但中期開始被純輔助給追過
+80等後追加的P技給了一人強化效果2階增強終於揚眉吐氣(?)
+再雙紅SP關多位不再那麼容易被葵給取代
+放在多位+最後A技點較佳
+
+
+<strong>其他:</strong>
+<strong>
+</strong>
+<[img src="https://truth.bahamut.com.tw/s01/202107/ceefc1e00fd0f4d9e2c61f67efeb6347.JPG" id="aimg_KIY6i" onclick="zoom(this, this.src, 0, 0, 0)" width="50"/)](https://truth.bahamut.com.tw/s01/202107/ceefc1e00fd0f4d9e2c61f67efeb6347.JPG)伶(藍卡長譜使用)
+80等後跌落神壇
+A技全體舞力上升
+P1則是自身兩階暴率上升
+本來和瑠依一樣主打可輔可輸出
+但因為技能2是P技使得地位一直都不低
+但P2卻只給了自身暴擊時額外得分以及CT-15
+雙P技的CT(50.60)過長
+導致相當仰賴暴擊及長譜才看得到的自身輸出能力
+加上藍卡支援者都太強導致被<[img src="https://truth.bahamut.com.tw/s01/202107/5af9e16f9427fe723eb66c43ef489f48.JPG" id="aimg_km8AP" onclick="zoom(this, this.src, 0, 0, 0)" width="50"/)](https://truth.bahamut.com.tw/s01/202107/5af9e16f9427fe723eb66c43ef489f48.JPG)<[img src="https://truth.bahamut.com.tw/s01/202107/c95f8d84ebe9a13b08ad3bd42f247763.JPG" id="aimg_YGY0d" onclick="zoom(this, this.src, 0, 0, 0)" width="50"/)](https://truth.bahamut.com.tw/s01/202107/c95f8d84ebe9a13b08ad3bd42f247763.JPG)取代
+
+
+<[img src="https://truth.bahamut.com.tw/s01/202107/706326ea9ae57d54eaee7bdca181643e.JPG" id="aimg_qa5Ii" onclick="zoom(this, this.src, 0, 0, 0)" width="50"/)](https://truth.bahamut.com.tw/s01/202107/706326ea9ae57d54eaee7bdca181643e.JPG)4星雫(黃關暴擊)
+葵的受害者+1
+A1技C位視覺力上升(7階)
+但有自身下降3階的debuff
+A2技有隨機三人暴率上升(8階)
+讓她在黃關被葵gank的機會不會像瑠依那麼高
+但仍有不確定性存在
+80等後P技多了自身暴擊時回耐
+讓她在耐力需求大的關卡"有機會"比葵來得好用
+
+
+<[img src="https://truth.bahamut.com.tw/s01/202107/89593d53619a2826e2d6a97de5809b0d.JPG" id="aimg_BRIr3" onclick="zoom(this, this.src, 0, 0, 0)" width="50"/)](https://truth.bahamut.com.tw/s01/202107/89593d53619a2826e2d6a97de5809b0d.JPG)4星堇(藍卡高耐關)
+有三項強力技能
+但都限定血量發動
+A1 50%耐以下時 舞力高3人舞力上升(6階)
+A2 50%耐以下時 C位強化效果增強(2階)
+P技則是30%耐以下 舞力高3人舞力上升(7階)
+在消耗耐大的關卡能在中後段拉高分數
+但組合相當難搭配(不能放全體回耐角等等)
+後期上場機會應該會逐漸增加</blockquote>
+一张唯一神就够了
+
+其它基本没上场机会
+
+
+                                                 

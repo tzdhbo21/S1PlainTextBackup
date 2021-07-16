@@ -1214,3 +1214,59 @@ xp姐展示的性癖还不如消极哥，但分镜演出故事基本功很强，
 
 
                                                  
+
+-----
+
+####  最强惠酱  
+##### 83#       发表于 2021-7-16 18:06
+
+
+林编同样是拿了一堆作品给消极输入啊，健康至上真是好编辑，感觉他也猜到了消极想删画的借口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说关于字数这点想到之前炎炎的某一话笑死，话说美漫相比日漫字数也是异常的多，还是全彩大图的抵消到字数的冲击力吗，xp猫听藤本改了之后好了完全是另一个漫画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+消极这父亲画的和SAKAMOTO DAYS主角有点像，其实相比林编的提议我更喜欢消极的原案，xp猫的题材上不怎么喜欢，这3人里我还是看好点子最多的年轻人
+
+
+-----
+
+####  フリーレン  
+##### 84#         楼主| 发表于 2021-7-16 18:16
+
+
+ 本帖最后由 フリーレン 于 2021-7-16 18:51 编辑 
+
+下集預告根本全劇透了是說性癖喵的性癖真的太好懂了
+
+她男的喜歡這種殘念類型帥哥角啊
+
+一邊講話還一邊握著熊貓手手揮來揮去
+
+
+Screenshot_2021_0716_172810.png
+(39.72 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-16 18:49 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/16/184958s7i3p40k4pkp4gfh.png" referrerpolicy="no-referrer">
+
+
+Screenshot_2021_0716_174653.png
+(59.23 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-16 18:50 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/16/185005yufr4zfuy1tjfyfb.png" referrerpolicy="no-referrer">
+
+
+                                                 

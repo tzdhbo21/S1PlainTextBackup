@@ -17083,3 +17083,62 @@ V-Clan公式チャンネルにて記者会見の様子を独占配信！
 
 
                                                  
+
+-----
+
+####  OldGlory  
+##### 4274#       发表于 2021-7-16 17:51
+
+
+hiyoko没了，这下真一个时代结束了。
+
+
+-----
+
+####  dybang  
+##### 4275#       发表于 2021-7-16 18:09
+
+
+这个衣服怎么看着有点粗糙<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不应该是新做的么
+
+
+-----
+
+####  空集  
+##### 4276#       发表于 2021-7-16 18:12
+
+
+都快不能拿歌势都没3d劈2434了时间好快。。
+hiyoko这是给甚么大手搞了啊  说实话很迷惑。现在比较关心历史数据留存的怎么样能不能扒下来，可太宝贵了。
+hiyoko没了本来就不剩下多少乐趣的管人又少了一块。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  真飞鸟i  
+##### 4277#       发表于 2021-7-16 18:19
+
+
+死了hiyoko，还有后来人。
+holostats没事，这种分类感觉还挺好的，建议以后都分社设立数字网站，这样就能知道大手是谁了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  空集  
+##### 4278#       发表于 2021-7-16 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51978551&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2021-7-16 10:41</a>
+分享一个船长mad
+【【静止画MAD】樱桃色儿童【宝钟玛琳】-哔哩哔哩】https://b23.tv/Ee2gSd</blockquote>
+似乎是mad名人专门开的小号  确实还做的蛮好的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
