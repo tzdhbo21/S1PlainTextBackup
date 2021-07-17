@@ -6725,3 +6725,25 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+-----
+
+####  zore  
+##### 80054#       发表于 2021-7-17 12:38
+
+
+YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xpisces  
+##### 80055#       发表于 2021-7-17 12:41
+
+
+这游戏1.6和1.7之后都可以看做是摆烂和商业需求
+
+菌类想写的已经写完了，剩下就是配合你们氪氪金抽抽卡意思下算了
+
+
+                                                 
