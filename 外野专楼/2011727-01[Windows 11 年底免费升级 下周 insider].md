@@ -5589,3 +5589,23 @@ Win11 22000.71版本更新
 
 
                                                  
+
+-----
+
+####  101  
+##### 464#       发表于 2021-7-17 23:44
+
+
+今天安装尝试了下win11，感觉作为开发系统很有前途。wsl2现在支持cuda了，也支持gui了，等正式版出来就可以替代mac了
+
+
+-----
+
+####  404489039  
+##### 465#       发表于 2021-7-18 00:13
+
+
+下周推送beta channel 把主力机升级看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

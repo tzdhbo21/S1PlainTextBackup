@@ -18847,3 +18847,41 @@ EN全员都入队了
 
 
                                                  
+
+-----
+
+####  UnhappyTails  
+##### 4416#       发表于 2021-7-18 00:20
+
+
+喵的，彩虹什么鬼选曲，浪费我past卖萌
+
+syl
+三八卡还是好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  UnhappyTails  
+##### 4417#       发表于 2021-7-18 00:23
+
+
+为什么是谁做男v代表唱vtl啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  UnhappyTails  
+##### 4418#       发表于 2021-7-18 00:28
+
+
+录像看完了
+
+
+三八卡还是可爱捏
+
+
+所以2020年那会儿为什么是谁上台代表男v唱vtl<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

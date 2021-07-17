@@ -10703,3 +10703,385 @@ https://b23.tv/XJF1W4
 
 
                                              
+
+-----
+
+####  T_Hb  
+##### 20504#       发表于 2021-7-17 23:38
+
+
+<img src="https://p.sda1.dev/2/0c03787025b7c2b552061aef6a38976c/IMG_CMP_147459998.jpeg" referrerpolicy="no-referrer">
+
+话说本土粉丝没看到家用3D首播有点亏啊
+
+
+-----
+
+####  2014720  
+##### 20505#       发表于 2021-7-17 23:39
+
+
+首播就是和.live吧
+
+直播倒是第一次
+
+
+-----
+
+####  Klience  
+##### 20506#       发表于 2021-7-17 23:39
+
+
+她有在推特发B站链接吧 想看的就看呗 没看到就亏呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 20507#       发表于 2021-7-17 23:41
+
+
+超V女子战士那个是全身3D，家用3D这是首播
+
+
+-----
+
+####  2014720  
+##### 20508#       发表于 2021-7-17 23:43
+
+
+那应该是bw?
+
+
+-----
+
+####  时间在我手中  
+##### 20509#       发表于 2021-7-17 23:43
+
+
+首播就是bw那个
+
+
+-----
+
+####  路人庚  
+##### 20510#       发表于 2021-7-17 23:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本土粉基本都会熟练使用b站了，毕竟宣传了不知道多少次了，倒是不用担心什么
+
+
+-----
+
+####  T_Hb  
+##### 20511#       发表于 2021-7-17 23:44
+
+
+ 本帖最后由 T_Hb 于 2021-7-17 23:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">BW那是个棒槌，感觉是摄像头捕捉的，只有头能动，其他部分靠骨架拉着随便抖一抖
+
+
+-----
+
+####  呓亘  
+##### 20512#       发表于 2021-7-17 23:52
+
+
+傻卵女人在2021年居然有新粉 事业民喜极而泣
+
+
+-----
+
+####  肥到终点  
+##### 20513#       发表于 2021-7-17 23:52
+
+
+我倒是觉得UNlasting和钻石裂痕好听<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 20514#       发表于 2021-7-17 23:54
+
+
+迫不及待下一个3D纯正歌回了
+
+
+-----
+
+####  GeraltzRivii  
+##### 20515#       发表于 2021-7-17 23:54
+
+
+今年有新粉真是太好了。
+去年11月后有段时间我每天看粉丝数都没变过。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  雪风utopia  
+##### 20516#       发表于 2021-7-17 23:55
+
+
+3D来了，杏爱还会远吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 20517#       发表于 2021-7-17 23:56
+
+
+tc
+
+
+-----
+
+####  Klience  
+##### 20518#       发表于 2021-7-17 23:56
+
+
+我赌赢了 tc<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 20519#       发表于 2021-7-17 23:57
+
+
+坏了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 20520#       发表于 2021-7-17 23:59
+
+
+ 本帖最后由 时间在我手中 于 2021-7-18 00:01 编辑 
+
+开个TC对mikey发春，真有你的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+明早九点半（东京时间）必须起来，白天有联动而且还有别的事要做  晚上也有联动
+
+
+
+
+-----
+
+####  iuhehc  
+##### 20521#       发表于 2021-7-18 00:02
+
+
+mikey..
+
+
+-----
+
+####  yywzjsw  
+##### 20522#       发表于 2021-7-18 00:02
+
+
+刚进来就发情，真有你的
+
+
+-----
+
+####  兔耳僵尸  
+##### 20523#       发表于 2021-7-18 00:02
+
+
+受不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 20524#       发表于 2021-7-18 00:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">猜错了
+
+
+-----
+
+####  路人庚  
+##### 20525#       发表于 2021-7-18 00:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">东京都1点了，你咩姐明早联动必迟到
+
+
+-----
+
+####  时间在我手中  
+##### 20526#       发表于 2021-7-18 00:09
+
+
+这什么猪叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 20527#       发表于 2021-7-18 00:10
+
+
+为什么不能发情一晚上，直接不睡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 20528#       发表于 2021-7-18 00:11
+
+
+呵，女人
+
+
+-----
+
+####  yywzjsw  
+##### 20529#       发表于 2021-7-18 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52002368&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-7-18 00:09</a>
+
+这什么猪叫我白天谷歌这位看了一眼，黑暗系男子就这么喜欢吗臭女人 ...</blockquote>
+这位，是个看上去强大、但内心弱小的一比的人。
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+你麻喜欢的人爱好实在是搞不懂。
+
+
+-----
+
+####  甘栗No.007  
+##### 20530#       发表于 2021-7-18 00:12
+
+
+ 本帖最后由 甘栗No.007 于 2021-7-18 00:18 编辑 
+
+爱好：漫画里画的最帅的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+我是看漫画介绍人物简介猜的，不是100%也至少80%是颜狗
+
+
+-----
+
+####  路人庚  
+##### 20531#       发表于 2021-7-18 00:12
+
+
+是一位激发母性的角色（说明咩姐是可以成为我母亲的女人
+
+
+-----
+
+####  T_Hb  
+##### 20532#       发表于 2021-7-18 00:12
+
+
+帅不帅啊，可能单纯是看颜
+
+
+-----
+
+####  离心  
+##### 20533#       发表于 2021-7-18 00:13
+
+
+草我错过了啥？
+
+
+-----
+
+####  yywzjsw  
+##### 20534#       发表于 2021-7-18 00:13
+
+
+最帅的？金发不良矮个子
+
+
+-----
+
+####  yywzjsw  
+##### 20535#       发表于 2021-7-18 00:14
+
+
+艹这发情，我还以为在看什么小电影
+
+
+-----
+
+####  时间在我手中  
+##### 20536#       发表于 2021-7-18 00:14
+
+
+设闹钟是吧，10分，20分，40分设一个是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蠢女人还不滚去睡？
+
+
+-----
+
+####  路人庚  
+##### 20537#       发表于 2021-7-18 00:15
+
+
+<img src="https://img.saraba1st.com/forum/202107/18/001541ux9kiyk1ikiceuo9.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (153.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-18 00:15 上传
+
+
+大背头、黑眼圈（
+
+
+-----
+
+####  yywzjsw  
+##### 20538#       发表于 2021-7-18 00:16
+
+
+ 本帖最后由 yywzjsw 于 2021-7-18 00:18 编辑 
+
+在加个矮个子，和女生差不多高。还有力量很大，<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 20539#       发表于 2021-7-18 00:22
+
+
+又饿了，debu
+
+
+-----
+
+####  呓亘  
+##### 20540#       发表于 2021-7-18 00:26
+
+
+傻卵肥婆
+
+
+-----
+
+####  路人庚  
+##### 20541#       发表于 2021-7-18 00:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恰夜宵（mea：恰了这个我觉得我还能播
+
+
+                                                
