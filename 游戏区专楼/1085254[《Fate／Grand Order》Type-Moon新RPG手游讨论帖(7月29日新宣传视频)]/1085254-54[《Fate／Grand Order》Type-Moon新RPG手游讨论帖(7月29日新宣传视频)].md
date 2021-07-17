@@ -7159,3 +7159,73 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 80084#       发表于 2021-7-17 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51997108&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-17 17:10</a>
+
+前篇还能说是小高潮结束断章
+
+这中篇事儿还没说完就给你砍断了太草</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥？摩根这死的还不够“惨”吗？（虽然我觉得死的更像是个小丑）
+
+
+真要是假死诈尸有必要整这一出么
+
+
+-----
+
+####  不垃圾屌丝  
+##### 80085#       发表于 2021-7-17 20:07
+
+
+刚刚打完，摩根这个刚刚还在意气风发大杀四方回头马上翻车就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+明明救世主时期和茄子相处感觉这人还挺好的，怎么就活成这样子了
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  exiaexa  
+##### 80086#       发表于 2021-7-17 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51998893&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-17 19:57</a>
+
+啥？摩根这死的还不够“惨”吗？（虽然我觉得死的更像是个小丑）
+
+
+真要是假死诈尸有必要整这一出 ...</blockquote>
+卖卡任务都没完成怎么能跑呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不开玩笑了，摩根剧情任务确实没完成啊，起承转合直到转就结束了，诈尸不是板上钉钉嘛
+
+整个妖精乡掌握了所有现状的只有她一个人，欧罗拉不一定知道大洞底部的古神，ロンゴミニアド到现在都还没找到，帕西瓦尔又一股子要跟她姐相爱相杀的样子，摩根不回来只靠不列颠现在这群沙雕你都不知道怎么收尾
+
+
+-----
+
+####  exiaexa  
+##### 80087#       发表于 2021-7-17 20:17
+
+
+ 本帖最后由 exiaexa 于 2021-7-17 20:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51999209&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-7-17 20:07</a>
+
+刚刚打完，摩根这个刚刚还在意气风发大杀四方回头马上翻车就离谱
+
+明明救世主时期和茄子相处感觉这人 ...</blockquote>
+呆毛刚上任时候也挺正常的啊，不照样被菌类迫害得跑去卫宫家蹭饭
+
+问就是月球不列颠全是白眼狼，呆毛/摩根尽力了，你行你上啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

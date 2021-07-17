@@ -18644,3 +18644,96 @@ EN全员都入队了
 
 
                                                  
+
+-----
+
+####  白金口袋  
+##### 4399#       发表于 2021-7-17 19:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51998297&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-7-17 05:06</a>
+
+我只能说郡道来到了最适合她的队伍，老板娘万岁！</blockquote>
+在别人打得焦头烂额的时候，老板娘一声不吭的凑齐了军舰
+
+安定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 4400#       发表于 2021-7-17 19:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51998454&amp;ptid=1972669" target="_blank">白金口袋 发表于 2021-7-17 19:24</a>
+在别人打得焦头烂额的时候，老板娘一声不吭的凑齐了军舰
+
+安定</blockquote>
+也许是根本没人想要这两<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">，
+不过没关系，这次虹棒我将一切堵在老板娘身上，必须夺冠嗷
+
+
+-----
+
+####  ヒトニナル  
+##### 4401#       发表于 2021-7-17 19:38
+
+
+有一说一，为了血压好就看老板娘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4402#       发表于 2021-7-17 19:44
+
+
+ 本帖最后由 FCCHua 于 2021-7-17 19:46 编辑 
+
+顺便为什么没有vr，时守星沙发动态解释了，b站熟悉的拉胯<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 4403#       发表于 2021-7-17 19:46
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/194608msg3rdrsdd3o0r75.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-dcfad589130d876.jpg</strong> (175.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-17 19:46 上传
+
+
+-----
+
+####  十四洲  
+##### 4404#       发表于 2021-7-17 19:52
+
+
+所以本社没入池的有哪几个？
+
+
+-----
+
+####  CielChloe  
+##### 4405#       发表于 2021-7-17 20:13
+
+
+除了口了还有谁？
+
+
+-----
+
+####  gaiadc  
+##### 4406#       发表于 2021-7-17 20:17
+
+
+今年有活动过的都上了，只有尸体和幽灵这两位没在
+
+
+                                                 
