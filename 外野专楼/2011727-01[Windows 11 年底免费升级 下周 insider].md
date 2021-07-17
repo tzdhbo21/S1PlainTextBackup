@@ -5574,3 +5574,18 @@ Win11 22000.71版本更新
 
 
                                                  
+
+-----
+
+####  dragrass  
+##### 463#       发表于 2021-7-17 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51992092&amp;ptid=2011727" target="_blank">铅笔 发表于 2021-7-17 07:34</a>
+是不是设置里面经常UI不显示就是这个BUG造成的。</blockquote>
+是的，调回8位色深就能解决问题
+
+— from vivo V2055A, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 

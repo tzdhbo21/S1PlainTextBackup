@@ -6672,3 +6672,56 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+-----
+
+####  eyeego  
+##### 80049#       发表于 2021-7-17 11:42
+
+
+去年送个5星都唧唧歪歪废话一堆
+加保底这不得扯到人口买卖上去<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 80050#       发表于 2021-7-17 11:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">保底这不是在做梦吗  最多给你个4星保底顶天了
+
+
+还不如祈祷在送个常驻5星
+
+
+-----
+
+####  zakki  
+##### 80051#       发表于 2021-7-17 11:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51989858&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-7-16 23:02</a>
+后篇开放后一直闭关推剧情 没看任何剧透 一边心里攒着吐槽一边想象网上对这里那里是怎样的讨论 现在打完了  ...</blockquote>
+细说，所以是个什么评价
+
+
+-----
+
+####  zakki  
+##### 80052#       发表于 2021-7-17 11:55
+
+
+虽然我没看完，但有一说一这章作为2.5后的章节爆点和主线推动的是不是过于少了，像是又回到了2.2，2.3的剧情模式，讲讲异闻带，推翻下异闻带王就没了。冠位呢，兽呢，异星神呢，还有老福的秘密，戴比特的从者，该透露点儿了吧。感觉像是蘑菇写嗨了写成了个纯外传一样
+
+
+-----
+
+####  khxooo  
+##### 80053#       发表于 2021-7-17 12:00
+
+
+为什么到现在还有人妄想保底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
