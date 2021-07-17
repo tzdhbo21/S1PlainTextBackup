@@ -6915,3 +6915,37 @@ ccm最近经常批站回复你麻啊
 
 
                                                 
+
+-----
+
+####  2014720  
+##### 20138#       发表于 2021-7-17 14:36
+
+
+sl谢谢，反正叔叔只认流量不认sc的，我都看你批站直播了还要怎样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 20139#       发表于 2021-7-17 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51995463&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-17 14:17</a>
+“百万宣发”，拉稀PV，没日本场，没嘉宾，开始没免费票，冲评论区冲出来个手游式打卡送免费票 ...</blockquote>
+虽然但是，没日本场就不必cue了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这不是显而易见的嘛
+
+
+-----
+
+####  T_Hb  
+##### 20140#       发表于 2021-7-17 15:01
+
+
+ 本帖最后由 T_Hb 于 2021-7-17 15:03 编辑 
+
+我就说说我清楚的情况嘛，其他的有主播盾这种常见操作，还把你麻当例子拿出来忽悠人
+什么时候CR要上天的时候，我打钱给他买根绳子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

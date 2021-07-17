@@ -6804,3 +6804,96 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 80059#       发表于 2021-7-17 14:40
+
+
+万万没想到又是卡龙鳞，以为已经从这个地狱逃出来了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  仰望神的括约肌  
+##### 80060#       发表于 2021-7-17 14:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51995381&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-17 14:09</a>
+
+谁告诉你只有最后一节呢。。现在这前后篇加起来可以说等于什么都没说
+
+
+等一个84公布完结篇 明年上 ...</blockquote>
+我知道不是最后一节啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 80061#       发表于 2021-7-17 14:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">顺便奶口真boss是欧罗拉。。感觉已经差不多把我才是幕后黑手写脸上了
+
+
+-----
+
+####  exiaexa  
+##### 80062#       发表于 2021-7-17 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51991885&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-17 04:44</a>
+
+你还漏了卡莲.....这个连马甲都不套直接上的本名</blockquote>
+卡莲哪怕是作为工具人出场时间也太短了啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 80063#       发表于 2021-7-17 15:08
+
+
+我就纳闷了，这都2021年了，一边过主线一边放出free本是什么很高难度的事情吗，这一卡就是8月4号，几个新从者都嗷嗷待哺，一堆金苹果都花不出只能长草对yls有什么好处吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过2.6这个剧情反转我个人还是蛮喜欢的，前面对妖精生态的各种描写现在想想全是再给最后的背刺做铺垫啊，这帮子屑妖精只是送回世界里侧实在是太便宜他们了，就应该统统消灭一个不留<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有就是王姐的池子开错时间了吧，你要是放到二期，氪爆的人肯定更多，最后2节的反转实在太吸粉了。
+
+
+-----
+
+####  alucardcz  
+##### 80064#       发表于 2021-7-17 15:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51995930&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-17 15:08</a>
+
+我就纳闷了，这都2021年了，一边过主线一边放出free本是什么很高难度的事情吗，这一卡就是8月4号，几个新从 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就不一样了 除非84来个超级大反转 不然这剧情在我眼里可能是2部里最垃圾的 没有看的价值
+
+
+-----
+
+####  skives  
+##### 80065#       发表于 2021-7-17 15:17
+
+
+期待了两年2.6
+这写的是个啥玩意
+
+
+-----
+
+####  xiongxingyu  
+##### 80066#       发表于 2021-7-17 15:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51995961&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-17 15:11</a>
+
+我就不一样了 除非84来个超级大反转 不然这剧情在我眼里可能是2部里最垃圾的 没有看的价值 ...</blockquote>
+我只对涉及王姐部分作出正面评价，其他部分就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
