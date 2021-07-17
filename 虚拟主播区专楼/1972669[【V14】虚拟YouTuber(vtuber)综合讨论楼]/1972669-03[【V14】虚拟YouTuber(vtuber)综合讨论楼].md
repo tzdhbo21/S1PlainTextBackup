@@ -18019,3 +18019,441 @@ live后毕业跟我预期的差不多
 
 
                                                  
+
+-----
+
+####  qq845629713  
+##### 4348#       发表于 2021-7-17 17:37
+
+
+ 本帖最后由 qq845629713 于 2021-7-17 17:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> KING：“果然还是想要lize阿”
+
+
+lize——被king需要的女人
+
+
+油男和三枝被笹木椎名完美拿到，这不是台本？
+
+
+-----
+
+####  Suny08  
+##### 4349#       发表于 2021-7-17 17:38
+
+
+我还是那个看法，油和pst就是在交往<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4350#       发表于 2021-7-17 17:38
+
+
+咲唯怎么又贴贴了，一个选ib一个选三枝
+得，柴卡被德龙选走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  死体残留  
+##### 4351#       发表于 2021-7-17 17:38
+
+
+大福真是天才<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4352#       发表于 2021-7-17 17:40
+
+
+ 本帖最后由 FCCHua 于 2021-7-17 17:53 编辑 
+
+安洁，熊猫人怎么又被撞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+老板娘选人确实有趣
+破案了，葛叶是不是故意的？
+安洁→铜憨憨
+熊猫人→三世
+社长→牛姨
+
+
+-----
+
+####  qq845629713  
+##### 4353#       发表于 2021-7-17 17:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 除了cp向不得不选女人之外，
+
+
+人均抢男人，这就是你虹现状么？
+
+
+-----
+
+####  winda  
+##### 4354#       发表于 2021-7-17 17:42
+
+
+虹男真是大人气啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 4355#       发表于 2021-7-17 17:43
+
+
+安洁太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 4356#       发表于 2021-7-17 17:44
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-17 18:10 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/174301xddq35fdlo61dtoj.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ甲子園2021 ドラフト会議【 #にじさんじ甲子園 】-3.png</strong> (241.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-17 17:43 上传
+
+
+笹虐いいぞ
+
+下地狱去吧（真
+
+「アンジュ、尊様とってあげよう」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+みんなのりりむちゃん@makaino_sub
+
+葛葉は地獄に落ちろ
+
+
+アンジュ壊れる〜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/180322k4twhjzl5jgg95l9.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ甲子園2021 ドラフト会議【 #にじさんじ甲子園 】-5.png</strong> (241.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-17 18:03 上传
+
+
+你真的不是人（褒义）
+
+
+手帳は年上が好き…
+
+
+神速NTR高校です
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|仅仆]|
+
+
+查看全部评分
+
+
+-----
+
+####  poipanchao  
+##### 4357#       发表于 2021-7-17 17:47
+
+
+king被抢了叶以后开始报复社会了
+
+
+-----
+
+####  qq845629713  
+##### 4358#       发表于 2021-7-17 17:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> KING这不把安洁的skb部里面的紫发矮子抢走阿
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|只有这个最想看|
+
+
+查看全部评分
+
+
+-----
+
+####  OldGlory  
+##### 4359#       发表于 2021-7-17 17:53
+
+
+男人，真抢手啊
+
+
+-----
+
+####  FCCHua  
+##### 4360#       发表于 2021-7-17 17:53
+
+
+现在看下来安洁最惨<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 4361#       发表于 2021-7-17 17:56
+
+
+女将选人像在另一个次元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">格差社会啊
+
+
+-----
+
+####  FCCHua  
+##### 4362#       发表于 2021-7-17 17:58
+
+
+ 本帖最后由 FCCHua 于 2021-7-17 18:01 编辑 
+
+安洁和熊猫人今天是怎么了，哦，还有大福<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+德龙抢了金憨憨大概率会选的考拉，果然
+草，老板娘也掺一脚
+
+
+-----
+
+####  qq845629713  
+##### 4363#       发表于 2021-7-17 18:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 没选上打棒球就够可悲了，
+
+
+被女将选成选手岂不是更可悲
+
+
+-----
+
+####  FCCHua  
+##### 4364#       发表于 2021-7-17 18:02
+
+
+ 本帖最后由 FCCHua 于 2021-7-17 18:11 编辑 
+
+好！社长，葛叶选夜见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大撞车，太乐了
+大福果然运gamer
+弹幕:葛叶ntr高校
+
+
+-----
+
+####  Suny08  
+##### 4365#       发表于 2021-7-17 18:03
+
+
+king看样子是疯了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dybang  
+##### 4366#       发表于 2021-7-17 18:04
+
+
+这也算引流吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">对口扶贫
+
+
+-----
+
+####  qq845629713  
+##### 4367#       发表于 2021-7-17 18:07
+
+
+你们在第一层，king在第五层，在抢叶失败之后，自暴自弃，不仅维持了黑黑最强的人设，和别人抢角色还能维持热度，
+
+
+我愿称之为——直播之王
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|被KING乐死了|
+
+
+查看全部评分
+
+
+-----
+
+####  qq845629713  
+##### 4368#       发表于 2021-7-17 18:14
+
+
+<[img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这是不是我看到评论里面最多一次提到葛尊的了，
+
+
+-----
+
+####  Suny08  
+##### 4369#       发表于 2021-7-17 18:14
+
+
+可惜了king顺位在大小姐后面拿不到尊妹了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 4370#       发表于 2021-7-17 18:16
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-17 18:24 编辑 
+
+读一下空气啊，想看葛尊
+
+是在继续ntr我的玩具组吗<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+要穿死库水的队员：叶、三枝、天开、伏见、尤德里克
+
+
+-----
+
+####  qq845629713  
+##### 4371#       发表于 2021-7-17 18:17
+
+
+没意思了，看别人直播去了
+
+
+-----
+
+####  dybang  
+##### 4372#       发表于 2021-7-17 18:17
+
+
+这次明显是团建，King不怕炎上拆cp，选尊不是作死么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  purdre  
+##### 4373#       发表于 2021-7-17 18:18
+
+
+从没看过女将，这次直播觉得女将的皮好合我口味啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4374#       发表于 2021-7-17 18:20
+
+
+kr来了
+老板娘真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+星川狂喜
+
+
+-----
+
+####  purdre  
+##### 4375#       发表于 2021-7-17 18:22
+
+
+尤德里克来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fastary  
+##### 4376#       发表于 2021-7-17 18:23
+
+
+谢谢你熊猫人，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+话说挑染这就分在三队了吧，好想看内战情节<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  烯丝短尾猫  
+##### 4377#       发表于 2021-7-17 18:25
+
+
+莉光头子sasa你做的好啊
+
+
+-----
+
+####  FCCHua  
+##### 4378#       发表于 2021-7-17 18:25
+
+
+ 本帖最后由 FCCHua 于 2021-7-17 18:26 编辑 
+
+这不是有11岁吗？
+德龙神抽
+
+
+-----
+
+####  qq845629713  
+##### 4379#       发表于 2021-7-17 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 剩下的垃圾就大转盘了，这不是肯定有人轮空了
+
+
+-----
+
+####  渡鸦骑士  
+##### 4380#       发表于 2021-7-17 18:30
+
+
+看这架势，台本和人选应该还是定好的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                

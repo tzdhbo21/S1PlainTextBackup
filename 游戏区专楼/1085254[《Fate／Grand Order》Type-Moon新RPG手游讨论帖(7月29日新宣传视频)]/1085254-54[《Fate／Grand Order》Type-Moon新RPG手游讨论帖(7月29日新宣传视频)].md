@@ -7060,3 +7060,31 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                 
+
+-----
+
+####  khxooo  
+##### 80077#       发表于 2021-7-17 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51997034&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-17 17:04</a>
+
+有没有可能摩根还没死透呢（</blockquote>
+不奇怪，能做出分身跟我们战斗，为什么不能一开始看见的就是分身<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白金口袋  
+##### 80078#       发表于 2021-7-17 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51997290&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-17 03:23</a>
+
+这是欧罗拉暴毙 妖兰爆走吗（</blockquote>
+两种可能，欧罗拉暴毙，萝兰暴走or欧罗拉背刺，萝兰绝望
+
+我个人估计是后者，欧罗拉表现太碧池，感觉会在关键时刻让萝兰心碎
+
+
+                                                 

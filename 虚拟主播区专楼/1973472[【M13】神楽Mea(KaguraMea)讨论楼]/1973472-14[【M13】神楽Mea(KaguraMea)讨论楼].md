@@ -7160,3 +7160,243 @@ sl谢谢，反正叔叔只认流量不认sc的，我都看你批站直播了还�
 
 
                                                  
+
+-----
+
+####  stageKK  
+##### 20156#       发表于 2021-7-17 17:29
+
+
+期待小麻涩谷系复活<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+想想就涩了
+
+
+-----
+
+####  千木唯  
+##### 20157#       发表于 2021-7-17 17:31
+
+
+什么rz，你看看几月才演出解禁的。线下会那是live house 要愿意只有线下会的规模那是可以提前。
+也不是日本场馆出问题。和场馆有什么关系，睿站拉胯就是拉胯，从线下会的时候就拉了。
+哪来的批小将
+
+
+-----
+
+####  T_Hb  
+##### 20158#       发表于 2021-7-17 17:32
+
+
+哥哥们，别<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+大喜的日子
+
+
+-----
+
+####  stageKK  
+##### 20159#       发表于 2021-7-17 17:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">大喜的日子就该见见红捏
+
+
+-----
+
+####  Thrall12345  
+##### 20160#       发表于 2021-7-17 17:38
+
+
+bls这个东西本来就是啊b说办就办 其他人谁说的都不算
+
+它既然选择了延迟 那就是如果出现后果它就要承担
+
+现在嘛 BD不知道是个什么情况 啊b到底承担了啥谁也不清楚 一笔糊涂账
+
+
+那个时候我认识的mea粉还有入职啊b的呢 现在吧 没了
+
+今天要给这个头版banner也是前几天就知道了 不过心里已经毫无波动 就这样吧.jpg
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 20161#       发表于 2021-7-17 17:42
+
+
+卧槽，萨<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stageKK  
+##### 20162#       发表于 2021-7-17 17:44
+
+
+卧槽，萨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  elect  
+##### 20163#       发表于 2021-7-17 17:47
+
+
+卧槽，莎
+
+
+-----
+
+####  古战场亡魂  
+##### 20164#       发表于 2021-7-17 17:47
+
+
+真晦气啊，萨尔这种玩意都出来了。
+
+
+-----
+
+####  rosevalley46  
+##### 20165#       发表于 2021-7-17 17:47
+
+
+占星家宣布今天是萌萌人日<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">都不许巨魔
+
+
+-----
+
+####  flysjdi  
+##### 20166#       发表于 2021-7-17 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51996801&amp;ptid=1973472" target="_blank">gongge666 发表于 2021-7-17 16:39</a>
+
+日本场那个明显是B站内部天狗事业民搞出来的，还TM相约大场馆，但凡少犯点病早几个月举办P事没有，还了了 ...</blockquote>
+奥 原来未知kk是天狗啊
+
+还有当时疫情最严重的时候 你咋办？
+
+
+-----
+
+####  2014720  
+##### 20167#       发表于 2021-7-17 17:49
+
+
+ 本帖最后由 2014720 于 2021-7-17 17:51 编辑 
+
+大喜的日子能不能不提死人的名字<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+都这么觉得今天是个节日要不要杀点东西祭天啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 20168#       发表于 2021-7-17 17:50
+
+
+这时候跑来打滚bls的很难不是
+
+
+建议按照规矩踹出楼
+
+
+-----
+
+####  Cushaw  
+##### 20169#       发表于 2021-7-17 17:51
+
+
+今天什么日子，阴阳交替之时是吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  呓亘  
+##### 20170#       发表于 2021-7-17 17:51
+
+
+大喜的日子都MMR一点吧
+
+
+-----
+
+####  掉头学姐  
+##### 20171#       发表于 2021-7-17 18:00
+
+
+冲国女皇谢幕演出
+
+
+-----
+
+####  专业划水人员  
+##### 20172#       发表于 2021-7-17 18:00
+
+
+谁来点瑟图净化一下。昨天那图就很好用
+
+
+-----
+
+####  yywzjsw  
+##### 20173#       发表于 2021-7-17 18:01
+
+
+<blockquote>ashero 发表于 2021-7-17 17:18
+稍微看了前几集 估计这人对这种穿越改命的是有点偏好的 我也决定看下去了 ...</blockquote>
+后面剧情很屎，不过是你麻最爱的爱恨情长
+
+
+-----
+
+####  stageKK  
+##### 20174#       发表于 2021-7-17 18:04
+
+
+看见萨尔瞬间就绷不住了
+
+
+-----
+
+####  yywzjsw  
+##### 20175#       发表于 2021-7-17 18:04
+
+
+打开s1跳出来这个，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+image.png
+(77.18 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-17 18:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/180421ahoo02bj885b0918.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stageKK  
+##### 20176#       发表于 2021-7-17 18:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51997736&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-7-17 18:04</a>
+
+打开s1跳出来这个，你们要的色图算吗</blockquote>
+这个可以有，多来点
+
+
+                                                
