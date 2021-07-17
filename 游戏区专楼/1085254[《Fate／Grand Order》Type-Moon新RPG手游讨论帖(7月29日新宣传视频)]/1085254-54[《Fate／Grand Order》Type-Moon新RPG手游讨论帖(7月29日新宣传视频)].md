@@ -6747,3 +6747,60 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  仰望神的括约肌  
+##### 80056#       发表于 2021-7-17 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51993948&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-17 11:52</a>
+
+细说，所以是个什么评价</blockquote>
+故事脉络其实还好  但整个推进的体验就很稀碎 几乎全程锁助战 
+
+
+然后只要是个带些戏份的NPC就来一份不堪回首苦大仇深忍辱负重 两三个还好 到了后期扎堆放实在有些腻歪 
+
+
+本以为伍德沃斯就这么退场干脆到有些草率 结果最后还硬来这么一段 女人 眼泪 手.jpg bgm一响我当场地铁老人看手机.jpg 然后点两下屏幕没了 直接给我整乐了 
+
+贝利尔这从头到尾屑到底的反而是一股清流 
+
+
+最后的最后 当我好奇你最后一节进度推进以及反转这么快要怎么回收前面埋下的那么多伏笔的时候 
+
+啪!
+
+8月4号敬请期待<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  miro112233  
+##### 80057#       发表于 2021-7-17 13:57
+
+
+别说保底了，今年的四星从者还没送呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">可能yls去年送了五星心疼到现在吧
+
+
+-----
+
+####  alucardcz  
+##### 80058#       发表于 2021-7-17 14:09
+
+
+ 本帖最后由 alucardcz 于 2021-7-17 14:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51995034&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-7-17 13:36</a>
+
+故事脉络其实还好  但整个推进的体验就很稀碎 几乎全程锁助战 
+
+
+然后只要是个带些戏份的NPC就来一份不堪 ...</blockquote>
+谁告诉你只有最后一节呢。。现在这前后篇加起来可以说等于什么都没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+等一个84公布完结篇 明年上线
+
+
+                                                 
