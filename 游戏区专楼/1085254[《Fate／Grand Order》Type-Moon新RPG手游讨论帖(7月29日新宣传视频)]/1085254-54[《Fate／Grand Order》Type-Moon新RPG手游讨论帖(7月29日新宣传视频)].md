@@ -6897,3 +6897,34 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 80067#       发表于 2021-7-17 15:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51996035&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-17 15:19</a>
+
+我只对涉及王姐部分作出正面评价，其他部分就也许蘑菇所谓的写嗨了就是对摩根厨力放出，然后把其 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突出一个我到底看了个啥玩意?
+
+
+其实这也归功于dw 狂吹文本量 然后还要分前后篇  结果说好的分前后篇又搞一个8。4
+
+只能说人的忍耐是有限度的  再加上这后篇断的地方真是让人气不打一处来
+
+
+这要是8。4还没完结真来个“完结篇”的话  那画面简直太美了 无法直视
+
+
+-----
+
+####  angelooo  
+##### 80068#       发表于 2021-7-17 15:49
+
+
+摩根这美强惨别的不说，剧情反转和队长那都没法比吧，就一种钦定了这群妖精就是乐色你不管干啥都救不了还要被各种背刺，说都合感觉都赶不上了，作者就是你的命运，也憋反抗了23333
+
+
+                                                 

@@ -16879,3 +16879,39 @@ cp9有道力值的，后面不玩这套了
 
 
                                                  
+
+-----
+
+####  武男  
+##### 55414#       发表于 2021-7-17 16:19
+
+
+凯多愤怒了
+
+
+e49fefc4b74543a938931c7909178a82b8011405.jpg
+(138.21 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-17 16:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/161847sxb7ltnol97blen9.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  武男  
+##### 55415#       发表于 2021-7-17 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51955277&amp;ptid=98922" target="_blank">kknife 发表于 2021-7-14 14:35</a>
+
+op这玩意还能讨论战力？</blockquote>
+热血类少年漫不谈战斗力的话，说明没人气了
+
+
+                                                 
