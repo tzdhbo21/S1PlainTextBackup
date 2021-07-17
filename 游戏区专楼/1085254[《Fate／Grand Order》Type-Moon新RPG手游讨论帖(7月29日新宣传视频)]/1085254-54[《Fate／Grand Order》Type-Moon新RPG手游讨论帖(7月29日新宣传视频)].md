@@ -7431,3 +7431,28 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 80098#       发表于 2021-7-18 01:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52002323&amp;ptid=1085254" target="_blank">シャル 发表于 2021-7-18 00:04</a>
+
+我觉得你们是不是忘了啥
+
+
+那个裁定阶摩根和女王摩根是不同存在，咋看都还有一个摩根存在</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">就是贝先生召出来的裁摩根通过灵子转移回到过去把记忆传送给了异闻带的摩根啊
+
+又因为过去的异闻带不是特异点.....英灵没有办法存在....裁摩根就这样直接退场了...这个剧情里已经说的很清楚了
+
+
+我是觉得救世主摩根和现在的女王摩根有一些对不上的地方.....摩根会这么宠妖崔就是因为妖崔在救世主时代是唯一感谢过摩根的妖精.....可摩根自己却对盾娘说她没有被任何一个妖精理解过感谢过....当然盾娘在救世主时代也没有遇到妖崔
+
+
+还有裁缝也是有拿到剧本的....一开始出现在咕哒面前时就知道盾娘是被传送到过去了....也知道盾娘被冰封在哪.....对盾娘忘记了自己的存在也没有表现出任何意外....还特意隐瞒了自己和盾娘的关系....最后也没有跟着咕哒一起攻城....理由显然不是什么不忍对过去的同伴动手<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+                                                 
