@@ -8012,3 +8012,14 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
 
                                                  
+
+-----
+
+####  stedckk  
+##### 12698#       发表于 2021-7-17 07:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">下个月电脑才到，现在家里用的是备用电脑，l2d动不了，意思就是这个月还是继续摸（但是不影响打lol）
+
+
+                                                 

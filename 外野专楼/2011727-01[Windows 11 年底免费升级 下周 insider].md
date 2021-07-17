@@ -5557,3 +5557,20 @@ Win11 22000.71版本更新
 
 
                                                  
+
+-----
+
+####  铅笔  
+##### 462#       发表于 2021-7-17 07:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51987295&amp;ptid=2011727" target="_blank">dragrass 发表于 2021-7-16 21:03</a>
+
+Win11 22000.71版本更新
+
+
+依然没有解决浅色主题在10bit色深下UI显示不正常的bug</blockquote>
+是不是设置里面经常UI不显示就是这个BUG造成的。
+
+
+                                                 

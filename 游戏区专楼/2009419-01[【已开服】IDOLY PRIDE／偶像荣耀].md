@@ -4606,3 +4606,61 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+-----
+
+####  yuugi  
+##### 335#       发表于 2021-7-17 08:00
+
+
+ 本帖最后由 yuugi 于 2021-7-17 08:03 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/075954l3veszzvnlw9t949.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-17-08-56-46-681_game.qualiarts.idolypride.jpg</strong> (59.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-17 07:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/075958llrfrwe444ewww14.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-17-08-57-59-248_game.qualiarts.idolypride.jpg</strong> (131.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-17 07:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/080001z3s2wxar3zdsa2u9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-17-08-58-02-935_game.qualiarts.idolypride.jpg</strong> (128.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-17 08:00 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/080004t3prbzsdh1n2z2gk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-17-08-58-05-651_game.qualiarts.idolypride.jpg</strong> (131.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-17 08:00 上传
+
+
+还差张2星，的确低星卡都很强
+
+
+                                                 

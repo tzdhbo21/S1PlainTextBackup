@@ -7395,3 +7395,16 @@ https://www.youtube.com/watch?v=74APIbBbTeU
 
 
                                                  
+
+-----
+
+####  qiyu1234  
+##### 2046#       发表于 2021-7-17 08:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51991326&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-7-17 01:05</a>
+已经有人在猜本作哪位角色暂时会和其他成员分道扬镳了，洛因为出身不好，可能性反而是最低的罢！ ...</blockquote>
+希侬吧，之前的短CM，以及这个短片里罗的质疑，感觉中后期会有这么一段，这倒让我想起tov了
+
+
+                                                 
