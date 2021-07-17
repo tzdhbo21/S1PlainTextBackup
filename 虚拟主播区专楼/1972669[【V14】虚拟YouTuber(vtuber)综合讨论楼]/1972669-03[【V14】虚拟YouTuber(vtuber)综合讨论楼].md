@@ -17880,3 +17880,142 @@ live后毕业跟我预期的差不多
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 4335#       发表于 2021-7-17 17:01
+
+
+虹棒选人要开始了
+
+
+-----
+
+####  winda  
+##### 4336#       发表于 2021-7-17 17:16
+
+
+今年休止中的liver论外还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舞元还额外说了句现在休止的liver还不少。
+
+
+-----
+
+####  qq845629713  
+##### 4337#       发表于 2021-7-17 17:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 今年海外能参加还行
+
+
+-----
+
+####  alcoholic1000  
+##### 4338#       发表于 2021-7-17 17:18
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-17 17:28 编辑 
+
+陰湿回避どりゃああああ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+さくゆい糖！
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/172807fuhy4zwhm4yxhbxj.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ甲子園2021 ドラフト会議【 #にじさんじ甲子園 】.png</strong> (239.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-17 17:28 上传
+
+
+-----
+
+####  FCCHua  
+##### 4339#       发表于 2021-7-17 17:19
+
+
+凛先辈会玩，草
+
+
+-----
+
+####  UnhappyTails  
+##### 4340#       发表于 2021-7-17 17:21
+
+
+刚来，hololive的末日到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4341#       发表于 2021-7-17 17:22
+
+
+ 本帖最后由 FCCHua 于 2021-7-17 17:23 编辑 
+
+惊了，熊猫人一选叶
+很好，大福也是，咲唯贴贴捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 4342#       发表于 2021-7-17 17:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 叶，，大人气！
+
+
+-----
+
+####  stageKK  
+##### 4343#       发表于 2021-7-17 17:24
+
+
+阿菜这个会限看的我眼泪都下来了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4344#       发表于 2021-7-17 17:25
+
+
+ 本帖最后由 FCCHua 于 2021-7-17 17:29 编辑 
+
+老板娘一选阿露丝，有点意外
+葛叶怎么和安洁抢皇女，3bk...我的3bk<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 4345#       发表于 2021-7-17 17:28
+
+
+压力来到了安洁身上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 4346#       发表于 2021-7-17 17:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> KING选妃，安杰你就别争了
+
+
+-----
+
+####  Suny08  
+##### 4347#       发表于 2021-7-17 17:29
+
+
+老板娘为什么不抢月之<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+                                                 

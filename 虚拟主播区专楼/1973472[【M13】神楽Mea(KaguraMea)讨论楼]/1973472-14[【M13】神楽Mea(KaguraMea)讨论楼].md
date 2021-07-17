@@ -7012,3 +7012,151 @@ sl谢谢，反正叔叔只认流量不认sc的，我都看你批站直播了还�
 
 
                                                  
+
+-----
+
+####  gongge666  
+##### 20146#       发表于 2021-7-17 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51995463&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-17 14:17</a>
+
+“百万宣发”，拉稀PV，没日本场，没嘉宾，开始没免费票，冲评论区冲出来个手游式打卡送免费票 ...</blockquote>
+日本场那个明显是B站内部天狗事业民搞出来的，还TM相约大场馆，但凡少犯点病早几个月举办P事没有，还了了她跟夸一起上台的梦。至于嘉宾和免费票本来就是第一届才有的
+
+
+-----
+
+####  T_Hb  
+##### 20147#       发表于 2021-7-17 16:40
+
+
+ 本帖最后由 T_Hb 于 2021-7-17 16:42 编辑 
+
+不聊这些事了，聊点开心的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">怎么还没9点
+
+
+-----
+
+####  Klience  
+##### 20148#       发表于 2021-7-17 16:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51996801&amp;ptid=1973472" target="_blank">gongge666 发表于 2021-7-17 16:39</a>
+
+日本场那个明显是B站内部天狗事业民搞出来的，还TM相约大场馆，但凡少犯点病早几个月举办P事没有，还了了 ...</blockquote>
+早几个月还不是因为疫情不允许 那有什么办法嘛
+
+
+-----
+
+####  gongge666  
+##### 20149#       发表于 2021-7-17 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51996882&amp;ptid=1973472" target="_blank">Klience 发表于 2021-7-17 16:47</a>
+
+早几个月还不是因为疫情不允许 那有什么办法嘛</blockquote>
+夏天的时候还举办过线下见面会呢，那个时候其实就可以办了。官方的说辞是相等疫情稍微好点约个3000人场馆（bls夺冠并没有说要举办线下演唱会，只说了会举办演唱会），后来又说要在日本一起举办，拖到11月疫情依然没好，holo又炸了，准备登台的时候又因为日本场馆出问题没法办。
+
+其实就后来的线上演唱会来看是值得一次bls冠军的，演唱会质量非常不错。但中间的骚操作实在太多了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain|-1|来这恶心在这等着看演唱会的人是吧.|
+
+
+查看全部评分
+
+
+-----
+
+####  T_Hb  
+##### 20150#       发表于 2021-7-17 17:05
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/170533eh3q7zv7h3557son.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (59.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-17 17:05 上传
+
+
+哇，勤奋咩咩
+
+
+-----
+
+####  汇聚群光  
+##### 20151#       发表于 2021-7-17 17:07
+
+
+感觉mea好久没和宗谷ichika联动了
+
+
+-----
+
+####  路人庚  
+##### 20152#       发表于 2021-7-17 17:07
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/170710wz4c477787jow8e7.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (217.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-17 17:07 上传
+
+
+[https://www.youtube.com/watch?v=VgHg6ZGxCK8](https://www.youtube.com/watch?v=VgHg6ZGxCK8)
+
+
+明天跟anmr的联动2次可还行
+
+
+-----
+
+####  T_Hb  
+##### 20153#       发表于 2021-7-17 17:09
+
+
+感觉又是交际花兰太郎拉的，还带上了最近大火的V 酢酸かのん 
+
+
+-----
+
+####  时雨rain  
+##### 20154#       发表于 2021-7-17 17:10
+
+
+ 本帖最后由 时雨rain 于 2021-7-17 17:13 编辑 
+
+差不多得了，“早一点办就什么事都没有“，你这哪得出的结果。比好不行非得比烂是吧，拉胯不让说？
+
+
+-----
+
+####  ashero  
+##### 20155#       发表于 2021-7-17 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51996629&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-7-17 16:23</a>
+
+是不是看了东京复仇者，你麻的小太妹之心复燃了？还是想看后面的搞基</blockquote>
+稍微看了前几集 估计这人对这种穿越改命的是有点偏好的 我也决定看下去了
+
+
+                                                 

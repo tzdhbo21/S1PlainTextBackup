@@ -6928,3 +6928,135 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  sosgame67  
+##### 80069#       发表于 2021-7-17 16:57
+
+
+等等等等，虽然目前的体感拉跨但还没到252那种粪作的程度吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 80070#       发表于 2021-7-17 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51996343&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-7-17 15:49</a>
+
+摩根这美强惨别的不说，剧情反转和队长那都没法比吧，就一种钦定了这群妖精就是乐色你不管干啥都救不了还要 ...</blockquote>
+阿瓦隆之庭绝赞复刻，不得不品尝
+
+与其说是都合，不如说是蘑菇这人就喜欢这种甩干净所有的锅送你一个二愣子美少女的套路
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  alucardcz  
+##### 80071#       发表于 2021-7-17 17:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能摩根还没死透呢（
+
+
+-----
+
+####  exiaexa  
+##### 80072#       发表于 2021-7-17 17:05
+
+
+ 本帖最后由 exiaexa 于 2021-7-17 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51995930&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-17 15:08</a>
+
+我就纳闷了，这都2021年了，一边过主线一边放出free本是什么很高难度的事情吗，这一卡就是8月4号，几个新从 ...</blockquote>
+你醒醒，前面浪费时间的铺垫跟背刺啥关系都没有，BB大半截还不如梅芙冲出来倒贴送兵送强宣称人设立的快
+
+这2.6你直接跳到阿尔比昂剧情开始观感并不会有什么区别
+
+
+主要是剧情过到现在跟欧罗拉真不熟啊。她这背刺连正义背刺梗都玩不动，撑死算个鸭子你算计我
+
+怎么说的像现在跟欧罗拉多熟了一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 80073#       发表于 2021-7-17 17:10
+
+
+ 本帖最后由 exiaexa 于 2021-7-17 17:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51996101&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-17 15:26</a>
+
+突出一个我到底看了个啥玩意?
+
+
+其实这也归功于dw 狂吹文本量 然后还要分前后篇  结果说好的分前后 ...</blockquote>
+前篇还能说是小高潮结束断章
+
+这中篇事儿还没说完就给你砍断了太草
+
+
+用当年独角兽放送时候的梗
+
+摩根这顿打得被打半个月<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+连你下一层一起回了，肯定没死透啊
+
+只卖了美和强，惨还没卖呢怎么能死
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白金口袋  
+##### 80074#       发表于 2021-7-17 17:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51995709&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-17 00:45</a>
+
+顺便奶口真boss是欧罗拉。。感觉已经差不多把我才是幕后黑手写脸上了 ...</blockquote>
+剧情上真BOSS应该是欧罗拉，但要打的最终BOSS可能是萝兰
+
+因为她三破语音有一句“看啊matser，这就是烧尽了妖精国的机体，美露莘的真实，阿尔比昂最后的碎片”
+
+不列颠本来就没有空想树了，作为代替可能会要主角团屠龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 80075#       发表于 2021-7-17 17:18
+
+
+ 本帖最后由 alucardcz 于 2021-7-17 17:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51997108&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-17 17:10</a>
+
+前篇还能说是小高潮结束断章
+
+这中篇事儿还没说完就给你砍断了太草</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是dw太废物  要是前后篇  这个前篇是在现在这里停下 可能给人的感觉就大不一样了
+
+
+-----
+
+####  alucardcz  
+##### 80076#       发表于 2021-7-17 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51997219&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-7-17 17:17</a>
+
+剧情上真BOSS应该是欧罗拉，但要打的最终BOSS可能是萝兰
+
+因为她三破语音有一句“看啊matser，这就是烧尽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是欧罗拉暴毙 妖兰爆走吗（
+
+
+                                                
