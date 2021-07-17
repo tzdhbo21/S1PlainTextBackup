@@ -18737,3 +18737,34 @@ EN全员都入队了
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 4407#       发表于 2021-7-17 20:48
+
+
+刚看到夜见在帮大福代打cr练习赛
+
+
+-----
+
+####  winda  
+##### 4408#       发表于 2021-7-17 21:21
+
+
+ 本帖最后由 winda 于 2021-7-17 21:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">id基本就认识个taka，kr那边roha和nari也没人认识就没想到，这都是陌生人组队reaction可怎么办啊
+
+
+-----
+
+####  qq845629713  
+##### 4409#       发表于 2021-7-17 21:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 海外就乖乖去替补席呗
+
+
+                                                 

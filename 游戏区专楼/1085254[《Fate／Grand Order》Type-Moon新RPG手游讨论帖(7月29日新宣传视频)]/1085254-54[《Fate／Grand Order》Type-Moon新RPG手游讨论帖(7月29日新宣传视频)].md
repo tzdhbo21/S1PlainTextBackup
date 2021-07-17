@@ -7229,3 +7229,104 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 80088#       发表于 2021-7-17 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51999338&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-17 20:12</a>
+
+卖卡任务都没完成怎么能跑呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">先不论摩根的塑造和给玩家的观感怎么样....我觉得摩根身上已经没坑了啊...该说的都说了
+
+
+和贝先生是什么关系说了....救世主时代经历了些什么以至于转变成现在这样也说了...目的也非常明确.....剩下还有什么好写的....剧情上留下来的那些坑也不一定要她来填啊
+
+
+还有我真不觉得摩根掌握了妖精乡的一切现状....要不然救世主时代也不会几千年下来都被迫害的这么惨了....
+
+
+相反这摩根给我的感觉就是个一点心机也没有的傻白甜....派白狗去打圆桌军...也派了援军....然后就不闻不问了....根本不知道战场上发生了些什么...白狗打输了后也没有一点关心的样子.....派出去的马头被谁干死了也不知道....还要问妖高....也根本不知道妖高会反叛和手下的氏族长都在想些什么吧.....最后就硬是被这些了色沙雕妖精暗算....还死的这么难看....这种执政手段你不死谁死
+
+
+-----
+
+####  angelooo  
+##### 80089#       发表于 2021-7-17 21:08
+
+
+<blockquote>森兰丸 发表于 2021-7-17 20:54
+先不论摩根的塑造和给玩家的观感怎么样....我觉得摩根身上已经没坑了啊...该说的都说了
+
+
+和贝先生 ...</blockquote>
+其实我也觉得她是那三个字，但隔壁的风向就是妖精都是一些完全无法沟通行事毫无逻辑的深井冰乐色，她做啥都没用，你行你上啊.jpg
+
+
+-----
+
+####  シャル  
+##### 80090#       发表于 2021-7-17 21:18
+
+
+ 本帖最后由 シャル 于 2021-7-17 21:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51999945&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-17 20:54</a>
+
+先不论摩根的塑造和给玩家的观感怎么样....我觉得摩根身上已经没坑了啊...该说的都说了
+
+
+和贝先生 ...</blockquote>
+我觉得摩根这是故意的
+
+
+把马修送回去以后自己就能找机会退场了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+包括用崩落威胁把迦勒底引来不列颠全都是千年前就计划好的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 80091#       发表于 2021-7-17 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52000130&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-7-17 21:08</a>
+
+其实我也觉得她是那三个字，但隔壁的风向就是妖精都是一些完全无法沟通行事毫无逻辑的深井冰乐色，她做啥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这些妖精其实不就和人类是一样的生物么
+
+充满着欲望.....低俗.....见风使坨....贪生怕死....表里不一....人类的劣根性这些妖精都有
+
+
+然后你看人类的统治者是怎么治国的
+
+
+-----
+
+####  exiaexa  
+##### 80092#       发表于 2021-7-17 21:22
+
+
+ 本帖最后由 exiaexa 于 2021-7-17 21:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51999945&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-17 20:54</a>
+
+先不论摩根的塑造和给玩家的观感怎么样....我觉得摩根身上已经没坑了啊...该说的都说了
+
+
+和贝先生 ...</blockquote>
+我不知道你看没看过阿瓦隆之庭，如果你看过你就对这个菌类这个沙雕描写一点都不会奇怪
+
+
+当年阿瓦隆之庭为了又给呆毛甩锅又不掉逼格，硬给你扯成呆毛尽力了，民众/圆桌骑士不满她都知道，但是因为不列颠的神秘一直在消退，她必须整这些劳民伤财的事儿，哪怕会积累不满最终爆发，但是她依旧选择背起黑锅努力维持不列颠到最后一刻，你们不列颠白眼狼怎么不识好歹，你们理解一下啊.JPG
+
+
+按照这个路子就是摩根是个二愣子，然后为了延续不列颠妖精乡尽心尽力，但是出于某些理由她既不能XX又不能XX，民众不满爆发，然后不列颠白眼狼再次推翻统治
+
+完·全·复·刻
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
