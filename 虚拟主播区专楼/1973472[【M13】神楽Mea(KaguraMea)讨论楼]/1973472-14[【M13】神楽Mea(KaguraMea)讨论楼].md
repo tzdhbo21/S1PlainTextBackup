@@ -8539,3 +8539,1037 @@ ddd的眼睛已经是改过了啊
 
 
                                                
+
+-----
+
+####  时间在我手中  
+##### 20272#       发表于 2021-7-17 21:31
+
+
+妹控滚出克<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  追风小星星  
+##### 20273#       发表于 2021-7-17 21:31
+
+
+neet 酱 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 20274#       发表于 2021-7-17 21:32
+
+
+谁啊站出来，我怎么没想到
+
+
+-----
+
+####  2111X  
+##### 20275#       发表于 2021-7-17 21:32
+
+
+是泥酱 泥哥赢麻<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 20276#       发表于 2021-7-17 21:32
+
+
+欧尼酱
+
+
+-----
+
+####  路人庚  
+##### 20277#       发表于 2021-7-17 21:32
+
+
+不出声的时候嘴巴也是有动作的，感觉应该是摄像头捕捉+语音反向两种技术都有
+
+
+-----
+
+####  古战场亡魂  
+##### 20278#       发表于 2021-7-17 21:32
+
+
+占便宜是吧
+
+
+-----
+
+####  295405468  
+##### 20279#       发表于 2021-7-17 21:33
+
+
+哦尼酱
+
+
+-----
+
+####  rosevalley46  
+##### 20280#       发表于 2021-7-17 21:33
+
+
+天空塔妹妹欧尼酱爱了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  yywzjsw  
+##### 20281#       发表于 2021-7-17 21:33
+
+
+🐵
+
+
+-----
+
+####  十九号大侠  
+##### 20282#       发表于 2021-7-17 21:34
+
+
+踏马的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 20283#       发表于 2021-7-17 21:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">磕磕碰碰也算是三周年了，希望能再看几年吧
+
+
+-----
+
+####  T_Hb  
+##### 20284#       发表于 2021-7-17 21:36
+
+
+这环节略长啊，我有点想上厕所了
+
+
+-----
+
+####  yywzjsw  
+##### 20285#       发表于 2021-7-17 21:37
+
+
+我刚刚才去过
+
+
+-----
+
+####  295405468  
+##### 20286#       发表于 2021-7-17 21:38
+
+
+把问卷放出来好一点  不过也习惯了
+
+
+-----
+
+####  十九号大侠  
+##### 20287#       发表于 2021-7-17 21:41
+
+
+他为啥不习惯截图出来哇
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  梦魂落叶  
+##### 20288#       发表于 2021-7-17 21:41
+
+
+她不是一直怕一不小心点出什么奇奇怪怪的东西，所以基本都不放屏幕嘛
+
+
+-----
+
+####  T_Hb  
+##### 20289#       发表于 2021-7-17 21:42
+
+
+憋不住了，先去放松一下
+
+
+-----
+
+####  2014720  
+##### 20290#       发表于 2021-7-17 21:43
+
+
+猫党你麻的…
+
+
+-----
+
+####  路人庚  
+##### 20291#       发表于 2021-7-17 21:44
+
+
+观众阴角占比过多说
+
+
+-----
+
+####  T_Hb  
+##### 20292#       发表于 2021-7-17 21:45
+
+
+一下就45分钟了，过的好快
+
+
+-----
+
+####  古战场亡魂  
+##### 20293#       发表于 2021-7-17 21:46
+
+
+要来了，社死环节，或者女粉环节。
+
+
+-----
+
+####  追风小星星  
+##### 20294#       发表于 2021-7-17 21:50
+
+
+草,这声音,我绷不住了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2111X  
+##### 20295#       发表于 2021-7-17 21:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 20296#       发表于 2021-7-17 21:51
+
+
+atm哈哈
+
+
+-----
+
+####  fsfs_freeze  
+##### 20297#       发表于 2021-7-17 21:52
+
+
+什么声音woc
+
+
+-----
+
+####  咸鱼渣  
+##### 20298#       发表于 2021-7-17 21:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她这反应好大
+
+
+-----
+
+####  yywzjsw  
+##### 20299#       发表于 2021-7-17 21:52
+
+
+刚刚开大声音，我就被麻的声音给震到了
+
+
+-----
+
+####  2014720  
+##### 20300#       发表于 2021-7-17 21:52
+
+
+你流口水是吧<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  295405468  
+##### 20301#       发表于 2021-7-17 21:52
+
+
+笑死我了 发病了
+
+
+-----
+
+####  追风小星星  
+##### 20302#       发表于 2021-7-17 21:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 她耳朵好敏感,是弱点吗?
+
+
+-----
+
+####  T_Hb  
+##### 20303#       发表于 2021-7-17 21:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  makourisu-2  
+##### 20304#       发表于 2021-7-17 21:52
+
+
+懂了，你麻敏感带必在耳后<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">要不然不会反应这么大，也不会死活不做ASMR了
+
+
+-----
+
+####  路人庚  
+##### 20305#       发表于 2021-7-17 21:52
+
+
+这老哥赚到了（
+
+
+-----
+
+####  FCCHua  
+##### 20306#       发表于 2021-7-17 21:52
+
+
+mea这反应笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 20307#       发表于 2021-7-17 21:53
+
+
+诶？虽然这个是搞笑的，但你麻不会对ASMR很弱吧？耳朵是弱点的意思？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 20308#       发表于 2021-7-17 21:53
+
+
+一听就是男桐
+
+
+-----
+
+####  Ky·Kiske  
+##### 20309#       发表于 2021-7-17 21:53
+
+
+弱点发现
+
+
+-----
+
+####  鷹書たかしょ  
+##### 20310#       发表于 2021-7-17 21:53
+
+
+今天喝多了，怕不是一觉起来听的东西全忘了，难顶
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 20311#       发表于 2021-7-17 21:53
+
+
+我耳朵也弱，而且正好弱左耳，贴贴（*/∇＼*）
+
+
+-----
+
+####  2014720  
+##### 20312#       发表于 2021-7-17 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52000817&amp;ptid=1973472" target="_blank">鷹書たかしょ 发表于 2021-7-17 21:53</a>
+今天喝多了，怕不是一觉起来听的东西全忘了，难顶</blockquote>
+现在有直播回放的
+
+
+-----
+
+####  追风小星星  
+##### 20313#       发表于 2021-7-17 21:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 可爱
+
+
+-----
+
+####  yywzjsw  
+##### 20314#       发表于 2021-7-17 21:54
+
+
+这比麻声音好听
+
+
+-----
+
+####  路人庚  
+##### 20315#       发表于 2021-7-17 21:55
+
+
+这段gif可以录一下
+
+
+-----
+
+####  2014720  
+##### 20316#       发表于 2021-7-17 21:55
+
+
+你在对着变声器发情啊哈皮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  笋狐  
+##### 20317#       发表于 2021-7-17 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单曲循环是吧
+
+
+-----
+
+####  Klience  
+##### 20318#       发表于 2021-7-17 21:55
+
+
+安详<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 20319#       发表于 2021-7-17 21:55
+
+
+无限重放女粉音声<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 20320#       发表于 2021-7-17 21:55
+
+
+草草草怎么听了这么多遍啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 20321#       发表于 2021-7-17 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 20322#       发表于 2021-7-17 21:55
+
+
+我先退出了，等下再进直播间
+
+
+-----
+
+####  yywzjsw  
+##### 20323#       发表于 2021-7-17 21:55
+
+
+这一脸安详
+
+
+-----
+
+####  时间在我手中  
+##### 20324#       发表于 2021-7-17 21:56
+
+
+桀桀  女粉太好听了 吊人乐不思蜀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 20325#       发表于 2021-7-17 21:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">享受起来了
+
+
+-----
+
+####  时间在我手中  
+##### 20326#       发表于 2021-7-17 21:57
+
+
+怎么男人就没有个中气十足一点的，全几把烧0棒读向<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 20327#       发表于 2021-7-17 21:58
+
+
+这塑料日语属实搞笑（
+
+
+-----
+
+####  2014720  
+##### 20328#       发表于 2021-7-17 21:58
+
+
+狂犬呢，救救啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 20329#       发表于 2021-7-17 21:58
+
+
+太羞耻了，没人敢那么狂热
+
+
+-----
+
+####  yywzjsw  
+##### 20330#       发表于 2021-7-17 21:58
+
+
+艹男人说方言不好听的
+
+
+-----
+
+####  Mr.shelter  
+##### 20331#       发表于 2021-7-17 21:59
+
+
+已经分不清男粉是在整活还是单纯不会了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 20332#       发表于 2021-7-17 21:59
+
+
+我之前录了一段比较有精神的，不过没发（
+
+
+-----
+
+####  2014720  
+##### 20333#       发表于 2021-7-17 21:59
+
+
+发大水了是吧
+
+
+-----
+
+####  FCCHua  
+##### 20334#       发表于 2021-7-17 21:59
+
+
+逃了，草
+
+
+-----
+
+####  笋狐  
+##### 20335#       发表于 2021-7-17 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玛德不怪你麻蚌埠住，这男粉一个比一个拉胯
+
+
+-----
+
+####  Klience  
+##### 20336#       发表于 2021-7-17 22:00
+
+
+女粉留给自己听 男粉留个粉丝听 你可以的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 20337#       发表于 2021-7-17 22:00
+
+
+草，mea怎么没关循环啊，草，这哥们赢麻了
+
+
+-----
+
+####  梦魂落叶  
+##### 20338#       发表于 2021-7-17 22:00
+
+
+除了女粉都是烧0，懂了，是范马mea
+
+
+-----
+
+####  咸鱼渣  
+##### 20339#       发表于 2021-7-17 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">麻麻了2333
+
+
+-----
+
+####  Ky·Kiske  
+##### 20340#       发表于 2021-7-17 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">循环处刑
+
+
+
+
+-----
+
+####  czkt615477  
+##### 20341#       发表于 2021-7-17 22:00
+
+
+什么声之刑
+
+
+-----
+
+####  yywzjsw  
+##### 20342#       发表于 2021-7-17 22:01
+
+
+不会故意全选男的吧
+
+
+-----
+
+####  时间在我手中  
+##### 20343#       发表于 2021-7-17 22:01
+
+
+气冷抖  男粉就没有一个阿强吗  老子都后悔没上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 20344#       发表于 2021-7-17 22:02
+
+
+这女粉是那个玩人偶的女粉
+
+
+-----
+
+####  无之迷路  
+##### 20345#       发表于 2021-7-17 22:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">男粉就没个争气的吗
+
+—— 来自 Xiaomi M2101K9C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Mr.shelter  
+##### 20346#       发表于 2021-7-17 22:03
+
+
+怎么这么多循环的，太处刑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 20347#       发表于 2021-7-17 22:03
+
+
+搁这直播享受asmr呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 20348#       发表于 2021-7-17 22:03
+
+
+这一脸安详后躺闭目的样子
+
+
+-----
+
+####  路人庚  
+##### 20349#       发表于 2021-7-17 22:03
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/220324wmks5r16mnonnroe.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (120.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-17 22:03 上传
+
+
+被女粉爽晕.png
+
+
+-----
+
+####  Ky·Kiske  
+##### 20350#       发表于 2021-7-17 22:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这什么大叔定型文
+
+
+-----
+
+####  T_Hb  
+##### 20351#       发表于 2021-7-17 22:04
+
+
+海狗来了
+
+
+-----
+
+####  rosevalley46  
+##### 20352#       发表于 2021-7-17 22:08
+
+
+这是啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 20353#       发表于 2021-7-17 22:09
+
+
+是行为艺术
+
+
+-----
+
+####  路人庚  
+##### 20354#       发表于 2021-7-17 22:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于猜错了一次
+
+
+-----
+
+####  yywzjsw  
+##### 20355#       发表于 2021-7-17 22:09
+
+
+哈哈变声器
+
+
+-----
+
+####  咸鱼渣  
+##### 20356#       发表于 2021-7-17 22:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上当了2333
+
+
+-----
+
+####  295405468  
+##### 20357#       发表于 2021-7-17 22:10
+
+
+应该是顺水推舟做点节目效果hh
+
+
+-----
+
+####  Ky·Kiske  
+##### 20358#       发表于 2021-7-17 22:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">骗 自 己
+
+
+-----
+
+####  古战场亡魂  
+##### 20359#       发表于 2021-7-17 22:10
+
+
+她肯定全部听过一遍了……节目效果节目效果……那个变声器那么明显
+
+
+-----
+
+####  萌萌人_  
+##### 20360#       发表于 2021-7-17 22:11
+
+
+今天笑死了
+
+
+-----
+
+####  追风小星星  
+##### 20361#       发表于 2021-7-17 22:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 这怂羊,肯定都过了几遍,怕得要死
+
+
+-----
+
+####  追风小星星  
+##### 20362#       发表于 2021-7-17 22:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  笋狐  
+##### 20363#       发表于 2021-7-17 22:13
+
+
+这个厉害，声线有一点cv潜质的那种
+
+
+-----
+
+####  路人庚  
+##### 20364#       发表于 2021-7-17 22:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听过肯定是听过，但不一定记得住哪个是哪个啊，这么多录像呢
+
+
+-----
+
+####  古战场亡魂  
+##### 20365#       发表于 2021-7-17 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52001093&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-17 22:13</a>
+
+听过肯定是听过，但不一定记得住哪个是哪个啊，这么多录像呢</blockquote>
+标注一下有什么难的……
+
+她点评2创的时候几百点击的视频都看过了然后还得奖了。
+
+
+-----
+
+####  295405468  
+##### 20366#       发表于 2021-7-17 22:14
+
+
+这个有点专业  
+
+
+-----
+
+####  路人庚  
+##### 20367#       发表于 2021-7-17 22:14
+
+
+公序良俗还行
+
+
+-----
+
+####  古战场亡魂  
+##### 20368#       发表于 2021-7-17 22:15
+
+
+绷不住了……
+
+
+-----
+
+####  Mr.shelter  
+##### 20369#       发表于 2021-7-17 22:15
+
+
+笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  295405468  
+##### 20370#       发表于 2021-7-17 22:15
+
+
+绝了 我要死了
+
+
+
+
+-----
+
+####  笋狐  
+##### 20371#       发表于 2021-7-17 22:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玛德想吐，能不能好好说话
+
+
+-----
+
+####  时间在我手中  
+##### 20372#       发表于 2021-7-17 22:16
+
+
+男粉赶紧投胎吧，你麻麻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿强已成绝唱
+
+
+-----
+
+####  T_Hb  
+##### 20373#       发表于 2021-7-17 22:16
+
+
+世间再无阿强那般人
+
+
+-----
+
+####  Cortana  
+##### 20374#       发表于 2021-7-17 22:16
+
+
+小烧0，糙似你！🥵🥵🥵🥵🥵🥵🥵
+
+
+-----
+
+####  路人庚  
+##### 20375#       发表于 2021-7-17 22:17
+
+
+可惜当年一库哥，这次只录了个威震天（
+
+
+-----
+
+####  Ky·Kiske  
+##### 20376#       发表于 2021-7-17 22:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">按年龄看我应该是这里第一个投胎的
+
+赢了
+
+
+-----
+
+####  2014720  
+##### 20377#       发表于 2021-7-17 22:18
+
+
+你麻属实将就个雨露均沾jk
+
+
+-----
+
+####  Cortana  
+##### 20378#       发表于 2021-7-17 22:20
+
+
+TMD，属实有点病了，一走神看成“三酱周年快乐”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 20379#       发表于 2021-7-17 22:22
+
+
+那唱个东京复仇者的歌阿
+
+
+-----
+
+####  追风小星星  
+##### 20380#       发表于 2021-7-17 22:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 黎明与萤火
+
+
+-----
+
+####  古战场亡魂  
+##### 20381#       发表于 2021-7-17 22:22
+
+
+bgm太大了
+
+
+-----
+
+####  T_Hb  
+##### 20382#       发表于 2021-7-17 22:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天才看的  咋会唱呢
+
+
+                                             

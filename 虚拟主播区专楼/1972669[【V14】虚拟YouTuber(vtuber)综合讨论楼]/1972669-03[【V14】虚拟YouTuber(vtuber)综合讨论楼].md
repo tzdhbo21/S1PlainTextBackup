@@ -18768,3 +18768,42 @@ EN全员都入队了
 
 
                                                  
+
+-----
+
+####  pansherry  
+##### 4410#       发表于 2021-7-17 21:32
+
+
+ 本帖最后由 pansherry 于 2021-7-17 22:13 编辑 
+
+<img src="https://tvax4.sinaimg.cn/large/771ca9d1gy1gsk9sk0ifaj20kf0i1jzr.jpg" referrerpolicy="no-referrer">
+<img src="https://tva2.sinaimg.cn/large/771ca9d1gy1gskaoy753hj20iy0i7gsn.jpg" referrerpolicy="no-referrer">
+<img src="https://tvax1.sinaimg.cn/large/771ca9d1gy1gskazhd1slj20v20h8nd5.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  peh  
+##### 4411#       发表于 2021-7-17 22:01
+
+
+床怎么被king拿走了
+
+
+-----
+
+####  Suny08  
+##### 4412#       发表于 2021-7-17 22:11
+
+
+<blockquote>FCCHua 发表于 2021-7-17 20:48
+刚看到夜见在帮大福代打cr练习赛</blockquote>
+今天早上就说好了的，另外看了一下だるま这边的直播，你虹现在真实被吸血的厉害啊，全是在聊虹甲的，cr可以加油再吸吸血，估计だるま能比黑黑先金盾
+
+
+                                                

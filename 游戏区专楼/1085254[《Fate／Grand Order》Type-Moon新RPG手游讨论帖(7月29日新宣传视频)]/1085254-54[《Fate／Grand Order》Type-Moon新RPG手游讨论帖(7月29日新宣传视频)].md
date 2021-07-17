@@ -7330,3 +7330,85 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 80093#       发表于 2021-7-17 21:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51999945&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-17 20:54</a>
+
+先不论摩根的塑造和给玩家的观感怎么样....我觉得摩根身上已经没坑了啊...该说的都说了
+
+
+和贝先生 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多想点 万一是计划通呢
+
+
+-----
+
+####  森兰丸  
+##### 80094#       发表于 2021-7-17 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52000362&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-17 21:22</a>
+
+我不知道你看没看过阿瓦隆之庭，如果你看过你就对这个菌类这个沙雕描写一点都不会奇怪
+
+
+当年阿瓦隆之庭为 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是摩根和呆毛的目的完全不同啊.....虽然都是为了维持不列颠.....一个是为了整个不列颠的子民.....一个是只是为了她自己一个人。
+
+
+这些妖精都是群了色是摩根早就领悟了的道理.....早就不对这些妖精抱任何希望了....对摩根来说她根本不在乎妖精的死活....这也是妖高反叛的理由。她在乎的是只有属于她自己一个人的不列颠.....哪怕侵略别的世界也是为了这个目的。
+
+
+这样的摩根你说她会为了谁而背黑锅？我根本就不信啊......
+
+
+而说摩根的观感差也就是这些设定完全脱离于游戏实际剧情.....既然摩根都设定成这样了...那怎么都该是一个冷酷无情的铁血统治者的印象吧.....已经维持了2000年的统治....手下应该都对摩根充满了恐怖和畏敬才对...结果实际又是怎么样的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 80095#       发表于 2021-7-17 21:53
+
+
+ 本帖最后由 exiaexa 于 2021-7-17 21:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52000698&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-17 21:44</a>
+
+可是摩根和呆毛的目的完全不同啊.....虽然都是为了维持不列颠.....一个是为了整个不列颠的子民... ...</blockquote>
+我没说摩根会去被黑锅啊
+
+我只是说你不要对菌类的逻辑有什么期待，他能用阿瓦隆之庭献祭整个不列颠去捧呆毛，他也能献祭整个妖精乡去捧摩根，对他而言说不定摩根这个女王就只是坐在那儿而已
+
+什么为了不列颠，为了妖精，为了自己，他到时候给你整个摩根只是个莫得感情的蹲马桶人/圣枪架子也不是不可能
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+而且有句港剧蘑菇从来不会写什么冷酷无情，他从头到尾就是那种在狗屎的世界里呼唤爱，搞事情的理由永远是因爱生恨，他能写出有血有肉的冷酷无情你不如相信母猪能上树
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 80096#       发表于 2021-7-17 22:00
+
+
+<blockquote>森兰丸 发表于 2021-7-17 21:21
+这些妖精其实不就和人类是一样的生物么
+
+充满着欲望.....低俗.....见风使坨....贪生怕死....表里不 ...</blockquote>
+对啊，比如欧若拉，还有那个人类假扮的货，合着你摩根连一个普通人类都不如，真就天赋全点魔法上了
+
+以及她对这一次轮回的妖崔的态度也很那啥，明明是每次轮回都非常在意的妖精，还让贝屑那种渣随便靠近然后把人骗得一愣一愣的，知道那些妖精都想搞自己还让人一眼看出妖崔对她的重要性，直接人质战术给你安排上了
+
+说难听点，虽然王姐不至于沦落至此，但观感有和之国WT亲爹那味了233
+
+当然8.4有大反转了就当我没说
+
+
+                                                 
