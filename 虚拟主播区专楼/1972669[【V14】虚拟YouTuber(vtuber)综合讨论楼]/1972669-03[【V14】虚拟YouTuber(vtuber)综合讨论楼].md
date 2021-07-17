@@ -18807,3 +18807,43 @@ EN全员都入队了
 
 
                                                 
+
+-----
+
+####  GT2  
+##### 4413#       发表于 2021-7-17 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52000932&amp;ptid=1972669" target="_blank">peh 发表于 2021-7-17 22:01</a>
+床怎么被king拿走了</blockquote>
+日本职棒的名物 競合
+选中了同样的一个人 要抽签决定谁真正得到入团交涉权（因为现实里也要看被指名的人的意志是否愿意入团，所以只能叫交涉权而不是确定入团）
+因为这个制度诞生了很多可歌可泣的故事啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+不过要是真的跟现实一样再来个本人拒绝入团就更好玩了
+
+
+-----
+
+####  OldGlory  
+##### 4414#       发表于 2021-7-17 23:04
+
+
+兔头这个麦不行啊
+
+
+-----
+
+####  rzrbtk  
+##### 4415#       发表于 2021-7-17 23:08
+
+
+ 本帖最后由 rzrbtk 于 2021-7-17 23:25 编辑 
+
+说过无数次还是要说，反重力女孩太好了，就是月之的歌啊…
+
+这做了干冰特效又不拍腿是有什么意义啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+这听了两首，感觉这一砖曲质量还...挺行啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+                                                 
