@@ -18457,3 +18457,190 @@ kr来了
 
 
                                                 
+
+-----
+
+####  Suny08  
+##### 4381#       发表于 2021-7-17 18:40
+
+
+每队16人8队才128人，现在选了这么多海外的情况下本社注定有人选不上了
+
+
+-----
+
+####  purdre  
+##### 4382#       发表于 2021-7-17 18:44
+
+
+EN全员都入队了
+
+
+-----
+
+####  qq845629713  
+##### 4383#       发表于 2021-7-17 18:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 本社这么多人刚好就把en三人全选上了，你咋不把二期也安排进去呢？
+
+
+-----
+
+####  Suny08  
+##### 4384#       发表于 2021-7-17 18:47
+
+
+葵皇底边说<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 4385#       发表于 2021-7-17 18:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 找一堆本社的人选人，然后海外势都弄进去，这些人对海外都不了解，一个都不认识，
+
+
+就像参观动物园一样对这些人一点尊重都没有，我是服了，然后其他海外分社都有，最后却没有vr。
+
+
+真是有够好笑的，你们谁愿意看谁看吧，真垃圾
+
+
+-----
+
+####  poipanchao  
+##### 4386#       发表于 2021-7-17 18:49
+
+
+葵皇……
+
+
+-----
+
+####  dybang  
+##### 4387#       发表于 2021-7-17 18:50
+
+
+这么搞倒没啥，本来就不少兼职和自闭人，在这点黑屁实属没必要，又不是学隔壁排排坐，就怕后面玩尬的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  purdre  
+##### 4388#       发表于 2021-7-17 18:53
+
+
+ 本帖最后由 purdre 于 2021-7-17 18:56 编辑 
+
+说得好像对本社的人就很尊重似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4389#       发表于 2021-7-17 18:54
+
+
+ 本帖最后由 FCCHua 于 2021-7-17 18:58 编辑 
+
+本社:？
+有阿葵就好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 4390#       发表于 2021-7-17 18:59
+
+
+<img src="https://img.saraba1st.com/forum/202107/17/185927d2lx2ol6e8yyq2vq.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ甲子園2021 ドラフト会議【 #にじさんじ甲子園 】-6.png</strong> (174.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-17 18:59 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 4391#       发表于 2021-7-17 19:04
+
+
+葵皇这半年社内和stf关系到底怎么回事
+
+
+-----
+
+####  rzrbtk  
+##### 4392#       发表于 2021-7-17 19:06
+
+
+我只能说郡道来到了最适合她的队伍，老板娘万岁<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">！
+
+
+-----
+
+####  purdre  
+##### 4393#       发表于 2021-7-17 19:08
+
+
+挺犹豫看谁的窗，感觉熊猫人的人选比较和我口味，但是社长和安九的感觉直播会很有趣
+
+
+-----
+
+####  qq845629713  
+##### 4394#       发表于 2021-7-17 19:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 和露露快退时候的感觉差不多，其他人也在撇清关系，
+
+
+三周年大概会宣布把
+
+
+-----
+
+####  purdre  
+##### 4395#       发表于 2021-7-17 19:10
+
+
+今年有官方（舞元+天开）育成总结新闻看<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+好耶！
+
+
+-----
+
+####  patema  
+##### 4396#       发表于 2021-7-17 19:17
+
+
+池子里面没有hana，楼友是不是可以试着发散一下<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 4397#       发表于 2021-7-17 19:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">id有三个没上吧
+
+
+-----
+
+####  FCCHua  
+##### 4398#       发表于 2021-7-17 19:20
+
+
+没给许可呗
+
+
+                                                 

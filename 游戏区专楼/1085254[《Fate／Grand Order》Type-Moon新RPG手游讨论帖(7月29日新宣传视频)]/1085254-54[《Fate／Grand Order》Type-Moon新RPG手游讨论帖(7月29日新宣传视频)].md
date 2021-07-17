@@ -7088,3 +7088,74 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 80079#       发表于 2021-7-17 18:45
+
+
+你们是不是忘了巨坑里还有个古神尸体在......妖崔都直接跳进去了....主线里妖崔的3破样子都还没出现
+
+
+-----
+
+####  alucardcz  
+##### 80080#       发表于 2021-7-17 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51998123&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-17 18:45</a>
+
+你们是不是忘了巨坑里还有个古神尸体在......妖崔都直接跳进去了....主线里妖崔的3破样子都还没出现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主线里3破样子没出现过的多了 坑也多的去了  例如麻团包养的那个人类  还有被加雷斯克制的那个马头 被谁杀的也没说 最最最开始的那个摸丝化的妖精也一字未提
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">所以说啊 就是看了个寂寞  讲的什么xx玩意
+
+
+-----
+
+####  森兰丸  
+##### 80081#       发表于 2021-7-17 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51998153&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-17 18:49</a>
+
+主线里3破样子没出现过的多了 坑也多的去了  例如麻团包养的那个人类  还有被加雷斯克制的那个马 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">妖崔3破是直接改写了整个角色的存在定义啊.....不单单只是换件衣服....就好像阿比的3破一样...这个是肯定要在主线剧情里讲清楚的
+
+
+还有向贝先生告密的也不知道是谁....之前都以为是奥贝隆......目前看来不是的话还真想不到能是谁了。
+
+现在就是挖了一堆坑一个也没填就结束了.....卡在这个节骨眼上的确非常难受....8月4号后的剧情再写不好蘑菇就真可以封笔了
+
+
+-----
+
+####  alucardcz  
+##### 80082#       发表于 2021-7-17 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51998379&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-17 19:14</a>
+
+妖崔3破是直接改写了整个角色的存在定义啊.....不单单只是换件衣服....就好像阿比的3破一样...这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我意思是c呆 妖兰 3破都还没出现
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">至于8。4 等一个最后的最后预告个完结篇 明年上线
+
+
+-----
+
+####  森兰丸  
+##### 80083#       发表于 2021-7-17 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51998392&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-17 19:16</a>
+
+我意思是c呆 妖兰 3破都还没出现
+
+
+至于8。4 等一个最后的最后预告个完结篇 明年上线</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">那就真的可以等着吃烤蘑菇了
+
+
+                                                 
