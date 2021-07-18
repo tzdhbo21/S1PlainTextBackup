@@ -18926,3 +18926,283 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 
 
                                                  
+
+-----
+
+####  patema  
+##### 4423#       发表于 2021-7-18 10:43
+
+
+ 本帖最后由 patema 于 2021-7-18 10:44 编辑 
+
+企鹅会日英中，目前来看是冲错了？
+
+
+-----
+
+####  Suny08  
+##### 4424#       发表于 2021-7-18 10:49
+
+
+企鹅估计是在日华裔，现在来看肯定不是sanchi了，杏en两金盾确定
+
+
+-----
+
+####  winda  
+##### 4425#       发表于 2021-7-18 10:50
+
+
+企鹅喜欢绿仙，德比还有星川<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">优秀答案
+
+企鹅还会粤语，这特错了吧
+
+
+-----
+
+####  patema  
+##### 4426#       发表于 2021-7-18 10:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">就看最后这个猎杀能不能对了
+
+
+-----
+
+####  真飞鸟i  
+##### 4427#       发表于 2021-7-18 10:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nen要从哈撒韦变成夏亚了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  patema  
+##### 4428#       发表于 2021-7-18 11:04
+
+
+会英法中韩，这次虹en中文浓度有点高啊
+
+
+-----
+
+####  ヒトニナル  
+##### 4429#       发表于 2021-7-18 11:05
+
+
+在日华裔en，你虹这个en的定义真是自由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 4430#       发表于 2021-7-18 11:05
+
+
+看样子之前的虹cn是合并进en了
+
+
+-----
+
+####  Suzutsuki  
+##### 4431#       发表于 2021-7-18 11:11
+
+
+月光龙喜欢Q娃？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 4432#       发表于 2021-7-18 11:12
+
+
+我觉得是香港人吧这俩会粤语的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  突然空虚  
+##### 4433#       发表于 2021-7-18 11:12
+
+
+熊猫人这是帮下巴凑萝莉rp组啊
+
+
+-----
+
+####  Suzutsuki  
+##### 4434#       发表于 2021-7-18 11:12
+
+
+可以 月光龙想来CR杯 你虹又来个打手 能不能带带bora<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4435#       发表于 2021-7-18 11:13
+
+
+apex浓度<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 4436#       发表于 2021-7-18 11:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">原来的多语言向招不齐人就放到en了吧
+
+
+-----
+
+####  patema  
+##### 4437#       发表于 2021-7-18 11:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这个可能挖对了？好像都能对上一半
+
+
+-----
+
+####  winda  
+##### 4438#       发表于 2021-7-18 11:16
+
+
+apex everyday!<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">猎杀姐她来了
+
+
+-----
+
+####  patema  
+##### 4439#       发表于 2021-7-18 11:18
+
+
+看时间不太像在日吧
+
+
+-----
+
+####  渡鸦骑士  
+##### 4440#       发表于 2021-7-18 11:18
+
+
+猎杀甚至想去打职业赛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 4441#       发表于 2021-7-18 11:20
+
+
+apex打得好在虹就算有人气保证了吧
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Suzutsuki  
+##### 4442#       发表于 2021-7-18 11:21
+
+
+先去CR杯吸个粉 然后调教和养就对了 可以走丽姐路线<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 4443#       发表于 2021-7-18 11:22
+
+
+不会日语
+
+
+-----
+
+####  真飞鸟i  
+##### 4444#       发表于 2021-7-18 11:22
+
+
+编辑
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  patema  
+##### 4445#       发表于 2021-7-18 11:22
+
+
+但是月亮龙不会日语<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">难不成从英语圈拉壬打吗
+
+
+-----
+
+####  alcoholic1000  
+##### 4446#       发表于 2021-7-18 11:23
+
+
+ロゼミ——miki
+
+英語・日本語・フランス語・スペイン語ちょっと
+
+ペトラ——？
+
+英語・日本語・中国語
+
+セレン——dokibird
+
+英語・フランス語・中国語・韓国語ちょっと
+
+
+-----
+
+####  qq845629713  
+##### 4447#       发表于 2021-7-18 11:23
+
+
+说真的，这是个好机会，你虹人气主播本社包括king在内的都在打棒球，要是这个女人抓住机会。单排光速上分表现一下，能收获不少枪民，至少能稳住同接
+
+
+-----
+
+####  wx41122  
+##### 4448#       发表于 2021-7-18 11:24
+
+
+翻了下DokiBird，笑声和selen一模一样
+
+企鹅有些微妙，和金盾哥不太像，但感觉上是这期最受重视的
+
+
+-----
+
+####  qq845629713  
+##### 4449#       发表于 2021-7-18 11:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">你虹这么好的交换英语圈日语圈粉丝的机会，就被一个垃圾棒球给毁了
+
+king我们不打棒球，和猎杀者妹妹学英文打枪好不好，
+
+
+-----
+
+####  烯丝短尾猫  
+##### 4450#       发表于 2021-7-18 11:30
+
+
+king可以先和genburten沟通流畅
+
+
+                                                

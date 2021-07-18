@@ -4717,3 +4717,19 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+-----
+
+####  Aureth  
+##### 340#       发表于 2021-7-18 11:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52004985&amp;ptid=2009419" target="_blank">澜沫 发表于 2021-7-18 10:44</a>
+补助券抽的2星长濑琴乃有投资的必要吗
+蓝组有四个五星人了，无氪党</blockquote>
+因为她有A技前score上升，我是觉得没有白石姐姐的话绝对可以练。反正有契约更新在，只要level asist有空位都可以摆上去用用看。
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
