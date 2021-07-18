@@ -19206,3 +19206,153 @@ king可以先和genburten沟通流畅
 
 
                                                 
+
+-----
+
+####  alcoholic1000  
+##### 4451#       发表于 2021-7-18 11:36
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-18 11:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52005428&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-7-18 11:27</a>
+
+你虹这么好的交换英语圈日语圈粉丝的机会，就被一个垃圾棒球给毁了
+
+
+king我们不打棒球，和猎杀者妹 ...</blockquote>
+是不是最近没看king，king已经学了好几天英语了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+Syl，猎杀28位，已经不是同一个次元了
+
+
+-----
+
+####  winda  
+##### 4452#       发表于 2021-7-18 11:36
+
+
+<img src="https://img.saraba1st.com/forum/202107/18/113556pf3pbxj8mlf3jsjf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_0718_113443.jpg</strong> (143.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-18 11:35 上传
+
+
+apex两个赛季猎杀+ow8赛季500强，等级也太高了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  越动天下  
+##### 4453#       发表于 2021-7-18 11:38
+
+
+ 本帖最后由 越动天下 于 2021-7-18 11:39 编辑 
+
+抽了个游戏大师<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> syl也要男人是吧
+
+
+-----
+
+####  patema  
+##### 4454#       发表于 2021-7-18 11:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">龙什么时候和岁排带岁上猎杀？
+
+
+-----
+
+####  qq845629713  
+##### 4455#       发表于 2021-7-18 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52005538&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-7-18 11:36</a>
+是不是最近没看king，king已经学了好几天英语了
+
+Syl，猎杀28位，已经不是同一个次元了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">和外国男人玩没意思，我要看装清纯、青涩的king被en猎杀者姐姐带飞，
+
+我要看黑黑加猎杀者姐姐联动
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|也不是不行，英语学习快点安排上.|
+
+
+查看全部评分
+
+
+-----
+
+####  Suny08  
+##### 4456#       发表于 2021-7-18 11:44
+
+
+selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要求，cr杯唯一的中国队，这人气不是爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，实力上两顶猎带一大师，稳稳的乱杀
+
+
+-----
+
+####  poipanchao  
+##### 4457#       发表于 2021-7-18 11:50
+
+
+[https://twitter.com/dokibird/status/1378516320103268356](https://twitter.com/dokibird/status/1378516320103268356)
+
+搜了下推特，1v6剪辑
+
+[https://twitter.com/dokibird/status/1385366614296518656](https://twitter.com/dokibird/status/1385366614296518656)
+
+这是学猫叫（中文版）
+
+
+-----
+
+####  mmbk  
+##### 4458#       发表于 2021-7-18 11:51
+
+
+勿cue雷岁好吧 勿cue✋​
+
+
+-----
+
+####  seki_m  
+##### 4459#       发表于 2021-7-18 12:07
+
+
+星宸现在还顶猎..？
+
+
+-----
+
+####  Rosefinch  
+##### 4460#       发表于 2021-7-18 12:30
+
+
+不会日语可以来带逆天鲨鱼头上分啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  patema  
+##### 4461#       发表于 2021-7-18 12:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">鲨鱼头跟的上吗
+
+
+                                                 
