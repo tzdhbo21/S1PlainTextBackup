@@ -9064,3 +9064,20 @@ ai失控后完全没有出现人类正规军，就只有平民被乱杀，以及
 
 
                                                  
+
+-----
+
+####  言酱啊啊啊  
+##### 2188#       发表于 2021-7-19 00:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51341252&amp;ptid=1982987" target="_blank">言酱啊啊啊 发表于 2021-5-23 09:43</a>
+不是，是方块人，这集所有打戏的拟声词全是方块人喊的
+
+而且我猜八成是即兴演出 ...</blockquote>
+闲着补了一下广播，点开哪集听哪集，欧菲莉亚那集打戏不仅我听出来的“嘿呀”是即兴演出，所有打戏的语气词甚至一些有意思的台词都是，觉得不愧是福山润又觉得好像是在暗指台词写得不太行啊（反骨仔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+有人做了熟肉→【【熟肉】福山润即兴发挥的配音&amp;「present for you」首发--Vivy - Flourite Eyes Radio-广播剧节选-哔哩哔哩】https://b23.tv/fsnoz9
+
+
+                                                 

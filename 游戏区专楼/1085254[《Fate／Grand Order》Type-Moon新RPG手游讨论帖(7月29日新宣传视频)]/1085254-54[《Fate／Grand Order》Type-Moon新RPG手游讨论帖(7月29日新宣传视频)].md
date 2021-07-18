@@ -8152,3 +8152,72 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 80139#       发表于 2021-7-19 00:53
+
+
+<blockquote>引用第80137楼eyeego于2021-07-19 00:27发表的  :
+
+突然想起来8.4开新剧情的话 泳装活动怎么办再加上今年到现在半点新泳装的情报也没有 难道泳装也要咕咕......</blockquote>
+泳装不都是周年活动上提几个，后续等CM吗
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  eyeego  
+##### 80140#       发表于 2021-7-19 01:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52014032&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-19 00:53</a>
+泳装不都是周年活动上提几个，后续等CM吗
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+一般7月头总归会有几张图出来的 这次是完全一点都没有<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 80141#       发表于 2021-7-19 01:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52013787&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-19 00:19</a>
+
+妖高那个新伴侣必有问题 不知道会不会把人类不能移民这事捞出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不管人类还是妖精....移民这事肯定是不成的....之前的异闻带都全灭了....哪有这次的异闻带就能拯救一些原住民的道理
+
+
+-----
+
+####  newfaceryo  
+##### 80142#       发表于 2021-7-19 02:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52013849&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-7-19 00:27</a>
+
+突然想起来8.4开新剧情的话 泳装活动怎么办
+
+再加上今年到现在半点新泳装的情报也没有 难道泳装也要 ...</blockquote>
+每年泳装都是周年活动公布的，看周年生放结束后有没有呗，
+
+
+-----
+
+####  newfaceryo  
+##### 80143#       发表于 2021-7-19 02:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52014219&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-19 01:28</a>
+
+不管人类还是妖精....移民这事肯定是不成的....之前的异闻带都全灭了....哪有这次的异闻带就能拯 ...</blockquote>
+这次异闻带2000年前就炸了，不过我觉得这次大概率有比运走500人更好的解决方案
+
+
+                                                 
