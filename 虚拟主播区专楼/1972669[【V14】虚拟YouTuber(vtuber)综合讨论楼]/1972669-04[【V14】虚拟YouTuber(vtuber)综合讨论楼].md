@@ -112,3 +112,58 @@ inui现在这几套确实挺土的,youka妈妈加把劲
 
 
                                                  
+
+-----
+
+####  GT2  
+##### 4509#       发表于 2021-7-18 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52009017&amp;ptid=1972669" target="_blank">Junchoon 发表于 2021-7-18 18:12</a>
+话说怎么这么多人看德龙玩棒球，我看了几次以确定自己没看错同接人数....... ...</blockquote>
+德龙是真正的棒球粉
+她甚至参与了今年广岛鲤鱼队官方应援的合唱，你去听就知道了，那叫一个鹤立鸡群<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 4510#       发表于 2021-7-18 20:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52009674&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-7-18 19:21</a>
+
+葵皇8月10号3dlive，还在叠buff</blockquote>
+看了眼是3Dモデル Brushup不是新3D，我们葵宝的新3D呢<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suzutsuki  
+##### 4511#       发表于 2021-7-18 20:52
+
+
+今年没甲子园取消buff蹭，但是可以蹭大谷啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ShuTk4O  
+##### 4512#       发表于 2021-7-18 21:13
+
+
+几年没见，谢拉的杂谈还是那么虚无。而且麦的底噪略大
+
+
+-----
+
+####  真飞鸟i  
+##### 4513#       发表于 2021-7-18 21:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年的虹不需要蹭，预选都快14w了，决胜30w可期。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+                                                 
