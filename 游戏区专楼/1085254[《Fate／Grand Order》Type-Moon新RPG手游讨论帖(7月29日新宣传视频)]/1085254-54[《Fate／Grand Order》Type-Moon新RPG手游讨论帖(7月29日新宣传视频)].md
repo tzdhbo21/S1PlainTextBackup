@@ -7777,3 +7777,36 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 80117#       发表于 2021-7-18 17:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52008510&amp;ptid=1085254" target="_blank">bikalu 发表于 2021-7-18 17:16</a>
+
+主要角色还有那么多人存活呢，明显还要留给后篇继续发便当</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冷知识 现在就是后篇   所以只能是完结篇了(
+
+
+-----
+
+####  シャル  
+##### 80118#       发表于 2021-7-18 17:45
+
+
+ 本帖最后由 シャル 于 2021-7-18 17:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52008510&amp;ptid=1085254" target="_blank">bikalu 发表于 2021-7-18 17:16</a>
+
+主要角色还有那么多人存活呢，明显还要留给后篇继续发便当</blockquote>
+还得10-15章
+
+反正都把中村和奥罗拉，穆里安的势力都干掉
+
+最后黑枪干掉科尔努诺斯
+
+妖精全员恶人
+
+
+                                                 
