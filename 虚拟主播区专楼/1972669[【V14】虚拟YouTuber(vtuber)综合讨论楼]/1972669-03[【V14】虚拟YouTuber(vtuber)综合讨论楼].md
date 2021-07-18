@@ -19356,3 +19356,98 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 
 
                                                  
+
+-----
+
+####  winsloven  
+##### 4462#       发表于 2021-7-18 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52005042&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-7-18 10:49</a>
+
+企鹅估计是在日华裔，现在来看肯定不是sanchi了，杏en两金盾确定</blockquote>
+我之前就奇怪，虹EN１期还是素人策略，２期就算想招揽大物也没这么快吧，主要还是彩虹在海外不太行，大概抢不到金盾大物。
+
+金盾大物锁推退管不去木口去彩虹，就觉得离谱。现在看来，没离谱。
+
+
+-----
+
+####  格林卡罗尔  
+##### 4463#       发表于 2021-7-18 12:45
+
+
+分数超了，正常点，隐瞒段位正赛的时候脸面也不好看。不过不会日语应该能吃到减两分的语言不通项目。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  hoshinonya  
+##### 4464#       发表于 2021-7-18 12:55
+
+
+现在还说🐺顶猎的是不是对他有什么误解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  harry3  
+##### 4465#       发表于 2021-7-18 12:57
+
+
+[https://www.youtube.com/watch?v=o1M8YeJzdVg](https://www.youtube.com/watch?v=o1M8YeJzdVg)
+
+
+这petra真的是谢拉吗？
+
+听了下用的几个声线确实都有点像
+
+
+-----
+
+####  patema  
+##### 4466#       发表于 2021-7-18 13:01
+
+
+是谢拉又是哪里的消息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  purdre  
+##### 4467#       发表于 2021-7-18 13:02
+
+
+rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  harry3  
+##### 4468#       发表于 2021-7-18 13:03
+
+
+4chan
+
+
+-----
+
+####  OldGlory  
+##### 4469#       发表于 2021-7-18 13:04
+
+
+4ch白皮耳朵不好使
+
+
+-----
+
+####  FCCHua  
+##### 4470#       发表于 2021-7-18 13:18
+
+
+这下虹女apex更强了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+                                                 
