@@ -11473,3 +11473,96 @@ pv很顶，但是这几个意义不明的吉祥物是个啥啊
 
 
                                                  
+
+-----
+
+####  甘栗No.007  
+##### 20568#       发表于 2021-7-18 08:19
+
+
+这pv做的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jhouo8989  
+##### 20569#       发表于 2021-7-18 08:20
+
+
+ybb，发了一晚上情
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  时间在我手中  
+##### 20570#       发表于 2021-7-18 08:43
+
+
+我昨晚也莫名睡不着，六点到现在睡了两小时多点
+
+
+-----
+
+####  T_Hb  
+##### 20571#       发表于 2021-7-18 08:47
+
+
+ 本帖最后由 T_Hb 于 2021-7-18 08:52 编辑 
+
+我TC看了没10分钟就昏迷了
+
+你咩姐转推了，看来不会昏迷过去了，希望不要是睡眠不足神经病模式<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  onlv星骸  
+##### 20572#       发表于 2021-7-18 09:04
+
+
+完全放弃b站是吧
+
+
+-----
+
+####  时间在我手中  
+##### 20573#       发表于 2021-7-18 09:04
+
+
+开幕mikey<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也知道自己kimo啊
+
+
+-----
+
+####  T_Hb  
+##### 20574#       发表于 2021-7-18 09:07
+
+
+ 本帖最后由 T_Hb 于 2021-7-18 09:09 编辑 
+
+你别说，chiroru频道这个OP和guest栏动画有点意思
+
+又和人聊BL
+
+
+-----
+
+####  Mikumiku831  
+##### 20575#       发表于 2021-7-18 09:07
+
+
+这算是774唯一调的能听的歌了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 20576#       发表于 2021-7-18 09:16
+
+
+说不定说叔叔找让调的
+
+
+                                                 

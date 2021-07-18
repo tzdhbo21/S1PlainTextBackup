@@ -16939,3 +16939,19 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+-----
+
+####  C男人  
+##### 55418#       发表于 2021-7-18 08:52
+
+
+说实话大和这形态和 “月亮狮子” 完全是一个画法。
+
+
+“毛皮族果实” ？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
