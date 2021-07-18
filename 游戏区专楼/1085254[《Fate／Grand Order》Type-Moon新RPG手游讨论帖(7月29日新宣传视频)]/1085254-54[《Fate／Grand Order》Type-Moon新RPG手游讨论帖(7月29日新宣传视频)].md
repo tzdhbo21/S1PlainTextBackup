@@ -7583,3 +7583,133 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  newfaceryo  
+##### 80107#       发表于 2021-7-18 15:53
+
+
+ 本帖最后由 newfaceryo 于 2021-7-18 16:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52007132&amp;ptid=1085254" target="_blank">シャル 发表于 2021-7-18 14:34</a>
+
+这就非常奇怪了
+
+
+马修被水镜传送回去也没啥事情啊</blockquote>
+确实不存在了，
+
+现在这个贝先生是摩根重做世界的时候顺便重做的。
+
+
+马修在修正后了的妖精历暂时安全，但是一回到摩根历就会被修正掉，所以才要在冰箱里躺2000年。
+
+
+说到这2000年，
+
+我说看完下部最大的感想就是其它的东西会不会回收都算了，
+
+蘑菇你要是不给哈贝喵一个happy end我和你没完。<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シャル  
+##### 80108#       发表于 2021-7-18 16:01
+
+
+ 本帖最后由 シャル 于 2021-7-18 16:12 编辑 
+
+故事才2/3
+
+
+3个妖精骑士3破
+
+术呆三破
+
+摩根三破
+
+老贝的去向
+
+古神科尔努诺斯
+
+奥贝隆要找的老婆
+
+奥贝隆和巴贝喵的第三能力
+
+奥罗拉黑幕
+
+黑枪的去向
+
+骑士Portune 是谁杀的
+
+穆里安的真身
+
+狐狸要找的尾巴魔兽
+
+黑狗的正太恋人阿多尼斯
+
+开始的无名精灵是谁
+
+
+-----
+
+####  シャル  
+##### 80109#       发表于 2021-7-18 16:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52007770&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-7-18 15:53</a>
+
+确实不存在了，
+
+现在这个贝先生是摩根重做世界的时候顺便重做的。</blockquote>
+所以2周目修改后，一周目的召唤不可能有啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+这不就是时间驳论了
+
+
+-----
+
+####  newfaceryo  
+##### 80110#       发表于 2021-7-18 16:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52007901&amp;ptid=1085254" target="_blank">シャル 发表于 2021-7-18 16:11</a>
+
+所以2周目修改后，一周目的召唤不可能有啊
+
+
+这不就是时间驳论了</blockquote>
+异闻带哪有时间悖论
+
+异闻带从一开始就是各种if的运营。
+
+女王历开始才能算是真正的历史。
+
+
+-----
+
+####  仰望神的括约肌  
+##### 80111#       发表于 2021-7-18 16:21
+
+
+说起来灵脉石这个月底就过期了 但剩下的篇幅下个月才开 这排期到底咋回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 80112#       发表于 2021-7-18 16:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52007987&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-7-18 16:21</a>
+
+说起来灵脉石这个月底就过期了 但剩下的篇幅下个月才开 这排期到底咋回事 8.1的生放惯例的10大福利 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接宣布灵脉石以后不会过期如何
+
+
+说真的这玩意会过期就离谱
+
+
+                                                 
