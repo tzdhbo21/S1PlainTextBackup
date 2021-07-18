@@ -7475,3 +7475,93 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  fantuanxiaoyi  
+##### 80100#       发表于 2021-7-18 13:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个结尾语都写得这么贱了，还能不搞大事情？
+
+要真不搞那可就是YJ级别的爆炸弱智塑造+莫名其妙了，你们觉得可能吗。
+
+
+
+
+-----
+
+####  newfaceryo  
+##### 80101#       发表于 2021-7-18 13:46
+
+
+ 本帖最后由 newfaceryo 于 2021-7-18 13:49 编辑 
+
+呃，翻页
+
+
+-----
+
+####  newfaceryo  
+##### 80102#       发表于 2021-7-18 13:48
+
+
+呃，翻页
+
+
+-----
+
+####  newfaceryo  
+##### 80103#       发表于 2021-7-18 13:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52006634&amp;ptid=1085254" target="_blank">fantuanxiaoyi 发表于 2021-7-18 13:38</a>
+
+这个结尾语都写得这么贱了，还能不搞大事情？
+
+要真不搞那可就是YJ级别的爆炸弱智塑造+莫名其妙了， ...</blockquote>
+不是不搞大事情的问题。
+
+而是担心事情不够大的问题。
+
+之前篇幅已经拖这么开了，
+
+前篇像是伏笔的东西后篇基本上全部没有回收。
+
+虽然我说这些东西想要好好收尾起码还要1/3的篇幅。
+
+但是其实我内心觉得再给1/3的篇幅也未必能好好收住。
+
+你再看看废狗这效率，再给他部悲惨世界dw能做的完吗？
+
+
+-----
+
+####  qixinno2  
+##### 80104#       发表于 2021-7-18 13:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非最后打完送我一个摩根和妖兰 不然2.6就是辣鸡
+
+
+-----
+
+####  シャル  
+##### 80105#       发表于 2021-7-18 14:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52003165&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-18 01:59</a>
+
+就是贝先生召出来的裁摩根通过灵子转移回到过去把记忆传送给了异闻带的摩根啊
+
+又因为过去的异闻带 ...</blockquote>
+这就非常奇怪了
+
+
+马修被水镜传送回去也没啥事情啊
+
+
+这里最初就有矛盾了，2周目修改后贝先生不可能召唤摩根呢，因为之前的1周目贝先生已经不存在了
+
+
+                                                
