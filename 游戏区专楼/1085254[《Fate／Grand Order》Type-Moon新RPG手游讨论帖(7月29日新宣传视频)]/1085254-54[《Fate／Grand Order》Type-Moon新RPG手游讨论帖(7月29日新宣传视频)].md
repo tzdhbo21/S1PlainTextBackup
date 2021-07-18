@@ -7713,3 +7713,67 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  シャル  
+##### 80113#       发表于 2021-7-18 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52007913&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-7-18 16:13</a>
+
+异闻带哪有时间悖论
+
+异闻带从一开始就是各种if的运营。
+
+女王历开始才能算是真正的历史。 ...</blockquote>
+异闻世界把异闻带上书，那么老贝这个召唤就不应该存在
+
+
+女王历0年以后的妖精历都不存在了，那么老贝在妖精历召唤摩根也是不存在的
+
+
+-----
+
+####  newfaceryo  
+##### 80114#       发表于 2021-7-18 16:36
+
+
+ 本帖最后由 newfaceryo 于 2021-7-18 16:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52008086&amp;ptid=1085254" target="_blank">シャル 发表于 2021-7-18 16:30</a>
+
+异闻世界把异闻带上书，那么老贝这个召唤就不应该存在
+
+
+女王历0年以后的妖精历都不存在了，那么老贝在妖精 ...</blockquote>
+异闻带召唤这件事是不存在了啊。甚至可以说异闻带整个都已经不存在了。
+
+然而新世界是摩根自己做的，重做的世界的人物属性（记忆）并不会回退啊。
+
+
+说到底fate世界的时间悖论什么的，
+
+红a杀掉了士郎并不会导致平行世界的自己不存在啊
+
+
+-----
+
+####  khxooo  
+##### 80115#       发表于 2021-7-18 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52007987&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-7-18 16:21</a>
+说起来灵脉石这个月底就过期了 但剩下的篇幅下个月才开 这排期到底咋回事 8.1的生放惯例的10大福利 ...</blockquote>
+估计是再发，然后是“福利”之一<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bikalu  
+##### 80116#       发表于 2021-7-18 17:16
+
+
+主要角色还有那么多人存活呢，明显还要留给后篇继续发便当
+
+
+                                                 
