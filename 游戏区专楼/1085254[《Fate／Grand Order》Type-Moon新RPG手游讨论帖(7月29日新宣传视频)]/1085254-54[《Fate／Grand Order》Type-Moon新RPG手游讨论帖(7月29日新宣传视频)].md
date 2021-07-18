@@ -7834,3 +7834,83 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  里村紅葉  
+##### 80121#       发表于 2021-7-18 21:32
+
+
+等一个8月4号后半急急忙忙结尾，后续2.6.5再开断章上中下接着续<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シャル  
+##### 80122#       发表于 2021-7-18 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52011283&amp;ptid=1085254" target="_blank">sk86 发表于 2021-7-18 21:12</a>
+
+有二就有三，我有点怕8.4号剧情还是没结束</blockquote>
+再来10章左右差不多能把剩下的恶人都做掉了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 80123#       发表于 2021-7-18 21:43
+
+
+反正，看剧情里那意思狐狸肯定也是要专门开一节出来打的，2.6.5逃不掉的……
+
+
+-----
+
+####  森兰丸  
+##### 80124#       发表于 2021-7-18 21:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">可是就算接下来要和这些了色妖精打的话....除了打欧若拉这碧池时要和妖兰打.....其他还有几个能打的有头有脸的敌人
+
+难不成10几章都用杂兵和莫斯来充数么
+
+
+-----
+
+####  areklose  
+##### 80125#       发表于 2021-7-18 22:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52008705&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-18 17:38</a>
+
+冷知识 现在就是后篇   所以只能是完结篇了(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">致敬机器人大战F吗，还有追加新参战吗
+
+
+-----
+
+####  シャル  
+##### 80126#       发表于 2021-7-18 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012039&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-18 21:53</a>
+
+可是就算接下来要和这些了色妖精打的话....除了打欧若拉这碧池时要和妖兰打.....其他还有几个能打的 ...</blockquote>
+穆莉安
+
+狐狸
+
+中村
+
+老贝最终战
+
+最终灾厄莫斯
+
+科尔努诺斯
+
+
+完全够打啊
+
+
+                                                 

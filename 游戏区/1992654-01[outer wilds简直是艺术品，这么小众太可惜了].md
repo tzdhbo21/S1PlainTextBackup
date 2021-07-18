@@ -3292,3 +3292,19 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  footmanpon  
+##### 245#       发表于 2021-7-18 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52009828&amp;ptid=1992654" target="_blank">秽歌 发表于 2021-7-18 19:37</a>
+
+之前在xgp里面，提前15天提示即将退出，我才下载来玩玩
+
+一发不可收拾，这个星系这段历史太tm震撼了，虽然害 ...</blockquote>
+这就是发现“宝物”的感觉啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+                                                 
