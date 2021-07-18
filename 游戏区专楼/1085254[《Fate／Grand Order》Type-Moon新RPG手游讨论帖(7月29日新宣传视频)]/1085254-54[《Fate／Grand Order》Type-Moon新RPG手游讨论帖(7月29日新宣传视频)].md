@@ -8070,3 +8070,85 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                 
+
+-----
+
+####  exiaexa  
+##### 80135#       发表于 2021-7-18 23:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012954&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-18 22:57</a>
+
+所以大头还就只剩妖兰和欧若拉这边了啊
+
+帕西瓦尔和妖兰那点破事已经拖了这么久了.....那张妖兰在 ...</blockquote>
+是啊
+
+所以我现在就特别想知道这这第二部分甚至之后的第三部分打完以后
+
+某些坚持不是注水不是拖都是铺垫的兄弟
+
+还遭不遭得住
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白金口袋  
+##### 80136#       发表于 2021-7-19 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012755&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-18 08:43</a>
+
+光是打欧罗拉+阿尔比昂时候的解密+帕西瓦尔自爆怎么也得四五节吧
+
+古神苏醒铺垫一节，打个两三节
+
+最后老贝 ...</blockquote>
+我再补充点
+
+三骑士的三破肯定是都要面对的
+
+妖兰阿尔比昂碎片这个是一定要打的
+
+妖崔怎么变魔怔人了也是必须要讲的
+
+妖高应该是出了什么状况导致角碎了，比如迦勒底没信守移民承诺于是决裂
+
+这三个三破全是从卡图到房间语音里插满FLAG，绝对不可能一笔带过的
+
+不出意外的话还有一直背后搞小动作的妖精王
+
+最后大概率还要跟戴冠的C呆王打一场，至于理由嘛反正要阻止不列颠异闻带被迦勒底裁定blablabla的随便木野子小姐编吧
+
+这种一直以来朝夕相处从0好感慢慢发展到满的小伙伴在最终局面相爱相杀的愉悦剧情我觉得木野子小姐是相当喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 80137#       发表于 2021-7-19 00:19
+
+
+ 本帖最后由 alucardcz 于 2021-7-19 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52013687&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-7-19 00:07</a>
+
+我再补充点
+
+三骑士的三破肯定是都要面对的
+
+妖兰阿尔比昂碎片这个是一定要打的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妖高那个新伴侣必有问题 不知道会不会把人类不能移民这事捞出来
+
+
+-----
+
+####  eyeego  
+##### 80138#       发表于 2021-7-19 00:27
+
+
+突然想起来8.4开新剧情的话 泳装活动怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+再加上今年到现在半点新泳装的情报也没有 难道泳装也要咕咕咕了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                 
