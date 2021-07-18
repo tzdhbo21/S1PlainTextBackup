@@ -8234,3 +8234,20 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 80145#       发表于 2021-7-19 04:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又回去看了遍剧情.....下令袭击毫无防备的圆桌军....弄死加雷斯的怕不是欧若拉这个碧池吧
+
+
+摩根的女王军队里可没有肃正骑士....那些都是欧若拉的部下.....袭击的军队里也没有任何妖精在
+
+
+这碧池看来还真是比贝先生更屑啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+                                                 
