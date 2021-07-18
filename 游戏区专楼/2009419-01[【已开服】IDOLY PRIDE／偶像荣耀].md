@@ -4681,3 +4681,39 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+-----
+
+####  Aureth  
+##### 337#       发表于 2021-7-18 09:43
+
+
+虽然也就多个牌子，但我昨天还是把四次更新的对战券全买了勉强保住了五区的前100<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/0a863e41d3fdea3bd42d3e3be4e53d2c/IMG_CMP_55387396.jpeg" referrerpolicy="no-referrer">
+
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yuugi  
+##### 338#       发表于 2021-7-18 10:06
+
+
+在一区，前面全是大佬，直接躺平，500都进不了
+
+
+-----
+
+####  澜沫  
+##### 339#       发表于 2021-7-18 10:44
+
+
+补助券抽的2星长濑琴乃有投资的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+蓝组有四个五星人了，无氪党
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

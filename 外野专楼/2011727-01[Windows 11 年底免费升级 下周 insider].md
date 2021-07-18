@@ -5620,3 +5620,23 @@ Win11 22000.71版本更新
 
 
                                                  
+
+-----
+
+####  Litccc  
+##### 467#       发表于 2021-7-18 09:29
+
+
+草，dota2现在用竖排显示也不能显示候选字了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  禽兽公爵  
+##### 468#       发表于 2021-7-18 10:08
+
+
+资源管理器总是重启
+
+
+                                                 

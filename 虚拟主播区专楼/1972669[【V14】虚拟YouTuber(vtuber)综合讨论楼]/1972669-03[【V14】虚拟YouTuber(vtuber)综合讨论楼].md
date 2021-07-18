@@ -18896,3 +18896,33 @@ syl
 
 
                                                  
+
+-----
+
+####  winda  
+##### 4420#       发表于 2021-7-18 09:31
+
+
+nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的就进来组队了，nrk还以为是cheater诱拐就强退了一把。
+后面查信息才发现是fuwa和akina,虹会玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 4421#       发表于 2021-7-18 10:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">niji en也起来了 首播终于破w了
+
+
+-----
+
+####  winda  
+##### 4422#       发表于 2021-7-18 10:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rosemi这rts,moba,fps,格斗游戏，塞尔达都玩，游戏门类够杂
+
+
+                                                 
