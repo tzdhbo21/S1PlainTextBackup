@@ -7914,3 +7914,159 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 80127#       发表于 2021-7-18 22:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012504&amp;ptid=1085254" target="_blank">シャル 发表于 2021-7-18 22:22</a>
+
+穆莉安
+
+狐狸
+
+中村</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">穆莉安自己又没什么战力......难不成还能把诂哒骗进她的虫领域么
+
+
+如果不是又被奥伯隆叫住的话A狐都打算抛弃穆莉安从这个妖精领域撤退了....话说回来还不知道这次又和奥伯隆交易了什么
+
+
+那个人类假扮的妖精领主也就是个只会玩弄权术的普通人
+
+
+贝先生我看都自身难保....先不说因为佩佩的舍身攻击自己身上已经有一堆诅咒了....那些了色妖精本身就像对妖崔一样也不爽他很久了....就因为摩根的关系才忍到现在....现在摩根不在了你看看妖崔什么下场....贝先生还是先想想怎么逃命吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+还有最后2个真有的话也是要最终章才放出来啊
+
+
+-----
+
+####  シャル  
+##### 80128#       发表于 2021-7-18 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012693&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-18 22:37</a>
+
+穆莉安自己又没什么战力......难不成还能把诂哒骗进她的虫领域么
+
+
+如果不是又被奥伯隆叫住的话A狐 ...</blockquote>
+穆莉安很强的好吧，要不然隔壁扎比也不用那么累了
+
+
+中村说不定有秘密武器呢，毕竟穿越1百多年了
+
+
+-----
+
+####  exiaexa  
+##### 80129#       发表于 2021-7-18 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012039&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-18 21:53</a>
+
+可是就算接下来要和这些了色妖精打的话....除了打欧若拉这碧池时要和妖兰打.....其他还有几个能打的 ...</blockquote>
+光是打欧罗拉+阿尔比昂时候的解密+帕西瓦尔自爆怎么也得四五节吧
+
+古神苏醒铺垫一节，打个两三节
+
+最后老贝分一节，奥伯龙内心世界分一节，打完了回忆一节
+
+十多节差不多出去了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 80130#       发表于 2021-7-18 22:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012746&amp;ptid=1085254" target="_blank">シャル 发表于 2021-7-18 22:43</a>
+
+穆莉安很强的好吧，要不然隔壁扎比也不用那么累了
+
+
+中村说不定有秘密武器呢，毕竟穿越1百多年了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">醒醒....马甲并不是本人.....看看穆莉安的回忆杀....她真能打的话翅氏族就不会被牙氏族灭族了
+
+
+
+
+-----
+
+####  シャル  
+##### 80131#       发表于 2021-7-18 22:51
+
+
+ 本帖最后由 シャル 于 2021-7-18 22:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012807&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-18 22:48</a>
+
+醒醒....马甲并不是本人.....看看穆莉安的回忆杀....她真能打的话翅氏族就不会被牙氏族灭族了 ...</blockquote>
+虫空间是糖果蔓藤的能力啊
+
+
+这穆莉安是不是真的都是问题<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+万一技能インセクトイーター拓展了能吸收其他人能力呢
+
+
+-----
+
+####  newfaceryo  
+##### 80132#       发表于 2021-7-18 22:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012039&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-18 21:53</a>
+
+可是就算接下来要和这些了色妖精打的话....除了打欧若拉这碧池时要和妖兰打.....其他还有几个能打的 ...</blockquote>
+不是，你这24章打下来不也就打了这些有头有脸的人吗？大部分还没退场呢。
+
+后面还有古神一系黑幕一系呢，要凑几场仗有什么难的。大不了上双足飞龙啊。
+
+
+-----
+
+####  森兰丸  
+##### 80133#       发表于 2021-7-18 22:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012755&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-18 22:43</a>
+
+光是打欧罗拉+阿尔比昂时候的解密+帕西瓦尔自爆怎么也得四五节吧
+
+古神苏醒铺垫一节，打个两三节
+
+最后老贝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">所以大头还就只剩妖兰和欧若拉这边了啊
+
+帕西瓦尔和妖兰那点破事已经拖了这么久了.....那张妖兰在雨中哭泣的CG也出现了2次....就是不说一句人话
+
+反正一个字.....“拖”
+
+
+-----
+
+####  森兰丸  
+##### 80134#       发表于 2021-7-18 23:08
+
+
+ 本帖最后由 森兰丸 于 2021-7-18 23:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52012857&amp;ptid=1085254" target="_blank">シャル 发表于 2021-7-18 22:51</a>
+
+虫空间是糖果蔓藤的能力啊
+
+
+这穆莉安是不是真的都是问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">就是套了个马甲啊...穆莉安自己的回忆里都说的很清楚了....自己作为翅氏族被牙氏族杀的只剩自己一个人....发誓有1天一定要复仇....这还能有假？A狐都对深陷复仇之心的穆莉安表示出失望（不过A狐你有什么资格说这话
+
+
+我当然看过CCC的漫画....但穆莉安的虫空间是作为领主的妖精领域技能....和原作一样都叫虫空间就是捏它和致敬....别想多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
