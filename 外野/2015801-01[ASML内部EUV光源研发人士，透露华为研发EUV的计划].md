@@ -1443,3 +1443,148 @@ https://mp.weixin.qq.com/s/kJ9ZzXSwqhF0dNbYde1stg
 
 
                                                  
+
+-----
+
+####  hyddx  
+##### 113#       发表于 2021-7-19 17:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52018567&amp;ptid=2015801" target="_blank">kumasukiyaki 发表于 2021-7-19 13:03</a>
+
+那个时候半导体产业不在景气期，对光刻机需求不多。
+
+
+现在处于半导体超级景气期，各种半导体设备一机难求 ...</blockquote>
+你真以为是没人买么？是用不了好么。修修补补补了7年才到敢拉出去试试的水平。
+
+
+半导体制成工艺我是外行，上海微电子那些破事倒是真发生在身边的。
+
+
+-----
+
+####  哈里.谢顿  
+##### 114#       发表于 2021-7-19 17:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52021990&amp;ptid=2015801" target="_blank">hyddx 发表于 2021-7-19 17:16</a>
+
+你真以为是没人买么？是用不了好么。修修补补补了7年才到敢拉出去试试的水平。
+
+
+半导体制成工艺我是外行 ...</blockquote>
+老哥，就问下知乎上关于SMEE好多料是不是真的，比方说院里面摆了个NEC光刻机，一帮子人摸鱼摆烂之类的段子，超低薪酬都别提了
+
+
+-----
+
+####  hyddx  
+##### 115#       发表于 2021-7-19 17:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020444&amp;ptid=2015801" target="_blank">fff30tw 发表于 2021-7-19 15:27</a>
+
+理论上华为应该很急迫，但国家看起来没有很急
+
+当然不是说只要国家急东西就能生出来，但到目前好象 ...</blockquote>
+国家不急才怪了，半导体自主化又不是最近几年才喊起来的。以前是涉军项目有需求，所以需求量不那么大，能给的资源也相对较少罢了。18年之后，因为贸易战，民品也有了需求，才让外人觉得热闹了起来。
+
+
+说明一下以前需求不大，因为以前这种低于已有制成2代的半导体制造设备，自己造不出来还能买旧的。所以上海微电子的东西除了能用，还得在价格上不能比二手货贵太多。这就是先进装备的先发优势。现在的区别是，美国这种禁运，实际上废除了自己的先发优势，上海微电子能造出能用的就有人买。
+
+
+-----
+
+####  kumasukiyaki  
+##### 116#         楼主| 发表于 2021-7-19 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52021990&amp;ptid=2015801" target="_blank">hyddx 发表于 2021-7-19 17:16</a>
+
+你真以为是没人买么？是用不了好么。修修补补补了7年才到敢拉出去试试的水平。
+
+
+半导体制成工艺我是外行 ...</blockquote>
+[https://www.eet-china.com/mp/a35893.html](https://www.eet-china.com/mp/a35893.html)
+
+
+<img src="https://img.saraba1st.com/forum/202107/19/172324aw28yw75s55ygj9y.png" referrerpolicy="no-referrer">
+
+
+<strong>火狐截图_2021-07-19T09-23-02.480Z.png</strong> (171.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-19 17:23 上传
+
+
+-----
+
+####  哈里.谢顿  
+##### 117#       发表于 2021-7-19 17:23
+
+
+<blockquote>hyddx 发表于 2021-7-19 17:20
+国家不急才怪了，半导体自主化又不是最近几年才喊起来的。以前是涉军项目有需求，所以需求量不那么大，能 ...</blockquote>
+去年国内买了很多二手设备，加价加的连日本人都看不懂了
+
+
+-----
+
+####  hyddx  
+##### 118#       发表于 2021-7-19 17:31
+
+
+ 本帖最后由 hyddx 于 2021-7-19 17:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52022055&amp;ptid=2015801" target="_blank">哈里.谢顿 发表于 2021-7-19 17:20</a>
+
+老哥，就问下知乎上关于SMEE好多料是不是真的，比方说院里面摆了个NEC光刻机，一帮子人摸鱼摆烂之类的段 ...</blockquote>
+nec光刻这个不知道。但买台旧光刻机拆着学习不是很正常的么。中国高铁、盾构哪个不是从模仿开始的。
+
+
+上海微电子的问题在于没有一个领军人物把握总体，扬长避短。结果就是在基础工业水平有差距的情况下，东西就是差一口气。打个比喻就是类似J8时代的沈飞，该干的基本工作还行，但指望超水平发挥没戏。
+
+90nm机器的情况是，各部件都只能刚刚达到设计目标，装在一起，不是A不行了就是B不行了。光源、镜头、工作台、测量系统不能很好地协调工作。落到产品上就是可靠性不够，精度保持性不够，没法满足持续的工业生产。
+
+
+至于待遇，作为一个国企，你能指望开多高工资。在我看来不高不低。但和华为等行业领军人物比，当然穷。
+
+
+对了，说个听来的段子：光刻机的镜头组找过蔡司做咨询，也就是出方案。结果出来的方案自己造不出来。积累太少了，比如国内光学玻璃的材料库是德国人的几分之一，各种空白。
+
+
+-----
+
+####  hyddx  
+##### 119#       发表于 2021-7-19 17:34
+
+
+ 本帖最后由 hyddx 于 2021-7-19 17:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52022103&amp;ptid=2015801" target="_blank">kumasukiyaki 发表于 2021-7-19 17:23</a>
+[https://www.eet-china.com/mp/a35893.html](https://www.eet-china.com/mp/a35893.html)</blockquote>
+你觉得是这文章准呢，还是陈学东、刘世元给我们上课的时候说的东西准呢？
+
+对了，其实07年那个一开始是叫100nm光刻机，步进扫描式光刻。为啥是100nm而不是90nm，我也不知道，当年的项目定的就是那么奇葩。02年开始做光刻机的时候，其实全中国也没几个人知道光刻机到底啥样子。
+
+
+-----
+
+####  d2loader  
+##### 120#       发表于 2021-7-19 17:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020444&amp;ptid=2015801" target="_blank">fff30tw 发表于 2021-7-19 15:27</a>
+理论上华为应该很急迫，但国家看起来没有很急
+当然不是说只要国家急东西就能生出来，但到目前好象 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+国家不急都说出来了。。。02专项和大基金你以为是闹着玩的吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+很多别的零件和化学材料其实都有所突破，多关注股票新闻都能看到。
+
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+                                                 

@@ -5695,3 +5695,18 @@ dev通道很正常，目前来看大家都这样，等更新吧
 
 
                                                  
+
+-----
+
+####  dragrass  
+##### 473#       发表于 2021-7-19 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52017069&amp;ptid=2011727" target="_blank">waterdragon3 发表于 2021-7-19 11:19</a>
+我遇到两种，一种是在多显示器时在主显示器以外的显示器操作资源管理器一段时间，最新的是点击时间/日期栏 ...</blockquote>
+点击时间栏崩溃的问题，可以开启专注助手，就可以解决
+
+— from vivo V2055A, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 

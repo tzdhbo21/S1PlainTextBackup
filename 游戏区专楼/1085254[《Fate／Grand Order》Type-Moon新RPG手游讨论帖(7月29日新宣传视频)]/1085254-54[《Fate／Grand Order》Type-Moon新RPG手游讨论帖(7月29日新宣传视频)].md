@@ -8564,3 +8564,150 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 80169#       发表于 2021-7-19 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52021241&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-7-19 16:25</a>
+
+你们说的隔壁是nga？这群云玩家的体感不全是看up主翻译和脑补么去年还有一堆人给252捧臭脚结果等国 ...</blockquote>
+问下头像的出处或者有大图吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zore  
+##### 80170#       发表于 2021-7-19 16:35
+
+
+水武藏死于神秘包子头和三重内裤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zore  
+##### 80171#       发表于 2021-7-19 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52021383&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-19 16:34</a>
+
+问下头像的出处或者有大图吗</blockquote>
+你直接右键复制他头像黏贴就是大图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+推好像叫wakura081
+
+
+-----
+
+####  sosgame67  
+##### 80172#       发表于 2021-7-19 16:46
+
+
+大图是这个
+
+
+170521obzlolwsf2yhw8p2.jpeg
+(319.88 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-19 16:46 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/19/164611zb8b8bjbcbwbe28w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 80173#       发表于 2021-7-19 16:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52021481&amp;ptid=1085254" target="_blank">zore 发表于 2021-7-19 16:41</a>
+
+你直接右键复制他头像黏贴就是大图
+
+推好像叫wakura081</blockquote>
+学到了，原来S1可以这么看全图
+
+
+-----
+
+####  zakki  
+##### 80174#       发表于 2021-7-19 16:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52021554&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-7-19 16:46</a>
+
+大图是这个</blockquote>
+感谢，太涩了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 80175#       发表于 2021-7-19 16:55
+
+
+ 本帖最后由 exiaexa 于 2021-7-19 16:58 编辑 
+
+现在外面就两种情况啊，压根没看过阿瓦隆之庭的，相信菌类一定有伏笔，摩根傻白甜就是刻意写出来当小丑的，不可能甩锅/洗白
+
+然后看过阿瓦隆之庭，但是坚定的相信摩根和呆毛是不同的，呆毛甩锅是无可奈何，摩根肯定和呆毛不一样就是个小丑
+
+
+就……虽然我真的不知道为啥他们坚定的相信摩根是小丑呆毛不是，但是阿瓦隆之庭这口毒蘑菇鸡汤你们可能真的没喝够
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+永远，不要，相信，你菌鸽鸽有正常的脑回路
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sosgame67  
+##### 80176#       发表于 2021-7-19 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52021696&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-19 16:55</a>
+
+现在外面就两种情况啊，压根没看过阿瓦隆之庭的，相信菌类一定有伏笔，摩根傻白甜就是刻意写出来当小丑的， ...</blockquote>
+你要考虑到大部分的fgo爱好者（特别是nga）是连fate原作都没接触过的蘑菇信者，反正有锅全是其他人背，连铁鱼这月球土木堡都有人洗地呢..<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 80177#       发表于 2021-7-19 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52021756&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-7-19 16:58</a>
+
+你要考虑到大部分的fgo爱好者（特别是nga）是连fate原作都没接触过的蘑菇信者，反正有锅全是其他人背，连 ...</blockquote>
+什么 连fate原作也没接触过还能成为信者？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  AbigailWilliams  
+##### 80178#       发表于 2021-7-19 17:14
+
+
+铁鱼能洗不还是内部小圈子朋友衬托的好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  otsu  
+##### 80179#       发表于 2021-7-19 17:15
+
+
+有一说一，把国治到让小孩饿死的呆毛和反复重开然后两千年高/压统治都管不住国家的摩根有必要分个高下吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
