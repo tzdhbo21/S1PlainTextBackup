@@ -8321,3 +8321,98 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  UNISONIA  
+##### 80151#       发表于 2021-7-19 11:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52016241&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-19 10:24</a>
+
+以前fami通之类的会放点风，比如武藏
+
+但去年我记得是啥都没</blockquote>
+前年是跟fami通签新合约加大合作范围所以提前给了宣传（没记错的话是连着三期杂志）
+
+
+去年没什么变化就只保留周年那一期有特报了，然后周年生放常规地给个一池的预告
+
+
+-----
+
+####  rollingusagi  
+##### 80152#       发表于 2021-7-19 11:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我看有不少人已经在怀疑欧若拉不是妖精是人类了，表面摆出一副正义明君的形象，拉拢了大批妖精和人类势力，乘圆桌军不在屠杀伦敦据点的老幼平民并指使妖兰杀害加雷斯，反间摩根亲信，以及最后歪曲事实把所有锅甩给摩根煽动群众的手法（咕哒至今还被蒙在鼓里不过小番茄好像已经看到端倪了）。这怎么看都不像是本质纯粹的妖精能干出的事，反倒和斯普利跟这种人类很像，她和最初那个人类巫女有关系？
+
+
+-----
+
+####  シャル  
+##### 80153#       发表于 2021-7-19 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52013787&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-19 00:19</a>
+
+妖高那个新伴侣必有问题 不知道会不会把人类不能移民这事捞出来</blockquote>
+阿托尼斯不要是希腊神话那个美少年
+
+
+-----
+
+####  シャル  
+##### 80154#       发表于 2021-7-19 11:52
+
+
+ 本帖最后由 シャル 于 2021-7-19 11:53 编辑 
+
+欧罗拉抛开感情，这是帮了家乐迪很多忙啊
+
+
+拖住大公，逼死加雷斯变钟，背刺摩根
+
+
+没欧罗拉拖住大公，提前和大公交手必定全灭
+
+
+不杀加雷斯就少了一口钟
+
+
+不背刺摩根，这摩根军团真的打不过
+
+
+这些事虽然恶心但是真的帮了大忙，就目前来说
+
+对摩根来说是猪队友，对家乐迪来说就是神助攻了
+
+
+-----
+
+####  シャル  
+##### 80155#       发表于 2021-7-19 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52016397&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-19 10:36</a>
+
+妖精肯定救不了啊，2.6下来很明显了，妖精这种生物明显没法和人（泛人类史意义上的）共存，倒不如说这种作 ...</blockquote>
+哪里的话，马克是个好妖精，请回来管理厨房吧
+
+
+-----
+
+####  rollingusagi  
+##### 80156#       发表于 2021-7-19 12:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52017622&amp;ptid=1085254" target="_blank">シャル 发表于 2021-7-19 11:52</a>
+
+欧罗拉抛开感情，这是帮了家乐迪很多忙啊
+
+
+拖住大公，逼死加雷斯变钟，背刺摩根</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">帮了奥伯龙的忙还差不多，迦勒底和摩根又没仇，来这就是想解明崩落真相阻止地球毁灭，要打倒摩根完全是因为最初卡美洛会面那里摩根拒绝提供帮助拒绝沟通，然后咕哒想帮助c呆巡礼，加上奥伯龙一直在诱导要打倒摩根，摩根指使妖高烧了他家森林他一副怀恨在心的样子，主角团里现在最想干死摩根的就是他
+
+
+                                                 

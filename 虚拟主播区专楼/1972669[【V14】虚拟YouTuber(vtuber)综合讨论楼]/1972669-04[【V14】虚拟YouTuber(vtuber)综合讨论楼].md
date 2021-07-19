@@ -519,3 +519,272 @@ momoco的皮，很厉害
 
 
                                                  
+
+-----
+
+####  KaboomMirai  
+##### 4545#       发表于 2021-7-19 11:09
+
+
+<img src="https://p.sda1.dev/2/6be7280c9d1b901c3968fd18f1980115/IMG_CMP_176889384.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 4546#       发表于 2021-7-19 11:11
+
+
+ 本帖最后由 渡鸦骑士 于 2021-7-19 11:13 编辑 
+
+这又是哪个部门……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 4547#       发表于 2021-7-19 11:12
+
+
+ 本帖最后由 hulaoda007 于 2021-7-19 11:22 编辑 
+
+  终于要来了吗...？终于...怎么只有一个女的...？  
+
+  奇怪...不是还有几个皮没有用吗我记得...？ 
+
+  都是7月22日星期四，奥运会的前一天播。
+
+  アクシア・クローネ（黑发枪男）下午一点。
+
+ ローレン・イロアス（红发枪男）下午一点四十。
+
+ レオス・ヴィンセント（日本星也）下午二点二十。
+
+ オリバー・エバンス（C位教授）下午三点。
+
+ レイン・パターソン（红发擒鲨鱼妹）下午三点四十。
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">片假名恐惧症。
+
+
+-----
+
+####  死体残留  
+##### 4548#       发表于 2021-7-19 11:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">初配信下午啊
+右边两个人肯定打apex的
+
+
+-----
+
+####  SteveS  
+##### 4549#       发表于 2021-7-19 11:17
+
+
+鲨鱼头....是你吗，四洋娜娜米，全是男人好幸福，虹男版本捏
+
+
+-----
+
+####  qq845629713  
+##### 4550#       发表于 2021-7-19 11:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">唯一的女人有点碍眼了，
+
+
+-----
+
+####  rzrbtk  
+##### 4551#       发表于 2021-7-19 11:21
+
+
+今年不是2019年吧<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">！！
+世怜女的五人出道关系很稳是因为大家都是随性女的，新人咋又五人啊，真不怕…嘛！
+
+
+-----
+
+####  dybang  
+##### 4552#       发表于 2021-7-19 11:22
+
+
+ 本帖最后由 dybang 于 2021-7-19 11:33 编辑 
+
+战队不行改乐队了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">继续叠buff呗
+syl，如果真是乐队也不错，3d去帮忙伴奏可以节省成本，已经有个编曲的了
+
+
+-----
+
+####  poipanchao  
+##### 4553#       发表于 2021-7-19 11:23
+
+
+ 本帖最后由 poipanchao 于 2021-7-19 11:25 编辑 
+
+被男人吸引了目光
+但是
+这个妹子皮真的蛮不错的诶
+
+等下怎么是女人压轴
+锁那吗
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KaboomMirai| + 1|妹子皮是lack的|
+
+
+查看全部评分
+
+
+-----
+
+####  Suny08  
+##### 4554#       发表于 2021-7-19 11:23
+
+
+看样子是要把鲨鱼妹给献祭了
+
+
+-----
+
+####  baizhi  
+##### 4555#       发表于 2021-7-19 11:26
+
+
+右边两个一眼枪男专精，怎么看都和左边混不到一起。
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  hulaoda007  
+##### 4556#       发表于 2021-7-19 11:27
+
+
+  红发那个...还是iim的妹妹，都是lack画的...嘿......
+
+
+-----
+
+####  qq845629713  
+##### 4557#       发表于 2021-7-19 11:27
+
+
+还是要看有几个关系户，右面红蓝枪男应该是玩cp搞黑黑那套，
+
+女人应该是贵圈乱搞三角恋那套了，这次必炸于这五个人，马上就死
+
+
+-----
+
+####  noHentai  
+##### 4558#       发表于 2021-7-19 11:29
+
+
+世怜女之后你虹毕业了多少人，一下补5个，卡人口上限是8<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 4559#       发表于 2021-7-19 11:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">友人h 我的友人h
+
+
+-----
+
+####  baizhi  
+##### 4560#       发表于 2021-7-19 11:31
+
+
+如果只是单纯对黑黑的拙劣模仿，那我已经预见了两个枪男那悲惨的底边人生。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 4561#       发表于 2021-7-19 11:32
+
+
+  之前有一个带耳机的皮很漂亮的那个，现在还没找到适合人选吗...？
+
+  还有我尤德里克，我的胖哥哥呢？<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">画师好不容易画的插画，给个人才用吧。
+
+
+-----
+
+####  winda  
+##### 4562#       发表于 2021-7-19 11:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">怎么是压箱底的教授皮站c位啊，不会是招人直接招了一整套配套的吧
+
+
+-----
+
+####  十四洲  
+##### 4563#       发表于 2021-7-19 11:37
+
+
+看皮都不是很喜欢，右边两个是同一个画师吗，鲨鱼妹这皮在鲨鱼里也不算好吧
+
+
+-----
+
+####  真飞鸟i  
+##### 4564#       发表于 2021-7-19 12:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">里面有没有特别会打喷喷的。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Suny08  
+##### 4565#       发表于 2021-7-19 12:09
+
+
+5人组可能真得大舅子来才带得动了
+
+
+-----
+
+####  ヒトニナル  
+##### 4566#       发表于 2021-7-19 12:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">黑骑士呢，我的压箱底黑骑士呢
+
+
+-----
+
+####  OldGlory  
+##### 4567#       发表于 2021-7-19 12:23
+
+
+出男人就全出男人好了，何必非要带一个女人呢？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+我建议这个鲨鱼妹一出道就不要理同期了，免得被炎上。
+
+
+                                                

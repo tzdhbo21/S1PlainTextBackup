@@ -3308,3 +3308,16 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  mqm  
+##### 246#       发表于 2021-7-19 12:30
+
+
+全成就了，离开太阳系那个成就好像需要22分钟一直加速，第一次飞了很远懒得按了，结果没解锁。第二次直接摇杆绑皮筋<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
