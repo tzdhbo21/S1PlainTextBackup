@@ -5937,3 +5937,20 @@ E6qDvUZVkAU97iR.jfif
 
 
                                                  
+
+-----
+
+####  最强惠酱  
+##### 1938#       发表于 2021-7-19 20:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024144&amp;ptid=1963832" target="_blank">过气页游 发表于 2021-7-19 20:13</a>
+真夏这样意外的也不错
+
+原推：https://twitter.com/FpMinnie1/status/1417089886566326274?s=20 ...</blockquote>
+这是哪位学姐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

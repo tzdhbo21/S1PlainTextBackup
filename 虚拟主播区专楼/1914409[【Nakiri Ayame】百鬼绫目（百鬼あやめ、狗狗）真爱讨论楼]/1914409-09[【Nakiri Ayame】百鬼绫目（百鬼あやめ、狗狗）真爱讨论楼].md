@@ -8178,3 +8178,53 @@ image.png
 
 
                                                  
+
+-----
+
+####  stedckk  
+##### 12712#       发表于 2021-7-19 21:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确认什么鬼要确认那么久啊，运营卡着要干嘛
+
+
+-----
+
+####  Fami水  
+##### 12713#       发表于 2021-7-19 21:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿绫说要发就说明录音 曲绘好了
+没搞定的要么调音要么版权？
+
+
+-----
+
+####  因为你不会  
+##### 12714#       发表于 2021-7-19 21:29
+
+
+其实是绫总没做你信吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nian1538  
+##### 12715#       发表于 2021-7-19 21:30
+
+
+明天8点不知道播什么，继续开收据？
+
+
+-----
+
+####  cctvyt1  
+##### 12716#       发表于 2021-7-19 21:52
+
+
+去公司开老样子杂谈或歌回吧
+
+别指望绫总整新活了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+                                                 

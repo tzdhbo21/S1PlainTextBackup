@@ -9939,3 +9939,36 @@ tb搜小小鱼雷, 不要买水凝膜</blockquote>
 
 
                                                  
+
+-----
+
+####  淡定君  
+##### 701#       发表于 2021-7-19 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020675&amp;ptid=1985265" target="_blank">猫溺泉君 发表于 2021-7-19 15:46</a>
+
+我他妈，再买首发我是狗，现在256的钱都能买512了
+
+
+—— 来自 Sony XQ-BC72, Android 11上的 S1Next-鹅版 v ...</blockquote>
+早买早享受。不是888翻车，这代体验真的不错。
+
+
+-----
+
+####  leystage  
+##### 702#         楼主| 发表于 2021-7-19 22:08
+
+
+<blockquote>猫溺泉君 发表于 2021-7-19 15:46
+我他妈，再买首发我是狗，现在256的钱都能买512了
+
+
+—— 来自 Sony XQ-BC72, Android 11上的 S1Next-鹅版 v ...</blockquote>
+还在等港版发售的表示淡定…
+
+朋友买国行首发的都玩了一个半月了
+
+
+                                                 

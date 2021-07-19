@@ -1568,3 +1568,124 @@ valo的话6月我看他直播的时候还是immoral，感觉和drm差不多水�
 
 
                                                  
+
+-----
+
+####  poipanchao  
+##### 4638#       发表于 2021-7-19 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024335&amp;ptid=1972669" target="_blank">Suzutsuki 发表于 2021-7-19 20:31</a>
+
+这次CR杯练习赛的成绩咋样，看到有好几个以前bora队的翻版</blockquote>
+那我觉得这次强度比上次明显下降的
+
+上次selly+bora and ras+admin
+
+这次selly+met  and ras+kanae
+
+其他队也没有明显的豪强
+
+
+我感觉这届副手缺失严重，熟人里可能就oreapo那两是合适的，所以kmt那队成绩不错
+
+hnn被赶去玩debu就明显差一点了（nrk不合格）
+
+
+-----
+
+####  ヒトニナル  
+##### 4639#       发表于 2021-7-19 20:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">捕手a天才是真的豹跳
+
+
+-----
+
+####  FCCHua  
+##### 4640#       发表于 2021-7-19 20:50
+
+
+ 本帖最后由 FCCHua 于 2021-7-19 20:53 编辑 
+
+老板娘居然把天才给了id，有点看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+不过她开心就好
+
+
+-----
+
+####  Suny08  
+##### 4641#       发表于 2021-7-19 20:55
+
+
+还好老板娘没选高人气v，这么个无敌捕手不给自己人估计要被信者踩爆的
+
+
+-----
+
+####  白金口袋  
+##### 4642#       发表于 2021-7-19 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024601&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-7-19 06:55</a>
+
+还好老板娘没选高人气v，这么个无敌捕手不给自己人估计要被信者踩爆的</blockquote>
+刚开始因为调整风扇就100+踩，现在200多了
+
+我是真心不懂这帮人咋想的，前面德龙社长都没咋地，特意跑来欺负这么可爱的底边老板娘，果然人类和人类无法互相理解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suzutsuki  
+##### 4643#       发表于 2021-7-19 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024515&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-7-19 20:47</a>
+
+那我觉得这次强度比上次明显下降的
+
+上次selly+bora and ras+admin
+
+这次selly+met  and ras+kanae</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那看样子我觉得有好几个队就是以前bora队的劣化版也不是我的错觉嘛
+
+
+-----
+
+####  alcoholic1000  
+##### 4644#       发表于 2021-7-19 21:28
+
+
+翔哥今天的重大，发了他之前的的 1st Full Album「絵空事に生きる」，增设了新曲目、圆盘在未来也许会有，歌曲会交给staff让他们根据个人解释制作MV；
+
+概要栏原创曲的版权许可是Atelier colors株式会社，登记薄如图
+
+<img src="https://img.saraba1st.com/forum/202107/19/212150r8os9c9sck9j3908.png" referrerpolicy="no-referrer">
+
+
+<strong>Atelier colors株式会社の登記簿.png</strong> (80.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-19 21:21 上传
+
+
+是虹专门负责音乐版权的会社吗，看了一下同样登陆各大平台的雪城眞尋版权也登记了
+
+
+-----
+
+####  winda  
+##### 4645#       发表于 2021-7-19 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52022781&amp;ptid=1972669" target="_blank">tyccc 发表于 2021-7-19 18:11</a>
+s1说的是apex，那个时候的猎杀什么水平不太清楚，不过之后的赛季倒是有solo上过大师
+
+valo的话6月我看他直 ...</blockquote>
+nrk的话推上确实说过，油我是看的串里情报
+
+
+                                                 

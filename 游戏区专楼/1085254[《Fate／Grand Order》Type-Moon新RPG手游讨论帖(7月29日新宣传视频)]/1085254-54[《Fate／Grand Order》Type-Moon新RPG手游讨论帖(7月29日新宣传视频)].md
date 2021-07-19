@@ -8954,3 +8954,37 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
 
                                                 
+
+-----
+
+####  zakki  
+##### 80201#       发表于 2021-7-19 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024389&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-7-19 20:36</a>
+没忘，但你菌喜欢把重要信息藏犄角旮旯的毛病犯了，放在1.6剧场版后篇最后一个特典里了推上都在吐 ...</blockquote>
+原来他还记得，那就奇怪了，2.6不出场是真打算放到终章吗
+
+
+-----
+
+####  森兰丸  
+##### 80202#       发表于 2021-7-19 20:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盾娘在2.6都是巅峰期了......你还指望加拉哈德能出来啊？
+
+
+-----
+
+####  miro112233  
+##### 80203#       发表于 2021-7-19 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024528&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-19 20:49</a>
+
+原来他还记得，那就奇怪了，2.6不出场是真打算放到终章吗</blockquote>
+放2.7或者终章都不奇怪，毕竟当初170那个动画打算动手宰了老所长的只有加拉哈德和戴比特
+
+
+                                                 
