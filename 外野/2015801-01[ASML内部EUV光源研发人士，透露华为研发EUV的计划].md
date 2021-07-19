@@ -1717,3 +1717,31 @@ nec光刻这个不知道。但买台旧光刻机拆着学习不是很正常的�
 
 
                                                  
+
+-----
+
+####  wzp2853  
+##### 130#       发表于 2021-7-20 03:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52027255&amp;ptid=2015801" target="_blank">kumasukiyaki 发表于 2021-7-20 02:25</a>
+
+上海微电子并不是唯一做光刻机的，中电科也有在做35nm光刻机
+
+
+https://www.bilibili.com/video/BV1Zh4112 ...</blockquote>
+这两个节点好怪啊。为什么不是40nm和16nm或者28和10
+
+
+-----
+
+####  kumasukiyaki  
+##### 131#         楼主| 发表于 2021-7-20 03:07
+
+
+<blockquote>wzp2853 发表于 2021-7-20 03:04
+这两个节点好怪啊。为什么不是40nm和16nm或者28和10</blockquote>
+EUV光源就是13.5nm
+
+
+                                                 
