@@ -1350,3 +1350,96 @@ ebeam暂时无法量产，但是个人认为ebeam是未来的方向。
 
 
                                                  
+
+-----
+
+####  aceback  
+##### 107#       发表于 2021-7-19 15:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52019281&amp;ptid=2015801" target="_blank">P.C. 发表于 2021-7-19 14:00</a>
+印刷行业目前打印无法替代胶印是因为当前成本和技术的限制，但不代表胶印永远胜过打印。
+
+就像铸造有成本 ...</blockquote>
+别闹，nature、science上说自己是下一代光刻技术的不说上百也有几十了。
+真正用过EBL的，都知道这东西根本不用来量产，也没有任何大厂在研发代替EUV的量产EBL。你这个“光刻未来在EBL”的自信是哪里来的？
+
+
+-----
+
+####  sblnrrk  
+##### 108#       发表于 2021-7-19 15:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020766&amp;ptid=2015801" target="_blank">aceback 发表于 2021-7-19 15:53</a>
+
+别闹，nature、science上说自己是下一代光刻技术的不说上百也有几十了。
+
+真正用过EBL的，都知道这东西根 ...</blockquote>
+从来没听说批量产品，靠一笔一笔手工刻的
+
+
+3D打印那都是极个别 产品，万分之一占比都没有，芯片需要先进制程的反而是需求量最大的，需求小的军用都用落后制程
+
+
+-----
+
+####  hftrrt  
+##### 109#       发表于 2021-7-19 15:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52014062&amp;ptid=2015801" target="_blank">fff30tw 发表于 2021-7-19 00:58</a>
+
+去年底就说28nm的国产duv要出来了，到现在连个影都没，有人知道到底啥时会出来？ ...</blockquote>
+都是瞎沸腾的，今年才完成设备组装调试
+
+
+-----
+
+####  哈里.谢顿  
+##### 110#       发表于 2021-7-19 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020569&amp;ptid=2015801" target="_blank">kumasukiyaki 发表于 2021-7-19 15:37</a>
+
+https://mp.weixin.qq.com/s/kJ9ZzXSwqhF0dNbYde1stg
+
+
+需求大，国产半导体设备“卖断货”！      </blockquote>
+远川不是戴老板搞起来的吗，怎么现在来个姓董的？
+
+
+-----
+
+####  kumasukiyaki  
+##### 111#         楼主| 发表于 2021-7-19 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020902&amp;ptid=2015801" target="_blank">哈里.谢顿 发表于 2021-7-19 16:02</a>
+
+远川不是戴老板搞起来的吗，怎么现在来个姓董的？</blockquote>
+董世敏，科技组首席分析师
+
+
+<img src="https://img.saraba1st.com/forum/202107/19/161617qjpzfufur8muaplu.png" referrerpolicy="no-referrer">
+
+
+<strong>火狐截图_2021-07-19T08-15-56.387Z.png</strong> (248.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-19 16:16 上传
+
+
+-----
+
+####  fff30tw  
+##### 112#       发表于 2021-7-19 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020869&amp;ptid=2015801" target="_blank">hftrrt 发表于 2021-7-19 15:59</a>
+都是瞎沸腾的，今年才完成设备组装调试</blockquote>
+有来源吗？
+
+
+                                                 

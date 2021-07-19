@@ -1051,3 +1051,142 @@ vr搞bg的传统原来是继承彩虹的
 
 
                                                  
+
+-----
+
+####  IDIDIDID  
+##### 4591#       发表于 2021-7-19 15:33
+
+
+有没有想过apex不火了怎么办
+
+
+-----
+
+####  OldGlory  
+##### 4592#       发表于 2021-7-19 15:34
+
+
+真是打枪组那这个鲨鱼妹死的会更惨
+
+
+-----
+
+####  hulaoda007  
+##### 4593#       发表于 2021-7-19 15:44
+
+
+<img src="https://img.saraba1st.com/forum/202107/19/154428nvqxax500b31k80v.png" referrerpolicy="no-referrer">
+
+
+<strong>iim.png</strong> (10.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-19 15:44 上传
+
+
+  荣获新妹妹的可爱阴角。
+
+
+-----
+
+####  哈曼的YY  
+##### 4594#       发表于 2021-7-19 15:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52013657&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2021-7-19 00:05</a>
+
+察觉</blockquote>
+波波还活着
+
+这是在哪啊
+
+
+-----
+
+####  IDIDIDID  
+##### 4595#       发表于 2021-7-19 15:49
+
+
+顺便你虹真想走电竞路线的话，电竞粉什么素质懂得都懂，这些人流窜到其他不玩电竞的虹人那边后者要抗压了。
+
+
+-----
+
+####  hulaoda007  
+##### 4596#       发表于 2021-7-19 15:54
+
+
+  应该只是照例什么都想参一脚。能不能成就不知道的。但考虑enikara主要还是靠虚拟主播挣钱和发展，估计不会像某些企划那样半途而废。
+
+
+-----
+
+####  rockzrq  
+##### 4597#       发表于 2021-7-19 16:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020708&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-7-19 15:49</a>
+顺便你虹真想走电竞路线的话，电竞粉什么素质懂得都懂，这些人流窜到其他不玩电竞的虹人那边后者要抗压了。 ...</blockquote>
+立本电竞粉也这样吗，主要是没见过活的太君电竞粉
+
+
+-----
+
+####  winda  
+##### 4598#       发表于 2021-7-19 16:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">千皇w踩+prenium tiktok70w播放都达成了。
+king昨天还谈了下卫门的问题，没电竞粉虹的数字就更没救了
+
+
+-----
+
+####  IDIDIDID  
+##### 4599#       发表于 2021-7-19 16:12
+
+
+立本电竞粉虽然不至于直播间直球飞🐎但是比普通V豚武德是强多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 4600#       发表于 2021-7-19 16:15
+
+
+黑流量也是流量，能缝合一个圈子是一个，有啥好怕的
+
+
+-----
+
+####  caupollen  
+##### 4601#       发表于 2021-7-19 16:20
+
+
+这就要靠海子姐来讲讲怎么通过大A特A感化电竞圈的故事了
+
+
+-----
+
+####  死体残留  
+##### 4602#       发表于 2021-7-19 16:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">初推整活
+教授＞研究员＞黑毛＞红毛＞鲨鱼
+鲨鱼妹看上去是温柔大姐姐形象，在虹是铁底边了
+
+
+-----
+
+####  越动天下  
+##### 4603#       发表于 2021-7-19 16:25
+
+
+可以让海子姐回本社传递先进经验<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 

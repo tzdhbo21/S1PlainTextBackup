@@ -9926,3 +9926,16 @@ tb搜小小鱼雷, 不要买水凝膜</blockquote>
 
 
                                                  
+
+-----
+
+####  猫溺泉君  
+##### 700#       发表于 2021-7-19 15:46
+
+
+我他妈，再买首发我是狗，现在256的钱都能买512了
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
