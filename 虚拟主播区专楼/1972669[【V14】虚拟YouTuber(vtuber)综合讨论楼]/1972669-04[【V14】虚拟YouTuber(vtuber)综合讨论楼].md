@@ -788,3 +788,172 @@ syl，如果真是乐队也不错，3d去帮忙伴奏可以节省成本，已经
 
 
                                                 
+
+-----
+
+####  FCCHua  
+##### 4568#       发表于 2021-7-19 12:38
+
+
+ 本帖最后由 FCCHua 于 2021-7-19 12:52 编辑 
+
+虹女...我的虹女，又来好几个男人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+话说黑骑士去哪里了？我记得之前不是已经招好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+syl 怎么感觉还不一定就是四男一女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fastary  
+##### 4569#       发表于 2021-7-19 12:40
+
+
+四个男人自觉配平不就解决了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+纯男人非同期组合自19组以来只有一个挑染，该来点新男人组合了吧（
+
+我是不会放弃在虹搞到新男同营业的希望的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  獅白ぼたん  
+##### 4570#       发表于 2021-7-19 12:40
+
+
+特定班赶快的
+
+
+-----
+
+####  Suzutsuki  
+##### 4571#       发表于 2021-7-19 12:59
+
+
+我也建议新虹女不要跟男人玩<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十四洲  
+##### 4572#       发表于 2021-7-19 13:01
+
+
+如果那个黑毛是那个男人，要看他跟红毛搞男同营业还挺怪的
+
+
+-----
+
+####  alcoholic1000  
+##### 4573#       发表于 2021-7-19 13:06
+
+
+只有最右频道创建日期是2020/01/21，其他人都是2021/07/05
+
+<img src="https://img.saraba1st.com/forum/202107/19/130309wxkgzqkogtwwgqpt.png" referrerpolicy="no-referrer">
+
+
+<strong>統計情報-2.png</strong> (151.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-19 13:03 上传
+
+
+要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1|🥺|
+
+
+查看全部评分
+
+
+-----
+
+####  黑之和  
+##### 4574#       发表于 2021-7-19 13:08
+
+
+男同营业来点来点
+
+
+-----
+
+####  十四洲  
+##### 4575#       发表于 2021-7-19 13:08
+
+
+草这一对比是照着画的吧，异世界转生版
+
+
+-----
+
+####  Kawana  
+##### 4576#       发表于 2021-7-19 13:12
+
+
+一眼真
+
+
+-----
+
+####  dybang  
+##### 4577#       发表于 2021-7-19 13:14
+
+
+如果是真的话可以期待下新版本么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  心垂万刃  
+##### 4578#       发表于 2021-7-19 13:16
+
+
+大舅子转生能成为新的king吗？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tyccc  
+##### 4579#       发表于 2021-7-19 13:18
+
+
+我严重怀疑其中有一个是oba君了，前几天说找到正经工作引退了，今天一看推也锁了，twitch录像也全删了，如果是的话你虹就招了个apex两年前的赛季的猎杀、apex没改排位系统前的solo大师、valo神话
+
+
+-----
+
+####  十四洲  
+##### 4580#       发表于 2021-7-19 13:22
+
+
+<blockquote>tyccc 发表于 2021-7-19 13:18
+我严重怀疑其中有一个是oba君了，前几天说找到正经工作引退了，今天一看推也锁了，twitch录像也全删了，如 ...</blockquote>
+那我非常看好这波男人
+
+
+-----
+
+####  qq845629713  
+##### 4581#       发表于 2021-7-19 13:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">四个男人都光速找好男女前辈搞前世现世营业。
+
+笹木甚至直接把新男人做进棒球，椎名要的电竞男朋友也来了，
+
+vr搞bg的传统原来是继承彩虹的
+
+
+                                                 

@@ -9896,3 +9896,33 @@ tb搜小小鱼雷, 不要买水凝膜</blockquote>
 
 
                                                  
+
+-----
+
+####  我很费纸  
+##### 698#       发表于 2021-7-19 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52015520&amp;ptid=1985265" target="_blank">tsounaiq 发表于 2021-7-19 09:28</a>
+怎么这两天用app各种报错了，微信支付、视频号、定位不能用，今天开微信的app直接闪退，不停的显示Sytem UI ...</blockquote>
+把微信卸了找个旧版本试试？
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  tsounaiq  
+##### 699#       发表于 2021-7-19 13:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52018638&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-7-19 13:09</a>
+
+把微信卸了找个旧版本试试？
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+网上下了个apk，安全模式进去装好了……
+
+
+                                                 

@@ -1201,3 +1201,20 @@ ebeam暂时无法量产，但是个人认为ebeam是未来的方向。
 
 
                                                  
+
+-----
+
+####  kumasukiyaki  
+##### 100#         楼主| 发表于 2021-7-19 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52017109&amp;ptid=2015801" target="_blank">hyddx 发表于 2021-7-19 11:21</a>
+
+今年出的是上海微电子最高支持28nm制成的光刻机下线。但下线不等于交付，交付不等于能用，能用不等于能拿去 ...</blockquote>
+那个时候半导体产业不在景气期，对光刻机需求不多。
+
+
+现在处于半导体超级景气期，各种半导体设备一机难求。上海微电子90nm的机器那么多年没人买，今年一堆厂商跑来要买。所以只要28nm的机器出来，应该很快就有订单
+
+
+                                                 
