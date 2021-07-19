@@ -12704,3 +12704,17 @@ syl，也要把完全放弃宣言算上啊（
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 20679#       发表于 2021-7-19 17:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52018450&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-19 12:52</a>
+
+这个月不是一合唱一单人么，难道是我记错了？</blockquote>
+刚开始说的确实是一单人翻唱、一合唱，但现在看来要么是她把完全放弃宣言当成合唱了，要么是她忘记算完全放弃宣言了
+
+
+                                                 

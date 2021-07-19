@@ -1371,3 +1371,102 @@ Live2Dの大規模コンテスト「Live2D Creative Awards 2021」の作品募�
 
 
                                                  
+
+-----
+
+####  十四洲  
+##### 4619#       发表于 2021-7-19 17:34
+
+
+他直播挺有意思的，跟观众是互殴型，之前直播看叶的ow剪辑，被小福的声音吸引了
+
+
+-----
+
+####  winda  
+##### 4620#       发表于 2021-7-19 17:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹这ow余孽又多了啊
+valo s1的immoral含金量倒是不太够，油和nrk都是
+
+
+
+
+-----
+
+####  holoan  
+##### 4621#       发表于 2021-7-19 17:49
+
+
+真是谢拉？
+
+
+-----
+
+####  hulaoda007  
+##### 4622#       发表于 2021-7-19 17:54
+
+
+  话说前几天金发小男孩又玩了Shinymas，想起来阿夸好像不太和这个游戏来电，所以去看看有没有再玩一次，结果直接都没了。是出了啥事？
+
+
+-----
+
+####  怜  
+##### 4623#       发表于 2021-7-19 18:01
+
+
+fumi播个高达BO2都要遮挡出击动画，SRW不能播
+
+高达OW不一定能播
+
+
+-----
+
+####  哈曼的YY  
+##### 4624#       发表于 2021-7-19 18:02
+
+
+有没有播mbon的？
+
+
+-----
+
+####  死体残留  
+##### 4625#       发表于 2021-7-19 18:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">og系列全是原创的 不知道眼镜厂给不给许可
+
+
+-----
+
+####  tyccc  
+##### 4626#       发表于 2021-7-19 18:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52022420&amp;ptid=1972669" target="_blank">winda 发表于 2021-7-19 17:44</a>
+
+虹这ow余孽又多了啊
+
+valo s1的immoral含金量倒是不太够，油和nrk都是</blockquote>
+s1说的是apex，那个时候的猎杀什么水平不太清楚，不过之后的赛季倒是有solo上过大师
+
+valo的话6月我看他直播的时候还是immoral，感觉和drm差不多水平
+
+顺便问下油s1上过immoral？我只知道nrk有说自己上过
+
+
+-----
+
+####  qq845629713  
+##### 4627#       发表于 2021-7-19 18:17
+
+
+红发妹子怎么才能翻盘？
+
+自爆和猪抢过男朋友行不行
+
+
+                                                

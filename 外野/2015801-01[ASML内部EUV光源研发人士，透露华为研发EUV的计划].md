@@ -1588,3 +1588,40 @@ nec光刻这个不知道。但买台旧光刻机拆着学习不是很正常的�
 
 
                                                  
+
+-----
+
+####  哈里.谢顿  
+##### 121#       发表于 2021-7-19 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52022244&amp;ptid=2015801" target="_blank">hyddx 发表于 2021-7-19 17:31</a>
+
+nec光刻这个不知道。但买台旧光刻机拆着学习不是很正常的么。中国高铁、盾构哪个不是从模仿开始的。
+
+
+上海 ...</blockquote>
+看起来还是不乐观，季退思鼓吹多烧钱就行，我看路还长
+
+
+-----
+
+####  krysakura  
+##### 122#       发表于 2021-7-19 18:04
+
+
+华为自己不可能参与，哪有那么多精力。
+
+
+-----
+
+####  song_yl93  
+##### 123#       发表于 2021-7-19 18:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说起来你菊虽然都说不准备自产芯片，但是今年校招相关方向的面试明显是奔着生产去的，不知道是技术储备还是啥
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+                                                 

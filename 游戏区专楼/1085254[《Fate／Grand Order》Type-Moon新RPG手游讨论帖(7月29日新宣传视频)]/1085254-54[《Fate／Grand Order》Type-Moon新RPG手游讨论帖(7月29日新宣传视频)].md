@@ -8711,3 +8711,39 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 80180#       发表于 2021-7-19 17:39
+
+
+ 本帖最后由 exiaexa 于 2021-7-19 17:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52021964&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-7-19 17:14</a>
+铁鱼能洗不还是内部小圈子朋友衬托的好</blockquote>
+铁鱼能翻身不是因为蘑菇“未删节原剧本”出来以后，某些fe厨开始甩锅“改编/制作不行，我们菌鸽鸽还是好的”吗，最生草的是当时还有人甩锅樱井不行的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  不垃圾屌丝  
+##### 80181#       发表于 2021-7-19 17:45
+
+
+啥？铁鱼翻身了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+那个剧本不是就说明蘑菇对拍动画一点B数都没有吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  smdzh2  
+##### 80182#       发表于 2021-7-19 18:23
+
+
+不太记得fele播出时隔壁什么情况了，是喷菌皇的多还是舔的多？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                 
