@@ -8268,3 +8268,56 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 80147#       发表于 2021-7-19 09:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52014095&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-7-19 01:04</a>
+
+一般7月头总归会有几张图出来的 这次是完全一点都没有</blockquote>
+什么时候有过？泳装一直都是周年公布一期卡池的几个，然后直到泳装活动开始。从3周年开始到现在一直是这样
+
+
+-----
+
+####  areklose  
+##### 80148#       发表于 2021-7-19 10:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52013849&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-7-19 00:27</a>
+
+突然想起来8.4开新剧情的话 泳装活动怎么办
+
+再加上今年到现在半点新泳装的情报也没有 难道泳装也要 ...</blockquote>
+周年都是长草。偶然会出个班扬那种超小活动
+
+
+-----
+
+####  黑上シグマ  
+##### 80149#       发表于 2021-7-19 10:24
+
+
+<blockquote>引用第80146楼zakki于2021-07-19 09:37发表的  :
+
+引用:eyeego 发表于 2021-7-19 01:04一般7月头总归会有几张图出来的 这次是完全......</blockquote>
+以前fami通之类的会放点风，比如武藏
+但去年我记得是啥都没
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  xiongxingyu  
+##### 80150#       发表于 2021-7-19 10:36
+
+
+妖精肯定救不了啊，2.6下来很明显了，妖精这种生物明显没法和人（泛人类史意义上的）共存，倒不如说这种作为种族毫无道德感，只是为了生来的使命（欲望）而活的犹如现象一样的单纯生物，像泛人类史一样走向消亡（回归里侧）才是必然，摩根拼到这种份上也不过给他们续了2千年，一露出破绽还是被背刺了，这个种族的自毁倾向太强了，没得救就的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

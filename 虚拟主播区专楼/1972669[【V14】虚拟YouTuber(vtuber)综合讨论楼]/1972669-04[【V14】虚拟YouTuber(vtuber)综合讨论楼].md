@@ -454,3 +454,68 @@ momoco的皮，很厉害
 
 
                                                  
+
+-----
+
+####  admentus  
+##### 4540#       发表于 2021-7-19 09:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52014455&amp;ptid=1972669" target="_blank">mmbk 发表于 2021-7-19 02:49</a>
+谢拉跟动物园有个锤子关系，属于是典中典之屁股决定脑子了</blockquote>
+你批管人圈子现在不就好这口，得做好本土化嘛
+
+
+-----
+
+####  poipanchao  
+##### 4541#       发表于 2021-7-19 09:49
+
+
+国内几个动物园入口
+1.au——彩虹是啥？
+2.正牌动物园——彩虹是啥？
+3.v8——确实有谢拉画面。但是一没b限二没账号，他们也没法骚皮啊
+
+
+-----
+
+####  caupollen  
+##### 4542#       发表于 2021-7-19 09:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52015683&amp;ptid=1972669" target="_blank">admentus 发表于 2021-7-19 09:41</a>
+
+你批管人圈子现在不就好这口，得做好本土化嘛</blockquote>
+不说的港独节奏，怎么和动物园搭上边的
+
+
+-----
+
+####  caupollen  
+##### 4543#       发表于 2021-7-19 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52015765&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-7-19 09:49</a>
+
+国内几个动物园入口
+
+1.au——彩虹是啥？
+
+2.正牌动物园——彩虹是啥？</blockquote>
+倒是国内其实没啥节奏了，b站nga不都可开心了v8也没啥东西，我说的节奏反而来源于外网大点。不知道是4v还是什么乐子人一直在把rie的专栏到处发
+
+
+-----
+
+####  poipanchao  
+##### 4544#       发表于 2021-7-19 10:17
+
+
+糊解千愁
+4v以为能恶心到国内
+殊不知跟holo不一样
+彩虹是谁？
+
+
+                                                 

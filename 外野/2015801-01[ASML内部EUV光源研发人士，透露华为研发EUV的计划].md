@@ -1160,3 +1160,33 @@ S1硅农QQ群 764446332
 
 
                                               
+
+-----
+
+####  aceback  
+##### 97#       发表于 2021-7-19 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52007942&amp;ptid=2015801" target="_blank">P.C. 发表于 2021-7-18 16:16</a>
+ebeam暂时无法量产，但是个人认为ebeam是未来的方向。
+
+用第一性原理来考虑，回到事情的本源，我们想要做 ...</blockquote>
+一本正经的胡说八道
+
+
+-----
+
+####  wqm2008  
+##### 98#       发表于 2021-7-19 10:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52014062&amp;ptid=2015801" target="_blank">fff30tw 发表于 2021-7-19 00:58</a>
+
+去年底就说28nm的国产duv要出来了，到现在连个影都没，有人知道到底啥时会出来？ ...</blockquote>
+年底，而且只是支持28nm，不代表一定能做成
+
+
+调机器又要两三年
+
+
+                                                 

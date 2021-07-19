@@ -5801,3 +5801,38 @@ SS主要是连模板都差不多
 
 
                                                  
+
+-----
+
+####  Blackson  
+##### 1929#       发表于 2021-7-19 09:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52015388&amp;ptid=1963832" target="_blank">傲娇的章鱼 发表于 2021-7-19 09:16</a>
+ 多久没看到能那么融入团体的追加了</blockquote>
+因为她第一集就已经登场了
+过往追加入队后的磨合回这次放到“入队”前了
+
+
+-----
+
+####  lydia5989  
+##### 1930#       发表于 2021-7-19 09:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52015388&amp;ptid=1963832" target="_blank">傲娇的章鱼 发表于 2021-7-19 09:16</a>
+
+多久没看到能那么融入团体的追加了</blockquote>
+塑造了17集，是这样的，磨合期和个人回都播完了
+
+
+-----
+
+####  saya1892  
+##### 1931#       发表于 2021-7-19 10:30
+
+
+其实这样也没什么问题，就是导致真正的**海豹过度摸鱼，至今没有发挥过什么作用
+
+
+                                                 
