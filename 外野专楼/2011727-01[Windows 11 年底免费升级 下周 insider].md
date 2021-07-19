@@ -5640,3 +5640,45 @@ Win11 22000.71版本更新
 
 
                                                  
+
+-----
+
+####  DraQin  
+##### 469#       发表于 2021-7-19 09:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52004672&amp;ptid=2011727" target="_blank">禽兽公爵 发表于 2021-7-18 10:08</a>
+资源管理器总是重启</blockquote>
+同
+Win10的时候还只是偶尔重启，11已经开始高频率闪烁基本没法用了
+至今没查出什么原因
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Litccc  
+##### 470#       发表于 2021-7-19 09:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52015408&amp;ptid=2011727" target="_blank">DraQin 发表于 2021-7-19 09:19</a>
+
+同
+
+Win10的时候还只是偶尔重启，11已经开始高频率闪烁基本没法用了
+
+至今没查出什么原因</blockquote>
+dev通道很正常，目前来看大家都这样，等更新吧
+
+
+-----
+
+####  baiducaonima  
+##### 471#       发表于 2021-7-19 09:24
+
+
+更新了两周，文件拖拽到任务栏程序打开这个依旧没恢复
+
+
+                                                 
