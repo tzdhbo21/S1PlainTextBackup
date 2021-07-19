@@ -8416,3 +8416,116 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
                                                  
+
+-----
+
+####  シャル  
+##### 80157#       发表于 2021-7-19 13:42
+
+
+ 本帖最后由 シャル 于 2021-7-19 13:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52018021&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-7-19 12:19</a>
+
+帮了奥伯龙的忙还差不多，迦勒底和摩根又没仇，来这就是想解明崩落真相阻止地球毁灭，要打倒摩根 ...</blockquote>
+奥伯隆目的是找老婆和毁灭妖精国
+
+
+大体上和我方一致啊
+
+没欧罗拉这三个关键点就过不去
+
+
+-----
+
+####  alucardcz  
+##### 80158#       发表于 2021-7-19 14:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去各地逛了逛 没想到这2。6前后篇居然还有人吹的  吃惊（
+
+
+-----
+
+####  angelooo  
+##### 80159#       发表于 2021-7-19 14:49
+
+
+<blockquote>alucardcz 发表于 2021-7-19 14:25
+去各地逛了逛 没想到这2。6前后篇居然还有人吹的  吃惊（</blockquote>
+什么，隔壁你不吹这个可是要被扣帽子的，S1这边几乎都在喷的才是少数23333
+
+
+-----
+
+####  alucardcz  
+##### 80160#       发表于 2021-7-19 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52019923&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-7-19 14:49</a>
+
+什么，隔壁你不吹这个可是要被扣帽子的，S1这边几乎都在喷的才是少数23333 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">马鸡？ 震撼萌新1整年
+
+
+
+
+-----
+
+####  AbigailWilliams  
+##### 80161#       发表于 2021-7-19 15:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52019604&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-19 14:25</a>
+去各地逛了逛 没想到这2。6前后篇居然还有人吹的  吃惊（</blockquote>
+应该说我就在这看到在喷，毕竟是菌类的招牌摆在那<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  AbigailWilliams  
+##### 80162#       发表于 2021-7-19 15:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52019604&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-19 14:25</a>
+去各地逛了逛 没想到这2。6前后篇居然还有人吹的  吃惊（</blockquote>
+应该说我就在这看到在喷，毕竟菌类的招牌摆在那<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 80163#       发表于 2021-7-19 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020052&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-19 14:58</a>
+马鸡？ 震撼萌新1整年</blockquote>
+毕竟是菌皇啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 80164#       发表于 2021-7-19 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52016241&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-19 10:24</a>
+
+以前fami通之类的会放点风，比如武藏
+
+但去年我记得是啥都没</blockquote>
+fami通放风也是周年之后了，记得那年刚开始喷武藏一破过于素，然后fami通出了2破瞬间反转，结果实装的时候3破一出又反转回去了
+
+
+-----
+
+####  alucardcz  
+##### 80165#       发表于 2021-7-19 15:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020120&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-19 15:03</a>
+
+毕竟是菌皇啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等这8。4号菌皇陨落
+
+
+                                                
