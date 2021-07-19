@@ -4621,3 +4621,16 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 
 
                                                  
+
+-----
+
+####  fightonion  
+##### 6390#       发表于 2021-7-20 00:11
+
+
+很久没看 问下她现在直播为啥这么多踩(指持续到现在) 
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+                                                 

@@ -8988,3 +8988,19 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
 
                                                  
+
+-----
+
+####  白金口袋  
+##### 80204#       发表于 2021-7-20 00:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023887&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-19 05:50</a>
+
+我是奇怪是8月4日这微妙日期，你要是周年前一天放，然后后一天放奥伯龙UP多好。我就怕来个完结篇上。 ...</blockquote>
+不要怕，保持怀疑的心态，没有期待没有失望
+
+我都做好他8月直接表示拖到年底的心理准备了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
