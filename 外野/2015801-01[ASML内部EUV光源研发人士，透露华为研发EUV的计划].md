@@ -1636,3 +1636,59 @@ nec光刻这个不知道。但买台旧光刻机拆着学习不是很正常的�
 
 
                                                  
+
+-----
+
+####  十六夜鬼月  
+##### 125#       发表于 2021-7-19 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52022244&amp;ptid=2015801" target="_blank">hyddx 发表于 2021-7-19 17:31</a>
+
+nec光刻这个不知道。但买台旧光刻机拆着学习不是很正常的么。中国高铁、盾构哪个不是从模仿开始的。
+
+
+上海 ...</blockquote>
+所以感觉说到底最好tg跟华为就学韩国政府和三星，把华为扶植成半导体产业的龙头，触手涵盖整个半导体产业，带着整个半导体产业链上的企业跑，tg就在后面加油打气，华为要多少钱就给多少钱，要多少政策就给多少政策。反正如果搞不出来，华为起码也是个半死，美国不彻底服输，华为也不要指望能跟以前那样全世界做朋友，做生意。现在无论华为还是tg还是太端着了，思维还没转变过来。
+
+
+-----
+
+####  有口皆悲  
+##### 126#       发表于 2021-7-19 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024177&amp;ptid=2015801" target="_blank">十六夜鬼月 发表于 2021-7-19 20:17</a>
+
+所以感觉说到底最好tg跟华为就学韩国政府和三星，把华为扶植成半导体产业的龙头，触手涵盖整个半导体产业 ...</blockquote>
+现在已经是这样了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hyddx  
+##### 127#       发表于 2021-7-19 20:30
+
+
+ 本帖最后由 hyddx 于 2021-7-19 20:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52022650&amp;ptid=2015801" target="_blank">哈里.谢顿 发表于 2021-7-19 18:01</a>
+
+看起来还是不乐观，季退思鼓吹多烧钱就行，我看路还长</blockquote>
+路本来就长，和抗战一样的，说速胜的是小粉红的极端粉，说投降的是公知，要把这个行业搞好只能搞持久战。
+
+当然持续的投入肯定是要的，试产试工艺很花钱的
+
+
+-----
+
+####  hyddx  
+##### 128#       发表于 2021-7-19 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024177&amp;ptid=2015801" target="_blank">十六夜鬼月 发表于 2021-7-19 20:17</a>
+
+所以感觉说到底最好tg跟华为就学韩国政府和三星，把华为扶植成半导体产业的龙头，触手涵盖整个半导体产业 ...</blockquote>
+半导体产业链很大的，指望一家没戏的。三星还不得被日本的供应商卡脖子。华为能把fab的制成这块搞起来就不错了。中芯国际这企业，多半只能当黄埔军校，是当不了红军的。
+
+
+                                                 

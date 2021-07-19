@@ -8797,3 +8797,160 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 80187#       发表于 2021-7-19 19:23
+
+
+我挺好奇到底什么时候打算把加拉哈德放出来，2.6都没半点儿信儿。加拉哈德就在lostroom里跑出来嘲讽了几句后，就再也没出来过了，怕不是蘑菇早忘了
+
+
+-----
+
+####  黑上シグマ  
+##### 80188#       发表于 2021-7-19 19:24
+
+
+炎上是没有，官推下面冷嘲热讽倒是有
+
+
+-----
+
+####  zakki  
+##### 80189#       发表于 2021-7-19 19:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023606&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-19 19:24</a>
+炎上是没有，官推下面冷嘲热讽倒是有</blockquote>
+真的是人不要脸则无敌
+
+
+-----
+
+####  alucardcz  
+##### 80190#       发表于 2021-7-19 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023704&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-19 19:34</a>
+
+真的是人不要脸则无敌</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算8。4号真的出一个预告说完结篇明年出  日本人照样不会炎上 就这鸟样
+
+
+
+
+-----
+
+####  zakki  
+##### 80191#       发表于 2021-7-19 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023723&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-19 19:36</a>
+就算8。4号真的出一个预告说完结篇明年出  日本人照样不会炎上 就这鸟样 ...</blockquote>
+所以dw才会这么不要脸，yls这次都不敢在一开始说了，只敢在生放结束前两分钟悄悄提一嘴
+
+
+-----
+
+####  alucardcz  
+##### 80192#       发表于 2021-7-19 19:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻页
+
+
+-----
+
+####  alucardcz  
+##### 80193#       发表于 2021-7-19 19:42
+
+
+再翻页
+
+
+-----
+
+####  zore  
+##### 80194#       发表于 2021-7-19 19:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以去2ch看看
+
+
+-----
+
+####  areklose  
+##### 80195#       发表于 2021-7-19 19:50
+
+
+我是奇怪是8月4日这微妙日期，你要是周年前一天放，然后后一天放奥伯龙UP多好。我就怕来个完结篇上。
+
+
+-----
+
+####  黑上シグマ  
+##### 80196#       发表于 2021-7-19 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023784&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-19 19:41</a>
+
+所以dw才会这么不要脸，yls这次都不敢在一开始说了，只敢在生放结束前两分钟悄悄提一嘴 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后你楼某个自称萌新还在那里质疑我瞎说
+
+
+-----
+
+####  alucardcz  
+##### 80197#       发表于 2021-7-19 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023895&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-19 19:51</a>
+
+然后你楼某个自称萌新还在那里质疑我瞎说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新直播关的早啊 能怪我吗 而且公告也没提 这种东西之前公告都会写 只能说dw铁废物
+
+
+-----
+
+####  黑上シグマ  
+##### 80198#       发表于 2021-7-19 20:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023973&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-19 19:57</a>
+
+萌新直播关的早啊 能怪我吗 而且公告也没提 这种东西之前公告都会写 只能说dw铁废物
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁让你关得早的，不怪你怪谁
+
+
+-----
+
+####  alucardcz  
+##### 80199#       发表于 2021-7-19 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024003&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-19 20:00</a>
+
+谁让你关得早的，不怪你怪谁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新觉得已经没看下去的必要了 谁知道还能这么废物呢（
+
+
+-----
+
+####  miro112233  
+##### 80200#       发表于 2021-7-19 20:36
+
+
+ 本帖最后由 miro112233 于 2021-7-19 20:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023592&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-19 19:23</a>
+
+我挺好奇到底什么时候打算把加拉哈德放出来，2.6都没半点儿信儿。加拉哈德就在lostroom里跑出来嘲讽了几句 ...</blockquote>
+没忘，但你菌喜欢把重要信息藏犄角旮旯的毛病犯了，放在1.6剧场版后篇最后一个特典里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上都在吐槽这种主线相关的重要信息居然放在一个限时一周的观影特典里
+
+指路[https://weibo.com/6537160863/Km1 ... t#_rnd1626698207612](https://weibo.com/6537160863/Km16zn4WE?type=comment#_rnd1626698207612)
+
+
+                                                

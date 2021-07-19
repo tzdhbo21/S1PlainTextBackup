@@ -4784,3 +4784,43 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+-----
+
+####  yuugi  
+##### 344#       发表于 2021-7-19 20:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023697&amp;ptid=2009419" target="_blank">黄昏的轮回 发表于 2021-7-19 19:33</a>
+
+请问这个体力回转怎么做到的，我现在60多级感觉已经完全转不过来了
+
+
+—— 来自 OnePlus KB2000, Android  ...</blockquote>
+一是等级高了
+
+二是前面说过了，体力回复是可以超出上限的
+
+给体力快满未满的来个8小时回复，体力总量可达6500
+
+截图是4500左右
+
+
+-----
+
+####  黄昏的轮回  
+##### 345#       发表于 2021-7-19 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024284&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-19 20:26</a>
+一是等级高了
+
+二是前面说过了，体力回复是可以超出上限的
+
+给体力快满未满的来个8小时回复，体力总量可达6 ...</blockquote>
+原来如此……八小时这个本来以为效率极低没意义，原来价值在这里。之前看说可以突破上限还没看懂，多谢解释，晚上八小时挂起来
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
