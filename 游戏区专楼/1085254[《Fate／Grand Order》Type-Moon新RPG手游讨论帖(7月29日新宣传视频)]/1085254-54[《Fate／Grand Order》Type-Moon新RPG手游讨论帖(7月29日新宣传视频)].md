@@ -8747,3 +8747,53 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 80183#       发表于 2021-7-19 18:46
+
+
+还有一点就是一堆人把期待值全带到8月4号，结果要是8月4号一看真是个后记只有一节那怕是会反转
+
+
+-----
+
+####  khxooo  
+##### 80184#       发表于 2021-7-19 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023184&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-19 18:46</a>
+
+还有一点就是一堆人把期待值全带到8月4号，结果要是8月4号一看真是个后记只有一节那怕是会反转 ...</blockquote>
+到时候估计日本那边也炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  newfaceryo  
+##### 80185#       发表于 2021-7-19 19:17
+
+
+2.6本身水品是在线的，支线剧情和龙套角色都写的不错，现在的问题只是篇幅到底能不能分配好。
+
+主线能不能写的说的过去。
+
+
+仔细想想蘑菇这挖坑不填也是累犯了，埋的伏线说不定20年后什么八竿子打不着作品突然想起来收一下。
+
+一碗饭吃20年
+
+
+-----
+
+####  zakki  
+##### 80186#       发表于 2021-7-19 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023395&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-19 19:04</a>
+到时候估计日本那边也炸了</blockquote>
+本来这次就该炸，说好的后篇结果又搞分割，这都没炎上起来也挺离谱的
+
+
+                                                 

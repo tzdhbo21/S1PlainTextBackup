@@ -4769,3 +4769,18 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+-----
+
+####  黄昏的轮回  
+##### 343#       发表于 2021-7-19 19:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020057&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-19 14:59</a>
+玩明白后自己都觉得黑心</blockquote>
+请问这个体力回转怎么做到的，我现在60多级感觉已经完全转不过来了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

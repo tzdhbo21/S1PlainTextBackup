@@ -12718,3 +12718,378 @@ syl，也要把完全放弃宣言算上啊（
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 20680#       发表于 2021-7-19 18:30
+
+
+7月25日23時より
+
+#犬山たまきを愛している女達 格付け企画開催
+
+(MC:犬山たまき/潤羽るしあ/しぐれうい/星川サラ/愛宮みるく/神楽めあ出演)
+
+※神楽めあ緊急参戦
+
+
+-----
+
+####  GRMeA104  
+##### 20681#       发表于 2021-7-19 18:30
+
+
+※神楽めあ緊急参戦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 20682#       发表于 2021-7-19 18:31
+
+
+什么鬼……<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 20683#       发表于 2021-7-19 18:32
+
+
+啥玩意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 20684#       发表于 2021-7-19 18:32
+
+
+很急
+
+
+-----
+
+####  T_Hb  
+##### 20685#       发表于 2021-7-19 18:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昂？
+
+
+-----
+
+####  呓亘  
+##### 20686#       发表于 2021-7-19 18:34
+
+
+这啥
+
+
+-----
+
+####  ashero  
+##### 20687#       发表于 2021-7-19 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52022280&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-19 17:34</a>
+
+刚开始说的确实是一单人翻唱、一合唱，但现在看来要么是她把完全放弃宣言当成合唱了，要么是她忘记算完全 ...</blockquote>
+大胆点 她忘了 所以还有一首合唱要放
+
+
+-----
+
+####  呓亘  
+##### 20688#       发表于 2021-7-19 18:34
+
+
+不过看上去很有趣的样子 啊 又能看到久违的羊肉粽子了吗
+
+
+-----
+
+####  T_Hb  
+##### 20689#       发表于 2021-7-19 18:35
+
+
+ 本帖最后由 T_Hb 于 2021-7-19 18:36 编辑 
+
+ 我看了下  这个企划以前搞过
+[https://www.youtube.com/watch?v=SylBUgfZCoU](https://www.youtube.com/watch?v=SylBUgfZCoU)
+
+<img src="https://img.saraba1st.com/forum/202107/19/183504hgllhlxch5qq5erh.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (82.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-19 18:35 上传
+
+
+-----
+
+####  2014720  
+##### 20690#       发表于 2021-7-19 18:36
+
+
+嗯抱大腿是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 20691#       发表于 2021-7-19 18:36
+
+
+难道是一夜狼人杀？？？
+
+
+-----
+
+####  呓亘  
+##### 20692#       发表于 2021-7-19 18:37
+
+
+好好好 多吸点粉
+
+
+-----
+
+####  路人庚  
+##### 20693#       发表于 2021-7-19 18:38
+
+
+ 本帖最后由 路人庚 于 2021-7-19 18:39 编辑 
+
+“爱着狗蛋的女人们”这个企划搞过，不过这次不是文字人狼，看样子像是搞回答问题的企划（苔苔主持
+
+
+syl，羊传熊现象：
+
+<img src="https://img.saraba1st.com/forum/202107/19/183936m6lirm17libelzi4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4B9FEEEE-B141-48EA-BCA6-D0BF49B7DCDB.jpeg</strong> (94.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-19 18:39 上传
+
+
+-----
+
+####  呓亘  
+##### 20694#       发表于 2021-7-19 18:38
+
+
+看来嘉宾们之间没有互动？
+
+
+-----
+
+####  T_Hb  
+##### 20695#       发表于 2021-7-19 18:39
+
+
+哦，不太一样，这个TAG指的是嘉宾类型，具体活动上次是狼人，这次是征集问题
+
+
+-----
+
+####  GRMeA104  
+##### 20696#       发表于 2021-7-19 18:42
+
+
+可能会有为海苔男争风吃醋的互动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+谨慎看好车轱辘含量<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 20697#       发表于 2021-7-19 18:43
+
+
+人多，轱辘多，总得有几个新的吧
+
+我持乐观态度
+
+
+-----
+
+####  GRMeA104  
+##### 20698#       发表于 2021-7-19 18:43
+
+
+*为什么不选mea----因为她真的很臭*这样的...?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 20699#       发表于 2021-7-19 18:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坦克民的信念又可以强化了
+
+
+-----
+
+####  古战场亡魂  
+##### 20700#       发表于 2021-7-19 18:46
+
+
+总有新问题的，楼友不用对车轱辘这么悲观
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 20701#       发表于 2021-7-19 18:52
+
+
+比起这个，我忽然想起来上次单词人狼了，一个熟肉都没吗
+
+
+-----
+
+####  路人庚  
+##### 20702#       发表于 2021-7-19 18:52
+
+
+ 本帖最后由 路人庚 于 2021-7-19 18:54 编辑 
+
+高效食用苔苔联动的小妙招 其一：跳过联动的前半小时，以获得最佳观看体验。
+
+syl，现在跟苔箱的联动基本也就靠着苔箱字幕组的人烤了罢，现在没有也正常，一年之后就有了
+
+
+-----
+
+####  时间在我手中  
+##### 20703#       发表于 2021-7-19 18:56
+
+
+有人问我弄不弄这个几把联动···我想和他说弄了有几把用
+
+
+毫无兴趣不如说
+
+
+-----
+
+####  rosevalley46  
+##### 20704#       发表于 2021-7-19 18:58
+
+
+虽然苔本很蛋疼
+
+但是星川,粽子和她互动应该还是不会按剧本出牌的,可以期待下
+
+
+-----
+
+####  古战场亡魂  
+##### 20705#       发表于 2021-7-19 19:04
+
+
+苔本我觉得舞元裁判是个好活，只可惜mea不会说异议鸭梨
+
+
+-----
+
+####  呓亘  
+##### 20706#       发表于 2021-7-19 19:04
+
+
+<blockquote>古战场亡魂 发表于 2021-7-19 19:04
+苔本我觉得舞元裁判是个好活，只可惜mea不会说异议鸭梨</blockquote>
+深表赞同
+
+
+-----
+
+####  时间在我手中  
+##### 20707#       发表于 2021-7-19 19:06
+
+
+五元裁判本质虹人团建活动，我是get不到点。
+
+
+-----
+
+####  GRMeA104  
+##### 20708#       发表于 2021-7-19 19:07
+
+
+舞元裁判抛去那些正负面滤镜不也就是个大型虹V故事会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+对于不关心的人来说大概看的就是"卧槽这寄吧谁卧槽葵"这种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 20709#       发表于 2021-7-19 19:09
+
+
+虽然但是，虹v故事会确实有点意思
+
+
+苔苔的作用是起了个平台让你咩姐也能参与其中当一当大评论家（
+
+
+-----
+
+####  T_Hb  
+##### 20710#       发表于 2021-7-19 19:13
+
+
+你麻一天没发动态了
+
+
+-----
+
+####  Dualist彩  
+##### 20711#       发表于 2021-7-19 19:18
+
+
+狗蛋亚撒西捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 20712#       发表于 2021-7-19 19:19
+
+
+ 本帖最后由 GRMeA104 于 2021-7-19 19:22 编辑 
+
+反正众天狗从来不是海苔男的目标受众,肆无忌惮的消费也没人理的,只能说主播的能力确实海苔男爱不释手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+月初的排班表这里还没有你麻参加的,说不定这两天的事忙完了就受邀过去或者吵着要去<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 20713#       发表于 2021-7-19 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52023551&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-7-19 19:19</a>
+
+反正众天狗从来不是海苔男的目标受众,肆无忌惮的消费也没人理的,只能说主播的能力确实海苔男爱不释手[f:067 ...</blockquote>
+所以你明知道这点还问我做不做？
+
+
+你是把我当做犬山的狗不成
+
+
+                                                

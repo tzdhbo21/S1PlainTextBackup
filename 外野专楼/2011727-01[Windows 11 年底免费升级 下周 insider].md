@@ -5710,3 +5710,20 @@ dev通道很正常，目前来看大家都这样，等更新吧
 
 
                                                  
+
+-----
+
+####  舞以  
+##### 474#       发表于 2021-7-19 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52022104&amp;ptid=2011727" target="_blank">dragrass 发表于 2021-7-19 17:23</a>
+
+点击时间栏崩溃的问题，可以开启专注助手，就可以解决
+
+
+— from vivo V2055A, Android 11 of S1 Next Goo ...</blockquote>
+亲测无效，开了之后点了下时间，立刻重启资源管理器<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 
