@@ -1745,3 +1745,39 @@ EUV光源就是13.5nm
 
 
                                                  
+
+*****
+
+####  fff30tw  
+##### 132#       发表于 2021-7-20 08:25
+
+
+ 本帖最后由 fff30tw 于 2021-7-20 08:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52022358&amp;ptid=2015801" target="_blank">d2loader 发表于 2021-7-19 17:39</a>
+
+国家不急都说出来了。。。02专项和大基金你以为是闹着玩的吗
+
+
+很多别的零 ...</blockquote>
+然而台积电在之前与三星竞争7nm时搞了个夜鹰计画，三班倒24小时不中断研发。台积电和三星还只是商业竞争，现在上升到国家产业发展，只协助融资不太够吧。
+
+[@搞不好是哈士奇](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=420890) 又是哪来的小号<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 我寻思我在疫情楼内除了「观点」外，「事实」都附上了来源，还能叫做造谣？你拿钱会不会拿得太轻松了？
+
+
+*****
+
+####  P.C.  
+##### 133#       发表于 2021-7-20 08:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52020766&amp;ptid=2015801" target="_blank">aceback 发表于 2021-7-19 15:53</a>
+
+别闹，nature、science上说自己是下一代光刻技术的不说上百也有几十了。
+
+真正用过EBL的，都知道这东西根 ...</blockquote>
+光刻的未来是直写。EBL 、 DMD 或者其他技术。一定不是现在这种光罩转印的技术，光罩转印过程带来的麻烦会渐渐大于它的成本优势。
+
+HW确实也在申请直写光刻的专利。
+
+
+                                                 
