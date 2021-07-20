@@ -1662,3 +1662,83 @@ tmd有中国人为啥就乳化了…前几代好几个外国人那还乳了对�
 
 
                                                  
+
+*****
+
+####  FanFun  
+##### 120#       发表于 2021-7-21 01:12
+
+
+这楼能当ZZ引流拆了了吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  桥田至  
+##### 121#       发表于 2021-7-21 01:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52039301&amp;ptid=2016411" target="_blank">cxj649 发表于 2021-7-21 01:05</a>
+
+这代有3个混血</blockquote>
+就两个吧，加农1/4 可可1/2 民警虽然是金发但却是纯日本人，是她的声优尚未是美日混血而已
+
+
+*****
+
+####  cxj649  
+##### 122#       发表于 2021-7-21 01:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52039315&amp;ptid=2016411" target="_blank">plazum 发表于 2021-7-21 01:07</a>
+
+还有一个是谁</blockquote>
+堇中之人是美日混血，所以动画之前和鲤鱼组CP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FanFun  
+##### 123#       发表于 2021-7-21 01:22
+
+
+想正经讨论回专楼呗，热衷于钓鱼贴里讨论是什么鬼
+
+
+*****
+
+####  luozicheng  
+##### 124#         楼主| 发表于 2021-7-21 01:34
+
+
+提问下僵尸偶像行上海偶像不行怎么zz引流了？回答不出就说别人钓鱼，这不好
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| FanFun|-1|别装了恶心|
+
+
+查看全部评分
+
+
+*****
+
+####  零壹贰叁  
+##### 125#       发表于 2021-7-21 01:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼都是什么啊
+点进来之前都没想到会这么乐
+
+
+                                                
