@@ -9326,3 +9326,28 @@ QQ图片20210720110240.png
 
 
                                                  
+
+*****
+
+####  AbigailWilliams  
+##### 80227#       发表于 2021-7-20 20:47
+
+
+菌类也是挖坑随缘填的主，只要8.4收个正常的尾，就算留了不少坑风评应该不会差到哪去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80228#       发表于 2021-7-20 21:18
+
+
+草，你们一说壁画我想起来
+
+这群staff真的没打FF14的5.0吗
+
+那个壁画我都想画个海德林Kick上去
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
