@@ -14159,3 +14159,71 @@ mixi觉得她对某个观众的互动比较熟络就怅然若失  模仿那个
 
 
                                                  
+
+*****
+
+####  T_Hb  
+##### 20810#       发表于 2021-7-20 14:35
+
+
+ 本帖最后由 T_Hb 于 2021-7-20 14:38 编辑 
+
+看到个有意思的专利<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+压力捕捉，据说实验室一套成本100刀
+[http://intcarpet.csail.mit.edu/img/CVPR2021.pdf](http://intcarpet.csail.mit.edu/img/CVPR2021.pdf)
+
+<img src="https://img.saraba1st.com/forum/202107/20/143441pzjk9bj6rabzab62.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (55.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-20 14:34 上传
+
+
+*****
+
+####  往世雷书  
+##### 20811#       发表于 2021-7-20 14:37
+
+
+生日要是就投个歌算不得什么大的
+
+能不能再来个豪华联动啊
+
+<img src="https://img.saraba1st.com/forum/202107/20/143647sjaakakdudkq9kan.jpg" referrerpolicy="no-referrer">
+
+
+<strong>714A01A3E0EED9173C721C7E40EBADBE.jpg</strong> (66.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-20 14:36 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  呓亘  
+##### 20812#       发表于 2021-7-20 14:40
+
+
+希望她能回到19年下半年那种经常搞企划的状态 那段时间的她真耀眼啊
+
+
+*****
+
+####  2014720  
+##### 20813#       发表于 2021-7-20 14:43
+
+
+那会不是她同接最烂的时候…<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+事业民看看完全摆烂宣言不行嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

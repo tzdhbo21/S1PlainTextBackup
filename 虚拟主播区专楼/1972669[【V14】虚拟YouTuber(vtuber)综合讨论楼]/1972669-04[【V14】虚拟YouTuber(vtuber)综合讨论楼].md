@@ -1796,3 +1796,83 @@ selen还行啊，炸鱼18杀4600伤害
 
 
                                                  
+
+*****
+
+####  真飞鸟i  
+##### 4656#       发表于 2021-7-20 14:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月亮龙的apex同接很高啊，nen好起来了。
+
+
+*****
+
+####  poipanchao  
+##### 4657#       发表于 2021-7-20 14:58
+
+
+昨晚看串评价，就连嘴最臭的5ch都没有说她大妈的…
+除了顶级战绩力以外，selen最强的还是那种快乐的渲染力，串里拿她跟daruma相比
+
+顺便还瞄到一些新人的评价
+这个猎杀哥好像talk力很足，效果比肩king
+猎杀加king的节目效果，虹女还是早点毕业吧
+
+
+*****
+
+####  OldGlory  
+##### 4658#       发表于 2021-7-20 15:03
+
+
+selen的说话风格更接近于老鼠台那种，说不定真能打开一片天。
+
+
+*****
+
+####  poipanchao  
+##### 4659#       发表于 2021-7-20 15:08
+
+
+其实不光是apex之类的fps
+我发现这周日程表上还有鬼武者这种东西
+如果她act游戏也很叼怎么办…
+
+
+*****
+
+####  qq845629713  
+##### 4660#       发表于 2021-7-20 15:10
+
+
+nijisanji_app
+
+販売を予定しておりました 黛灰の「海ボイス」「夏休みボイス」は、諸般の事情により販売を中止することとなりました。
+
+楽しみにお待ちいただいていた皆さまには申し訳ございません。
+
+
+*****
+
+####  空集  
+##### 4661#       发表于 2021-7-20 15:12
+
+
+坏了 怎么你虹和科乐美深度合作把棒球比赛的宣传和应援直接内置到手游里去听说还能拿钻的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，不讲武德啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  空集  
+##### 4662#       发表于 2021-7-20 15:17
+
+
+<img src="https://p.sda1.dev/2/a140491b2827f178001489b3f5222f7e/IMG_CMP_226583761.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
