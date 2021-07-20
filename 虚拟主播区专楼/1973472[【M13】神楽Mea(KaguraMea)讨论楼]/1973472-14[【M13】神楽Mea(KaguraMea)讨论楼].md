@@ -14867,3 +14867,133 @@ syl
 
 
                                                 
+
+*****
+
+####  T_Hb  
+##### 20864#       发表于 2021-7-20 18:34
+
+
+今天会是家用3D歌回吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甘栗No.007  
+##### 20865#       发表于 2021-7-20 18:43
+
+
+18/5<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">真的是她玩的？？
+
+
+*****
+
+####  ashero  
+##### 20866#       发表于 2021-7-20 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52035299&amp;ptid=1973472" target="_blank">甘栗No.007 发表于 2021-7-20 18:43</a>
+
+18/5真的是她玩的？？</blockquote>
+版本答案神圣分离者加破舰者 还有ad绝望三件套 上单半肉坦克最强六神了 再加上她的波比一向玩得可以的
+
+
+*****
+
+####  呓亘  
+##### 20867#       发表于 2021-7-20 18:53
+
+
+愿傻卵女人的事业如这把游戏一样腾飞
+
+
+*****
+
+####  T_Hb  
+##### 20868#       发表于 2021-7-20 19:04
+
+
+不是3D，幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20869#       发表于 2021-7-20 19:05
+
+
+果然是沉迷东京复仇者，甚至看到三周目
+
+
+*****
+
+####  雪风utopia  
+##### 20870#       发表于 2021-7-20 19:06
+
+
+盲猜3d会在生日用来捞钱<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 20871#       发表于 2021-7-20 19:10
+
+
+ 本帖最后由 T_Hb 于 2021-7-20 19:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看这个架势，是杂谈回啊，说完就开唱了
+
+
+开局就拉夫china advice
+
+
+*****
+
+####  雪风utopia  
+##### 20872#       发表于 2021-7-20 19:13
+
+
+拆那<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シルフィエット  
+##### 20873#       发表于 2021-7-20 19:14
+
+
+チャイナアドバイス这种口水歌也能翻的吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20874#       发表于 2021-7-20 19:15
+
+
+果然没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">三句话不离mikey<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 20875#       发表于 2021-7-20 19:16
+
+
+该改名叫Mikey了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 20876#       发表于 2021-7-20 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52035299&amp;ptid=1973472" target="_blank">甘栗No.007 发表于 2021-7-20 18:43</a>
+
+18/5真的是她玩的？？</blockquote>
+主要对面还是3个ad 对面打野稻草人还是余震出肉的 除非被集火不然很难死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

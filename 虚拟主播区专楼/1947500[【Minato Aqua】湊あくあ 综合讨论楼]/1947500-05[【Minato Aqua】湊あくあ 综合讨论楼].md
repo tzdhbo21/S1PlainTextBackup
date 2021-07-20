@@ -6498,3 +6498,37 @@ nene提到三人一起收录对着阿夸就是一通前辈可爱，然后说一�
 
 
                                                  
+
+*****
+
+####  ylssb10438  
+##### 6526#       发表于 2021-7-20 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52034810&amp;ptid=1947500" target="_blank">星の守 发表于 2021-7-20 18:04</a>
+
+超时空差不多得了，再说了你说话前能不能先去看看35p和mk2的战斗力是多少鹅，还是说你觉得s1的管人观众都 ...</blockquote>
+魔怔指感知树，“死活”指成天发表弱智言论被一群人扣鹅，给mk2他们加鹅的魔怔不魔怔不知道，十有八九都是巨魔😄
+
+
+*****
+
+####  星の守  
+##### 6527#       发表于 2021-7-20 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52035292&amp;ptid=1947500" target="_blank">ylssb10438 发表于 2021-7-20 18:43</a>
+魔怔指感知树，“死活”指成天发表弱智言论被一群人扣鹅，给mk2他们加鹅的魔怔不魔怔不知道，十有八九都 ...</blockquote>
+那我也是巨魔了，可以加鹅了不？本来就是句讽刺的话，非得和我抬杠<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">再说了他第一个回复怎么也算不上rz，就是在自己砖楼团建发泄一下而已，有人进来主动对号入座，对人不对事才吵起来的
+
+
+*****
+
+####  zpy393  
+##### 6528#       发表于 2021-7-20 19:10
+
+
+我还想着臭洋葱播马娘专楼肯定又死气沉沉的，没想到还没播就这么热闹，这是气氛组吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

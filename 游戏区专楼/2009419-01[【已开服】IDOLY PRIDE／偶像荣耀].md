@@ -4861,3 +4861,48 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  伊布桑  
+##### 349#         楼主| 发表于 2021-7-20 19:17
+
+
+＼🏖砂上の天姫 ガチャ開催予告🏖／
+
+
+7/21(水)12:00から
+
+水着衣装のアイドルが登場予定🌺
+
+【★5 真夏の恥じらいショット 天動瑠依】
+
+
+※本ガチャで新登場のアイドルは、ダイヤガチャからも登場します。
+
+ピックアップガチャ期間終了後、ダイヤガチャからも登場します。
+
+
+<img src="https://img.saraba1st.com/forum/202107/20/191632nwwjizqj886ri8ke.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210720_190400.jpg</strong> (726.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-20 19:16 上传
+
+
+天动小姐hso（常驻等歪<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  xiongxingyu  
+##### 350#       发表于 2021-7-20 19:37
+
+
+所以呢？为什么trinityaile只有优的泳装是限定？前甲板装甲比较厚的关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
