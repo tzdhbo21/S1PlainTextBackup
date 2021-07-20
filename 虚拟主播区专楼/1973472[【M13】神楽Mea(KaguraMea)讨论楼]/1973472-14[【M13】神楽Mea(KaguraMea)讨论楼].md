@@ -13912,3 +13912,168 @@ yysy，mixi这是魔怔独角兽发病美波七海那个我记得是私联发起
 
 
                                                 
+
+*****
+
+####  往世雷书  
+##### 20790#       发表于 2021-7-20 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029423&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-7-20 10:46</a>
+突然又想起来，mixi这也算不算是另类的爆料</blockquote>
+求问爆料了什么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+*****
+
+####  T_Hb  
+##### 20791#       发表于 2021-7-20 11:36
+
+
+ 本帖最后由 T_Hb 于 2021-7-20 12:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mixi自爆了，内心戏太多
+
+
+syl<img src="https://p.sda1.dev/2/357966f86ada3c75c0aba9f7037f9d24/IMG_20210720_115853.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 20792#       发表于 2021-7-20 11:58
+
+
+又在录歌还行，看时间安排感觉应该不是0802的曲子
+
+
+*****
+
+####  ashero  
+##### 20793#       发表于 2021-7-20 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52030089&amp;ptid=1973472" target="_blank">往世雷书 发表于 2021-7-20 11:32</a>
+求问爆料了什么
+
+—— 来自 S1Fun</blockquote>
+mixi觉得她对某个观众的互动比较熟络就怅然若失  模仿那个人的风格你麻也没反应 以为麻麻和那人私联 
+
+纯纯的魔怔了 然后就是饭盒长私信把你麻点炸了
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  路人庚  
+##### 20794#       发表于 2021-7-20 12:05
+
+
+后续还有他后来又饭盒私信抱歉，于是咩姐发公告说要开始ban人了（然后把他全平台所有号都ban了
+
+
+*****
+
+####  T_Hb  
+##### 20795#       发表于 2021-7-20 12:07
+
+
+ 本帖最后由 T_Hb 于 2021-7-20 12:14 编辑 
+
+之前一个月还给你麻发了一堆  想吃，想喝，想舔之类的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那天晚上联动之后，你麻看到那长文直接就炸了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|不要漏掉想中出|
+
+
+查看全部评分
+
+
+*****
+
+####  草牛  
+##### 20796#       发表于 2021-7-20 12:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还想用鸡鸡蹭meamea
+
+
+*****
+
+####  掉头学姐  
+##### 20797#       发表于 2021-7-20 12:11
+
+
+楼友都不想的吗，我就蹭蹭
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|不要大声说出来|
+
+
+查看全部评分
+
+
+*****
+
+####  T_Hb  
+##### 20798#       发表于 2021-7-20 12:12
+
+
+楼友谁不想呢，但是哪个傻逼会去天天给你麻发呢
+
+
+*****
+
+####  雪风utopia  
+##### 20799#       发表于 2021-7-20 12:14
+
+
+我不但想蹭蹭，还想狂暴鸿儒，但我不会给你麻发<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cushaw  
+##### 20800#       发表于 2021-7-20 12:19
+
+
+一下多了这么多回复还以为是小麻肉体出道了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Mr.shelter  
+##### 20801#       发表于 2021-7-20 12:22
+
+
+没有牛子，但是也想<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+                                                

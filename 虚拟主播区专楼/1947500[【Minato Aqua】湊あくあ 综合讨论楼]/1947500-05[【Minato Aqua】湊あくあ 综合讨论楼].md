@@ -4746,3 +4746,264 @@ cover死了妈我也没有讨厌过除了tskk以外的holomen
 
 
                                                  
+
+*****
+
+####  空集  
+##### 6397#       发表于 2021-7-20 11:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">事到如今又来没有讨厌过其他holomem了，不愧是说话当放屁的双标生物
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  心垂万刃  
+##### 6398#       发表于 2021-7-20 11:24
+
+
+夸被冲跟双标生物被扣鹅又有什么关系?双标生物又来代表阿夸喽？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kanchiki  
+##### 6399#       发表于 2021-7-20 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029919&amp;ptid=1947500" target="_blank">空集 发表于 2021-7-20 11:20</a>
+
+事到如今又来没有讨厌过其他holomem了，不愧是说话当放屁的双标生物
+
+
+—— 来自 Xiaomi Mi 10, Andr ...</blockquote>
+桐生可可和白上吹雪吧 白上吹雪是我真的忘了这么了个人了
+
+爱的反面是无感 我真的不记得了 不好意思啊
+
+可能她不配在我的记忆里拥有名字吧
+
+
+其他的holomen我还真的没有讨厌过哦
+
+夏哥兔子船长诗音お嬢菈米偶尔还会看看的
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| OldGlory|-2|你再提白上吹雪一次你全家爆炸一次.|
+| 空集|-1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  星の守  
+##### 6400#       发表于 2021-7-20 11:43
+
+
+ 本帖最后由 星の守 于 2021-7-20 11:46 编辑 
+
+冲crew老哥辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要说黒屁一个V是双标的话，那S1这里的巨魔有几个没黒屁过V，我看都双标了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+然后我忽然想起了，之前在c楼有人黒屁夸，我进去贴了几段同传，还被人骂了，这双不双标啊，太双标了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kanchiki  
+##### 6401#       发表于 2021-7-20 11:47
+
+
+等公司安排企划，排不上，新衣服大半年不出，已经录好的歌被抬价卡掉
+
+杏信：哈哈沙币crew又在卖惨
+
+自己掏钱联系制作，自己租工作室收录办live
+
+杏信：优遇组，运营的狗，别人都没得开，有资源全塞给你
+
+
+别的杏v没企划
+
+杏信:不遇组！都被湊阿库娅和运营霸凌
+
+别的杏v有企划了
+
+杏信:（装死）
+
+
+龙心事件
+
+杏信：油管的问题，关会长什么事！这下泥了
+
+桐生可可毕业
+
+杏信：湊阿库娅去死！
+
+
+自己对号入座吧
+
+
+*****
+
+####  空集  
+##### 6402#       发表于 2021-7-20 12:03
+
+
+夸花部分钱搞live 
+crew: cover司马80我夸夸
+别的liver自己掏钱的企划和live被否被延期
+crew:(不关我事，我不知道)  
+
+夸没企划
+crew:编写一万个阴谋论说qh夸被排挤
+夸一堆企划
+crew:司马cover压榨我夸夸 80
+
+大陆尼哥打着夸旗号冲蝗
+crew:支持，默许，参与
+4v尼哥(巴哈人等)打着会长名义冲夸
+crew:急了/有人还在接着做尼哥冲狐  
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Scardy  
+##### 6403#       发表于 2021-7-20 12:16
+
+
+这个K开头的不会是感知树吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  admentus  
+##### 6404#       发表于 2021-7-20 12:18
+
+
+就是感知树...
+专楼打架还是不太好，可以转移出去找个楼打
+
+
+*****
+
+####  我不是很好  
+##### 6405#       发表于 2021-7-20 12:23
+
+
+ 本帖最后由 我不是很好 于 2021-7-20 12:25 编辑 
+
+妈耶，怎么又打起来了，饶了我吧<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Maonpuyo  
+##### 6406#       发表于 2021-7-20 12:26
+
+
+一个感知树是纯傻逼，一群感知树才能第一时间出征专楼扣鹅，crew还是纯度不够<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星の守  
+##### 6407#       发表于 2021-7-20 12:26
+
+
+谁打夸旗号冲蝗死个🐎，怎么还有人觉得所有crew都是一路啊，我去山田评论区下骂他的事你又知道了？
+
+再说了，现在冲蝗的不过是套个夸盾和crew盾罢了，想想以前夸楼被杏主楼狂暴鸿儒的场景，不会真以为有这么多crew吧
+
+我就不说山田顶着夸头像，顶着crew的名义，做的事却毫不顾忌这两个群体，最近还恰起了烂钱，是个什么货我就不多说了好吧
+
+
+*****
+
+####  獅白ぼたん  
+##### 6408#       发表于 2021-7-20 12:26
+
+
+上次在祭楼打这次在夸楼打，主客场制了
+
+
+*****
+
+####  我不是很好  
+##### 6409#       发表于 2021-7-20 12:27
+
+
+夸夸快直播吧，我好想看你打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Scardy  
+##### 6410#       发表于 2021-7-20 12:29
+
+
+别打了，不如猜猜夸今天播啥<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星の守  
+##### 6411#       发表于 2021-7-20 12:30
+
+
+ 本帖最后由 星の守 于 2021-7-20 12:32 编辑 
+
+说起来现在这个被狂暴鸿儒的场景，和以前在NGA夸楼被杏楼的人狂暴鸿儒不是一个样么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+syl，连提都不能提了，真是武德充沛啊，那我是不是也可以说一句，你再提一次夸你全家爆炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 6412#       发表于 2021-7-20 12:31
+
+
+扣个鹅就大呼小叫还纯度不够，能不能学学夸夸面对1000踩不为所动啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 6413#       发表于 2021-7-20 12:32
+
+
+山田赫敏靠冲蝗卖小号赚钱，都成产业链了，crew里反感他的也不少。原先群里有人去评论区骂他拿夸夸当盾，几分钟就被拉黑了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 6414#       发表于 2021-7-20 12:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52030866&amp;ptid=1947500" target="_blank">星の守 发表于 2021-7-20 12:30</a>
+说起来现在这个被狂暴鸿儒的场景，和以前在NGA夸楼被杏楼的人狂暴鸿儒不是一个样么
+
+syl，连提都不能 ...</blockquote>
+我可没说什么她不配在我的记忆里拥有名字，我还是很喜欢夸夸的。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+                                                 

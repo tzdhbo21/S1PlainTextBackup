@@ -9160,3 +9160,84 @@ QQ图片20210720110240.png
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 80217#       发表于 2021-7-20 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029779&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-20 11:11</a>
+
+那贴最草的是半路就自己打起来了啊
+
+我想着就是菌厨菌黑大战，结果半路还冲出来圆桌厨打成一团笑死我了
+
+[f:0 ...</blockquote>
+想向别国开战结果自家先内乱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 80218#       发表于 2021-7-20 11:35
+
+
+其实就算等到国服明年开2.6 他们也体会不到日服玩家的心路历程 毕竟一开始就知道了要分三章（至少）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80219#       发表于 2021-7-20 11:37
+
+
+哈哈哈哈，说我们云，亮py啊，不是最喜欢的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80220#       发表于 2021-7-20 11:45
+
+
+ 本帖最后由 黑上シグマ 于 2021-7-20 11:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让对面亮个登录天数看看嘛
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+*****
+
+####  selfcest  
+##### 80221#       发表于 2021-7-20 12:12
+
+
+爆料里说的所有宝具适配全面屏这次还是没有，是要拖到周年还是这就是个假消息？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 80222#       发表于 2021-7-20 12:12
+
+
+草，一提登陆就想起来三月那次断签，麻了<img src="https://static.saraba1st.com/image/smiley/carton2017/304.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 80223#       发表于 2021-7-20 12:15
+
+
+我是不是错过了什么大戏  现在还有办法看到那贴吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                

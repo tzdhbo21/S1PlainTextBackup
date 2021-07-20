@@ -792,3 +792,54 @@ kenken<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" refe
 
 
                                                
+
+*****
+
+####  Piano-Forest  
+##### 75#         楼主| 发表于 2021-7-20 11:53
+
+
+[https://www.amazon.co.jp/dp/B098T51T7X?tag=nataliecomic-22](https://www.amazon.co.jp/dp/B098T51T7X?tag=nataliecomic-22)
+
+
+字幕：
+
+中文（简体），中文（繁體）等
+
+
+音频语言：
+
+日本語，中文等
+
+<img src="https://p.sda1.dev/2/d41ef2c9e9f15d5c9e668bd4a9759cde/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/787290dfd89b32c5629fc523a14f9de6/20210720_114408.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 76#       发表于 2021-7-20 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52030390&amp;ptid=2013091" target="_blank">Piano-Forest 发表于 2021-7-20 11:53</a>
+https://www.amazon.co.jp/dp/B098T51T7X?tag=nataliecomic-22
+
+
+字幕：</blockquote>
+还有中文配音？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  MASKA-1  
+##### 77#       发表于 2021-7-20 12:14
+
+
+中配感觉很有趣
+
+—— 来自 HUAWEI PAR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
