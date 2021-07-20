@@ -1564,3 +1564,101 @@ tmd有中国人为啥就乳化了…前几代好几个外国人那还乳了对�
 
 
                                                  
+
+*****
+
+####  盐盐盐盐盐  
+##### 112#       发表于 2021-7-21 00:12
+
+
+特意搞个中国角色脸上就写着中国人快来给我作品花钱我还觉得反而不想看……而且谁又知道这个中国人角色不会成为输出日式对中偏见的工具呢<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  庸necro  
+##### 113#       发表于 2021-7-21 00:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52033225&amp;ptid=2016411" target="_blank">jellyfis 发表于 2021-7-20 15:47</a>
+
+唐可可运动神经不好
+
+是不是着隐喻东亚病夫？我很好奇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐可可要是成绩好是不是就是中国人都是书呆子的刻板印象
+
+
+*****
+
+####  稀勢のささ  
+##### 114#       发表于 2021-7-21 00:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼也太乐了
+
+
+*****
+
+####  zhangqq_008  
+##### 115#       发表于 2021-7-21 00:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52039053&amp;ptid=2016411" target="_blank">庸necro 发表于 2021-7-21 00:30</a>
+唐可可要是成绩好是不是就是中国人都是书呆子的刻板印象</blockquote>
+“给我这个世界上最诚实的人写的六行字，我一定能从中找出足够的理由把他绞死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">”
+
+—— 来自 LENOVO Lenovo TB-J606F, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兰开夏  
+##### 116#       发表于 2021-7-21 00:56
+
+
+精神病患者出没
+
+
+*****
+
+####  plazum  
+##### 117#       发表于 2021-7-21 00:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031114&amp;ptid=2016411" target="_blank">黑雪姫 发表于 2021-7-20 12:52</a>
+
+不太一样，前几部都是设定是外国人的日本人而已。
+
+打个比方，这次星团主角香音有四分之一西班牙血统，你 ...</blockquote>
+什么，香音原来有四分之一的西班牙血统
+
+知道了这个设定之后，看那头橙红色头发的感觉都不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cxj649  
+##### 118#       发表于 2021-7-21 01:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52039259&amp;ptid=2016411" target="_blank">plazum 发表于 2021-7-21 00:59</a>
+
+什么，香音原来有四分之一的西班牙血统
+
+知道了这个设定之后，看那头橙红色头发的感觉都不一样了 ...</blockquote>
+这代有3个混血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plazum  
+##### 119#       发表于 2021-7-21 01:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52039301&amp;ptid=2016411" target="_blank">cxj649 发表于 2021-7-21 01:05</a>
+
+这代有3个混血</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有一个是谁
+
+
+                                                 
