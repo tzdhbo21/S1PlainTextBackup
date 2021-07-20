@@ -5392,3 +5392,731 @@ crew自己都不在意自己的专楼被污染那我更不在意了，打到楼�
 
 
                                                 
+
+*****
+
+####  admentus  
+##### 6444#       发表于 2021-7-20 13:24
+
+
+ 本帖最后由 admentus 于 2021-7-20 13:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031418&amp;ptid=1947500" target="_blank">星の守 发表于 2021-7-20 13:18</a>
+
+请野兔子指出这段文字的问题在哪里，而不是张口就来，或者对人不对事</blockquote>
+这边“夸黑”如果只是指因为tskk或是cn相关给夸点踩的弱智4v我完全接受
+
+你谭的“夸黑”几次吵的可是apex打得太独或是宣布参加企划却丝毫不上心还影响自己周边的人这种事
+
+回到以前吵过的几次，你一个个解释下夸为什么没错，不然感知树就是犯傻逼aoe
+
+
+“一样的事情别人做就是cover的问题是外部的问题”举例子来“自己掏钱联系制作，自己租工作室收录办live”顺便这又是什么鬼？来源呢？
+
+
+*****
+
+####  星の守  
+##### 6445#       发表于 2021-7-20 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031488&amp;ptid=1947500" target="_blank">admentus 发表于 2021-7-20 13:24</a>
+
+这边“夸黑”如果只是指因为tskk或是cn相关给夸点踩的弱智4v我完全接受
+
+你谭的“夸黑”几次吵的可是apex ...</blockquote>
+我懂了， 原来提夸黑是AOE了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  丿焰丶  
+##### 6446#       发表于 2021-7-20 13:27
+
+
+很多人都是针对感知树本人又不是针对夸夸或正常crew<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞清楚啊，就单单，我刚刚回复的那句话，你们夸楼竟然没看出感知树那句话有多愚蠢吗
+
+
+*****
+
+####  丿焰丶  
+##### 6447#       发表于 2021-7-20 13:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031514&amp;ptid=1947500" target="_blank">星の守 发表于 2021-7-20 13:26</a>
+ 我懂了， 原来提夸黑是AOE了有人对号入座，我不说是谁</blockquote>
+有人扣鹅，感知树直接骂杏信不就纯aoe了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  獅白ぼたん  
+##### 6448#       发表于 2021-7-20 13:29
+
+
+“这次竟然不是天狗了”
+
+
+*****
+
+####  星の守  
+##### 6449#       发表于 2021-7-20 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031531&amp;ptid=1947500" target="_blank">丿焰丶 发表于 2021-7-20 13:28</a>
+
+有人扣鹅，感知树直接骂杏信不就纯aoe了嘛</blockquote>
+有人对号入座，还对人不对事，我觉得被骂很正常<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stedckk  
+##### 6450#       发表于 2021-7-20 13:30
+
+
+骂的是谁懂的都懂，请不要对号入座，有泥味了
+
+
+
+
+*****
+
+####  crito  
+##### 6451#       发表于 2021-7-20 13:32
+
+
+为什么骂ntcrew，某些人要来对号入座捏
+
+
+*****
+
+####  丿焰丶  
+##### 6452#       发表于 2021-7-20 13:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031549&amp;ptid=1947500" target="_blank">星の守 发表于 2021-7-20 13:29</a>
+ 有人对号入座，还对人不对事，我觉得被骂很正常</blockquote>
+但是感知树眼里，杏信就等于夸黑，难道不是吗，就别隔这对号入座一直赢了。感知树整天问题发言你们自己没点数吗。就那句嘲讽你心里有夸夸，夸心里有你吗。就aoe了你们整个楼的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是说你们真的信仰敲你马你知道阿夸多喜欢哔哩哔哩吗。你们真这样信仰，那我就没话说了
+
+
+*****
+
+####  bluebaby  
+##### 6453#       发表于 2021-7-20 13:34
+
+
+干嘛要在夸楼打，直接外面开个贴子，回归原点标题就起为什么给夸点踩/为什么想扣感知树
+
+
+*****
+
+####  stedckk  
+##### 6454#       发表于 2021-7-20 13:35
+
+
+野兔宝说了去外面打然后被喷装了啊
+
+
+*****
+
+####  星の守  
+##### 6455#       发表于 2021-7-20 13:35
+
+
+讲道理，感知树的回复联系上下楼就知道是在说4V的事吧，有人能对号入座凭空跳出来高潮，很难不是因为有人一看感知树就高潮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kanchiki  
+##### 6456#       发表于 2021-7-20 13:36
+
+
+诶嘿巧了，如果是几个月前问她心里有没有我我可能会破防
+
+然而现在我已经无所谓了，反正我喜欢的gamer臭阿夸已经死了
+
+现在我只是在看纸片人偶像湊阿库娅罢了
+
+对偶像我是不会寄托真心的
+
+她心里有没有我还真无所谓
+
+
+*****
+
+####  stedckk  
+##### 6457#       发表于 2021-7-20 13:39
+
+
+感知树被扣鹅是因为他说别人双标，我看不懂的人是你吧，还扯什么4v，就这么喜欢为感知树打掩护。
+
+
+*****
+
+####  丿焰丶  
+##### 6458#       发表于 2021-7-20 13:39
+
+
+看到感知树就高潮(x)
+告诉你为什么有人会扣鹅吧，因为那些人觉得感知树不配谈双标才扣的，而不是因为其他的理论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狐言乱语  
+##### 6459#       发表于 2021-7-20 13:40
+
+
+什么时候改个apexID精神胜利一下？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  星の守  
+##### 6460#       发表于 2021-7-20 13:42
+
+
+这不就又绕回来了？我就问S1巨魔们有几个没黒屁过V的，按这双标逻辑，那没几个不双标吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  admentus  
+##### 6461#       发表于 2021-7-20 13:43
+
+
+我看见，进场，想把架引到别处打的时候感知树已经说了四段话了
+
+一句比一句典
+
+能解释下“自己掏钱联系制作，自己租工作室收录办live”来源哪？
+
+“事到如今又来没有讨厌过其他holomem”然后说了段黑屁胖狐狸的双标话，再前面就是感知树骂双标狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 6462#       发表于 2021-7-20 13:44
+
+
+草，突然被顶上来还以为直播了呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+嗯？晚上还真有直播<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  丿焰丶  
+##### 6463#       发表于 2021-7-20 13:45
+
+
+别尬黑，感知树讨厌白上吹雪的
+骂阿希上分婊才是经典
+
+
+*****
+
+####  梅斯之围  
+##### 6464#       发表于 2021-7-20 13:47
+
+
+只是说有直播，没说播什么
+
+
+*****
+
+####  stedckk  
+##### 6465#       发表于 2021-7-20 13:47
+
+
+那是因为感知树特别弱智，弱智发言也多，s1不是不能黑屁和双标，那也得看弱智程度，不过你这种感知树崇拜者估计没这个感觉。
+
+
+*****
+
+####  丿焰丶  
+##### 6466#       发表于 2021-7-20 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031694&amp;ptid=1947500" target="_blank">星の守 发表于 2021-7-20 13:42</a>
+ 这不就又绕回来了？我就问S1巨魔们有几个没黒屁过V的，按这双标逻辑，那没几个不双标吧 ...</blockquote>
+黑屁等于双标，你这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星の守  
+##### 6467#       发表于 2021-7-20 13:49
+
+
+我黒屁双标有理，你黒屁双标rz，是这理吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kanchiki  
+##### 6468#       发表于 2021-7-20 13:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031708&amp;ptid=1947500" target="_blank">admentus 发表于 2021-7-20 13:43</a>
+
+我看见，进场，想把架引到别处打的时候感知树已经说了四段话了
+
+一句比一句典
+
+能解释下“自己掏钱联系制作， ...</blockquote>
+自己掏钱联系制作。公司的收录排不上队是6月10日会限说的
+
+我说没有讨厌那话的时候是真的忘了白上吹雪这个人了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/20/135115rg4wyuq30qbjbbuu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>本当だよ.jpg</strong> (235.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-20 13:51 上传
+
+
+*****
+
+####  admentus  
+##### 6469#       发表于 2021-7-20 13:52
+
+
+“cover死了妈我也没有讨厌过除了tskk以外的holomen”（下一句接着骂胖狐狸）
+
+其他“黑屁V的S1巨魔们”有几个说过这种话？
+
+
+*****
+
+####  stedckk  
+##### 6470#       发表于 2021-7-20 13:53
+
+
+笑了，你又转进了哦，我可没说过什么黑屁双标有理，事实就是看不惯感知树的人多，你要看不惯别人黑屁双标你一样可以扣鹅，没人能阻止你的。
+
+
+*****
+
+####  丿焰丶  
+##### 6471#       发表于 2021-7-20 13:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031771&amp;ptid=1947500" target="_blank">星の守 发表于 2021-7-20 13:49</a>
+ 我黒屁双标有理，你黒屁双标rz，是这理吧</blockquote>
+这个我，是说的感知树吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+我们黑屁双标自认为确实弱智的哦
+
+
+*****
+
+####  lightsuger  
+##### 6472#       发表于 2021-7-20 13:54
+
+
+你们干脆给他建个专楼得了
+
+臭泔水直播都没这么热闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  admentus  
+##### 6473#       发表于 2021-7-20 13:54
+
+
+ 本帖最后由 admentus 于 2021-7-20 13:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031794&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-7-20 13:51</a>
+
+自己掏钱联系制作。公司的收录排不上队是6月10日会限说的
+
+我说没有讨厌那话的时候是真的忘了白上吹雪这个 ...</blockquote>
+那个我记得不是指翻唱吗？
+
+live周边一些零零碎碎开幕动画之类的自己掏钱做也合理，自己租场地收录办live真的非常夸张了...最好能确定下夸本人是不是真的有说live方面是自己全权负责自己掏钱做的...
+
+
+*****
+
+####  Kanchiki  
+##### 6474#       发表于 2021-7-20 13:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031814&amp;ptid=1947500" target="_blank">admentus 发表于 2021-7-20 13:52</a>
+
+“cover死了妈我也没有讨厌过除了tskk以外的holomen”（下一句接着骂胖狐狸）
+
+其他“黑屁V的S1巨魔们”有几 ...</blockquote>
+那很简单啊，蝗毕业你们冲尼哥去啊
+
+我可是记得很清楚你们colo综的楼主的湊阿库娅去死呢
+
+
+*****
+
+####  a5220  
+##### 6475#       发表于 2021-7-20 13:56
+
+
+能做到像感知树一样出现就被围殴的人真没资格谈双标
+
+
+*****
+
+####  a5220  
+##### 6476#       发表于 2021-7-20 13:56
+
+
+能做到像感知树一样出现就被围殴的人真没资格谈双标
+
+
+*****
+
+####  星の守  
+##### 6477#       发表于 2021-7-20 13:57
+
+
+所以大家都是rz<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  admentus  
+##### 6478#       发表于 2021-7-20 13:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031841&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-7-20 13:55</a>
+
+那很简单啊，蝗毕业你们冲尼哥去啊
+
+我可是记得很清楚你们colo综的楼主的湊阿库娅去死呢 ...</blockquote>
+colo关我屁事啊，你自己把他at出来质问为什么
+
+
+*****
+
+####  Kanchiki  
+##### 6479#       发表于 2021-7-20 13:57
+
+
+能被S1的巨魔杏奴围殴是我的荣幸好吧 多来点啊
+
+敌人越气 说明越有效果啊
+
+
+*****
+
+####  丿焰丶  
+##### 6480#       发表于 2021-7-20 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031835&amp;ptid=1947500" target="_blank">lightsuger 发表于 2021-7-20 13:54</a>
+ 你们干脆给他建个专楼得了 臭泔水直播都没这么热闹</blockquote>
+一开始就说了去建专楼了，然后被crew骂了
+
+
+
+
+*****
+
+####  Kanchiki  
+##### 6481#       发表于 2021-7-20 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031872&amp;ptid=1947500" target="_blank">admentus 发表于 2021-7-20 13:57</a>
+
+colo关我屁事啊，你自己把他at出来质问为什么</blockquote>
+呵呵 我也记得你的优遇组言论呢
+
+什么“有的人又是live又是工商 有的人新衣服都没有”
+
+那我寻思这事你不去冲cover又阴阳怪气阿夸干嘛呢？
+
+
+*****
+
+####  星の守  
+##### 6482#       发表于 2021-7-20 13:59
+
+
+别杏奴了，crew也是杏奴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  admentus  
+##### 6483#       发表于 2021-7-20 14:00
+
+
+敌人越反对就越是好
+
+把这句去前因后果单独摘出来真的是无敌的无法被反驳的精神胜利方式了
+
+独人13被人骂大概也不是自己干的事有多弱智而是他打互联网野蛮人打得好吧
+
+
+*****
+
+####  Kanchiki  
+##### 6484#       发表于 2021-7-20 14:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031896&amp;ptid=1947500" target="_blank">星の守 发表于 2021-7-20 13:59</a>
+
+别杏奴了，crew也是杏奴</blockquote>
+推本位和箱本位还是有区别的
+
+有的人你看得出只是喜欢自己的推
+
+有的人呐推的是企业，所谓的箱推推
+
+在我眼里后者才算是杏奴
+
+
+*****
+
+####  crito  
+##### 6485#       发表于 2021-7-20 14:01
+
+
+我来说句公道话，冲夸也是冲cover的一种手段
+
+
+*****
+
+####  空集  
+##### 6486#       发表于 2021-7-20 14:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031874&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-7-20 13:57</a>
+能被S1的巨魔杏奴围殴是我的荣幸好吧 多来点啊
+
+敌人越气 说明越有效果啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  星の守  
+##### 6487#       发表于 2021-7-20 14:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031915&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-7-20 14:01</a>
+
+推本位和箱本位还是有区别的
+
+有的人你看得出只是喜欢自己的推
+
+有的人呐推的是企业，所谓的箱推推</blockquote>
+反正看杏的都是杏奴，这个不用多辩
+
+
+*****
+
+####  stedckk  
+##### 6488#       发表于 2021-7-20 14:02
+
+
+感知树还挺不要脸的，大伙就是看小丑而已，扣个鹅就是气了？
+
+
+*****
+
+####  admentus  
+##### 6489#       发表于 2021-7-20 14:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031890&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-7-20 13:58</a>
+
+呵呵 我也记得你的优遇组言论呢
+
+什么“有的人又是live又是工商 有的人新衣服都没有”
+
+那我寻思这事你不去 ...</blockquote>
+两者同罪啊，一个播都不播的人，本职工作都不好好做的人凭什么拿那么多资源
+
+好多人可是全部东西都没帮助，亲力亲为干到身体撑不住病休了
+
+
+*****
+
+####  狐言乱语  
+##### 6490#       发表于 2021-7-20 14:04
+
+
+典中典之敌人越气越有效果，感知树你答辩时教授对你的论文很气大概也是因为你写的很好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Kanchiki  
+##### 6491#       发表于 2021-7-20 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031837&amp;ptid=1947500" target="_blank">admentus 发表于 2021-7-20 13:54</a>
+
+那个我记得不是指翻唱吗？
+
+live周边一些零零碎碎开幕动画之类的自己掏钱做也合理，自己租场地收录办live真 ...</blockquote>
+原话说的就是收录都是自己找的，如果要用本社的，根本排不上队
+
+可能钱公司有出吧 但是人肯定是自己去联系的
+
+而且特意强调了排不上队，我寻思除了live的3D还有什么排不上队的？录音室不是到处都是
+
+
+*****
+
+####  星の守  
+##### 6492#       发表于 2021-7-20 14:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031961&amp;ptid=1947500" target="_blank">admentus 发表于 2021-7-20 14:04</a>
+
+两者同罪啊，一个播都不播的人，本职工作都不好好做的人凭什么拿那么多资源
+
+好多人可是全部东西都没帮助 ...</blockquote>
+你疑似因果颠倒了，因为工商live多才没时间播，从别家v的反馈也可以看出她到处在赶场，真没啥时间直播
+
+
+*****
+
+####  丿焰丶  
+##### 6493#       发表于 2021-7-20 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031890&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-7-20 13:58</a>
+ 呵呵 我也记得你的优遇组言论呢 什么“有的人又是live又是工商 有的人新衣服都没有” 那我寻思这事你不去 ...</blockquote>
+我寻思他这个言论，也有人会怼啊，都会吵，吵完，还经常被人yygq<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kanchiki  
+##### 6494#       发表于 2021-7-20 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031961&amp;ptid=1947500" target="_blank">admentus 发表于 2021-7-20 14:04</a>
+
+两者同罪啊，一个播都不播的人，本职工作都不好好做的人凭什么拿那么多资源
+
+好多人可是全部东西都没帮助 ...</blockquote>
+啊 所以帮助和资源到底是指什么呢？liver本人的争取和意向呢？
+
+夸说的很明白公司指望不上 所以很多都是自己掏钱自己去联系的
+
+现在的她重心根本就不在直播上 就是要朝着偶像live代言的方向去发展了
+
+又何来所谓的本职工作了？不如说hololive比起直播员更需要这种传统偶像不是吗？
+
+我觉得你们如果真的为自己的推着想，与其埋怨同事期待cover改变
+
+还不如期待一下自己的推跳槽
+
+
+*****
+
+####  丿焰丶  
+##### 6495#       发表于 2021-7-20 14:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031989&amp;ptid=1947500" target="_blank">星の守 发表于 2021-7-20 14:07</a>
+ 你疑似因果颠倒了，因为工商live多才没时间播，从别家v的反馈也可以看出她到处在赶场，真没啥时间直播 ...</blockquote>
+又不是996，真要是996，不播那也没啥，问题是，夸的舞蹈增长和歌力增长，不符合一个月不能播，天天赶场的水平，她愿意肯定有很多时间播的。
+我还是那个理论，夸夸不播的主要原因，还是因为被apex冲大师磨平了直播热情
+
+
+*****
+
+####  Kanchiki  
+##### 6496#       发表于 2021-7-20 14:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52032050&amp;ptid=1947500" target="_blank">丿焰丶 发表于 2021-7-20 14:13</a>
+
+又不是996，真要是996，不播那也没啥，问题是，夸的舞蹈增长和歌力增长，不符合一个月不能播，天天赶场的 ...</blockquote>
+别尬黑好吧 英语水平可以看到明显的进步
+
+歌虽然拉胯了 体力也是有增长的
+
+而且对于indoor派而言 光是出门收录就够累了
+
+回家了不想直播有什么问题吗
+
+
+*****
+
+####  星の守  
+##### 6497#       发表于 2021-7-20 14:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52032050&amp;ptid=1947500" target="_blank">丿焰丶 发表于 2021-7-20 14:13</a>
+
+又不是996，真要是996，不播那也没啥，问题是，夸的舞蹈增长和歌力增长，不符合一个月不能播，天天赶场的 ...</blockquote>
+直播热情肯定会减少啊，尤其是发生了这么多事，反正已经回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  丿焰丶  
+##### 6498#       发表于 2021-7-20 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52032072&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-7-20 14:15</a>
+ 别尬黑好吧 英语水平可以看到明显的进步 歌虽然拉胯了 体力也是有增长的 而且对于indoor派而言 光是出门 ...</blockquote>
+真愿意直播，出门收录的，除非累得要死，也会急忙急忙赶回来直播的，还是那个理，没了直播热情
+
+
+*****
+
+####  nian1538  
+##### 6499#       发表于 2021-7-20 14:20
+
+
+...5月之后这两个月哪里有舞可以看？cover录像现场？
+
+
+*****
+
+####  Kanchiki  
+##### 6500#       发表于 2021-7-20 14:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52032108&amp;ptid=1947500" target="_blank">丿焰丶 发表于 2021-7-20 14:18</a>
+
+真愿意直播，出门收录的，除非累得要死，也会急忙急忙赶回来直播的，还是那个理，没了直播热情 ...</blockquote>
+那她一直都是这样的
+
+被什么东西刺过伤过就会躲得远远的
+
+ark如是大乱斗如是APEX如是 现在轮到直播了
+
+
+不如说她还强撑着没有精神崩溃毕业在我看来已经是很神奇的一件事了
+
+
+*****
+
+####  星の守  
+##### 6501#       发表于 2021-7-20 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52032108&amp;ptid=1947500" target="_blank">丿焰丶 发表于 2021-7-20 14:18</a>
+
+真愿意直播，出门收录的，除非累得要死，也会急忙急忙赶回来直播的，还是那个理，没了直播热情 ...</blockquote>
+但就算直播热情再减少，平时基本的直播还是能保证的，最主要的原因自然还是最近连着两个live要练舞彩排，再加上要收录的工商多，才导致的
+
+
+                                               

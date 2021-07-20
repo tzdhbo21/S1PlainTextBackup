@@ -10109,3 +10109,58 @@ app名就叫冰箱吗？</blockquote>
 
 
                                                  
+
+*****
+
+####  猫溺泉君  
+##### 713#       发表于 2021-7-20 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031170&amp;ptid=1985265" target="_blank">木瓜奶五元 发表于 2021-7-20 12:58</a>
+
+就系统自带的电池管理，续航一直没啥问题。而且好多app我甚至都没开优化。你们是遭了什么狗屎app的毒手了 ...</blockquote>
+开高刷和5G，accubattery屏幕开启7小时，屏幕关闭45小时，综合使用15小时
+
+关屏掉电严重，经常无缘无故发热，和play商店以及google城区撞墙有关吗
+
+
+*****
+
+####  leystage  
+##### 714#         楼主| 发表于 2021-7-20 14:10
+
+
+话说索尼保持18个月系统更新的习惯那么多年了，为啥今年被人领拎出来黑。。。 还中英日全网黑。辟谣了不会只升12还要说对面三星管四年（我三星用的少，三星手机能升级大版本管4年？）。是手机圈子里真的没啥可以引战的了么 XD
+
+
+*****
+
+####  报应啊报应  
+##### 715#       发表于 2021-7-20 14:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52032020&amp;ptid=1985265" target="_blank">leystage 发表于 2021-7-20 14:10</a>
+话说索尼保持18个月系统更新的习惯那么多年了，为啥今年被人领拎出来黑。。。 还中英日全网黑。辟谣了不会 ...</blockquote>
+https://baijiahao.baidu.com/s?id=1686294245799774245
+
+
+*****
+
+####  leystage  
+##### 716#         楼主| 发表于 2021-7-20 14:34
+
+
+<blockquote>报应啊报应 发表于 2021-7-20 14:31
+https://baijiahao.baidu.com/s?id=1686294245799774245</blockquote>
+原来如此。不过谷歌和高通支持不代表厂商一定跟进。
+
+而且这篇里居然还说：
+
+
+当然，这还需要三星、LG或其他Android手机厂商也承诺会这么做。
+
+
+天国的 LG…
+
+
+                                                 
