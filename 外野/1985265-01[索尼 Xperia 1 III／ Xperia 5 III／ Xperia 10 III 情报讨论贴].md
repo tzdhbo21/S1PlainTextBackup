@@ -10246,3 +10246,20 @@ https://baijiahao.baidu.com/s?id=1686294245799774245</blockquote>
 
 
                                                  
+
+*****
+
+####  Cray  
+##### 721#       发表于 2021-7-21 06:18
+
+
+<blockquote>引用第712楼猫溺泉君于2021-07-20 13:36发表的  :
+
+引用:木瓜奶五元 发表于 2021-7-20 12:58就系统自带的电池管理，续航一直没啥问题。而且......</blockquote>
+accubattery自己本身就是个耗电大户啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+                                                 
