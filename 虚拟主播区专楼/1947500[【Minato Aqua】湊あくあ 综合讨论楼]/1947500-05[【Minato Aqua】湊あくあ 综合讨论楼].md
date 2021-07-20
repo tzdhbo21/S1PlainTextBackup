@@ -5007,3 +5007,388 @@ syl，连提都不能 ...</blockquote>
 
 
                                                  
+
+*****
+
+####  梅斯之围  
+##### 6415#       发表于 2021-7-20 12:35
+
+
+视奸了这么久终于找到机会进来拉屎了，看来属实是憋坏了
+
+
+*****
+
+####  星の守  
+##### 6416#       发表于 2021-7-20 12:36
+
+
+专楼被扣鹅居然没人给加回去，还是纯度不够啊，怎么不学学某些人集体扣鹅的含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kanchiki  
+##### 6417#       发表于 2021-7-20 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52030902&amp;ptid=1947500" target="_blank">OldGlory 发表于 2021-7-20 12:33</a>
+
+我可没说什么她不配在我的记忆里拥有名字，我还是很喜欢夸夸的。</blockquote>
+你这么费心尽力为她出头，她心里有你吗233
+
+もるにゃう「シナカス死ね」
+
+
+*****
+
+####  Scardy  
+##### 6418#       发表于 2021-7-20 12:38
+
+
+如何跟魔怔crew切割<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sky5  
+##### 6419#         楼主| 发表于 2021-7-20 12:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52030877&amp;ptid=1947500" target="_blank">OldGlory 发表于 2021-7-20 12:31</a>
+扣个鹅就大呼小叫还纯度不够，能不能学学夸夸面对1000踩不为所动啊</blockquote>
+这么喜欢教人做事，你寄巴谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  admentus  
+##### 6420#       发表于 2021-7-20 12:39
+
+
+ 本帖最后由 admentus 于 2021-7-20 12:40 编辑 
+
+有些人实在不配被说这话
+你谭有crew持“cn夸粉丝基数大，有些不正常的互相共鸣会出现神奇想法，但是正常人也多”，这种crew在打架时被劈到了那确实很抱歉
+但是给感知树捧臭脚的家伙怎么还能装受害者的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+一起去别处打吧
+
+
+
+
+*****
+
+####  Kanchiki  
+##### 6421#       发表于 2021-7-20 12:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52030816&amp;ptid=1947500" target="_blank">星の守 发表于 2021-7-20 12:26</a>
+
+谁打夸旗号冲蝗死个🐎，怎么还有人觉得所有crew都是一路啊，我去山田评论区下骂他的事你又知道了？
+
+再说了 ...</blockquote>
+在某些人眼里，字幕组是一个人，crew是一个人，尼哥也是一个人
+
+所有人都有着统一的意志，像虫群女王一样有着决定群体行为的控制力
+
+
+我就很好奇，那些说什么crew不反对不阻止的
+
+就算有人反对又怎么样，该冲的不还是照样去冲
+
+就好像我们反对阻止黑夸又有什么用，黑的人还不是照样点踩黑屁
+
+谁都JB谁啊，管得了自己就算了还能管别人干嘛的
+
+
+但是要打靶的时候这就是好利用的点
+
+只要逮着一个就可以对着整个群体黑
+
+所以他们不是不懂啊
+
+而是故意不提啊
+
+
+*****
+
+####  OldGlory  
+##### 6422#       发表于 2021-7-20 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52030964&amp;ptid=1947500" target="_blank">sky5 发表于 2021-7-20 12:39</a>
+
+这么喜欢教人做事，你寄巴谁啊</blockquote>
+谁寄吧要教你做事了，在夸楼赞美夸夸抗压能力强不行？
+
+
+*****
+
+####  星の守  
+##### 6423#       发表于 2021-7-20 12:45
+
+
+哟，怎么野兔子又来正义披露了，野兔子不会是想说，s1别人都可以黒屁夸，但就你crew不能黒屁别人是吧，这是crew的含金量你懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 6424#       发表于 2021-7-20 12:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你这么费心尽力为夸出头，夸心里有你吗233
+
+我不好说 毕竟树佬能通灵 有没有还真说不定捏
+
+
+*****
+
+####  梅斯之围  
+##### 6425#       发表于 2021-7-20 12:49
+
+
+如何和魔怔crew切割？指被人冲脸到专楼AOE的时候主动出来切割求饶是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+反正看到别人拿泥crew那套骂crew不自己对号入座就完事，非要往自己头上扣自己没做过的事情是什么傻卵
+
+你潭某些阴湿人真想看到你切割？你寄吧谁啊？人家只想看你服软，有乐子看
+
+
+*****
+
+####  星の守  
+##### 6426#       发表于 2021-7-20 12:49
+
+
+呜呜呜，crew缩专楼团建一下都要被人狂暴鸿儒，到底给谁出头了，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 6427#       发表于 2021-7-20 12:50
+
+
+上次在马自立楼到底是怎么回事呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sky5  
+##### 6428#         楼主| 发表于 2021-7-20 12:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031012&amp;ptid=1947500" target="_blank">OldGlory 发表于 2021-7-20 12:44</a>
+谁寄吧要教你做事了，在夸楼赞美夸夸抗压能力强不行？</blockquote>
+开始撒泼打滚了?自己刚说的话就当放屁了是吧？
+
+
+*****
+
+####  空集  
+##### 6429#       发表于 2021-7-20 12:51
+
+
+星之守看来是不装了，要提升浓度紧密团结在树佬身边了是吧，上次祭楼事件还搁我这说的是切割了也没用，现在看来不是那么回事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+以及我很好奇感知树自省意识那么低是怎么的一个形成过程，把一个群体当一个人说不就是你自己最喜欢做的么，你说的这些不是完全可以套上最喜欢打杏信靶的你自己么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Scardy  
+##### 6430#       发表于 2021-7-20 12:51
+
+
+crew躺平了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kanchiki  
+##### 6431#       发表于 2021-7-20 12:55
+
+
+反正我没spam过任何一个holomen，哪怕是白上吹雪我也不过推特拉黑油管点不感兴趣物理隔离罢了
+
+桐生可可的直播间fu*k u and never come back之后我就没有点开过也是一样的拉黑不感兴趣隔离处理
+
+我不支持网暴 我也没有打着夸的旗号去冲过什么人
+
+我纯粹就是因为cover弱智公关死了妈浪费我在字幕组干了一整年的时间精力最后一场空所以恨cover
+
+你们要打尼哥要打冲蝗人要铲除cover的敌人麻烦找山田赫敏还是谁谁谁去
+
+我说我没有讨厌除了桐生可可和白上吹雪以外的holomen是真的
+
+我希望cover马上爆炸也是真的 信不信随便吧
+
+转个live延期也能引来一群闻着味道的苍蝇追着扣鹅 真的是久违的蚌埠住了
+
+
+*****
+
+####  星の守  
+##### 6432#       发表于 2021-7-20 12:55
+
+
+就是因为切了也没用啊，你看我去骂过山田了，这算切了吗？然后就要被人AOE天天服软？他jb谁啊？你又jb谁啊？我又jb谁啊？黑粉都抱团了，你crew单打独斗能活么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 6433#       发表于 2021-7-20 13:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031094&amp;ptid=1947500" target="_blank">sky5 发表于 2021-7-20 12:51</a>
+
+开始撒泼打滚了?自己刚说的话就当放屁了是吧？</blockquote>
+说别人撒泼打滚就是你赢了是吧，能不能说点有营养的。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星の守  
+##### 6434#       发表于 2021-7-20 13:08
+
+
+笑死，野兔子想把人拉到黒屁夸的楼里打架，理由是避免污染专楼，还真是“纯良”呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sky5  
+##### 6435#         楼主| 发表于 2021-7-20 13:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031198&amp;ptid=1947500" target="_blank">OldGlory 发表于 2021-7-20 13:01</a>
+
+说别人撒泼打滚就是你赢了是吧，能不能说点有营养的。</blockquote><blockquote>你再提白上吹雪一次你全家爆炸一次.</blockquote><blockquote>扣个鹅就大呼小叫还纯度不够，能不能学学夸夸面对1000踩不为所动啊</blockquote>
+不能提是吧
+
+跑到专楼拉屎还不能还嘴是吧
+
+你几把谁啊？
+
+
+*****
+
+####  admentus  
+##### 6436#       发表于 2021-7-20 13:10
+
+
+那成，您这么想在这打的话，继续在这边打
+crew自己都不在意自己的专楼被污染那我更不在意了，打到楼主叉人那时候吧
+
+
+*****
+
+####  admentus  
+##### 6437#       发表于 2021-7-20 13:14
+
+
+“在某些人眼里，字幕组是一个人，crew是一个人，尼哥也是一个人
+
+所有人都有着统一的意志，像虫群女王一样有着决定群体行为的控制力”
+
+扣鹅开始只扣你一个人的，每次都能说出典中典
+
+
+“转个live延期也能引来一群闻着味道的苍蝇追着扣鹅 真的是久违的蚌埠住了”
+
+可不是针对转的live延期，是后面自己加的弱智发言
+
+
+“就是因为切了也没用啊，你看我去骂过山田了，这算切了吗？”
+
+很多crew都是一般劈不到+不会觉得自己被劈到的，毕竟大脑构造跟您这种舔感知树屁股的可不一样
+
+
+*****
+
+####  丿焰丶  
+##### 6438#       发表于 2021-7-20 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52030945&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-7-20 12:37</a>
+ 你这么费心尽力为她出头，她心里有你吗233 もるにゃう「シナカス死ね」</blockquote>
+感知树你这话说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你在好好想想
+
+
+*****
+
+####  OldGlory  
+##### 6439#       发表于 2021-7-20 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031297&amp;ptid=1947500" target="_blank">sky5 发表于 2021-7-20 13:10</a>
+
+不能提是吧
+
+跑到专楼拉屎还不能还嘴是吧
+
+你几把谁啊？</blockquote>
+不是感知树自己说真的忘了这么了个人吗，忘了的人怎么提？
+
+而且谁不让你还嘴了，你不正在还吗。
+
+
+*****
+
+####  Kanchiki  
+##### 6440#       发表于 2021-7-20 13:17
+
+
+スルーの精神で
+
+最近看到的感觉画得最好的一张fanart <blockquote>https://twitter.com/Apple_A_Caramel/status/1416634200220835841</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202107/20/131724r4m92924obsrxo24.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E6jlMeRUYAAShjS.jpg</strong> (310.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-20 13:17 上传
+
+
+*****
+
+####  stedckk  
+##### 6441#       发表于 2021-7-20 13:18
+
+
+感知树也好意思说别人双标，一开口就说黑夸的都是杏信运营信，被喷的时候就要切割，怎么骂人的时候就不切割了
+
+
+*****
+
+####  星の守  
+##### 6442#       发表于 2021-7-20 13:18
+
+
+<blockquote>SYL，点踩需要什么理由吗？分析了那么多给谁看呢我已经论证了好几次“夸黑”们有多么双标
+
+一样的事情别人做就是cover的问题是外部的问题
+
+夸做了就是夸的问题是夸不配在hololive这个伟大圣洁的团体里
+
+就像那个夫妻骑驴图一样 反正一切问题转黑夸就是了</blockquote>请野兔子指出这段文字的问题在哪里，而不是张口就来，或者对人不对事
+
+
+*****
+
+####  a5220  
+##### 6443#       发表于 2021-7-20 13:20
+
+
+你们自己愿意在专楼ttk就随你们自己咯，喜欢别人在自家专楼拉屎的也是够了
+
+
+                                                

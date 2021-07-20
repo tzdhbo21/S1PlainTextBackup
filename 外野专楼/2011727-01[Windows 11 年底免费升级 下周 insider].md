@@ -5727,3 +5727,14 @@ dev通道很正常，目前来看大家都这样，等更新吧
 
 
                                                  
+
+*****
+
+####  V5Style  
+##### 475#       发表于 2021-7-20 13:12
+
+
+在文件夹选项打开“在单独的进程中打开文件夹窗口”已经不能还原至旧版文件资源管理器了。现在只能通过打开控制面板来切换回去。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 

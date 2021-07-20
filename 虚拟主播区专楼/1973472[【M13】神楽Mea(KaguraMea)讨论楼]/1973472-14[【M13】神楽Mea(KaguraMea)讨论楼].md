@@ -14077,3 +14077,38 @@ mixi觉得她对某个观众的互动比较熟络就怅然若失  模仿那个
 
 
                                                 
+
+*****
+
+####  往世雷书  
+##### 20802#       发表于 2021-7-20 12:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52030501&amp;ptid=1973472" target="_blank">ashero 发表于 2021-7-20 12:01</a>
+mixi觉得她对某个观众的互动比较熟络就怅然若失  模仿那个人的风格你麻也没反应 以为麻麻和那人私联 
+
+纯 ...</blockquote>
+我知道才问的，那位的发言搞得好像mixi多正义一样<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  呓亘  
+##### 20803#       发表于 2021-7-20 13:05
+
+
+她好努力 我好开心
+
+
+*****
+
+####  T_Hb  
+##### 20804#       发表于 2021-7-20 13:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+                                                 

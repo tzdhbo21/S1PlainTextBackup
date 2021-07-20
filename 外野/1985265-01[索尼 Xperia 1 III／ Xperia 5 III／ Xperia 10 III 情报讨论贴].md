@@ -10082,3 +10082,30 @@ app名就叫冰箱吗？
 
 
                                                  
+
+*****
+
+####  我很费纸  
+##### 711#       发表于 2021-7-20 12:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029716&amp;ptid=1985265" target="_blank">猫溺泉君 发表于 2021-7-20 11:07</a>
+app名就叫冰箱吗？</blockquote>
+就叫冰箱
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  木瓜奶五元  
+##### 712#       发表于 2021-7-20 12:58
+
+
+<img src="https://p.sda1.dev/2/1f727ae268af606199def8529ccf4c75/IMG_CMP_226004409.png" referrerpolicy="no-referrer">
+就系统自带的电池管理，续航一直没啥问题。而且好多app我甚至都没开优化。你们是遭了什么狗屎app的毒手了吧。
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
