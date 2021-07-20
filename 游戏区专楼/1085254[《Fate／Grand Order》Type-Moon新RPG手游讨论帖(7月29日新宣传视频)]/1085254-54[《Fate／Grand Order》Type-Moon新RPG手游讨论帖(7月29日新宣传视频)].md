@@ -9495,3 +9495,32 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  shqingda  
+##### 80239#       发表于 2021-7-21 03:58
+
+
+当然是留一些坑给2.7喽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  الطائر  
+##### 80240#       发表于 2021-7-21 04:33
+
+
+ 本帖最后由 الطائر 于 2021-7-21 04:44 编辑 
+
+真正的伏笔是这个吧，有几个选项不可跳过，且选择时有数据上传：
+
+
+スキップできない選択肢まとめ
+[https://appmedia.jp/fategrandorder/6673444](https://appmedia.jp/fategrandorder/6673444)
+
+
+其中关于奥贝隆的召唤时间，帕西瓦尔和奥贝隆的陈述有矛盾
+
+
+                                                 

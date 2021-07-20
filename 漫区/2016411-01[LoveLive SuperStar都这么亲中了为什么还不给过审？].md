@@ -1764,3 +1764,26 @@ tmd有中国人为啥就乳化了…前几代好几个外国人那还乳了对�
 
 
                                                  
+
+*****
+
+####  tiro_finale  
+##### 128#       发表于 2021-7-21 05:29
+
+
+虽然是钓鱼贴但是成功让我去看了片子，还挺有意思的，追了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plazum  
+##### 129#       发表于 2021-7-21 05:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52039364&amp;ptid=2016411" target="_blank">cxj649 发表于 2021-7-21 01:15</a>
+
+堇中之人是美日混血，所以动画之前和鲤鱼组CP</blockquote>
+哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
