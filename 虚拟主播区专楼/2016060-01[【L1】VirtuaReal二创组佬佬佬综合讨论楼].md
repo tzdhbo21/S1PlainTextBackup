@@ -776,3 +776,32 @@ liver还不如给个邮箱让野生切片man把做好的视频往里扔
 
 
                                                  
+
+*****
+
+####  水也  
+##### 48#       发表于 2021-7-20 21:54
+
+
+这到底是二创组还是黑粉组<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  443421870  
+##### 49#       发表于 2021-7-20 22:39
+
+
+感觉二创组还是要有个好点的规章制度和领导者吧，比如三个月不干活和没热情的直接t了，保持群内全是创作者。。
+
+
+*****
+
+####  hellomagi  
+##### 50#       发表于 2021-7-20 22:42
+
+
+看截图我还以为是anti组呢<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+                                                 

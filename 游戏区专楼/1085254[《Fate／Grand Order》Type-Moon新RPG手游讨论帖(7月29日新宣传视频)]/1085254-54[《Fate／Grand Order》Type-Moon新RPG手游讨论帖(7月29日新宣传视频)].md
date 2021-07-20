@@ -9351,3 +9351,60 @@ QQ图片20210720110240.png
 
 
                                                  
+
+*****
+
+####  森兰丸  
+##### 80229#       发表于 2021-7-20 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52036661&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-7-20 20:47</a>
+
+菌类也是挖坑随缘填的主，只要8.4收个正常的尾，就算留了不少坑风评应该不会差到哪去 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">可这是废狗的一个主线章节....又不是他自己自HIGH想怎么写就怎么写的作品....哪容得了他任性
+
+
+事关整个第2部的坑也就算了.....比如在2.5出现的异星神都知道是不可能在2.5填完的....但只和这个章节有关的坑你总得填完吧
+
+
+*****
+
+####  alucardcz  
+##### 80230#       发表于 2021-7-20 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52037497&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-20 21:57</a>
+
+可这是废狗的一个主线章节....又不是他自己自HIGH想怎么写就怎么写的作品....哪容得了他任性
+
+
+事 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你菌哥哥还有干不出来的事？
+
+
+*****
+
+####  里村紅葉  
+##### 80231#       发表于 2021-7-20 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52036587&amp;ptid=1085254" target="_blank">sk86 发表于 2021-7-20 20:40</a>
+
+看了下油管上
+
+有人总结了22个伏线
+
+1.黑枪去哪里了</blockquote>
+13条空着是有什么梗吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80232#       发表于 2021-7-20 22:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">写新章节前,从挖了的坑里幸运大抽奖,抽出未填的接着填
+
+
+                                                 

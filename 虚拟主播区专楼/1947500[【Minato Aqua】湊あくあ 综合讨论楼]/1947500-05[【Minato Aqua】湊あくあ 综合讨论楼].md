@@ -6543,3 +6543,50 @@ nene提到三人一起收录对着阿夸就是一通前辈可爱，然后说一�
 
 
                                                  
+
+*****
+
+####  Kanchiki  
+##### 6530#       发表于 2021-7-20 21:40
+
+
+PU还能连续歪五次的？这什么黑暗游戏
+
+
+*****
+
+####  IDIDIDID  
+##### 6531#       发表于 2021-7-20 21:42
+
+
+哇塞！
+
+
+*****
+
+####  Scardy  
+##### 6532#       发表于 2021-7-20 21:44
+
+
+草，这臭洋葱太欧了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Scardy  
+##### 6533#       发表于 2021-7-20 22:03
+
+
+好，支援卡也开始歪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  499  
+##### 6534#       发表于 2021-7-20 22:10
+
+
+她为什么还没玩腻这游戏
+
+
+                                                 
