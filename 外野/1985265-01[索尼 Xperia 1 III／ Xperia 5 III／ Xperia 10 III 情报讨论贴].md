@@ -10003,3 +10003,33 @@ tb搜小小鱼雷, 不要买水凝膜</blockquote>
 
 
                                                  
+
+*****
+
+####  早乙女元气  
+##### 706#       发表于 2021-7-20 09:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52028483&amp;ptid=1985265" target="_blank">cfeng123 发表于 2021-7-20 09:28</a>
+请问一下，骚泥的机器能装GMS和GOOGLE PLAY么</blockquote>
+自带GMS
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cfeng123  
+##### 707#       发表于 2021-7-20 10:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52028737&amp;ptid=1985265" target="_blank">早乙女元气 发表于 2021-7-20 09:52</a>
+
+自带GMS
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+感谢，这样就没什么顾虑了
+
+
+                                                 

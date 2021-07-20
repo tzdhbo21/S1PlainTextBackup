@@ -13410,3 +13410,86 @@ Mikey还没玩腻<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 
                                                  
+
+*****
+
+####  呓亘  
+##### 20739#       发表于 2021-7-20 09:38
+
+
+完了 你麻被二次元野男人迷住了
+
+
+*****
+
+####  Klience  
+##### 20740#       发表于 2021-7-20 09:56
+
+
+这人还是打完排位发的fleet 这露露0/11的战绩真的看不下去<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 20741#       发表于 2021-7-20 10:06
+
+
+嘤嘤嘤 能找我当野男人吗 我可野了
+
+
+*****
+
+####  路人庚  
+##### 20742#       发表于 2021-7-20 10:16
+
+
+虽然但是，你一直都是野男人啊（
+
+
+*****
+
+####  时间在我手中  
+##### 20743#       发表于 2021-7-20 10:23
+
+
+事业民不配当野男人，打游戏都要唧唧歪歪她播不播的肯定不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 20744#       发表于 2021-7-20 10:25
+
+
+当野男人就该打游戏厉害 好带你麻上分如喝水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 20745#       发表于 2021-7-20 10:29
+
+
+我也许不能带咩阿上分，但我可以带咩阿喝水（<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 20746#       发表于 2021-7-20 10:29
+
+
+说句恶心的，我可以喝
+
+
+*****
+
+####  Klience  
+##### 20747#       发表于 2021-7-20 10:36
+
+
+那。。。你带他喝水？
+
+
+                                                 

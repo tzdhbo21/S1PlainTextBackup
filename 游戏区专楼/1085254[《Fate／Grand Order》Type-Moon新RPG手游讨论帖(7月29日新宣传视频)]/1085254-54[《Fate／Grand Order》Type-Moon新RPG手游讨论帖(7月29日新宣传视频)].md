@@ -9021,3 +9021,36 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 80206#       发表于 2021-7-20 10:18
+
+
+ 本帖最后由 zakki 于 2021-7-20 10:21 编辑 
+
+隔壁nga有个帖子直球对你楼开火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快打起来.jpg
+
+
+*****
+
+####  qixinno2  
+##### 80207#       发表于 2021-7-20 10:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TTK,YZMTTK
+
+
+*****
+
+####  angelooo  
+##### 80208#       发表于 2021-7-20 10:33
+
+
+<blockquote>zakki 发表于 2021-7-20 10:18
+隔壁nga有个帖子直球对你楼开火快打起来.jpg</blockquote>
+那边不是还把扶他吧的回复直接截图吊路灯吗？传统艺能了
+
+
+                                                 
