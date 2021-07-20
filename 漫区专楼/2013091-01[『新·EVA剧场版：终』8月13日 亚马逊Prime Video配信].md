@@ -854,3 +854,34 @@ https://www.amazon.co.jp/dp/B098T51T7X?tag=nataliecomic-22
 
 
                                                  
+
+*****
+
+####  panzerkamf  
+##### 79#       发表于 2021-7-20 18:07
+
+
+快进到我是天鹰一号驾驶员碇信志
+
+
+*****
+
+####  红都剧院24排4号  
+##### 80#       发表于 2021-7-20 18:09
+
+
+哆啦A梦不就是陆台混合
+
+蓝胖的配音明显是湾湾
+
+
+*****
+
+####  Franc  
+##### 81#       发表于 2021-7-20 18:11
+
+
+非常好，刚好在我的prime video六个月免费会员期之内<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

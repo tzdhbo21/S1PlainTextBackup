@@ -1957,3 +1957,39 @@ syl 黛灰有发推说明原因
 
 
                                                  
+
+*****
+
+####  死体残留  
+##### 4670#       发表于 2021-7-20 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52033923&amp;ptid=1972669" target="_blank">CAserlumos 发表于 2021-7-20 16:42</a>
+去翻了翻月亮龙大号，第三第四赛季猎杀，几乎不玩新英雄，这赛季黄金4上赛季钻4。现在不知道单排大师还上不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">新英雄强的她玩的，之前玩地平线的。不过她说玩什么官方削什么
+
+
+*****
+
+####  烯丝短尾猫  
+##### 4671#       发表于 2021-7-20 18:09
+
+
+ 本帖最后由 烯丝短尾猫 于 2021-7-20 18:12 编辑 
+
+现在单排大师有时间场次打的多就能上吧，要么就是猎杀前排一路杀上去
+
+
+*****
+
+####  渡鸦骑士  
+##### 4672#       发表于 2021-7-20 18:17
+
+
+ 本帖最后由 渡鸦骑士 于 2021-7-20 18:19 编辑 
+
+https://vee-official.jp/索尼音乐自己招VTB了。
+嗯？虹和索尼音乐签约的是哪几个来着？
+
+
+                                                 

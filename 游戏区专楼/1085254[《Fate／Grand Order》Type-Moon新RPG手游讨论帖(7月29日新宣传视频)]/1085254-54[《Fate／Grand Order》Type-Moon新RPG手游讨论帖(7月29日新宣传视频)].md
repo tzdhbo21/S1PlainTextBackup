@@ -9241,3 +9241,28 @@ QQ图片20210720110240.png
 
 
                                                 
+
+*****
+
+####  光影mk2  
+##### 80224#       发表于 2021-7-20 18:11
+
+
+有人知道亚丽百种和亚铃百种有啥联系么
+
+
+*****
+
+####  exiaexa  
+##### 80225#       发表于 2021-7-20 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52034897&amp;ptid=1085254" target="_blank">光影mk2 发表于 2021-7-20 18:11</a>
+
+有人知道亚丽百种和亚铃百种有啥联系么</blockquote>
+目前来说还停留在a-ray谐音梗的范畴
+
+具体是平行世界还是设计原形或者干脆就坑了，就看第三部分会不会抖新料了
+
+
+                                                 

@@ -14568,3 +14568,302 @@ wdnm 这迅雷下的观战文件打开里面都没有换行的 吐了 找路径�
 
 
                                                  
+
+*****
+
+####  T_Hb  
+##### 20839#       发表于 2021-7-20 17:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 20840#       发表于 2021-7-20 17:02
+
+
+这麻波比皮肤万年不变<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20841#       发表于 2021-7-20 17:03
+
+
+说起来这人是不是很久没打LOL直播了，三个月了？
+
+
+*****
+
+####  Klience  
+##### 20842#       发表于 2021-7-20 17:04
+
+
+两个月 五月份和绿熊还有野男人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 20843#       发表于 2021-7-20 17:06
+
+
+她播不播101我倒无所谓 反正她私下我还能观战看她玩别的英雄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 20844#       发表于 2021-7-20 17:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正我看不懂
+
+
+*****
+
+####  airclab  
+##### 20845#       发表于 2021-7-20 17:11
+
+
+别 别来b限lol  刀斯林不想看   让她自己不播打就可以了  
+
+
+*****
+
+####  T_Hb  
+##### 20846#       发表于 2021-7-20 17:12
+
+
+才b限过了，肯定没b限
+
+
+*****
+
+####  Klience  
+##### 20847#       发表于 2021-7-20 17:13
+
+
+唉 还是看这人玩波比舒服 不愧是波比人柱力 你玩什么辅助露露 被人打得那么难看
+
+
+*****
+
+####  时间在我手中  
+##### 20848#       发表于 2021-7-20 17:13
+
+
+也是  听闻你楼有人听到她说想打只狼通关<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">赶紧把一心战端上来受苦吧
+
+
+*****
+
+####  路人庚  
+##### 20849#       发表于 2021-7-20 17:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52034119&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-7-20 16:59</a>
+
+我反正是没办法，难不成你要我玩那种圈外缝合梗引流不成
+
+
+那我没这个天赋，就一个臭打轴的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主播要保持热度必须要一直缝合其他梗啊，大司马都靠肌肉金轮再火了一波不是
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但你咩姐觉得不需要，所以也不用操这种心
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Klience| + 1|大司马那有点辣眼睛|
+
+
+查看全部评分
+
+
+*****
+
+####  时间在我手中  
+##### 20850#       发表于 2021-7-20 17:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52034278&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-20 17:13</a>
+
+主播要保持热度必须要一直缝合其他梗啊，大司马都靠肌肉金轮再火了一波不是
+
+
+但你咩姐觉得 ...</blockquote>
+肌肉金轮····你还不如说某105度的你···
+
+
+难不成要我滚去学人力VOCALOID那些套路吗，讲真挺hape的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  T_Hb  
+##### 20851#       发表于 2021-7-20 17:19
+
+
+ 本帖最后由 T_Hb 于 2021-7-20 17:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">何必做些自己不开心的来消耗自己热情
+
+
+*****
+
+####  路人庚  
+##### 20852#       发表于 2021-7-20 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52034326&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-7-20 17:17</a>
+
+肌肉金轮····你还不如说某105度的你···
+
+
+难不成要我滚去学人力VOCALOID那些套路吗，讲真挺hape的[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没，如果想去做点什么还是以自己的兴趣优先更好，为了数字而行动太容易失去快乐了
+
+
+*****
+
+####  雪风utopia  
+##### 20853#       发表于 2021-7-20 17:23
+
+
+你麻自己的数据肯定比她事业的数据上涨的快，毕竟一天除了吃就是睡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20854#       发表于 2021-7-20 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52034372&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-20 17:22</a>
+
+没，如果想去做点什么还是以自己的兴趣优先更好，为了数字而行动太容易失去快乐了 ...</blockquote>
+没啥特别的兴趣爱好，我和吊人爱好差距其实相当远
+
+
+数字这东西我倒不是很在意，只不过你要说现在动力很足也是自欺欺人，毕竟我现在整个人都很懒
+
+
+其实也可能是死线将至焦虑犯了，真麻烦
+
+
+*****
+
+####  十九号大侠  
+##### 20855#       发表于 2021-7-20 17:32
+
+
+大司马，那是真懂直播，小麻是不可能学的，tang
+
+
+*****
+
+####  T_Hb  
+##### 20856#       发表于 2021-7-20 17:44
+
+
+ 本帖最后由 T_Hb 于 2021-7-20 18:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天会播吗，想听歌了
+
+syl
+
+
+<img src="https://img.saraba1st.com/forum/202107/20/180500y1gfzg106goz1ld2.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (28.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-20 18:05 上传
+
+
+*****
+
+####  Klience  
+##### 20857#       发表于 2021-7-20 17:59
+
+
+难得看你麻打得那么好的战绩 打了40分钟 波比18/5<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 20858#       发表于 2021-7-20 18:01
+
+
+打的开心就唱歌是吧 好！
+
+
+*****
+
+####  ashero  
+##### 20859#       发表于 2021-7-20 18:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该唱了 来点新歌 比如东京复仇者op cry baby
+
+
+这首真的超级难的 要是学会了那是真的牛逼
+
+
+*****
+
+####  时间在我手中  
+##### 20860#       发表于 2021-7-20 18:05
+
+
+舒服了，弱智一下午不亏
+
+
+*****
+
+####  Klience  
+##### 20861#       发表于 2021-7-20 18:06
+
+
+ 本帖最后由 Klience 于 2021-7-20 18:08 编辑 
+
+发完推又开始打了 怕是打到上播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 草 辅助露露 算了 这把不看了  免得血压拉高
+
+
+*****
+
+####  路人庚  
+##### 20862#       发表于 2021-7-20 18:11
+
+
+今天播的早啊
+
+
+*****
+
+####  往世雷书  
+##### 20863#       发表于 2021-7-20 18:16
+
+
+爬完两页，别人是事业民，et是暗黑事业民<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                
