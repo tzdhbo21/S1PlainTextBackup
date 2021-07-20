@@ -6387,7 +6387,7 @@ material9下月发售
 
                                                  
 
------
+*****
 
 ####  zakki  
 ##### 80028#       发表于 2021-7-16 19:40
@@ -6400,7 +6400,7 @@ material9下月发售
 那奥伯龙怎么放？明显8月是奥伯龙主场吧
 
 
------
+*****
 
 ####  zakki  
 ##### 80029#       发表于 2021-7-16 19:41
@@ -6409,7 +6409,7 @@ material9下月发售
 不过不觉得8月4号会有新池子，8月1号才开周年池，如果奥伯龙是红拐那放在周年也很正常
 
 
------
+*****
 
 ####  khxooo  
 ##### 80030#       发表于 2021-7-16 20:00
@@ -6418,7 +6418,7 @@ material9下月发售
 CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rzxa  
 ##### 80031#       发表于 2021-7-16 20:20
@@ -6429,7 +6429,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 80032#       发表于 2021-7-16 21:55
@@ -6441,7 +6441,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 这是我第一次打完主线后想直接开骂的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AbigailWilliams  
 ##### 80033#       发表于 2021-7-16 22:45
@@ -6455,7 +6455,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 审判菌类的时候到了？细说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80034#       发表于 2021-7-16 22:57
@@ -6470,7 +6470,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 现在就看8月4号后的剧情能不能来个大反转
 
 
------
+*****
 
 ####  angelooo  
 ##### 80035#       发表于 2021-7-16 23:01
@@ -6481,7 +6481,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 卖摩根和妖崔的母女百合应该是想要感动人但我只想发笑，这段几个搞阴谋的妖精领主写得更有意思些
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 80036#       发表于 2021-7-16 23:02
@@ -6490,7 +6490,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 后篇开放后一直闭关推剧情 没看任何剧透 一边心里攒着吐槽一边想象网上对这里那里是怎样的讨论 现在打完了 我一句话都说不出<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sosgame67  
 ##### 80037#       发表于 2021-7-16 23:03
@@ -6499,7 +6499,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 没关系，死掉的可以是分身/还有复活后手<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说实话蘑菇吹了半天的文本量现在看来完全没啥阅读体验，加上分割放送（8.4号要是搞不定还有265）这剧情体验实在糟糕，我已经迫不及待等8.4公审蘑菇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 80038#       发表于 2021-7-16 23:12
@@ -6511,7 +6511,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 是啊，欧罗拉真的是狐狸，基本上全部人都被她玩弄了。幕后Boss不是奥伯龙就是她了。
 
 
------
+*****
 
 ####  里村紅葉  
 ##### 80039#       发表于 2021-7-16 23:22
@@ -6522,7 +6522,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
                                                  
 
------
+*****
 
 ####  zore  
 ##### 80040#       发表于 2021-7-16 23:41
@@ -6535,7 +6535,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80041#       发表于 2021-7-16 23:58
@@ -6546,7 +6546,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 卡翻页，编辑了
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80042#       发表于 2021-7-16 23:59
@@ -6558,7 +6558,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80043#       发表于 2021-7-17 00:05
@@ -6602,7 +6602,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
                                                 
 
------
+*****
 
 ####  森兰丸  
 ##### 80044#       发表于 2021-7-17 04:44
@@ -6619,7 +6619,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
                                                  
 
------
+*****
 
 ####  areklose  
 ##### 80045#       发表于 2021-7-17 09:16
@@ -6630,7 +6630,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
                                                  
 
------
+*****
 
 ####  AbigailWilliams  
 ##### 80046#       发表于 2021-7-17 10:01
@@ -6641,7 +6641,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 别说什么异闻带的事情<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 80047#       发表于 2021-7-17 10:22
@@ -6656,7 +6656,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  areklose  
 ##### 80048#       发表于 2021-7-17 10:24
@@ -6673,7 +6673,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
                                                  
 
------
+*****
 
 ####  eyeego  
 ##### 80049#       发表于 2021-7-17 11:42
@@ -6683,7 +6683,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 加保底这不得扯到人口买卖上去<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80050#       发表于 2021-7-17 11:50
@@ -6695,7 +6695,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 还不如祈祷在送个常驻5星
 
 
------
+*****
 
 ####  zakki  
 ##### 80051#       发表于 2021-7-17 11:52
@@ -6706,7 +6706,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 细说，所以是个什么评价
 
 
------
+*****
 
 ####  zakki  
 ##### 80052#       发表于 2021-7-17 11:55
@@ -6715,7 +6715,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 虽然我没看完，但有一说一这章作为2.5后的章节爆点和主线推动的是不是过于少了，像是又回到了2.2，2.3的剧情模式，讲讲异闻带，推翻下异闻带王就没了。冠位呢，兽呢，异星神呢，还有老福的秘密，戴比特的从者，该透露点儿了吧。感觉像是蘑菇写嗨了写成了个纯外传一样
 
 
------
+*****
 
 ####  khxooo  
 ##### 80053#       发表于 2021-7-17 12:00
@@ -6726,7 +6726,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 
                                                  
 
------
+*****
 
 ####  zore  
 ##### 80054#       发表于 2021-7-17 12:38
@@ -6735,7 +6735,7 @@ CD服也满级了，衣服自由了<img src="https://static.saraba1st.com/image/
 YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xpisces  
 ##### 80055#       发表于 2021-7-17 12:41
@@ -6748,7 +6748,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 80056#       发表于 2021-7-17 13:36
@@ -6775,7 +6775,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 8月4号敬请期待<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  miro112233  
 ##### 80057#       发表于 2021-7-17 13:57
@@ -6784,7 +6784,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 别说保底了，今年的四星从者还没送呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">可能yls去年送了五星心疼到现在吧
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80058#       发表于 2021-7-17 14:09
@@ -6805,7 +6805,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  khxooo  
 ##### 80059#       发表于 2021-7-17 14:40
@@ -6814,7 +6814,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 万万没想到又是卡龙鳞，以为已经从这个地狱逃出来了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 80060#       发表于 2021-7-17 14:44
@@ -6829,7 +6829,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 我知道不是最后一节啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80061#       发表于 2021-7-17 14:45
@@ -6838,7 +6838,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">顺便奶口真boss是欧罗拉。。感觉已经差不多把我才是幕后黑手写脸上了
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80062#       发表于 2021-7-17 14:58
@@ -6851,7 +6851,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 80063#       发表于 2021-7-17 15:08
@@ -6862,7 +6862,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 不过2.6这个剧情反转我个人还是蛮喜欢的，前面对妖精生态的各种描写现在想想全是再给最后的背刺做铺垫啊，这帮子屑妖精只是送回世界里侧实在是太便宜他们了，就应该统统消灭一个不留<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有就是王姐的池子开错时间了吧，你要是放到二期，氪爆的人肯定更多，最后2节的反转实在太吸粉了。
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80064#       发表于 2021-7-17 15:11
@@ -6874,7 +6874,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就不一样了 除非84来个超级大反转 不然这剧情在我眼里可能是2部里最垃圾的 没有看的价值
 
 
------
+*****
 
 ####  skives  
 ##### 80065#       发表于 2021-7-17 15:17
@@ -6884,7 +6884,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 这写的是个啥玩意
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 80066#       发表于 2021-7-17 15:19
@@ -6898,7 +6898,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 80067#       发表于 2021-7-17 15:26
@@ -6918,7 +6918,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 这要是8。4还没完结真来个“完结篇”的话  那画面简直太美了 无法直视
 
 
------
+*****
 
 ####  angelooo  
 ##### 80068#       发表于 2021-7-17 15:49
@@ -6929,7 +6929,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  sosgame67  
 ##### 80069#       发表于 2021-7-17 16:57
@@ -6938,7 +6938,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 等等等等，虽然目前的体感拉跨但还没到252那种粪作的程度吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80070#       发表于 2021-7-17 17:01
@@ -6955,7 +6955,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80071#       发表于 2021-7-17 17:04
@@ -6964,7 +6964,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能摩根还没死透呢（
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80072#       发表于 2021-7-17 17:05
@@ -6985,7 +6985,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80073#       发表于 2021-7-17 17:10
@@ -7014,7 +7014,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 80074#       发表于 2021-7-17 17:17
@@ -7030,7 +7030,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 不列颠本来就没有空想树了，作为代替可能会要主角团屠龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80075#       发表于 2021-7-17 17:18
@@ -7045,7 +7045,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是dw太废物  要是前后篇  这个前篇是在现在这里停下 可能给人的感觉就大不一样了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80076#       发表于 2021-7-17 17:23
@@ -7061,7 +7061,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                 
 
------
+*****
 
 ####  khxooo  
 ##### 80077#       发表于 2021-7-17 17:31
@@ -7073,7 +7073,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 不奇怪，能做出分身跟我们战斗，为什么不能一开始看见的就是分身<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 80078#       发表于 2021-7-17 17:33
@@ -7089,7 +7089,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 80079#       发表于 2021-7-17 18:45
@@ -7098,7 +7098,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 你们是不是忘了巨坑里还有个古神尸体在......妖崔都直接跳进去了....主线里妖崔的3破样子都还没出现
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80080#       发表于 2021-7-17 18:49
@@ -7112,7 +7112,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">所以说啊 就是看了个寂寞  讲的什么xx玩意
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80081#       发表于 2021-7-17 19:14
@@ -7129,7 +7129,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 现在就是挖了一堆坑一个也没填就结束了.....卡在这个节骨眼上的确非常难受....8月4号后的剧情再写不好蘑菇就真可以封笔了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80082#       发表于 2021-7-17 19:16
@@ -7143,7 +7143,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">至于8。4 等一个最后的最后预告个完结篇 明年上线
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80083#       发表于 2021-7-17 19:22
@@ -7160,7 +7160,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 80084#       发表于 2021-7-17 19:57
@@ -7177,7 +7177,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 真要是假死诈尸有必要整这一出么
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 80085#       发表于 2021-7-17 20:07
@@ -7189,7 +7189,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80086#       发表于 2021-7-17 20:12
@@ -7210,7 +7210,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 整个妖精乡掌握了所有现状的只有她一个人，欧罗拉不一定知道大洞底部的古神，ロンゴミニアド到现在都还没找到，帕西瓦尔又一股子要跟她姐相爱相杀的样子，摩根不回来只靠不列颠现在这群沙雕你都不知道怎么收尾
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80087#       发表于 2021-7-17 20:17
@@ -7230,7 +7230,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 80088#       发表于 2021-7-17 20:54
@@ -7251,7 +7251,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 相反这摩根给我的感觉就是个一点心机也没有的傻白甜....派白狗去打圆桌军...也派了援军....然后就不闻不问了....根本不知道战场上发生了些什么...白狗打输了后也没有一点关心的样子.....派出去的马头被谁干死了也不知道....还要问妖高....也根本不知道妖高会反叛和手下的氏族长都在想些什么吧.....最后就硬是被这些了色沙雕妖精暗算....还死的这么难看....这种执政手段你不死谁死
 
 
------
+*****
 
 ####  angelooo  
 ##### 80089#       发表于 2021-7-17 21:08
@@ -7265,7 +7265,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 其实我也觉得她是那三个字，但隔壁的风向就是妖精都是一些完全无法沟通行事毫无逻辑的深井冰乐色，她做啥都没用，你行你上啊.jpg
 
 
------
+*****
 
 ####  シャル  
 ##### 80090#       发表于 2021-7-17 21:18
@@ -7287,7 +7287,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 包括用崩落威胁把迦勒底引来不列颠全都是千年前就计划好的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80091#       发表于 2021-7-17 21:21
@@ -7304,7 +7304,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 然后你看人类的统治者是怎么治国的
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80092#       发表于 2021-7-17 21:22
@@ -7331,7 +7331,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 80093#       发表于 2021-7-17 21:28
@@ -7346,7 +7346,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多想点 万一是计划通呢
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80094#       发表于 2021-7-17 21:44
@@ -7370,7 +7370,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 而说摩根的观感差也就是这些设定完全脱离于游戏实际剧情.....既然摩根都设定成这样了...那怎么都该是一个冷酷无情的铁血统治者的印象吧.....已经维持了2000年的统治....手下应该都对摩根充满了恐怖和畏敬才对...结果实际又是怎么样的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80095#       发表于 2021-7-17 21:53
@@ -7392,7 +7392,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  angelooo  
 ##### 80096#       发表于 2021-7-17 22:00
@@ -7413,7 +7413,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  シャル  
 ##### 80097#       发表于 2021-7-18 00:04
@@ -7432,7 +7432,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 80098#       发表于 2021-7-18 01:59
@@ -7457,7 +7457,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  newfaceryo  
 ##### 80099#       发表于 2021-7-18 12:54
@@ -7476,7 +7476,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  fantuanxiaoyi  
 ##### 80100#       发表于 2021-7-18 13:38
@@ -7489,7 +7489,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 80101#       发表于 2021-7-18 13:46
@@ -7500,7 +7500,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 呃，翻页
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 80102#       发表于 2021-7-18 13:48
@@ -7509,7 +7509,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 呃，翻页
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 80103#       发表于 2021-7-18 13:49
@@ -7535,7 +7535,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 你再看看废狗这效率，再给他部悲惨世界dw能做的完吗？
 
 
------
+*****
 
 ####  qixinno2  
 ##### 80104#       发表于 2021-7-18 13:54
@@ -7544,7 +7544,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非最后打完送我一个摩根和妖兰 不然2.6就是辣鸡
 
 
------
+*****
 
 ####  シャル  
 ##### 80105#       发表于 2021-7-18 14:34
@@ -7566,7 +7566,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                 
 
------
+*****
 
 ####  alucardcz  
 ##### 80106#       发表于 2021-7-18 14:53
@@ -7584,7 +7584,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  newfaceryo  
 ##### 80107#       发表于 2021-7-18 15:53
@@ -7612,7 +7612,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 蘑菇你要是不给哈贝喵一个happy end我和你没完。<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  シャル  
 ##### 80108#       发表于 2021-7-18 16:01
@@ -7652,7 +7652,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 开始的无名精灵是谁
 
 
------
+*****
 
 ####  シャル  
 ##### 80109#       发表于 2021-7-18 16:11
@@ -7669,7 +7669,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 这不就是时间驳论了
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 80110#       发表于 2021-7-18 16:13
@@ -7688,7 +7688,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 女王历开始才能算是真正的历史。
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 80111#       发表于 2021-7-18 16:21
@@ -7697,7 +7697,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 说起来灵脉石这个月底就过期了 但剩下的篇幅下个月才开 这排期到底咋回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80112#       发表于 2021-7-18 16:22
@@ -7714,7 +7714,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  シャル  
 ##### 80113#       发表于 2021-7-18 16:30
@@ -7733,7 +7733,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 女王历0年以后的妖精历都不存在了，那么老贝在妖精历召唤摩根也是不存在的
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 80114#       发表于 2021-7-18 16:36
@@ -7756,7 +7756,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 红a杀掉了士郎并不会导致平行世界的自己不存在啊
 
 
------
+*****
 
 ####  khxooo  
 ##### 80115#       发表于 2021-7-18 16:39
@@ -7767,7 +7767,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 估计是再发，然后是“福利”之一<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  bikalu  
 ##### 80116#       发表于 2021-7-18 17:16
@@ -7778,7 +7778,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  alucardcz  
 ##### 80117#       发表于 2021-7-18 17:38
@@ -7790,7 +7790,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冷知识 现在就是后篇   所以只能是完结篇了(
 
 
------
+*****
 
 ####  シャル  
 ##### 80118#       发表于 2021-7-18 17:45
@@ -7811,7 +7811,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  الطائر  
 ##### 80119#       发表于 2021-7-18 20:17
@@ -7824,7 +7824,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  sk86  
 ##### 80120#       发表于 2021-7-18 21:12
@@ -7835,7 +7835,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  里村紅葉  
 ##### 80121#       发表于 2021-7-18 21:32
@@ -7844,7 +7844,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 等一个8月4号后半急急忙忙结尾，后续2.6.5再开断章上中下接着续<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  シャル  
 ##### 80122#       发表于 2021-7-18 21:41
@@ -7856,7 +7856,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 再来10章左右差不多能把剩下的恶人都做掉了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 80123#       发表于 2021-7-18 21:43
@@ -7865,7 +7865,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 反正，看剧情里那意思狐狸肯定也是要专门开一节出来打的，2.6.5逃不掉的……
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80124#       发表于 2021-7-18 21:53
@@ -7876,7 +7876,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 难不成10几章都用杂兵和莫斯来充数么
 
 
------
+*****
 
 ####  areklose  
 ##### 80125#       发表于 2021-7-18 22:01
@@ -7888,7 +7888,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">致敬机器人大战F吗，还有追加新参战吗
 
 
------
+*****
 
 ####  シャル  
 ##### 80126#       发表于 2021-7-18 22:22
@@ -7915,7 +7915,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 80127#       发表于 2021-7-18 22:37
@@ -7943,7 +7943,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 还有最后2个真有的话也是要最终章才放出来啊
 
 
------
+*****
 
 ####  シャル  
 ##### 80128#       发表于 2021-7-18 22:43
@@ -7961,7 +7961,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 中村说不定有秘密武器呢，毕竟穿越1百多年了
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80129#       发表于 2021-7-18 22:43
@@ -7980,7 +7980,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80130#       发表于 2021-7-18 22:48
@@ -7997,7 +7997,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
 
------
+*****
 
 ####  シャル  
 ##### 80131#       发表于 2021-7-18 22:51
@@ -8016,7 +8016,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 万一技能インセクトイーター拓展了能吸收其他人能力呢
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 80132#       发表于 2021-7-18 22:54
@@ -8030,7 +8030,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 后面还有古神一系黑幕一系呢，要凑几场仗有什么难的。大不了上双足飞龙啊。
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80133#       发表于 2021-7-18 22:57
@@ -8050,7 +8050,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 反正一个字.....“拖”
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80134#       发表于 2021-7-18 23:08
@@ -8071,7 +8071,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                 
 
------
+*****
 
 ####  exiaexa  
 ##### 80135#       发表于 2021-7-18 23:45
@@ -8092,7 +8092,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白金口袋  
 ##### 80136#       发表于 2021-7-19 00:07
@@ -8124,7 +8124,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 这种一直以来朝夕相处从0好感慢慢发展到满的小伙伴在最终局面相爱相杀的愉悦剧情我觉得木野子小姐是相当喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80137#       发表于 2021-7-19 00:19
@@ -8141,7 +8141,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妖高那个新伴侣必有问题 不知道会不会把人类不能移民这事捞出来
 
 
------
+*****
 
 ####  eyeego  
 ##### 80138#       发表于 2021-7-19 00:27
@@ -8153,7 +8153,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  黑上シグマ  
 ##### 80139#       发表于 2021-7-19 00:53
@@ -8168,7 +8168,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  eyeego  
 ##### 80140#       发表于 2021-7-19 01:04
@@ -8182,7 +8182,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 一般7月头总归会有几张图出来的 这次是完全一点都没有<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80141#       发表于 2021-7-19 01:28
@@ -8194,7 +8194,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不管人类还是妖精....移民这事肯定是不成的....之前的异闻带都全灭了....哪有这次的异闻带就能拯救一些原住民的道理
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 80142#       发表于 2021-7-19 02:12
@@ -8208,7 +8208,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 每年泳装都是周年活动公布的，看周年生放结束后有没有呗，
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 80143#       发表于 2021-7-19 02:13
@@ -8222,7 +8222,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  newfaceryo  
 ##### 80144#       发表于 2021-7-19 02:36
@@ -8235,7 +8235,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  森兰丸  
 ##### 80145#       发表于 2021-7-19 04:17
@@ -8252,7 +8252,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  黑上シグマ  
 ##### 80146#       发表于 2021-7-19 07:04
@@ -8269,7 +8269,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  zakki  
 ##### 80147#       发表于 2021-7-19 09:37
@@ -8281,7 +8281,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 什么时候有过？泳装一直都是周年公布一期卡池的几个，然后直到泳装活动开始。从3周年开始到现在一直是这样
 
 
------
+*****
 
 ####  areklose  
 ##### 80148#       发表于 2021-7-19 10:07
@@ -8295,7 +8295,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 周年都是长草。偶然会出个班扬那种超小活动
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 80149#       发表于 2021-7-19 10:24
@@ -8311,7 +8311,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  xiongxingyu  
 ##### 80150#       发表于 2021-7-19 10:36
@@ -8322,7 +8322,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  UNISONIA  
 ##### 80151#       发表于 2021-7-19 11:00
@@ -8339,7 +8339,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 去年没什么变化就只保留周年那一期有特报了，然后周年生放常规地给个一池的预告
 
 
------
+*****
 
 ####  rollingusagi  
 ##### 80152#       发表于 2021-7-19 11:03
@@ -8348,7 +8348,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我看有不少人已经在怀疑欧若拉不是妖精是人类了，表面摆出一副正义明君的形象，拉拢了大批妖精和人类势力，乘圆桌军不在屠杀伦敦据点的老幼平民并指使妖兰杀害加雷斯，反间摩根亲信，以及最后歪曲事实把所有锅甩给摩根煽动群众的手法（咕哒至今还被蒙在鼓里不过小番茄好像已经看到端倪了）。这怎么看都不像是本质纯粹的妖精能干出的事，反倒和斯普利跟这种人类很像，她和最初那个人类巫女有关系？
 
 
------
+*****
 
 ####  シャル  
 ##### 80153#       发表于 2021-7-19 11:42
@@ -8360,7 +8360,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 阿托尼斯不要是希腊神话那个美少年
 
 
------
+*****
 
 ####  シャル  
 ##### 80154#       发表于 2021-7-19 11:52
@@ -8388,7 +8388,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 对摩根来说是猪队友，对家乐迪来说就是神助攻了
 
 
------
+*****
 
 ####  シャル  
 ##### 80155#       发表于 2021-7-19 11:55
@@ -8400,7 +8400,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 哪里的话，马克是个好妖精，请回来管理厨房吧
 
 
------
+*****
 
 ####  rollingusagi  
 ##### 80156#       发表于 2021-7-19 12:19
@@ -8417,7 +8417,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
                                                  
 
------
+*****
 
 ####  シャル  
 ##### 80157#       发表于 2021-7-19 13:42
@@ -8435,7 +8435,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 没欧罗拉这三个关键点就过不去
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80158#       发表于 2021-7-19 14:25
@@ -8444,7 +8444,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去各地逛了逛 没想到这2。6前后篇居然还有人吹的  吃惊（
 
 
------
+*****
 
 ####  angelooo  
 ##### 80159#       发表于 2021-7-19 14:49
@@ -8455,7 +8455,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 什么，隔壁你不吹这个可是要被扣帽子的，S1这边几乎都在喷的才是少数23333
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80160#       发表于 2021-7-19 14:58
@@ -8469,7 +8469,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 
 
 
------
+*****
 
 ####  AbigailWilliams  
 ##### 80161#       发表于 2021-7-19 15:00
@@ -8480,7 +8480,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 应该说我就在这看到在喷，毕竟是菌类的招牌摆在那<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AbigailWilliams  
 ##### 80162#       发表于 2021-7-19 15:01
@@ -8491,7 +8491,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 应该说我就在这看到在喷，毕竟菌类的招牌摆在那<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  khxooo  
 ##### 80163#       发表于 2021-7-19 15:03
@@ -8502,7 +8502,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 毕竟是菌皇啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zakki  
 ##### 80164#       发表于 2021-7-19 15:09
@@ -8516,7 +8516,7 @@ YLS还要公审?<img src="https://static.saraba1st.com/image/smiley/face2017/004
 fami通放风也是周年之后了，记得那年刚开始喷武藏一破过于素，然后fami通出了2破瞬间反转，结果实装的时候3破一出又反转回去了
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80165#       发表于 2021-7-19 15:11
@@ -8530,7 +8530,7 @@ fami通放风也是周年之后了，记得那年刚开始喷武藏一破过于�
 
                                                 
 
------
+*****
 
 ####  angelooo  
 ##### 80166#       发表于 2021-7-19 16:11
@@ -8543,7 +8543,7 @@ fami通放风也是周年之后了，记得那年刚开始喷武藏一破过于�
 fami通那张牛仔比卡面还好看，大A真是能选以那张原画来出手办
 
 
------
+*****
 
 ####  仰望神的括约肌  
 ##### 80167#       发表于 2021-7-19 16:14
@@ -8554,7 +8554,7 @@ fami通那张牛仔比卡面还好看，大A真是能选以那张原画来出手
 dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  sosgame67  
 ##### 80168#       发表于 2021-7-19 16:25
@@ -8565,7 +8565,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
                                                  
 
------
+*****
 
 ####  zakki  
 ##### 80169#       发表于 2021-7-19 16:34
@@ -8577,7 +8577,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 问下头像的出处或者有大图吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zore  
 ##### 80170#       发表于 2021-7-19 16:35
@@ -8586,7 +8586,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 水武藏死于神秘包子头和三重内裤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zore  
 ##### 80171#       发表于 2021-7-19 16:41
@@ -8600,7 +8600,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 推好像叫wakura081
 
 
------
+*****
 
 ####  sosgame67  
 ##### 80172#       发表于 2021-7-19 16:46
@@ -8622,7 +8622,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 <img src="https://img.saraba1st.com/forum/202107/19/164611zb8b8bjbcbwbe28w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zakki  
 ##### 80173#       发表于 2021-7-19 16:54
@@ -8636,7 +8636,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 学到了，原来S1可以这么看全图
 
 
------
+*****
 
 ####  zakki  
 ##### 80174#       发表于 2021-7-19 16:54
@@ -8648,7 +8648,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 感谢，太涩了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  exiaexa  
 ##### 80175#       发表于 2021-7-19 16:55
@@ -8668,7 +8668,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sosgame67  
 ##### 80176#       发表于 2021-7-19 16:58
@@ -8680,7 +8680,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 你要考虑到大部分的fgo爱好者（特别是nga）是连fate原作都没接触过的蘑菇信者，反正有锅全是其他人背，连铁鱼这月球土木堡都有人洗地呢..<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80177#       发表于 2021-7-19 17:12
@@ -8692,7 +8692,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 什么 连fate原作也没接触过还能成为信者？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AbigailWilliams  
 ##### 80178#       发表于 2021-7-19 17:14
@@ -8701,7 +8701,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 铁鱼能洗不还是内部小圈子朋友衬托的好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  otsu  
 ##### 80179#       发表于 2021-7-19 17:15
@@ -8712,7 +8712,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
                                                  
 
------
+*****
 
 ####  exiaexa  
 ##### 80180#       发表于 2021-7-19 17:39
@@ -8725,7 +8725,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不垃圾屌丝  
 ##### 80181#       发表于 2021-7-19 17:45
@@ -8737,7 +8737,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  smdzh2  
 ##### 80182#       发表于 2021-7-19 18:23
@@ -8748,7 +8748,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
                                                  
 
------
+*****
 
 ####  zakki  
 ##### 80183#       发表于 2021-7-19 18:46
@@ -8757,7 +8757,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 还有一点就是一堆人把期待值全带到8月4号，结果要是8月4号一看真是个后记只有一节那怕是会反转
 
 
------
+*****
 
 ####  khxooo  
 ##### 80184#       发表于 2021-7-19 19:04
@@ -8769,7 +8769,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 到时候估计日本那边也炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  newfaceryo  
 ##### 80185#       发表于 2021-7-19 19:17
@@ -8785,7 +8785,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 一碗饭吃20年
 
 
------
+*****
 
 ####  zakki  
 ##### 80186#       发表于 2021-7-19 19:18
@@ -8798,7 +8798,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
                                                  
 
------
+*****
 
 ####  zakki  
 ##### 80187#       发表于 2021-7-19 19:23
@@ -8807,7 +8807,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 我挺好奇到底什么时候打算把加拉哈德放出来，2.6都没半点儿信儿。加拉哈德就在lostroom里跑出来嘲讽了几句后，就再也没出来过了，怕不是蘑菇早忘了
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 80188#       发表于 2021-7-19 19:24
@@ -8816,7 +8816,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 炎上是没有，官推下面冷嘲热讽倒是有
 
 
------
+*****
 
 ####  zakki  
 ##### 80189#       发表于 2021-7-19 19:34
@@ -8827,7 +8827,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 真的是人不要脸则无敌
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80190#       发表于 2021-7-19 19:36
@@ -8841,7 +8841,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
 
 
------
+*****
 
 ####  zakki  
 ##### 80191#       发表于 2021-7-19 19:41
@@ -8852,7 +8852,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 所以dw才会这么不要脸，yls这次都不敢在一开始说了，只敢在生放结束前两分钟悄悄提一嘴
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80192#       发表于 2021-7-19 19:42
@@ -8861,7 +8861,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻页
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80193#       发表于 2021-7-19 19:42
@@ -8870,7 +8870,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 再翻页
 
 
------
+*****
 
 ####  zore  
 ##### 80194#       发表于 2021-7-19 19:48
@@ -8879,7 +8879,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以去2ch看看
 
 
------
+*****
 
 ####  areklose  
 ##### 80195#       发表于 2021-7-19 19:50
@@ -8888,7 +8888,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 我是奇怪是8月4日这微妙日期，你要是周年前一天放，然后后一天放奥伯龙UP多好。我就怕来个完结篇上。
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 80196#       发表于 2021-7-19 19:51
@@ -8900,7 +8900,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后你楼某个自称萌新还在那里质疑我瞎说
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80197#       发表于 2021-7-19 19:57
@@ -8912,7 +8912,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新直播关的早啊 能怪我吗 而且公告也没提 这种东西之前公告都会写 只能说dw铁废物
 
 
------
+*****
 
 ####  黑上シグマ  
 ##### 80198#       发表于 2021-7-19 20:00
@@ -8926,7 +8926,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁让你关得早的，不怪你怪谁
 
 
------
+*****
 
 ####  alucardcz  
 ##### 80199#       发表于 2021-7-19 20:01
@@ -8938,7 +8938,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新觉得已经没看下去的必要了 谁知道还能这么废物呢（
 
 
------
+*****
 
 ####  miro112233  
 ##### 80200#       发表于 2021-7-19 20:36
@@ -8955,7 +8955,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
                                                 
 
------
+*****
 
 ####  zakki  
 ##### 80201#       发表于 2021-7-19 20:49
@@ -8966,7 +8966,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 原来他还记得，那就奇怪了，2.6不出场是真打算放到终章吗
 
 
------
+*****
 
 ####  森兰丸  
 ##### 80202#       发表于 2021-7-19 20:56
@@ -8975,7 +8975,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盾娘在2.6都是巅峰期了......你还指望加拉哈德能出来啊？
 
 
------
+*****
 
 ####  miro112233  
 ##### 80203#       发表于 2021-7-19 21:03
@@ -8989,7 +8989,7 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
                                                  
 
------
+*****
 
 ####  白金口袋  
 ##### 80204#       发表于 2021-7-20 00:39

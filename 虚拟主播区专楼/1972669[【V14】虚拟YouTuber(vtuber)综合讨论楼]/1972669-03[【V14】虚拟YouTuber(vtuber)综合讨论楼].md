@@ -17143,7 +17143,7 @@ holostats没事，这种分类感觉还挺好的，建议以后都分社设立�
 
                                                  
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 4279#       发表于 2021-7-16 18:39
@@ -17159,7 +17159,7 @@ hiyoko这是给甚么大手搞了啊  说实话很迷惑。现在比较关心�
 自己的说法是家里有人大病了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  OldGlory  
 ##### 4280#       发表于 2021-7-16 19:08
@@ -17170,7 +17170,7 @@ hiyoko这是给甚么大手搞了啊  说实话很迷惑。现在比较关心�
 Rain Drops Radio 『OBS』#2
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4281#       发表于 2021-7-16 19:10
@@ -17179,7 +17179,7 @@ Rain Drops Radio 『OBS』#2
 电视剧片尾曲？！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nian1538  
 ##### 4282#       发表于 2021-7-16 19:20
@@ -17188,7 +17188,7 @@ Rain Drops Radio 『OBS』#2
 HoloStats的同接也没了
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 4283#       发表于 2021-7-16 19:39
@@ -17198,7 +17198,7 @@ HoloStats的同接也没了
 说起来社歌004也出了，琥珀还行！
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 4284#       发表于 2021-7-16 20:00
@@ -17216,7 +17216,7 @@ https://b23.tv/MRK9Im
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  biye  
 ##### 4285#       发表于 2021-7-16 20:01
@@ -17226,7 +17226,7 @@ https://b23.tv/MRK9Im
 [https://www.youtube.com/watch?v=h0Gr7iw_x3A](https://www.youtube.com/watch?v=h0Gr7iw_x3A)
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4286#       发表于 2021-7-16 20:02
@@ -17235,7 +17235,7 @@ https://b23.tv/MRK9Im
 开幕就唱，爽的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 4287#       发表于 2021-7-16 20:11
@@ -17256,7 +17256,7 @@ https://b23.tv/MRK9Im
 全乐队，以及社内优秀踩音箱文化
 
 
------
+*****
 
 ####  空集  
 ##### 4288#       发表于 2021-7-16 20:11
@@ -17267,7 +17267,7 @@ https://b23.tv/MRK9Im
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  黑之和  
 ##### 4289#       发表于 2021-7-16 20:14
@@ -17277,7 +17277,7 @@ https://b23.tv/MRK9Im
 想当她姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 4290#       发表于 2021-7-16 20:16
@@ -17290,7 +17290,7 @@ https://b23.tv/MRK9Im
 
 
 
------
+*****
 
 ####  黑之和  
 ##### 4291#       发表于 2021-7-16 20:20
@@ -17304,7 +17304,7 @@ gaku3d恭喜捏
 连着猜错两个，还有Levi赢了的未来吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空集  
 ##### 4292#       发表于 2021-7-16 20:24
@@ -17315,7 +17315,7 @@ gaku3d恭喜捏
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  黑之和  
 ##### 4293#       发表于 2021-7-16 20:26
@@ -17325,7 +17325,7 @@ gaku3d恭喜捏
 “是我！杀！了！我！”
 
 
------
+*****
 
 ####  空集  
 ##### 4294#       发表于 2021-7-16 20:27
@@ -17337,7 +17337,7 @@ gaku3d恭喜捏
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 4295#       发表于 2021-7-16 20:31
@@ -17385,7 +17385,7 @@ gaku3d恭喜捏
 ！！king
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 4296#       发表于 2021-7-16 20:36
@@ -17394,7 +17394,7 @@ gaku3d恭喜捏
 梦追好像显得不太行阿（）<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  free  
 ##### 4297#       发表于 2021-7-16 20:39
@@ -17405,7 +17405,7 @@ gaku3d恭喜捏
 这么好玩的3D咋才5万同接，我印象里虹现在3D应该都稳上10万了
 
 
------
+*****
 
 ####  黑之和  
 ##### 4298#       发表于 2021-7-16 20:39
@@ -17418,7 +17418,7 @@ gaku3d恭喜捏
 好听！！！！
 
 
------
+*****
 
 ####  biye  
 ##### 4299#       发表于 2021-7-16 20:39
@@ -17427,7 +17427,7 @@ gaku3d恭喜捏
 排面啊亚人
 
 
------
+*****
 
 ####  biye  
 ##### 4300#       发表于 2021-7-16 20:39
@@ -17436,7 +17436,7 @@ gaku3d恭喜捏
 排面啊亚人
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 4301#       发表于 2021-7-16 20:40
@@ -17447,7 +17447,7 @@ gaku3d恭喜捏
 
                                                 
 
------
+*****
 
 ####  空集  
 ##### 4302#       发表于 2021-7-16 20:46
@@ -17458,7 +17458,7 @@ gaku3d恭喜捏
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 4303#       发表于 2021-7-16 20:46
@@ -17471,7 +17471,7 @@ gaku3d恭喜捏
 说实话levi人脉是有点的，孤僻鬼郡郡都转了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dybang  
 ##### 4304#       发表于 2021-7-16 20:47
@@ -17480,7 +17480,7 @@ gaku3d恭喜捏
 又得有人黑屁了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看最后播放量吧，舞台确实强了不少
 
 
------
+*****
 
 ####  空集  
 ##### 4305#       发表于 2021-7-16 21:00
@@ -17491,7 +17491,7 @@ gaku3d恭喜捏
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4306#       发表于 2021-7-16 21:01
@@ -17500,7 +17500,7 @@ gaku3d恭喜捏
 甚至还有安口路
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 4307#       发表于 2021-7-16 21:05
@@ -17521,7 +17521,7 @@ gaku3d恭喜捏
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 4308#       发表于 2021-7-16 21:39
@@ -17554,7 +17554,7 @@ gaku3d恭喜捏
 2021-7-16 21:50 上传
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4309#       发表于 2021-7-16 21:49
@@ -17576,7 +17576,7 @@ gaku3d恭喜捏
 怎么到这里不扣了
 
 
------
+*****
 
 ####  free  
 ##### 4310#       发表于 2021-7-16 21:50
@@ -17592,7 +17592,7 @@ HIMEHINA『フリコドウル』MV
 22号花生兄妹主催的糖豆人大会
 
 
------
+*****
 
 ####  hulaoda007  
 ##### 4311#       发表于 2021-7-16 22:00
@@ -17601,7 +17601,7 @@ HIMEHINA『フリコドウル』MV
   亚人有些小动作好----------可爱...
 
 
------
+*****
 
 ####  free  
 ##### 4312#       发表于 2021-7-16 22:09
@@ -17610,7 +17610,7 @@ HIMEHINA『フリコドウル』MV
 批站终于出现万舰的V了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pansherry  
 ##### 4313#       发表于 2021-7-16 22:14
@@ -17619,7 +17619,7 @@ HIMEHINA『フリコドウル』MV
 お使いマオ、場違いチャイカ、様子見レナ<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4314#       发表于 2021-7-16 22:33
@@ -17628,7 +17628,7 @@ HIMEHINA『フリコドウル』MV
 阿柴终于！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 该ddd了
 
 
------
+*****
 
 ####  patema  
 ##### 4315#       发表于 2021-7-16 23:08
@@ -17637,7 +17637,7 @@ HIMEHINA『フリコドウル』MV
 兔头...这mv....本体的3D反而拖后腿的感觉
 
 
------
+*****
 
 ####  εRemastered  
 ##### 4316#       发表于 2021-7-16 23:09
@@ -17646,7 +17646,7 @@ HIMEHINA『フリコドウル』MV
 月撇这个MV 不是光人3D模型跳跳完事了，有点投入啊，你虹老大还是（
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 4317#       发表于 2021-7-16 23:20
@@ -17655,7 +17655,7 @@ HIMEHINA『フリコドウル』MV
 画面越是渲染的好看，3d的低质感衣料和奇怪的手臂骨架都<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 4318#       发表于 2021-7-16 23:22
@@ -17664,7 +17664,7 @@ HIMEHINA『フリコドウル』MV
 索尼你这个老妖婆！为什么不给月之6000（代指制作费）<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">！
 
 
------
+*****
 
 ####  OldGlory  
 ##### 4319#       发表于 2021-7-16 23:30
@@ -17675,7 +17675,7 @@ HIMEHINA『フリコドウル』MV
 
                                                  
 
------
+*****
 
 ####  qq845629713  
 ##### 4320#       发表于 2021-7-16 23:36
@@ -17689,7 +17689,7 @@ KING毕竟是KING
 
 
 
------
+*****
 
 ####  free  
 ##### 4321#       发表于 2021-7-16 23:41
@@ -17712,7 +17712,7 @@ YouTube Music Weekend开始了，今晚杏明晚虹，明天白天还有太子�
 2021-7-16 23:41 上传
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 4322#       发表于 2021-7-16 23:52
@@ -17721,7 +17721,7 @@ YouTube Music Weekend开始了，今晚杏明晚虹，明天白天还有太子�
 看到chima上3D好想黑屁一句小蜜蜂是不是明牌不续签了，不然不应该不出力推啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4323#       发表于 2021-7-16 23:54
@@ -17730,7 +17730,7 @@ YouTube Music Weekend开始了，今晚杏明晚虹，明天白天还有太子�
 应该说现在冥府就ib披露了，fes上出现的跳了好几个，虽然最不理解的是为什么谢林要等这么久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死体残留  
 ##### 4324#       发表于 2021-7-16 23:55
@@ -17743,7 +17743,7 @@ YouTube Music Weekend开始了，今晚杏明晚虹，明天白天还有太子�
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">杏的不清楚，明天虹只有兔头是真live，其它是播片
 
 
------
+*****
 
 ####  空き地卯木  
 ##### 4325#       发表于 2021-7-17 00:29
@@ -17754,7 +17754,7 @@ YouTube Music Weekend开始了，今晚杏明晚虹，明天白天还有太子�
 顺便阿菜在会限
 
 
------
+*****
 
 ####  Lucy_Diamonds  
 ##### 4326#       发表于 2021-7-17 00:41
@@ -17765,7 +17765,7 @@ YouTube Music Weekend开始了，今晚杏明晚虹，明天白天还有太子�
 
                                                 
 
------
+*****
 
 ####  gaiadc  
 ##### 4327#       发表于 2021-7-17 01:10
@@ -17778,7 +17778,7 @@ YouTube Music Weekend开始了，今晚杏明晚虹，明天白天还有太子�
 阿喵喵，真正的Gamers<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 4328#       发表于 2021-7-17 01:12
@@ -17789,7 +17789,7 @@ YouTube Music Weekend开始了，今晚杏明晚虹，明天白天还有太子�
 
                                                  
 
------
+*****
 
 ####  noHentai  
 ##### 4329#       发表于 2021-7-17 10:22
@@ -17800,7 +17800,7 @@ live后毕业跟我预期的差不多
 
                                                  
 
------
+*****
 
 ####  FCCHua  
 ##### 4330#       发表于 2021-7-17 11:04
@@ -17809,7 +17809,7 @@ live后毕业跟我预期的差不多
 好正式的发布会<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winda  
 ##### 4331#       发表于 2021-7-17 11:09
@@ -17818,7 +17818,7 @@ live后毕业跟我预期的差不多
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿满和大葵的事故级收音
 
 
------
+*****
 
 ####  winda  
 ##### 4332#       发表于 2021-7-17 11:27
@@ -17840,7 +17840,7 @@ live后毕业跟我预期的差不多
 
                                                  
 
------
+*****
 
 ####  adamtheo  
 ##### 4333#       发表于 2021-7-17 11:32
@@ -17860,7 +17860,7 @@ live后毕业跟我预期的差不多
 
                                                  
 
------
+*****
 
 ####  IDIDIDID  
 ##### 4334#       发表于 2021-7-17 15:11
@@ -17881,7 +17881,7 @@ live后毕业跟我预期的差不多
 
                                                  
 
------
+*****
 
 ####  FCCHua  
 ##### 4335#       发表于 2021-7-17 17:01
@@ -17890,7 +17890,7 @@ live后毕业跟我预期的差不多
 虹棒选人要开始了
 
 
------
+*****
 
 ####  winda  
 ##### 4336#       发表于 2021-7-17 17:16
@@ -17899,7 +17899,7 @@ live后毕业跟我预期的差不多
 今年休止中的liver论外还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舞元还额外说了句现在休止的liver还不少。
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4337#       发表于 2021-7-17 17:18
@@ -17908,7 +17908,7 @@ live后毕业跟我预期的差不多
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 今年海外能参加还行
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 4338#       发表于 2021-7-17 17:18
@@ -17931,7 +17931,7 @@ live后毕业跟我预期的差不多
 2021-7-17 17:28 上传
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4339#       发表于 2021-7-17 17:19
@@ -17940,7 +17940,7 @@ live后毕业跟我预期的差不多
 凛先辈会玩，草
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 4340#       发表于 2021-7-17 17:21
@@ -17949,7 +17949,7 @@ live后毕业跟我预期的差不多
 刚来，hololive的末日到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4341#       发表于 2021-7-17 17:22
@@ -17961,7 +17961,7 @@ live后毕业跟我预期的差不多
 很好，大福也是，咲唯贴贴捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4342#       发表于 2021-7-17 17:23
@@ -17970,7 +17970,7 @@ live后毕业跟我预期的差不多
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 叶，，大人气！
 
 
------
+*****
 
 ####  stageKK  
 ##### 4343#       发表于 2021-7-17 17:24
@@ -17979,7 +17979,7 @@ live后毕业跟我预期的差不多
 阿菜这个会限看的我眼泪都下来了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4344#       发表于 2021-7-17 17:25
@@ -17991,7 +17991,7 @@ live后毕业跟我预期的差不多
 葛叶怎么和安洁抢皇女，3bk...我的3bk<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  noHentai  
 ##### 4345#       发表于 2021-7-17 17:28
@@ -18000,7 +18000,7 @@ live后毕业跟我预期的差不多
 压力来到了安洁身上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4346#       发表于 2021-7-17 17:29
@@ -18009,7 +18009,7 @@ live后毕业跟我预期的差不多
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> KING选妃，安杰你就别争了
 
 
------
+*****
 
 ####  Suny08  
 ##### 4347#       发表于 2021-7-17 17:29
@@ -18020,7 +18020,7 @@ live后毕业跟我预期的差不多
 
                                                  
 
------
+*****
 
 ####  qq845629713  
 ##### 4348#       发表于 2021-7-17 17:37
@@ -18037,7 +18037,7 @@ lize——被king需要的女人
 油男和三枝被笹木椎名完美拿到，这不是台本？
 
 
------
+*****
 
 ####  Suny08  
 ##### 4349#       发表于 2021-7-17 17:38
@@ -18046,7 +18046,7 @@ lize——被king需要的女人
 我还是那个看法，油和pst就是在交往<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4350#       发表于 2021-7-17 17:38
@@ -18058,7 +18058,7 @@ lize——被king需要的女人
 
 
 
------
+*****
 
 ####  死体残留  
 ##### 4351#       发表于 2021-7-17 17:38
@@ -18067,7 +18067,7 @@ lize——被king需要的女人
 大福真是天才<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4352#       发表于 2021-7-17 17:40
@@ -18083,7 +18083,7 @@ lize——被king需要的女人
 社长→牛姨
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4353#       发表于 2021-7-17 17:40
@@ -18095,7 +18095,7 @@ lize——被king需要的女人
 人均抢男人，这就是你虹现状么？
 
 
------
+*****
 
 ####  winda  
 ##### 4354#       发表于 2021-7-17 17:42
@@ -18104,7 +18104,7 @@ lize——被king需要的女人
 虹男真是大人气啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  noHentai  
 ##### 4355#       发表于 2021-7-17 17:43
@@ -18113,7 +18113,7 @@ lize——被king需要的女人
 安洁太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 4356#       发表于 2021-7-17 17:44
@@ -18181,7 +18181,7 @@ lize——被king需要的女人
 查看全部评分
 
 
------
+*****
 
 ####  poipanchao  
 ##### 4357#       发表于 2021-7-17 17:47
@@ -18190,7 +18190,7 @@ lize——被king需要的女人
 king被抢了叶以后开始报复社会了
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4358#       发表于 2021-7-17 17:50
@@ -18214,7 +18214,7 @@ king被抢了叶以后开始报复社会了
 查看全部评分
 
 
------
+*****
 
 ####  OldGlory  
 ##### 4359#       发表于 2021-7-17 17:53
@@ -18223,7 +18223,7 @@ king被抢了叶以后开始报复社会了
 男人，真抢手啊
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4360#       发表于 2021-7-17 17:53
@@ -18232,7 +18232,7 @@ king被抢了叶以后开始报复社会了
 现在看下来安洁最惨<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winda  
 ##### 4361#       发表于 2021-7-17 17:56
@@ -18241,7 +18241,7 @@ king被抢了叶以后开始报复社会了
 女将选人像在另一个次元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">格差社会啊
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4362#       发表于 2021-7-17 17:58
@@ -18254,7 +18254,7 @@ king被抢了叶以后开始报复社会了
 草，老板娘也掺一脚
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4363#       发表于 2021-7-17 18:00
@@ -18266,7 +18266,7 @@ king被抢了叶以后开始报复社会了
 被女将选成选手岂不是更可悲
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4364#       发表于 2021-7-17 18:02
@@ -18280,7 +18280,7 @@ king被抢了叶以后开始报复社会了
 弹幕:葛叶ntr高校
 
 
------
+*****
 
 ####  Suny08  
 ##### 4365#       发表于 2021-7-17 18:03
@@ -18289,7 +18289,7 @@ king被抢了叶以后开始报复社会了
 king看样子是疯了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dybang  
 ##### 4366#       发表于 2021-7-17 18:04
@@ -18298,7 +18298,7 @@ king看样子是疯了<img src="https://static.saraba1st.com/image/smiley/face20
 这也算引流吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">对口扶贫
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4367#       发表于 2021-7-17 18:07
@@ -18325,7 +18325,7 @@ king看样子是疯了<img src="https://static.saraba1st.com/image/smiley/face20
 查看全部评分
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4368#       发表于 2021-7-17 18:14
@@ -18334,7 +18334,7 @@ king看样子是疯了<img src="https://static.saraba1st.com/image/smiley/face20
 <[img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这是不是我看到评论里面最多一次提到葛尊的了，
 
 
------
+*****
 
 ####  Suny08  
 ##### 4369#       发表于 2021-7-17 18:14
@@ -18343,7 +18343,7 @@ king看样子是疯了<img src="https://static.saraba1st.com/image/smiley/face20
 可惜了king顺位在大小姐后面拿不到尊妹了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 4370#       发表于 2021-7-17 18:16
@@ -18359,7 +18359,7 @@ king看样子是疯了<img src="https://static.saraba1st.com/image/smiley/face20
 要穿死库水的队员：叶、三枝、天开、伏见、尤德里克
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4371#       发表于 2021-7-17 18:17
@@ -18368,7 +18368,7 @@ king看样子是疯了<img src="https://static.saraba1st.com/image/smiley/face20
 没意思了，看别人直播去了
 
 
------
+*****
 
 ####  dybang  
 ##### 4372#       发表于 2021-7-17 18:17
@@ -18377,7 +18377,7 @@ king看样子是疯了<img src="https://static.saraba1st.com/image/smiley/face20
 这次明显是团建，King不怕炎上拆cp，选尊不是作死么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  purdre  
 ##### 4373#       发表于 2021-7-17 18:18
@@ -18386,7 +18386,7 @@ king看样子是疯了<img src="https://static.saraba1st.com/image/smiley/face20
 从没看过女将，这次直播觉得女将的皮好合我口味啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4374#       发表于 2021-7-17 18:20
@@ -18397,7 +18397,7 @@ kr来了
 星川狂喜
 
 
------
+*****
 
 ####  purdre  
 ##### 4375#       发表于 2021-7-17 18:22
@@ -18406,7 +18406,7 @@ kr来了
 尤德里克来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fastary  
 ##### 4376#       发表于 2021-7-17 18:23
@@ -18417,7 +18417,7 @@ kr来了
 话说挑染这就分在三队了吧，好想看内战情节<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  烯丝短尾猫  
 ##### 4377#       发表于 2021-7-17 18:25
@@ -18426,7 +18426,7 @@ kr来了
 莉光头子sasa你做的好啊
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4378#       发表于 2021-7-17 18:25
@@ -18438,7 +18438,7 @@ kr来了
 德龙神抽
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4379#       发表于 2021-7-17 18:25
@@ -18447,7 +18447,7 @@ kr来了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 剩下的垃圾就大转盘了，这不是肯定有人轮空了
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 4380#       发表于 2021-7-17 18:30
@@ -18458,7 +18458,7 @@ kr来了
 
                                                 
 
------
+*****
 
 ####  Suny08  
 ##### 4381#       发表于 2021-7-17 18:40
@@ -18467,7 +18467,7 @@ kr来了
 每队16人8队才128人，现在选了这么多海外的情况下本社注定有人选不上了
 
 
------
+*****
 
 ####  purdre  
 ##### 4382#       发表于 2021-7-17 18:44
@@ -18476,7 +18476,7 @@ kr来了
 EN全员都入队了
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4383#       发表于 2021-7-17 18:45
@@ -18485,7 +18485,7 @@ EN全员都入队了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 本社这么多人刚好就把en三人全选上了，你咋不把二期也安排进去呢？
 
 
------
+*****
 
 ####  Suny08  
 ##### 4384#       发表于 2021-7-17 18:47
@@ -18494,7 +18494,7 @@ EN全员都入队了
 葵皇底边说<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4385#       发表于 2021-7-17 18:47
@@ -18509,7 +18509,7 @@ EN全员都入队了
 真是有够好笑的，你们谁愿意看谁看吧，真垃圾
 
 
------
+*****
 
 ####  poipanchao  
 ##### 4386#       发表于 2021-7-17 18:49
@@ -18518,7 +18518,7 @@ EN全员都入队了
 葵皇……
 
 
------
+*****
 
 ####  dybang  
 ##### 4387#       发表于 2021-7-17 18:50
@@ -18527,7 +18527,7 @@ EN全员都入队了
 这么搞倒没啥，本来就不少兼职和自闭人，在这点黑屁实属没必要，又不是学隔壁排排坐，就怕后面玩尬的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  purdre  
 ##### 4388#       发表于 2021-7-17 18:53
@@ -18538,7 +18538,7 @@ EN全员都入队了
 说得好像对本社的人就很尊重似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4389#       发表于 2021-7-17 18:54
@@ -18550,7 +18550,7 @@ EN全员都入队了
 有阿葵就好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 4390#       发表于 2021-7-17 18:59
@@ -18566,7 +18566,7 @@ EN全员都入队了
 2021-7-17 18:59 上传
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 4391#       发表于 2021-7-17 19:04
@@ -18575,7 +18575,7 @@ EN全员都入队了
 葵皇这半年社内和stf关系到底怎么回事
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 4392#       发表于 2021-7-17 19:06
@@ -18584,7 +18584,7 @@ EN全员都入队了
 我只能说郡道来到了最适合她的队伍，老板娘万岁<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">！
 
 
------
+*****
 
 ####  purdre  
 ##### 4393#       发表于 2021-7-17 19:08
@@ -18593,7 +18593,7 @@ EN全员都入队了
 挺犹豫看谁的窗，感觉熊猫人的人选比较和我口味，但是社长和安九的感觉直播会很有趣
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4394#       发表于 2021-7-17 19:10
@@ -18605,7 +18605,7 @@ EN全员都入队了
 三周年大概会宣布把
 
 
------
+*****
 
 ####  purdre  
 ##### 4395#       发表于 2021-7-17 19:10
@@ -18616,7 +18616,7 @@ EN全员都入队了
 好耶！
 
 
------
+*****
 
 ####  patema  
 ##### 4396#       发表于 2021-7-17 19:17
@@ -18625,7 +18625,7 @@ EN全员都入队了
 池子里面没有hana，楼友是不是可以试着发散一下<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死体残留  
 ##### 4397#       发表于 2021-7-17 19:19
@@ -18634,7 +18634,7 @@ EN全员都入队了
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">id有三个没上吧
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4398#       发表于 2021-7-17 19:20
@@ -18645,7 +18645,7 @@ EN全员都入队了
 
                                                  
 
------
+*****
 
 ####  白金口袋  
 ##### 4399#       发表于 2021-7-17 19:24
@@ -18659,7 +18659,7 @@ EN全员都入队了
 安定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 4400#       发表于 2021-7-17 19:33
@@ -18673,7 +18673,7 @@ EN全员都入队了
 不过没关系，这次虹棒我将一切堵在老板娘身上，必须夺冠嗷
 
 
------
+*****
 
 ####  ヒトニナル  
 ##### 4401#       发表于 2021-7-17 19:38
@@ -18682,7 +18682,7 @@ EN全员都入队了
 有一说一，为了血压好就看老板娘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4402#       发表于 2021-7-17 19:44
@@ -18693,7 +18693,7 @@ EN全员都入队了
 顺便为什么没有vr，时守星沙发动态解释了，b站熟悉的拉胯<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  SuntoryNomu  
 ##### 4403#       发表于 2021-7-17 19:46
@@ -18709,7 +18709,7 @@ EN全员都入队了
 2021-7-17 19:46 上传
 
 
------
+*****
 
 ####  十四洲  
 ##### 4404#       发表于 2021-7-17 19:52
@@ -18718,7 +18718,7 @@ EN全员都入队了
 所以本社没入池的有哪几个？
 
 
------
+*****
 
 ####  CielChloe  
 ##### 4405#       发表于 2021-7-17 20:13
@@ -18727,7 +18727,7 @@ EN全员都入队了
 除了口了还有谁？
 
 
------
+*****
 
 ####  gaiadc  
 ##### 4406#       发表于 2021-7-17 20:17
@@ -18738,7 +18738,7 @@ EN全员都入队了
 
                                                  
 
------
+*****
 
 ####  FCCHua  
 ##### 4407#       发表于 2021-7-17 20:48
@@ -18747,7 +18747,7 @@ EN全员都入队了
 刚看到夜见在帮大福代打cr练习赛
 
 
------
+*****
 
 ####  winda  
 ##### 4408#       发表于 2021-7-17 21:21
@@ -18758,7 +18758,7 @@ EN全员都入队了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">id基本就认识个taka，kr那边roha和nari也没人认识就没想到，这都是陌生人组队reaction可怎么办啊
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4409#       发表于 2021-7-17 21:25
@@ -18769,7 +18769,7 @@ EN全员都入队了
 
                                                  
 
------
+*****
 
 ####  pansherry  
 ##### 4410#       发表于 2021-7-17 21:32
@@ -18786,7 +18786,7 @@ EN全员都入队了
 
 
 
------
+*****
 
 ####  peh  
 ##### 4411#       发表于 2021-7-17 22:01
@@ -18795,7 +18795,7 @@ EN全员都入队了
 床怎么被king拿走了
 
 
------
+*****
 
 ####  Suny08  
 ##### 4412#       发表于 2021-7-17 22:11
@@ -18808,7 +18808,7 @@ EN全员都入队了
 
                                                 
 
------
+*****
 
 ####  GT2  
 ##### 4413#       发表于 2021-7-17 22:43
@@ -18822,7 +18822,7 @@ EN全员都入队了
 不过要是真的跟现实一样再来个本人拒绝入团就更好玩了
 
 
------
+*****
 
 ####  OldGlory  
 ##### 4414#       发表于 2021-7-17 23:04
@@ -18831,7 +18831,7 @@ EN全员都入队了
 兔头这个麦不行啊
 
 
------
+*****
 
 ####  rzrbtk  
 ##### 4415#       发表于 2021-7-17 23:08
@@ -18848,7 +18848,7 @@ EN全员都入队了
 
                                                  
 
------
+*****
 
 ####  UnhappyTails  
 ##### 4416#       发表于 2021-7-18 00:20
@@ -18860,7 +18860,7 @@ syl
 三八卡还是好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 4417#       发表于 2021-7-18 00:23
@@ -18869,7 +18869,7 @@ syl
 为什么是谁做男v代表唱vtl啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UnhappyTails  
 ##### 4418#       发表于 2021-7-18 00:28
@@ -18886,7 +18886,7 @@ syl
 
                                                  
 
------
+*****
 
 ####  lhawp  
 ##### 4419#       发表于 2021-7-18 01:18
@@ -18897,7 +18897,7 @@ syl
 
                                                  
 
------
+*****
 
 ####  winda  
 ##### 4420#       发表于 2021-7-18 09:31
@@ -18907,7 +18907,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 后面查信息才发现是fuwa和akina,虹会玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死体残留  
 ##### 4421#       发表于 2021-7-18 10:30
@@ -18916,7 +18916,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">niji en也起来了 首播终于破w了
 
 
------
+*****
 
 ####  winda  
 ##### 4422#       发表于 2021-7-18 10:33
@@ -18927,7 +18927,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 
                                                  
 
------
+*****
 
 ####  patema  
 ##### 4423#       发表于 2021-7-18 10:43
@@ -18938,7 +18938,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 企鹅会日英中，目前来看是冲错了？
 
 
------
+*****
 
 ####  Suny08  
 ##### 4424#       发表于 2021-7-18 10:49
@@ -18947,7 +18947,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 企鹅估计是在日华裔，现在来看肯定不是sanchi了，杏en两金盾确定
 
 
------
+*****
 
 ####  winda  
 ##### 4425#       发表于 2021-7-18 10:50
@@ -18958,7 +18958,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 企鹅还会粤语，这特错了吧
 
 
------
+*****
 
 ####  patema  
 ##### 4426#       发表于 2021-7-18 10:58
@@ -18967,7 +18967,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">就看最后这个猎杀能不能对了
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 4427#       发表于 2021-7-18 10:59
@@ -18978,7 +18978,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  patema  
 ##### 4428#       发表于 2021-7-18 11:04
@@ -18987,7 +18987,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 会英法中韩，这次虹en中文浓度有点高啊
 
 
------
+*****
 
 ####  ヒトニナル  
 ##### 4429#       发表于 2021-7-18 11:05
@@ -18996,7 +18996,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 在日华裔en，你虹这个en的定义真是自由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Suny08  
 ##### 4430#       发表于 2021-7-18 11:05
@@ -19005,7 +19005,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 看样子之前的虹cn是合并进en了
 
 
------
+*****
 
 ####  Suzutsuki  
 ##### 4431#       发表于 2021-7-18 11:11
@@ -19014,7 +19014,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 月光龙喜欢Q娃？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 4432#       发表于 2021-7-18 11:12
@@ -19023,7 +19023,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 我觉得是香港人吧这俩会粤语的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  突然空虚  
 ##### 4433#       发表于 2021-7-18 11:12
@@ -19032,7 +19032,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 熊猫人这是帮下巴凑萝莉rp组啊
 
 
------
+*****
 
 ####  Suzutsuki  
 ##### 4434#       发表于 2021-7-18 11:12
@@ -19041,7 +19041,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 可以 月光龙想来CR杯 你虹又来个打手 能不能带带bora<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4435#       发表于 2021-7-18 11:13
@@ -19050,7 +19050,7 @@ nrk半夜solo rank，打完一把后两个不知道是谁，id叫sai和kyou的�
 apex浓度<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winda  
 ##### 4436#       发表于 2021-7-18 11:14
@@ -19059,7 +19059,7 @@ apex浓度<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">原来的多语言向招不齐人就放到en了吧
 
 
------
+*****
 
 ####  patema  
 ##### 4437#       发表于 2021-7-18 11:14
@@ -19068,7 +19068,7 @@ apex浓度<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" 
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这个可能挖对了？好像都能对上一半
 
 
------
+*****
 
 ####  winda  
 ##### 4438#       发表于 2021-7-18 11:16
@@ -19077,7 +19077,7 @@ apex浓度<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" 
 apex everyday!<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">猎杀姐她来了
 
 
------
+*****
 
 ####  patema  
 ##### 4439#       发表于 2021-7-18 11:18
@@ -19086,7 +19086,7 @@ apex everyday!<img src="https://static.saraba1st.com/image/smiley/face2017/065.p
 看时间不太像在日吧
 
 
------
+*****
 
 ####  渡鸦骑士  
 ##### 4440#       发表于 2021-7-18 11:18
@@ -19097,7 +19097,7 @@ apex everyday!<img src="https://static.saraba1st.com/image/smiley/face2017/065.p
 
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 4441#       发表于 2021-7-18 11:20
@@ -19108,7 +19108,7 @@ apex打得好在虹就算有人气保证了吧
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Suzutsuki  
 ##### 4442#       发表于 2021-7-18 11:21
@@ -19117,7 +19117,7 @@ apex打得好在虹就算有人气保证了吧
 先去CR杯吸个粉 然后调教和养就对了 可以走丽姐路线<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  poipanchao  
 ##### 4443#       发表于 2021-7-18 11:22
@@ -19126,7 +19126,7 @@ apex打得好在虹就算有人气保证了吧
 不会日语
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 4444#       发表于 2021-7-18 11:22
@@ -19137,7 +19137,7 @@ apex打得好在虹就算有人气保证了吧
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  patema  
 ##### 4445#       发表于 2021-7-18 11:22
@@ -19146,7 +19146,7 @@ apex打得好在虹就算有人气保证了吧
 但是月亮龙不会日语<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">难不成从英语圈拉壬打吗
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 4446#       发表于 2021-7-18 11:23
@@ -19165,7 +19165,7 @@ apex打得好在虹就算有人气保证了吧
 英語・フランス語・中国語・韓国語ちょっと
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4447#       发表于 2021-7-18 11:23
@@ -19174,7 +19174,7 @@ apex打得好在虹就算有人气保证了吧
 说真的，这是个好机会，你虹人气主播本社包括king在内的都在打棒球，要是这个女人抓住机会。单排光速上分表现一下，能收获不少枪民，至少能稳住同接
 
 
------
+*****
 
 ####  wx41122  
 ##### 4448#       发表于 2021-7-18 11:24
@@ -19185,7 +19185,7 @@ apex打得好在虹就算有人气保证了吧
 企鹅有些微妙，和金盾哥不太像，但感觉上是这期最受重视的
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4449#       发表于 2021-7-18 11:27
@@ -19196,7 +19196,7 @@ apex打得好在虹就算有人气保证了吧
 king我们不打棒球，和猎杀者妹妹学英文打枪好不好，
 
 
------
+*****
 
 ####  烯丝短尾猫  
 ##### 4450#       发表于 2021-7-18 11:30
@@ -19207,7 +19207,7 @@ king可以先和genburten沟通流畅
 
                                                 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 4451#       发表于 2021-7-18 11:36
@@ -19225,7 +19225,7 @@ king我们不打棒球，和猎杀者妹 ...</blockquote>
 Syl，猎杀28位，已经不是同一个次元了
 
 
------
+*****
 
 ####  winda  
 ##### 4452#       发表于 2021-7-18 11:36
@@ -19245,7 +19245,7 @@ Syl，猎杀28位，已经不是同一个次元了
 apex两个赛季猎杀+ow8赛季500强，等级也太高了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  越动天下  
 ##### 4453#       发表于 2021-7-18 11:38
@@ -19256,7 +19256,7 @@ apex两个赛季猎杀+ow8赛季500强，等级也太高了<img src="https://sta
 抽了个游戏大师<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> syl也要男人是吧
 
 
------
+*****
 
 ####  patema  
 ##### 4454#       发表于 2021-7-18 11:39
@@ -19265,7 +19265,7 @@ apex两个赛季猎杀+ow8赛季500强，等级也太高了<img src="https://sta
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">龙什么时候和岁排带岁上猎杀？
 
 
------
+*****
 
 ####  qq845629713  
 ##### 4455#       发表于 2021-7-18 11:40
@@ -19295,7 +19295,7 @@ Syl，猎杀28位，已经不是同一个次元了 ...</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  Suny08  
 ##### 4456#       发表于 2021-7-18 11:44
@@ -19304,7 +19304,7 @@ Syl，猎杀28位，已经不是同一个次元了 ...</blockquote>
 selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要求，cr杯唯一的中国队，这人气不是爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，实力上两顶猎带一大师，稳稳的乱杀
 
 
------
+*****
 
 ####  poipanchao  
 ##### 4457#       发表于 2021-7-18 11:50
@@ -19319,7 +19319,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 这是学猫叫（中文版）
 
 
------
+*****
 
 ####  mmbk  
 ##### 4458#       发表于 2021-7-18 11:51
@@ -19328,7 +19328,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 勿cue雷岁好吧 勿cue✋​
 
 
------
+*****
 
 ####  seki_m  
 ##### 4459#       发表于 2021-7-18 12:07
@@ -19337,7 +19337,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 星宸现在还顶猎..？
 
 
------
+*****
 
 ####  Rosefinch  
 ##### 4460#       发表于 2021-7-18 12:30
@@ -19346,7 +19346,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 不会日语可以来带逆天鲨鱼头上分啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  patema  
 ##### 4461#       发表于 2021-7-18 12:30
@@ -19357,7 +19357,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 
                                                  
 
------
+*****
 
 ####  winsloven  
 ##### 4462#       发表于 2021-7-18 12:44
@@ -19371,7 +19371,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 金盾大物锁推退管不去木口去彩虹，就觉得离谱。现在看来，没离谱。
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 4463#       发表于 2021-7-18 12:45
@@ -19382,7 +19382,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  hoshinonya  
 ##### 4464#       发表于 2021-7-18 12:55
@@ -19391,7 +19391,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 现在还说🐺顶猎的是不是对他有什么误解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  harry3  
 ##### 4465#       发表于 2021-7-18 12:57
@@ -19405,7 +19405,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 听了下用的几个声线确实都有点像
 
 
------
+*****
 
 ####  patema  
 ##### 4466#       发表于 2021-7-18 13:01
@@ -19414,7 +19414,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 是谢拉又是哪里的消息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  purdre  
 ##### 4467#       发表于 2021-7-18 13:02
@@ -19423,7 +19423,7 @@ selen建议和雷岁狼宝组个队去cr，selen小号估计能满足组队要�
 rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  harry3  
 ##### 4468#       发表于 2021-7-18 13:03
@@ -19432,7 +19432,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 4chan
 
 
------
+*****
 
 ####  OldGlory  
 ##### 4469#       发表于 2021-7-18 13:04
@@ -19441,7 +19441,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 4ch白皮耳朵不好使
 
 
------
+*****
 
 ####  FCCHua  
 ##### 4470#       发表于 2021-7-18 13:18
@@ -19452,7 +19452,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 
                                                  
 
------
+*****
 
 ####  winda  
 ##### 4471#       发表于 2021-7-18 14:14
@@ -19462,7 +19462,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 预定好一个是月之一个是柴卡了
 
 
------
+*****
 
 ####  patema  
 ##### 4472#       发表于 2021-7-18 14:17
@@ -19471,7 +19471,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 重新听了下企鹅和谢拉，企鹅声音比谢拉软挺多的，单靠声音至少是不行的
 
 
------
+*****
 
 ####  Suny08  
 ##### 4473#       发表于 2021-7-18 14:18
@@ -19480,7 +19480,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 德龙这个档基本可以宣告虹甲结束了，说实话去年虹甲能有这个数字一个是甲子园取消另一个就是6校运气都爆炸实力其实挺接近的，今年说实话不可能大家开档都有那么好的运气了，就算你重刷初始都不可能，再加上德龙这个无敌档，给我养3年狗首发平均过400完全没压力，打自动模拟比赛对另外队估计就是大屠杀
 
 
------
+*****
 
 ####  越动天下  
 ##### 4474#       发表于 2021-7-18 14:23
@@ -19489,7 +19489,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 德龙这什么神抽
 
 
------
+*****
 
 ####  死体残留  
 ##### 4475#       发表于 2021-7-18 14:24
@@ -19498,7 +19498,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 投手不行 接着看吧
 
 
------
+*****
 
 ####  格林卡罗尔  
 ##### 4476#       发表于 2021-7-18 14:25
@@ -19509,7 +19509,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  patema  
 ##### 4477#       发表于 2021-7-18 14:30
@@ -19520,7 +19520,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 
                                                  
 
------
+*****
 
 ####  越动天下  
 ##### 4478#       发表于 2021-7-18 14:39
@@ -19529,7 +19529,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 转推了吧 这也太久远了
 
 
------
+*****
 
 ####  死体残留  
 ##### 4479#       发表于 2021-7-18 14:40
@@ -19538,7 +19538,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 看k里是说企鹅乙女游戏推荐和谢拉一致，有人对比过么
 
 
------
+*****
 
 ####  poipanchao  
 ##### 4480#       发表于 2021-7-18 14:48
@@ -19549,7 +19549,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 之前撇撇大家也是怎么都不信，直到和oto对答案
 
 
------
+*****
 
 ####  IDIDIDID  
 ##### 4481#       发表于 2021-7-18 14:52
@@ -19558,7 +19558,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 谢拉我还是很喜欢的
 
 
------
+*****
 
 ####  Suny08  
 ##### 4482#       发表于 2021-7-18 14:52
@@ -19567,7 +19567,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 谢拉之前去的意大利留学，时区不太对，不过因为乙游学日语的三语v感觉已经80%锤了
 
 
------
+*****
 
 ####  滑稽Captain  
 ##### 4483#       发表于 2021-7-18 14:55
@@ -19579,7 +19579,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 有没有谢拉以前讲自己喜欢的动画的记录，可以再对一下
 
 
------
+*****
 
 ####  patema  
 ##### 4484#       发表于 2021-7-18 14:58
@@ -19590,7 +19590,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 不过看塔号好像在b站过的也不错，翻唱投稿看得人不算少，还是有mmr在看的，还被原神翻过牌子
 
 
------
+*****
 
 ####  OldGlory  
 ##### 4485#       发表于 2021-7-18 15:01
@@ -19599,7 +19599,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 谢拉说过喜欢小英雄也对上了
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 4486#       发表于 2021-7-18 15:05
@@ -19610,7 +19610,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  patema  
 ##### 4487#       发表于 2021-7-18 15:10
@@ -19619,7 +19619,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">其实我还是挺想看en几个会中文的和vr中文联动的，想看企鹅军团和龙狼岁
 
 
------
+*****
 
 ####  caupollen  
 ##### 4488#       发表于 2021-7-18 15:11
@@ -19628,7 +19628,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 龙会不会就是一个维啊信
 
 
------
+*****
 
 ####  patema  
 ##### 4489#       发表于 2021-7-18 15:14
@@ -19643,7 +19643,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 
                                                  
 
------
+*****
 
 ####  purdre  
 ##### 4490#       发表于 2021-7-18 15:44
@@ -19652,7 +19652,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 月亮龙的杂谈挺有趣的，关注了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Caa  
 ##### 4491#       发表于 2021-7-18 15:49
@@ -19661,7 +19661,7 @@ rosemi的皮好戳我<img src="https://static.saraba1st.com/image/smiley/face201
 铁定是了呀，我老gachi<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是我把键盘吃了
 
 
------
+*****
 
 ####  Ask_10A  
 ##### 4492#       发表于 2021-7-18 16:09
@@ -19683,7 +19683,7 @@ pai都动了就是了
 <img src="https://img.saraba1st.com/forum/202107/18/160938hgtct8tgvggggttt.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  caupollen  
 ##### 4493#       发表于 2021-7-18 16:18
@@ -19698,7 +19698,7 @@ pai都动了就是了
 
                                                  
 
------
+*****
 
 ####  free  
 ##### 4494#       发表于 2021-7-18 16:32
@@ -19707,7 +19707,7 @@ pai都动了就是了
 烂货圆脸说家里有事，几天之内不能发推，管人能有啥事发不了推啊？是不是被隔离了？希望这个烂货快点毕业<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stedckk  
 ##### 4495#       发表于 2021-7-18 16:54
@@ -19716,7 +19716,7 @@ pai都动了就是了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费怎么还在看圆脸烂货啊。
 
 
------
+*****
 
 ####  Ronso  
 ##### 4496#       发表于 2021-7-18 17:08
@@ -19725,7 +19725,7 @@ pai都动了就是了
 谢拉，我的谢拉，呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winda  
 ##### 4497#       发表于 2021-7-18 17:13
@@ -19736,7 +19736,7 @@ pai都动了就是了
 NRK和kawase商谈后买了台GALLERIA RTX3070的电脑，cpu是i7
 
 
------
+*****
 
 ####  alcoholic1000  
 ##### 4498#       发表于 2021-7-18 17:26

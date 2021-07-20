@@ -4547,7 +4547,7 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 
                                                  
 
------
+*****
 
 ####  zpy393  
 ##### 6383#       发表于 2021-7-16 21:06
@@ -4556,7 +4556,7 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 这臭洋葱说有机会要突击，结果真的一次突击都没的<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Scardy  
 ##### 6384#       发表于 2021-7-16 21:20
@@ -4567,7 +4567,7 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 
                                                  
 
------
+*****
 
 ####  星の守  
 ##### 6385#       发表于 2021-7-17 01:59
@@ -4578,7 +4578,7 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 
                                                  
 
------
+*****
 
 ####  乌鸦绅士  
 ##### 6386#       发表于 2021-7-17 22:12
@@ -4589,7 +4589,7 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 
                                                  
 
------
+*****
 
 ####  Scardy  
 ##### 6387#       发表于 2021-7-17 22:23
@@ -4600,7 +4600,7 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 
                                                  
 
------
+*****
 
 ####  星の守  
 ##### 6388#       发表于 2021-7-17 23:41
@@ -4611,7 +4611,7 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 
                                                  
 
------
+*****
 
 ####  nian1538  
 ##### 6389#       发表于 2021-7-18 12:12
@@ -4622,7 +4622,7 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 
                                                  
 
------
+*****
 
 ####  fightonion  
 ##### 6390#       发表于 2021-7-20 00:11
@@ -4635,7 +4635,7 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 
                                                  
 
------
+*****
 
 ####  星の守  
 ##### 6391#       发表于 2021-7-20 01:29
