@@ -10164,3 +10164,19 @@ https://baijiahao.baidu.com/s?id=1686294245799774245</blockquote>
 
 
                                                  
+
+*****
+
+####  哎哟卧槽了  
+##### 717#       发表于 2021-7-20 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52031613&amp;ptid=1985265" target="_blank">猫溺泉君 发表于 2021-7-20 13:36</a>
+
+开高刷和5G，accubattery屏幕开启7小时，屏幕关闭45小时，综合使用15小时
+
+关屏掉电严重，经常无缘无故发 ...</blockquote>
+把5G關了，你會感受到新的世界
+
+
+                                                 

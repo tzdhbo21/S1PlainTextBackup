@@ -1516,3 +1516,51 @@ tmd有中国人为啥就乳化了…前几代好几个外国人那还乳了对�
 
 
                                                  
+
+*****
+
+####  天衣いちご  
+##### 108#       发表于 2021-7-20 17:03
+
+
+没想到这帖子那么好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天邪鬼  
+##### 109#       发表于 2021-7-20 17:05
+
+
+不是已经买了吗？我还担心睿站上这番的时候把微博更新的字幕组给炸了
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  akstcle  
+##### 110#       发表于 2021-7-20 17:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52032316&amp;ptid=2016411" target="_blank">Leliel 发表于 2021-7-20 14:35</a>
+
+外国厂商还没闹清出卖给中国市场的作品最好的避险策略是不要用任何中国元素 ...</blockquote>
+富贵险中求，没中国元素这角色哪来这热度
+
+
+*****
+
+####  天邪鬼  
+##### 111#       发表于 2021-7-20 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52034208&amp;ptid=2016411" target="_blank">akstcle 发表于 2021-7-20 17:07</a>
+富贵险中求，没中国元素这角色哪来这热度</blockquote>
+我怎么觉得热度再高转播费没了也是亏啊
+总不可能卖周边把这钱赚回来吧，看热闹的几个人会真掏钱
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
