@@ -6170,3 +6170,188 @@ syl：虽然不希望cover炸，cover也不太可能炸，但是如果真炸了�
 
 
                                                  
+
+*****
+
+####  airclab  
+##### 6507#       发表于 2021-7-20 15:26
+
+
+cover爆炸   夸宝肯定得自己拉人组个社团  美滋滋
+
+
+*****
+
+####  nowaki  
+##### 6508#       发表于 2021-7-20 15:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029919&amp;ptid=1947500" target="_blank">空集 发表于 2021-7-20 11:20</a>
+
+事到如今又来没有讨厌过其他holomem了，不愧是说话当放屁的双标生物
+
+
+—— 来自 Xiaomi Mi 10, Andr ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202107/20/153805co8d88jqfy7783qd.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210720153156.png</strong> (23.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-20 15:38 上传
+
+
+集宝，这算双标吗
+
+
+*****
+
+####  admentus  
+##### 6509#       发表于 2021-7-20 15:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52033099&amp;ptid=1947500" target="_blank">nowaki 发表于 2021-7-20 15:38</a>
+集宝，这算双标吗</blockquote>
+所以我今天在这个楼里第一句话说的就是要不要去外面打，结果被骂了说是为了把人引到夸黑楼
+既然这个楼里的原住民都不在意在楼里打架这件事，那就在楼里继续呗
+
+毕竟对哪怕有些问题的看法再不同，对“在应当做repo，聊直播的专楼里面拉屎”的人的仇恨还是可以共情的，这才会@楼里想打架的人到一个早就沉下去的楼
+
+
+*****
+
+####  nowaki  
+##### 6510#       发表于 2021-7-20 15:48
+
+
+ 本帖最后由 nowaki 于 2021-7-20 15:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52033197&amp;ptid=1947500" target="_blank">admentus 发表于 2021-7-20 15:46</a>
+
+所以我今天在这个楼里第一句话说的就是要不要去外面打，结果被骂了说是为了把人引到夸黑楼
+
+既然这个楼里 ...</blockquote>
+我也不是谁也没能力让你封号，但看到你发正义春跑看都不看了的v专楼里放屁真的很让我恶心受不了。
+
+你冲进来发正义春，第一句话说啥对夸楼原住民不都是放屁，我建议你这个双标生物速速退网哦，要不我找集大法官判泥一下。
+
+还是您忘了私信轰炸这招，对别人用的不是很熟练嘛，需要来夸专楼说，双标怪？
+
+
+
+
+*****
+
+####  admentus  
+##### 6511#       发表于 2021-7-20 15:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52033239&amp;ptid=1947500" target="_blank">nowaki 发表于 2021-7-20 15:48</a>
+我也不是谁也没能力让你封号，但看到你发正义春跑看都不看了的v专楼里放屁真的很让我恶心受不了。
+
+你冲进 ...</blockquote>
+不会说人话就赶紧滚，毕竟我不是您这种专门拿阿希段位钓鱼感知树，在colo综吵了吵到人祭丝楼不仅心理没愧疚，还拿钓感知树鱼这种不光彩的事情上取得快乐跑进q群里邀功的家伙呢
+似乎前不久还因为在b综提同接被人开除了a➗籍？惹人不开心似乎是您的特长呢
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| a5220| + 1|差不多得了，没必要跟他在这污染别家的楼.|
+
+
+查看全部评分
+
+
+*****
+
+####  nowaki  
+##### 6512#       发表于 2021-7-20 15:59
+
+
+ 本帖最后由 nowaki 于 2021-7-20 16:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52033371&amp;ptid=1947500" target="_blank">admentus 发表于 2021-7-20 15:57</a>
+
+不会说人话就赶紧滚，毕竟我不是您这种专门拿阿希段位钓鱼感知树，在colo综吵了吵到人祭丝楼不仅心理没愧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐了，您是crew嘛，在凑阿夸专楼让人滚，感知树都没让你滚呢。
+
+经典转移话题，您承不承认自己是个双标生物嘛，我被骂巨魔无所谓的。
+
+真没人像个婴幼儿一样在乎自己是几年几班的，1班不能和2班玩，2班的不能串3班门这种事没几个人care的
+
+
+*****
+
+####  gongge666  
+##### 6513#       发表于 2021-7-20 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52032454&amp;ptid=1947500" target="_blank">smy20011 发表于 2021-7-20 14:49</a>
+
+我一直纳闷，cover爆炸了之后，夸本人处理的来这么多事情么？她又不像一些人老油条了。 ...</blockquote>
+5岁夸是装的，本身她的上进心不是一般的人能比的
+
+
+*****
+
+####  admentus  
+##### 6514#       发表于 2021-7-20 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52033403&amp;ptid=1947500" target="_blank">nowaki 发表于 2021-7-20 15:59</a>
+乐了，您是crew嘛，在凑阿夸专楼让人滚，感知树都没让你滚呢。
+
+经典转移话题，您承不承认自己是个 ...</blockquote>
+标您母亲，我第一件事就说的是去别处好好打，别在专楼
+上面crew问是否是对感知树对人不对事，整个v版我对人不对事，有私仇的也就你这么个东西，无论怎么好好说话都说不通，只会恶心人的玩意儿
+也就是你谭屏蔽系统做得太差，屏蔽了还能闻着味
+
+
+*****
+
+####  梅斯之围  
+##### 6515#       发表于 2021-7-20 16:06
+
+
+已经快进到野兔子内战环节了吗
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|a➗|
+
+
+查看全部评分
+
+
+*****
+
+####  nowaki  
+##### 6516#       发表于 2021-7-20 16:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52033464&amp;ptid=1947500" target="_blank">admentus 发表于 2021-7-20 16:04</a>
+
+标您母亲，我第一件事就说的是去别处好好打，别在专楼
+
+上面crew问是否是对感知树对人不对事，整个v版我对 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你第一句话说了就免死金牌了是吧，那感知树刚刚也补充说明了自己漏掉厌恶对象狐狐，我看你们也没停止输出他嘛。
+
+你这双标嘴脸都遮不住了还在这装呢，别玻璃心编辑啊，挂在这让大家看看做英雄梦，发正义春的杏仁是啥样的，我去工作了，你要是不想污染夸楼可以私信继续骂。
+
+
+                                                

@@ -1876,3 +1876,62 @@ nijisanji_app
 
 
                                                  
+
+*****
+
+####  影山银  
+##### 4663#       发表于 2021-7-20 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52032729&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-7-20 15:10</a>
+
+nijisanji_app
+
+販売を予定しておりました 黛灰の「海ボイス」「夏休みボイス」は、諸般の事情により販売を ...</blockquote>
+这算是什么信号吗？？？
+
+
+*****
+
+####  Suny08  
+##### 4664#       发表于 2021-7-20 16:07
+
+
+科乐美的走狗罢了
+
+
+*****
+
+####  harry3  
+##### 4665#       发表于 2021-7-20 16:20
+
+
+ 本帖最后由 harry3 于 2021-7-20 16:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52027596&amp;ptid=1972669" target="_blank">purdre 发表于 2021-7-20 07:07</a>
+
+声线是典型的中性クソガキ声线啊，哪大妈了…</blockquote>
+笑的时候特别大妈，其他时候比前世好了一点点。
+
+建议找谢拉学习一下变声器微调一下低音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  FCCHua  
+##### 4666#       发表于 2021-7-20 16:29
+
+
+那还是本音什么样就什么样吧，不觉得难听<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+syl 黛灰有发推说明原因
+
+
+*****
+
+####  qq845629713  
+##### 4667#       发表于 2021-7-20 16:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 垃圾暴死货手游罢了，科乐美自也是个吹话筒的
+
+
+                                                 

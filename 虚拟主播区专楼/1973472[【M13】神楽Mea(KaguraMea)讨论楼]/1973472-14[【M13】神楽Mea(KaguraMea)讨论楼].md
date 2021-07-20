@@ -14227,3 +14227,199 @@ mixi觉得她对某个观众的互动比较熟络就怅然若失  模仿那个
 
 
                                                  
+
+*****
+
+####  シルフィエット  
+##### 20814#       发表于 2021-7-20 15:41
+
+
+还想说怎么又搞人狼跟复刻19年似的，看到名单才发现不对，拉上去一看这不就是19年的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 20815#       发表于 2021-7-20 15:54
+
+
+<img src="https://img.saraba1st.com/forum/202107/20/155433iall1t33fr9m0a3f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>16EC8D02-FD04-4FE4-A08A-2FEE82B8B2C7.jpeg</strong> (128.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-20 15:54 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  时间在我手中  
+##### 20816#       发表于 2021-7-20 15:55
+
+
+生日建议单人通关恐怖游戏，不通关不下播<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gongge666  
+##### 20817#       发表于 2021-7-20 15:57
+
+
+19年516之后她是真的敬业，可惜B站禁播，等重开转播已经过了她的状态巅峰了。20年开始就摆烂了，很喜欢她说的一句话“只有努力了之后才会偶尔开一次TC<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">”原本一个季度差不多1次的TC20年越开越多。合理怀疑缴税缴多了不想努力了
+
+
+*****
+
+####  2014720  
+##### 20818#       发表于 2021-7-20 15:58
+
+
+不过批站三周年那个还不算大的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+事业民可真是贪婪呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20819#       发表于 2021-7-20 16:01
+
+
+大不大我不知道，我只知道事业民想的东西，404先不说，反正现在涨粉比你批站快不少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+批站这样吧，今年有希望九十万吗，88万呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 20820#       发表于 2021-7-20 16:06
+
+
+404涨粉比批站快 那同接呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  路人庚  
+##### 20821#       发表于 2021-7-20 16:07
+
+
+u1还是要s1，这三周年b限熟肉，我原以为撑死1.5万点击，没想到居然能上5万，也许就是这个点击数给了事业民错觉罢（虽然看评论看到有些人是被封面忽悠进来的
+
+
+*****
+
+####  2014720  
+##### 20822#       发表于 2021-7-20 16:10
+
+
+凭啥要给你费心费力搞企划啊，她对现在很满意的话，事业民急死了也没用滴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+事业民要是觉得现在的直播无聊想看企划就直说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gongge666  
+##### 20823#       发表于 2021-7-20 16:14
+
+
+等她哪天想赚奶粉钱了她就会卖力直播了
+
+
+*****
+
+####  时间在我手中  
+##### 20824#       发表于 2021-7-20 16:17
+
+
+ 本帖最后由 时间在我手中 于 2021-7-20 16:23 编辑 
+
+那批站同接你先证明给我今年常年稳定2500-3000再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+现在的情况就是无论海盗还是官组的播放数据都是没眼看系列啊，近半年来发出后一个月内过十万播放的熟肉你可以自己算算有几个的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然你也可以说所谓团结一切力量给官组贡献播放但是基本盘还是炸的彻底所以没吊用或者吊人自己也没啥活儿所以剪不出来什么东西自然不配高播放量之类的都行，这个随你想，我不评价原因
+
+
+总说事业事业，播放量没有，涨粉今年上半年涨了个寂寞，同接和过去对比没掉都算幸运的，难不成上半年批站SC和舰长收入还有很多数量不成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在外来血液显著可见的缺乏这种大环境下，批站现在不就是个浪费十小时时间还不如吊人在404跟犬山联动一次车轱辘活涨的粉多的环境吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl  214这傻卵说企划，批站三周年企划之后我每次搜索mea不还是85.6万粉丝，别说我关注官组，一搜索就是反正<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+整天叫嚷着重返昨日荣光，我直白点得了
+
+
+接受现实，早日躺平，想这些本质和你没什么关系的臭几把破事你还不如滚去多赚几毛钱给吊人打嫁妆钱，然后哪天真要结婚了赶紧撤崩卖溜
+
+
+*****
+
+####  草牛  
+##### 20825#       发表于 2021-7-20 16:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">确实，想看造人和搞怪直播就直说，唯独数字是不可能有的
+
+
+*****
+
+####  2014720  
+##### 20826#       发表于 2021-7-20 16:19
+
+
+如果是为了数字的话，上次八分音符企划的同接和点击就在那，你告诉我独自开台搞企划的理由
+
+事业民这么爱这些给苔苔兔妈妈多吹吹风呗，上次凸代居然还能破w还有赤坂也来了，蹭着兔妈妈也能上漫画不是
+
+是兔妈妈带你麻的切片少了还是苔苔不和你麻联动了，建议给两位烧烧香
+
+
+*****
+
+####  T_Hb  
+##### 20827#       发表于 2021-7-20 16:22
+
+
+怎么这么多长文，在输出谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20828#       发表于 2021-7-20 16:26
+
+
+没输出谁，有人喜欢做梦，那我觉得他该看看现实
+
+
+亦或者他要不学学官组，给吊人传点耳边风，加油，我很看好你，少年
+
+
+                                                
