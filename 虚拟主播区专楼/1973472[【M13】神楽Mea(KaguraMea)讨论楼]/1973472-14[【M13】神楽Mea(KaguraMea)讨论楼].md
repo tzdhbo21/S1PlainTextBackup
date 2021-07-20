@@ -15230,3 +15230,48 @@ B站今天人气挺高啊 39.5W 粉丝团也回到1.1W了 都是好事
 
 
                                                  
+
+*****
+
+####  Cushaw  
+##### 20901#       发表于 2021-7-20 22:35
+
+
+坦克肺活量一般都蛮大的，坦克民要输了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 20902#       发表于 2021-7-20 22:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坦克不是脂肪会影响呼吸道么，还会加大内脏负担，怎么会肺活量大呢
+
+
+*****
+
+####  往世雷书  
+##### 20903#       发表于 2021-7-20 22:53
+
+
+硬要找优点，被全部包裹的感觉大概也别有一番滋味吧
+可惜一说到坦克，我脑海里浮现的只有脂肪燃烧的气味
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 20904#       发表于 2021-7-20 22:54
+
+
+ 本帖最后由 T_Hb 于 2021-7-20 23:01 编辑 
+
+优点就是她是你麻，坦克属性的缺点就无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+                                                 

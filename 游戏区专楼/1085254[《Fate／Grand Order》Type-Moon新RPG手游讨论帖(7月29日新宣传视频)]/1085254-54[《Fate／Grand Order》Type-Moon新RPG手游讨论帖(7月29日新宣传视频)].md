@@ -9408,3 +9408,61 @@ QQ图片20210720110240.png
 
 
                                                  
+
+*****
+
+####  森兰丸  
+##### 80233#       发表于 2021-7-20 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52037584&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-20 22:06</a>
+
+你菌哥哥还有干不出来的事？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花了几秒钟回想了下除了事关整个游戏背景的巨坑之外废狗好像还真没有挖坑不填的
+
+
+就算蘑菇我也不信他敢开这么个先例
+
+
+*****
+
+####  仰望神的括约肌  
+##### 80234#       发表于 2021-7-20 22:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有种贝利尔不一定能在2.6搞定的感觉
+
+
+*****
+
+####  exiaexa  
+##### 80235#       发表于 2021-7-20 22:43
+
+
+ 本帖最后由 exiaexa 于 2021-7-20 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52037805&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-20 22:24</a>
+
+花了几秒钟回想了下除了事关整个游戏背景的巨坑之外废狗好像还真没有挖坑不填的
+
+
+就算蘑菇我也不 ...</blockquote>
+如果仅限一章的话当场就能论破啊，序章和第六章埋的坑都拖了多久了
+
+现在最草的是序章现在都没说清楚，然后到压根也没打算告诉你被狮子王碾死的都有谁连
+
+第七章都还有，巴御前都是多久后填回来的，茨木干脆给你扔到free和幕间
+
+他真干得出来.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stefanie张  
+##### 80236#       发表于 2021-7-20 23:06
+
+
+追原创番的感觉，6月到8月正好三个月完结
+
+
+                                                 

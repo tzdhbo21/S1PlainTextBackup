@@ -4926,3 +4926,19 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  伊布桑  
+##### 353#         楼主| 发表于 2021-7-20 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52036801&amp;ptid=2009419" target="_blank">ViviR 发表于 2021-7-20 20:58</a>
+
+还打算出几套泳装啊（</blockquote>
+榴衣这套应该是最后的，因为日团和翅团到现在为止泳装已经齐了（日团除了遥子其他人都只有建模）。其他两个团估计得等明年。
+
+而且最近很有可能有翅团的新曲，毕竟整个团都有新衣服，来个主题live是很合理的。正好明晚有新游戏内容的直播，非常有可能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
