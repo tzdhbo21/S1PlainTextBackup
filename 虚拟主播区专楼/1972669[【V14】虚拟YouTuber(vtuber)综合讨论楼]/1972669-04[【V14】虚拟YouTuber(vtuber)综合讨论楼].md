@@ -2004,3 +2004,68 @@ https://vee-official.jp/索尼音乐自己招VTB了。
 
 
                                                  
+
+*****
+
+####  winda  
+##### 4674#       发表于 2021-7-20 19:53
+
+
+vodka也被诊断为新冠阳性了啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">一个月出门3次的人怎么也会感染的
+
+
+*****
+
+####  noHentai  
+##### 4675#       发表于 2021-7-20 20:15
+
+
+索尼音娱正式下场，是否姗姗来迟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+[https://www.sonymusic.co.jp/sd/vee/](https://www.sonymusic.co.jp/sd/vee/) <blockquote>VEEとは
+
+2021年よりSony Musicが始める、史上最大規模のバーチャルタレント育成&amp;マネジメントプロジェクト。
+
+本プロジェクトから50名を超えるバーチャルタレントがデビューすることを目指し、配信や動画制作だけでなく、音楽、声優、創作など、各バーチャルタレントが“夢”を実現させるための活動を展開。
+
+これまで多岐にわたるエンタテインメント事業を展開してきたソニーミュージックグループが持つノウハウやソリューションを最大限に活用することにより、各バーチャルタレントの活動をサポートしていきます。</blockquote>
+
+
+*****
+
+####  IDIDIDID  
+##### 4676#       发表于 2021-7-20 20:17
+
+
+50个喷了，警惕彩虹打下饺子牌
+
+
+*****
+
+####  alcoholic1000  
+##### 4677#       发表于 2021-7-20 20:24
+
+
+vdk还在和女友同居，上周末spwn有活动的ハルキー也因为突然发热取消了活动，他和另一位Vカナメ住在一起<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 4678#       发表于 2021-7-20 20:31
+
+
+百般武艺，此乃虚拟akb48
+
+
+*****
+
+####  patema  
+##### 4679#       发表于 2021-7-20 20:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这波彩虹必死，是不是啊2000哥
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
