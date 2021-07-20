@@ -4683,3 +4683,66 @@ https://keiba-lv-st.jp/sp/main.html#track=kawasaki
 
 
                                                  
+
+*****
+
+####  lightsuger  
+##### 6394#       发表于 2021-7-20 10:50
+
+
+看到楼上火速扣分才发现原来这么多冲夸老哥在视奸这楼，辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kanchiki  
+##### 6395#       发表于 2021-7-20 10:56
+
+
+ 本帖最后由 Kanchiki 于 2021-7-20 11:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太乐了
+
+杏信们总能给我找点乐子
+
+现在知道为什么点踩那么多了吧
+
+哪怕35P再恶心我都没有讨厌过35本人
+
+cover死了妈我也没有讨厌过除了tskk以外的holomen
+
+杏信们呢？为了维护所谓hololive大家庭骂这个holomen不团队骂那个holomen不会做人
+
+应该搞这个企划应该搞那个企划，谁谁谁又里通彩虹背叛比股东还要股东
+
+平时不看夸也不粉夸，视奸专楼就算了还要盯着扣鹅
+
+到底是谁比较魔怔我是真的搞不懂了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集|-1|不愧是说话当放屁的人|
+| asdhai|-2|“没有讨厌过”逐帧分析马车的人如是说.|
+
+
+查看全部评分
+
+
+*****
+
+####  星の守  
+##### 6396#       发表于 2021-7-20 11:04
+
+
+冲夸老哥辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -10033,3 +10033,52 @@ tb搜小小鱼雷, 不要买水凝膜</blockquote>
 
 
                                                  
+
+*****
+
+####  猫溺泉君  
+##### 708#       发表于 2021-7-20 10:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52025051&amp;ptid=1985265" target="_blank">淡定君 发表于 2021-7-19 21:34</a>
+
+早买早享受。不是888翻车，这代体验真的不错。</blockquote>
+确实体验不错，但是经常性的不知道在运行什么，在兜里熄屏一小时能掉二三十的电，还巨他妈热
+
+现在我除了导航之外所有应用都进电池管理了
+
+
+顺便问一下，黑域到底应该怎么用？playstore下了一个，但是每次启用都得连电脑好麻烦
+
+
+*****
+
+####  我很费纸  
+##### 709#       发表于 2021-7-20 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029553&amp;ptid=1985265" target="_blank">猫溺泉君 发表于 2021-7-20 10:57</a>
+确实体验不错，但是经常性的不知道在运行什么，在兜里熄屏一小时能掉二三十的电，还巨他妈热
+
+现在我除了 ...</blockquote>
+黑阈那么麻烦，不如用冰箱，adb激活一次永久有效，多方便
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  猫溺泉君  
+##### 710#       发表于 2021-7-20 11:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029679&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-7-20 11:04</a>
+
+黑阈那么麻烦，不如用冰箱，adb激活一次永久有效，多方便
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Ne ...</blockquote>
+app名就叫冰箱吗？
+
+
+                                                 

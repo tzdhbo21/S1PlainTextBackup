@@ -13493,3 +13493,422 @@ Mikey还没玩腻<img src="https://static.saraba1st.com/image/smiley/face2017/03
 
 
                                                  
+
+*****
+
+####  yywzjsw  
+##### 20748#       发表于 2021-7-20 10:40
+
+
+突然想起来，你麻私下里lol，不就是和七海那一个状况。
+
+
+*****
+
+####  T_Hb  
+##### 20749#       发表于 2021-7-20 10:41
+
+
+别人下班还不让打游戏的吗
+
+
+*****
+
+####  草牛  
+##### 20750#       发表于 2021-7-20 10:41
+
+
+该狂暴鸿儒字幕组了，房导你给我出来
+
+
+*****
+
+####  FCCHua  
+##### 20751#       发表于 2021-7-20 10:42
+
+
+那还是不一样，因为和她一起玩的没人跑论坛爆料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20752#       发表于 2021-7-20 10:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029353&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-7-20 10:40</a>
+
+突然想起来，你麻私下里lol，不就是和七海那一个状况。</blockquote>
+啥东西，哪个七海，美波七海那个？那不是字幕组和主播私联系列把戏吗，还是海子姐？
+
+
+*****
+
+####  草牛  
+##### 20753#       发表于 2021-7-20 10:43
+
+
+ 本帖最后由 草牛 于 2021-7-20 10:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放屁，你楼天天爆料
+——过时回复——
+
+
+*****
+
+####  FCCHua  
+##### 20754#       发表于 2021-7-20 10:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029386&amp;ptid=1973472" target="_blank">草牛 发表于 2021-7-20 10:43</a>
+放屁，你楼天天爆料</blockquote>
+发现歧义，改了一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 20755#       发表于 2021-7-20 10:44
+
+
+<blockquote>时间在我手中 发表于 2021-7-20 10:42
+啥东西，哪个七海，美波七海那个？那不是字幕组和主播私联系列把戏吗，还是海子姐？ ...</blockquote>
+最近不就美波那个
+
+
+*****
+
+####  时间在我手中  
+##### 20756#       发表于 2021-7-20 10:44
+
+
+美波七海那个不是捏妈的字幕组搞私联把戏然后还整了个分赃不均系列吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 20757#       发表于 2021-7-20 10:44
+
+
+美波七海吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这不同啊 一个是和字幕组的人 一个是和自己的熟人一起玩 
+
+
+*****
+
+####  呓亘  
+##### 20758#       发表于 2021-7-20 10:45
+
+
+你麻属鹌鹑的 哪有胆子私联啊……
+
+
+*****
+
+####  草牛  
+##### 20759#       发表于 2021-7-20 10:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你怎么知道字幕组里没个群中群中群，天天狂暴鸿儒你麻
+
+
+*****
+
+####  yywzjsw  
+##### 20760#       发表于 2021-7-20 10:46
+
+
+突然又想起来，mixi这也算不算是另类的爆料<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  yywzjsw  
+##### 20761#       发表于 2021-7-20 10:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029423&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-7-20 10:46</a>
+
+突然又想起来，mixi这也算不算是另类的爆料</blockquote>
+都是打钱的人，然后破防、某种程度上异曲同工<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 20762#       发表于 2021-7-20 10:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是Mixi我只会说一句好死，早该死死了
+
+
+*****
+
+####  Klience  
+##### 20763#       发表于 2021-7-20 10:48
+
+
+你麻就一个白银仔 房导起码也是个铂金 搜了一下房导的排位战绩 基本全都是辅助<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20764#       发表于 2021-7-20 10:48
+
+
+yysy，mixi这是魔怔独角兽发病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 20765#       发表于 2021-7-20 10:48
+
+
+<blockquote>草牛 发表于 2021-7-20 10:45
+你怎么知道字幕组里没个群中群中群，天天狂暴鸿儒你麻</blockquote>
+破防了 脱粉了 渐行渐远了
+
+
+*****
+
+####  时间在我手中  
+##### 20766#       发表于 2021-7-20 10:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029422&amp;ptid=1973472" target="_blank">草牛 发表于 2021-7-20 10:45</a>
+
+你怎么知道字幕组里没个群中群中群，天天狂暴鸿儒你麻</blockquote>
+LOL开黑群倒是听说有个，不过你麻怎么可能在里面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 20767#       发表于 2021-7-20 10:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029454&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-7-20 10:48</a>
+
+yysy，mixi这是魔怔独角兽发病美波七海那个我记得是私联发起的还是最初参与的有个人觉得不对所以就 ...</blockquote>
+其实一样的，都是魔怔破防了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Joffre✔  
+##### 20768#       发表于 2021-7-20 10:51
+
+
+这和七海还是不一样，原教旨一点的话，七海是以七海的身份小团体打游戏。而mea是以麻的身份小团体打游戏。麻自立干的事，和mea有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20769#       发表于 2021-7-20 10:56
+
+
+什么狂犬神教思想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 20770#       发表于 2021-7-20 10:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原教旨皮魂分离
+
+
+*****
+
+####  路人庚  
+##### 20771#       发表于 2021-7-20 10:57
+
+
+ 本帖最后由 路人庚 于 2021-7-20 10:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u1s1，你咩姐跟这个lol小车队玩的时间比她vtb出道时间还久，这能一样吗
+
+按照先来后到原则，小车队是幼驯染，你们才是黄毛（而且你咩姐之前还说过“玩lol的男人不行”这种话<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 20772#       发表于 2021-7-20 10:57
+
+
+这也太自欺欺人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 20773#       发表于 2021-7-20 10:58
+
+
+啊b现在还有她和车队一起玩的小视频呢 虽然也就10几秒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20774#       发表于 2021-7-20 10:58
+
+
+话说这人是今早又在打了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这周不会就那个所谓字词人狼的安排吧
+
+
+*****
+
+####  T_Hb  
+##### 20775#       发表于 2021-7-20 10:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那甚至不是人狼，是征集观众想问的问题，然后一起聊
+
+其他的直播根本没点消息
+
+
+*****
+
+####  Klience  
+##### 20776#       发表于 2021-7-20 11:00
+
+
+也就打了两把 一个排位露露0/11输了 一把终极魔典 后面就没打了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 20777#       发表于 2021-7-20 11:01
+
+
+先猜个今晚保底的歌回，先tc对方mikey君发情一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 20778#       发表于 2021-7-20 11:01
+
+
+ 本帖最后由 时间在我手中 于 2021-7-20 11:02 编辑 
+
+没仔细看，反正老子摸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚该启动au了
+
+臭女人咋就对一方和这个什么mikey啥的这类角色这么喜欢，要不老子也干脆鸽了滚去打闪3看能不能对黑兔恩起来找回点二次元初心
+
+
+*****
+
+####  路人庚  
+##### 20779#       发表于 2021-7-20 11:01
+
+
+今早也就打了2把，1小时前就没玩了，比起打电动更值得关注的点也许应该是她醒的够早的（不太可能是通宵没睡
+
+
+反正再过几天她大概要开始准备0802了，现在该摸就摸了罢
+
+
+顺便一提那个苔苔联动不是文字人狼，只是普通的问答企划
+
+
+*****
+
+####  T_Hb  
+##### 20780#       发表于 2021-7-20 11:01
+
+
+我确实在等一个家用3D歌回，上次没听爽<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 20781#       发表于 2021-7-20 11:02
+
+
+等个生日3dlive<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 20782#       发表于 2021-7-20 11:03
+
+
+家用3D行，全身3D还是算了，最近东京疫情看着哈人，希望她别出门
+
+
+*****
+
+####  时间在我手中  
+##### 20783#       发表于 2021-7-20 11:03
+
+
+上次歌回月兔垮了把我整个人弄碎了一天，周日那一天都不知道做什么好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">臭女人啥时候唱点老术曲啊，好久没听到FC的妄想感伤代偿联盟了
+
+
+*****
+
+####  yywzjsw  
+##### 20784#       发表于 2021-7-20 11:05
+
+
+我想听欢快的、小女孩一样的歌、大总统那类的就不错、你麻台词功底还是不错的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 20785#       发表于 2021-7-20 11:07
+
+
+我喜欢俏皮一点的，或者舒缓一点的
+
+
+*****
+
+####  呓亘  
+##### 20786#       发表于 2021-7-20 11:08
+
+
+想听小恶魔一点的
+
+
+*****
+
+####  呓亘  
+##### 20787#       发表于 2021-7-20 11:08
+
+
+还有帅气一点的
+
+
+*****
+
+####  呓亘  
+##### 20788#       发表于 2021-7-20 11:12
+
+
+啊 还有魅惑一点的
+
+
+*****
+
+####  路人庚  
+##### 20789#       发表于 2021-7-20 11:12
+
+
+想听多翻车一点的，或者搞怪一点的
+
+
+                                                

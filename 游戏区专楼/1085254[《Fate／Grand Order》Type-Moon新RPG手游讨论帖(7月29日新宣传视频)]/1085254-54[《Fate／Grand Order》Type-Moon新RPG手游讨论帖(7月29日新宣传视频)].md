@@ -9054,3 +9054,109 @@ dw确实废物 但菌类怎么也得分到二三成锅吧<img src="https://stati
 
 
                                                  
+
+*****
+
+####  quanlix  
+##### 80209#       发表于 2021-7-20 10:43
+
+
+到现在都没解释迦勒底到底为什么能召出加拉哈德吧
+
+
+*****
+
+####  exiaexa  
+##### 80210#       发表于 2021-7-20 10:52
+
+
+继贴吧之后你楼又要被屎黄色视奸了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80211#       发表于 2021-7-20 10:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029487&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-20 10:52</a>
+
+继贴吧之后你楼又要被屎黄色视奸了吗</blockquote>
+你应该去那楼看看，那个楼主好像开火的对象就是你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  otsu  
+##### 80212#       发表于 2021-7-20 10:59
+
+
+nga至于这么玻璃心吗，窥屏都窥到泥潭来了
+得亏没去姐妹论坛，要不然得活活气死
+
+
+*****
+
+####  sosgame67  
+##### 80213#       发表于 2021-7-20 11:00
+
+
+乐了，一堆直球喷s1低龄巨魔论坛云玩家的，是不是以前在这里破防的小朋友阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">..
+
+
+*****
+
+####  仰望神的括约肌  
+##### 80214#       发表于 2021-7-20 11:03
+
+
+已经锁隐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80215#       发表于 2021-7-20 11:03
+
+
+ 本帖最后由 exiaexa 于 2021-7-20 11:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029514&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-20 10:54</a>
+
+你应该去那楼看看，那个楼主好像开火的对象就是你</blockquote>
+我很努力了，但是它被锁了
+
+反正会被视奸的放这儿给他看算了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+QQ图片20210720110240.png
+(212.46 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-20 11:03 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/20/110316n1uxtlto9sszl9sh.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80216#       发表于 2021-7-20 11:11
+
+
+那贴最草的是半路就自己打起来了啊
+
+我想着就是菌厨菌黑大战，结果半路还冲出来圆桌厨打成一团笑死我了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+他是不是真的觉得NGA内部全面吹爆所以放心的开喷了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
