@@ -16977,3 +16977,35 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  moeful  
+##### 55421#       发表于 2021-7-22 01:43
+
+
+日本人自己杀完的日本狼的神化哈哈哈哈哈哈哈哈哈哈
+
+
+*****
+
+####  luoyianwu  
+##### 55422#       发表于 2021-7-22 03:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51993264&amp;ptid=98922" target="_blank">赚钱娶老婆 发表于 2021-7-17 10:48</a>
+
+这不明摆着犬犬果实-幻兽种-白眼狼形态吗？</blockquote>
+出来领鹅
+
+
+*****
+
+####  luoyianwu  
+##### 55423#       发表于 2021-7-22 03:08
+
+
+海贼王的双翼<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+                                                 
