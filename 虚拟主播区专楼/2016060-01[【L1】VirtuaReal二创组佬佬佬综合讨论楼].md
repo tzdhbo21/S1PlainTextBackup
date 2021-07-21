@@ -816,3 +816,29 @@ liver还不如给个邮箱让野生切片man把做好的视频往里扔
 
 
                                                  
+
+*****
+
+####  玄玦  
+##### 52#       发表于 2021-7-21 22:58
+
+
+留档
+<img src="https://p.sda1.dev/2/47b4d9b02565c8d0e3af8303ab40f823/IMG_CMP_87748782.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  玄玦  
+##### 53#       发表于 2021-7-21 22:59
+
+
+留档
+<img src="https://p.sda1.dev/2/07f899cbc162f298bf14cce711a56f1d/IMG_CMP_202668003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
