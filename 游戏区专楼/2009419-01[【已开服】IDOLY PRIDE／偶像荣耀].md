@@ -4976,3 +4976,24 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  yuugi  
+##### 356#       发表于 2021-7-21 12:51
+
+
+ 本帖最后由 yuugi 于 2021-7-21 13:14 编辑 
+
+新的番外看完了
+
+到出道live的爱情故事
+
+没看过漫画不知是否为前传
+[https://pan.baidu.com/s/1kwBFGSvun9rGKLgRqdsq6w](https://pan.baidu.com/s/1kwBFGSvun9rGKLgRqdsq6w) 
+
+
+提取码: y2u4
+
+
+                                                 
