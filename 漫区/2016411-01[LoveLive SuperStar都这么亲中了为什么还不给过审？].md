@@ -1787,3 +1787,19 @@ tmd有中国人为啥就乳化了…前几代好几个外国人那还乳了对�
 
 
                                                  
+
+*****
+
+####  OnlyW  
+##### 130#       发表于 2021-7-21 08:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52033225&amp;ptid=2016411" target="_blank">jellyfis 发表于 2021-7-20 15:47</a>
+
+唐可可运动神经不好
+
+是不是着隐喻东亚病夫？我很好奇</blockquote>
+不少人用汉字在网上喷屎这亦是一种乳化
+
+
+                                                 
