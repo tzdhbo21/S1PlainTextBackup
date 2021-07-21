@@ -15705,3 +15705,446 @@ Mikey确实出现在她的梦里了，不过是个噩梦<img src="https://static
 
 
                                                  
+
+*****
+
+####  2014720  
+##### 20946#       发表于 2021-7-21 14:35
+
+
+我越看你越像矩阵了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 20947#       发表于 2021-7-21 14:37
+
+
+想多了 我可没矩阵那么魔怔
+
+
+*****
+
+####  时间在我手中  
+##### 20948#       发表于 2021-7-21 14:41
+
+
+矩阵以前也挺正常的
+
+
+*****
+
+####  呓亘  
+##### 20949#       发表于 2021-7-21 14:44
+
+
+emmmmmmmmmm
+
+
+*****
+
+####  呓亘  
+##### 20950#       发表于 2021-7-21 14:56
+
+
+傻卵女人....傻卵女人......
+
+
+*****
+
+####  时间在我手中  
+##### 20951#       发表于 2021-7-21 14:57
+
+
+哦对，顺便一提，兔头或者什么谁的企划很好，但是某些东西来说
+
+
+挺日本人的
+
+
+再顺便一提，工商和你麻缘分是很少的
+
+
+*****
+
+####  呓亘  
+##### 20952#       发表于 2021-7-21 15:01
+
+
+嘤嘤嘤 凉凉底边没人给工商 雀魂猫爪还是死皮赖脸要来的
+
+
+*****
+
+####  2014720  
+##### 20953#       发表于 2021-7-21 15:08
+
+
+你们之前说不是有个动物园工商啥的吗
+
+怎么没影了
+
+
+*****
+
+####  aisakahammer  
+##### 20954#       发表于 2021-7-21 15:08
+
+
+不是说很多联系不想接广告么，很怕麻烦。
+
+
+*****
+
+####  T_Hb  
+##### 20955#       发表于 2021-7-21 15:09
+
+
+ 本帖最后由 T_Hb 于 2021-7-21 15:11 编辑 
+
+你麻奇怪的原则，说是因为工商游戏播完就不会再碰了，所以不想接
+
+
+*****
+
+####  古战场亡魂  
+##### 20956#       发表于 2021-7-21 15:14
+
+
+她的感觉就是接触新鲜事物非常难，在游戏上要慢两拍
+
+
+*****
+
+####  时间在我手中  
+##### 20957#       发表于 2021-7-21 15:16
+
+
+啊，今天是0721啊
+
+
+臭女人能开播给我表演黄段子吗
+
+
+*****
+
+####  T_Hb  
+##### 20958#       发表于 2021-7-21 15:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能开播就不错了
+
+
+*****
+
+####  雪风utopia  
+##### 20959#       发表于 2021-7-21 15:17
+
+
+能不能开播来个0721啊，就算只有声音我也能接受<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 20960#       发表于 2021-7-21 15:18
+
+
+就算没有声音，我也可以<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 20961#       发表于 2021-7-21 15:19
+
+
+寂寞了就来听这个Mea的asmr
+
+<img src="https://img.saraba1st.com/forum/202107/21/151910a9jz5y6519uf1d9z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210721_074346_com.huawei.browser_edit_562329515579819.jpg</strong> (391.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-21 15:19 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  时间在我手中  
+##### 20962#       发表于 2021-7-21 15:21
+
+
+老子坚决不找代餐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年找代餐的最后那吊样子我想起来就要犯病
+
+
+*****
+
+####  T_Hb  
+##### 20963#       发表于 2021-7-21 15:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉我太唯了，根本找不到能代的
+
+
+*****
+
+####  makourisu-2  
+##### 20964#       发表于 2021-7-21 15:25
+
+
+怎么感觉自从b限之后，楼里事业民频繁发病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个家用3d给了你们什么不切实际的幻想？
+
+
+*****
+
+####  Klience  
+##### 20965#       发表于 2021-7-21 15:31
+
+
+被家用3D脑控了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  汇聚群光  
+##### 20966#       发表于 2021-7-21 15:40
+
+
+不懂就问，0721是什么梗？
+
+
+*****
+
+####  古战场亡魂  
+##### 20967#       发表于 2021-7-21 15:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52046063&amp;ptid=1973472" target="_blank">汇聚群光 发表于 2021-7-21 15:40</a>
+
+不懂就问，0721是什么梗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不会百度吗？？第一个就是
+
+
+*****
+
+####  T_Hb  
+##### 20968#       发表于 2021-7-21 15:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52046063&amp;ptid=1973472" target="_blank">汇聚群光 发表于 2021-7-21 15:40</a>
+不懂就问，0721是什么梗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自宅发电
+
+
+*****
+
+####  时间在我手中  
+##### 20969#       发表于 2021-7-21 15:51
+
+
+不就是紫薇，卫道的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gongge666  
+##### 20970#       发表于 2021-7-21 16:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52045728&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-7-21 15:14</a>
+
+她的感觉就是接触新鲜事物非常难，在游戏上要慢两拍</blockquote>
+已经很快了，她本身不喜欢动脑。但就算如此当初玩只狼基本上瞄了两眼攻略，除了屑一郎卡了几小时别的都是10把内过得，靠的几乎就是肌肉反应；pubg她也经常打出神经枪。当初粉丝要是只在游戏回打钱，歌回绝不打钱搞不好现在就是个gamer了
+
+
+
+
+*****
+
+####  Cushaw  
+##### 20971#       发表于 2021-7-21 16:10
+
+
+暴言：不动脑子打什么游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  古战场亡魂  
+##### 20972#       发表于 2021-7-21 16:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52046376&amp;ptid=1973472" target="_blank">gongge666 发表于 2021-7-21 16:08</a>
+
+已经很快了，她本身不喜欢动脑。但就算如此当初玩只狼基本上瞄了两眼攻略，除了屑一郎卡了几小时别的都是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我说的游戏慢两拍不是说她的游戏才能……
+
+是说她的对新游戏的接受程度。
+
+用股票的话来说，就是买菜大妈都在和你谈股票了。
+
+她开始碰某个游戏的时候，说明那个游戏已经火了两圈热度都要开始散了。
+
+
+*****
+
+####  gongge666  
+##### 20973#       发表于 2021-7-21 16:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52046440&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-7-21 16:12</a>
+
+我说的游戏慢两拍不是说她的游戏才能……
+
+是说她的对新游戏的接受程度。
+
+用股票的话来说，就是买 ...</blockquote>
+她只是纯粹不想玩罢了，大多都是别人叫她玩的
+
+
+*****
+
+####  T_Hb  
+##### 20974#       发表于 2021-7-21 16:18
+
+
+3年前麻将和101，三年后还是麻将和101<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 20975#       发表于 2021-7-21 16:19
+
+
+世嘉麻将换成雀魂了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">已经是进步了，之前雀魂被推荐了多少次，死活不肯玩。
+
+
+*****
+
+####  草牛  
+##### 20976#       发表于 2021-7-21 16:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不然老年人审美是从哪来的
+
+
+*****
+
+####  T_Hb  
+##### 20977#       发表于 2021-7-21 16:20
+
+
+她下一个抱有极大期待的游戏叫做喷喷3<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 20978#       发表于 2021-7-21 16:22
+
+
+当然大家说她不玩游戏，也只是她抱怨她不玩大家想看的游戏。
+
+她要是现在开始大a特a……那只能退坑了……游戏民要从小养，现在养有点晚。
+
+
+*****
+
+####  Klience  
+##### 20979#       发表于 2021-7-21 16:23
+
+
+俄罗斯方块呢 所以为啥现在不播俄罗斯方块？
+
+
+*****
+
+####  T_Hb  
+##### 20980#       发表于 2021-7-21 16:24
+
+
+ 本帖最后由 T_Hb 于 2021-7-21 16:27 编辑 
+
+因为没意思了，她又不可能深练，而且tetris99的热度也过了
+
+
+*****
+
+####  时间在我手中  
+##### 20981#       发表于 2021-7-21 16:27
+
+
+打块这东西越往后越难练的···apex还是算了吧，偶尔玩玩还行
+
+
+单机现在也没什么超级大作满足事业民的妄想吧
+
+
+我甚至都滚回去玩csol放空大脑了
+
+
+*****
+
+####  Klience  
+##### 20982#       发表于 2021-7-21 16:28
+
+
+那能不能考虑那个宝可梦moba<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 20983#       发表于 2021-7-21 16:29
+
+
+她上次说了，宝可梦moba狗都不玩，不如直接101
+
+
+*****
+
+####  Klience  
+##### 20984#       发表于 2021-7-21 16:31
+
+
+那她lol都不播 也就没啥游戏好玩了呗 彩虹那边都开始宝可梦moba团建了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 20985#       发表于 2021-7-21 16:32
+
+
+说白了，就是不爱玩游戏（101除外）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 20986#       发表于 2021-7-21 16:35
+
+
+果然101才是吊人最爱 虽然人菜瘾大（波比除外）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dualist彩  
+##### 20987#       发表于 2021-7-21 16:36
+
+
+101除外？没野男人陪101狗都不玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

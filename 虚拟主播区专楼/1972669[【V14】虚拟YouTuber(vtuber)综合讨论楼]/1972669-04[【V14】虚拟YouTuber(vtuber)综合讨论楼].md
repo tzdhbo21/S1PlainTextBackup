@@ -2215,3 +2215,27 @@ Selen这也太能笑了
 
 
                                                  
+
+*****
+
+####  CielChloe  
+##### 4693#       发表于 2021-7-21 15:09
+
+
+ 本帖最后由 CielChloe 于 2021-7-21 15:16 编辑 
+
+宝可梦大集结正式开服了，King主场中<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+出了自定义5v5，大赛企划可以走起了
+
+
+*****
+
+####  tankai  
+##### 4694#       发表于 2021-7-21 15:16
+
+
+SONY这种钱也要来抢,还给不给别人活路了.看别人把这圈子做起来了就资本入场...哦乐华也是啊那没事了.<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+                                                 
