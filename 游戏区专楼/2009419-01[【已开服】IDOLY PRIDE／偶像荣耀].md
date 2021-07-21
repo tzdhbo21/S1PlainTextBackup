@@ -4942,3 +4942,26 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  伊布桑  
+##### 354#         楼主| 发表于 2021-7-21 11:33
+
+
+<img src="https://img.saraba1st.com/forum/202107/21/113024u1yascuau8cnwkce.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3a7b42acccd82e30.jpg</strong> (378.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-21 11:30 上传
+
+
+大概是前传漫画的剧情了，如果能更详细一点就好了。
+
+泳装榴衣看起来还挺强的
+
+
+                                                 
