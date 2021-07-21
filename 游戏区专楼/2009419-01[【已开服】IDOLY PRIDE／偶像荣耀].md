@@ -5017,3 +5017,46 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  YetToCome  
+##### 359#       发表于 2021-7-21 19:39
+
+
+这破活动简直服了，身上没有5星的渚女士，根本没法玩<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 360#       发表于 2021-7-21 20:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52048891&amp;ptid=2009419" target="_blank">YetToCome 发表于 2021-7-21 19:39</a>
+
+这破活动简直服了，身上没有5星的渚女士，根本没法玩</blockquote>
+有个邪道玩法，这回玩家没有生命值可以随便输，妹子们没体力了就找个合适的关卡，sp位不要放得分手，塞2、3个奶妈剩下上要回体力的，注意ct让奶妈技能经量晚放，然后就不停失败回体力好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  terry666  
+##### 361#       发表于 2021-7-21 20:48
+
+
+月底kkr，芽衣，琴乃新卡 大概率俩限定和一张活动卡的标配
+
+
+*****
+
+####  ViviR  
+##### 362#       发表于 2021-7-21 20:56
+
+
+妈耶，早知道存井了，kkr还是有些想要的
+
+
+                                                

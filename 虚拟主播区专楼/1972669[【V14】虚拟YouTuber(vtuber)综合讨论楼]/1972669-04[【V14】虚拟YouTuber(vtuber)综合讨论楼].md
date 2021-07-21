@@ -2263,3 +2263,159 @@ vodka新冠退赛换成了stylishnoob，噗又可以和偶像打枪了
 
 
                                                  
+
+*****
+
+####  katern  
+##### 4697#       发表于 2021-7-21 19:52
+
+
+宝可梦大ip是这样的，锁国区真的傻逼
+
+
+*****
+
+####  CielChloe  
+##### 4698#       发表于 2021-7-21 19:55
+
+
+放国内不过是和tx其他moba抢市场，放国外那是开拓日本moba荒漠，倒是不难理解
+
+
+*****
+
+####  FCCHua  
+##### 4699#       发表于 2021-7-21 20:01
+
+
+千麻开幕就唱，好好好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 4700#       发表于 2021-7-21 20:04
+
+
+感觉麦怪怪的，伴奏和人声和的不是很好
+
+
+*****
+
+####  winda  
+##### 4701#       发表于 2021-7-21 20:06
+
+
+奈罗花自从上次撞巴3d被踩后也学乖了啊，开会限了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 4702#       发表于 2021-7-21 20:06
+
+
+ 本帖最后由 FCCHua 于 2021-7-21 20:38 编辑 
+
+典中典来了
+好紧张，草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl 大福也是会限，美夜子在公开播cr训练赛，凛先辈还在老鼠台奋战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pansherry  
+##### 4703#       发表于 2021-7-21 20:08
+
+
+恶魔人忘词了口胡还行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  say_gg_plz  
+##### 4704#       发表于 2021-7-21 20:09
+
+
+ 本帖最后由 say_gg_plz 于 2021-7-21 20:16 编辑 
+
+chima太紧张了
+
+可惜了，今天发挥说实话还没平时直播时候好
+
+
+*****
+
+####  CielChloe  
+##### 4705#       发表于 2021-7-21 20:09
+
+
+ 本帖最后由 CielChloe 于 2021-7-21 20:43 编辑 
+
+一直觉得，是不是没人教千麻怎么合理用麦，总不可能3DLive也是用垃圾麦吧。
+
+确实感觉她紧张得不行
+
+syl , 舞元。。。
+
+这首喜欢
+
+
+*****
+
+####  十四洲  
+##### 4706#       发表于 2021-7-21 20:14
+
+
+确实很紧张…
+
+
+*****
+
+####  alcoholic1000  
+##### 4707#       发表于 2021-7-21 20:20
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-21 20:35 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/21/201830epssi5rpse940mz5.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #町田ちま3D 】上から読んでも下から読んでも町田ちまです！【にじさんじ】.png.png</strong> (128.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-21 20:18 上传
+
+
+微分什么的最近有在解吗
+[https://www.youtube.com/watch?v=zoL0zudcFDw](https://www.youtube.com/watch?v=zoL0zudcFDw)
+
+<img src="https://img.saraba1st.com/forum/202107/21/203236letekm3oogdsomz3.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #町田ちま3D 】上から読んでも下から読んでも町田ちまです！【にじさんじ】-2.png.png</strong> (72.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-21 20:32 上传
+
+
+跑！
+
+
+*****
+
+####  FCCHua  
+##### 4708#       发表于 2021-7-21 20:22
+
+
+ 本帖最后由 FCCHua 于 2021-7-21 20:30 编辑 
+
+舞元力一贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不知道会不会有阿柴，有了，外加飞鸟p
+原来在现场，中之狗大暴露
+
+
+                                                 

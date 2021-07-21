@@ -10281,3 +10281,21 @@ accubattery自己本身就是个耗电大户啊<img src="https://static.saraba1s
 
 
                                                  
+
+*****
+
+####  木瓜奶五元  
+##### 723#       发表于 2021-7-21 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52039952&amp;ptid=1985265" target="_blank">Cray 发表于 2021-7-21 06:18</a>
+accubattery自己本身就是个耗电大户啊
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+这事我不知道，也没找到任何证据表明accbattery耗电大户。单就机制来说，常驻后台和耗电大户没有必然联系。
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
