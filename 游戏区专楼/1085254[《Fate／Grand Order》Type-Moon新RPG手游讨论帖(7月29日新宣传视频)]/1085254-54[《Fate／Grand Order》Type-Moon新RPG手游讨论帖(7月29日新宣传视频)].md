@@ -9825,3 +9825,20 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  rzxa  
+##### 80263#       发表于 2021-7-21 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52052050&amp;ptid=1085254" target="_blank">sin.yugi 发表于 2021-7-21 23:29</a>
+
+周年卡一定新卡完全不成立，cba就是当时异闻带之王作为周年从者。
+
+
+— from OnePlus GM1917, Android 11  ...</blockquote>
+我的意思是没实装的都是新卡，不管剧情有没出现
+
+
+                                                 
