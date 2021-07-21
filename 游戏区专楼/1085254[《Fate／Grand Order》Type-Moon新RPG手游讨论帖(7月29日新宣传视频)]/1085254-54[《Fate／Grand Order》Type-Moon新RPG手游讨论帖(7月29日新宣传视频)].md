@@ -9711,3 +9711,71 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 80254#       发表于 2021-7-21 17:30
+
+
+无事发生也就是说，奥伯龙真的是周年角色了吗，还是说三技能/三破真的是什么了不得的东西必须要往后压
+
+如果是前者的话，菌鸽鸽放过我吧，整点通俗意义上好看的进周年行不行
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80255#       发表于 2021-7-21 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52047365&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-21 17:30</a>
+
+无事发生也就是说，奥伯龙真的是周年角色了吗，还是说三技能/三破真的是什么了不得的东西必须要往后压
+
+
+如 ...</blockquote>
+应该是，无论3技能怎样，现在强度都相当可以了。周年还能出个更强的吗
+
+
+*****
+
+####  zakki  
+##### 80256#       发表于 2021-7-21 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52047365&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-21 17:30</a>
+无事发生也就是说，奥伯龙真的是周年角色了吗，还是说三技能/三破真的是什么了不得的东西必须要往后压
+
+如 ...</blockquote>
+百分百是了，你菌追星大成功<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 80257#       发表于 2021-7-21 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52047365&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-21 03:30</a>
+
+无事发生也就是说，奥伯龙真的是周年角色了吗，还是说三技能/三破真的是什么了不得的东西必须要往后压
+
+
+如 ...</blockquote>
+虽然曾有舅舅表示过里面缝合了瓦叔，但老实说就算三破会变，我也不太想看到这种画风的瓦叔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80258#       发表于 2021-7-21 17:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52047642&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-7-21 17:51</a>
+虽然曾有舅舅表示过里面缝合了瓦叔，但老实说就算三破会变，我也不太想看到这种画风的瓦叔 ...</blockquote>
+那个舅舅根本不准，可以扔了
+
+
+                                                 

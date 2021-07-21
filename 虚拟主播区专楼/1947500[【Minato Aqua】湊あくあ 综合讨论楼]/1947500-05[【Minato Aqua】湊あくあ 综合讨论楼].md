@@ -6658,3 +6658,25 @@ syl：这pokemon unite还不如lol呢
 
 
                                                  
+
+*****
+
+####  梅斯之围  
+##### 6541#       发表于 2021-7-21 18:22
+
+
+宝可梦unite除了任天堂授权还要腾讯授权么
+
+
+*****
+
+####  心垂万刃  
+##### 6542#       发表于 2021-7-21 18:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52047951&amp;ptid=1947500" target="_blank">梅斯之围 发表于 2021-7-21 18:22</a>
+宝可梦unite除了任天堂授权还要腾讯授权么</blockquote>
+不用，确定木口可以播<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+                                                 

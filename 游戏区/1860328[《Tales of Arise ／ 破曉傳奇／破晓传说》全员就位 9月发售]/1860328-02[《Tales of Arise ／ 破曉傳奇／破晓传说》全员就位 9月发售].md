@@ -7460,3 +7460,29 @@ https://www.youtube.com/watch?v=74APIbBbTeU
 
 
                                                  
+
+*****
+
+####  hkguty  
+##### 2051#       发表于 2021-7-21 17:34
+
+
+女主这ntr防御诅咒有点nb
+
+
+*****
+
+####  电风扇  
+##### 2052#       发表于 2021-7-21 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51979260&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-16 11:27</a>
+
+https://www.youtube.com/watch?v=74APIbBbTeU
+
+
+官方更新了 罗 的角色预告片</blockquote>
+不要对TO系列的剧情水准期待太高，要学会保护自己<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等真的吊炸了我来和你一起吹
+
+
+                                                 
