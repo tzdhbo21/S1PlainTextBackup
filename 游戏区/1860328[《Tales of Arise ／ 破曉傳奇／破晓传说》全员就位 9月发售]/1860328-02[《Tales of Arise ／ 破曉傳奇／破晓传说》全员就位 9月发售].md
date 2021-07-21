@@ -7419,3 +7419,44 @@ https://www.youtube.com/watch?v=74APIbBbTeU
 
 
                                                  
+
+*****
+
+####  laoz  
+##### 2048#       发表于 2021-7-21 17:05
+
+
+<img src="https://img.saraba1st.com/forum/202107/21/170527ib1wwlook44kowob.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (99.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-21 17:05 上传
+
+
+*****
+
+####  中泽君  
+##### 2049#       发表于 2021-7-21 17:15
+
+
+29号还是只有这个，这个月试玩版看来是不可能了
+
+
+*****
+
+####  laoz  
+##### 2050#       发表于 2021-7-21 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52047171&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-7-21 17:15</a>
+
+29号还是只有这个，这个月试玩版看来是不可能了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">富泽：你可以去看vtb玩啊
+
+真的傻逼
+
+
+                                                 

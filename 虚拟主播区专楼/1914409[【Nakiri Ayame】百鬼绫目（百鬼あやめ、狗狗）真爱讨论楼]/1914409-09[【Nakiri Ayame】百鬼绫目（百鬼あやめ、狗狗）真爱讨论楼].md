@@ -8605,3 +8605,29 @@ holo在真人出镜这块还是管的比较严的
 
 
                                                  
+
+*****
+
+####  cctvyt1  
+##### 12750#       发表于 2021-7-21 16:50
+
+
+都拿到许可了 绫总有没有打算播宝可梦moba阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  飞姆托  
+##### 12751#       发表于 2021-7-21 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52045658&amp;ptid=1914409" target="_blank">因为你不会 发表于 2021-7-21 15:09</a>
+突然很想看绫总穿各种lol战队队服</blockquote>
+5件，正好车队一人一件吧，绫总小心思
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                
