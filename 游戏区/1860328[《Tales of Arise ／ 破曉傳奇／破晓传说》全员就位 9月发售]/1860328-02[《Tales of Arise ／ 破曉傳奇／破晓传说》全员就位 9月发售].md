@@ -7539,3 +7539,17 @@ https://www.youtube.com/watch?v=74APIbBbTeU
 
 
                                                  
+
+*****
+
+####  Guildenstern  
+##### 2058#       发表于 2021-7-23 07:28
+
+
+jrpg核心系统终于出现了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+                                                 
