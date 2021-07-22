@@ -2971,3 +2971,326 @@ APEX大师
 
 
                                                 
+
+*****
+
+####  FCCHua  
+##### 4752#       发表于 2021-7-22 12:39
+
+
+个人感觉声音好像kamito<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tyccc  
+##### 4753#       发表于 2021-7-22 12:40
+
+
+这人绝对是pro相关的，aim君5人中唯独关注了他，怕不是以前一起pubg的
+
+
+*****
+
+####  霜浪  
+##### 4754#       发表于 2021-7-22 12:40
+
+
+中规中矩透着无趣，感觉这么稳的是给后面大的垫背
+
+
+*****
+
+####  我不是很好  
+##### 4755#       发表于 2021-7-22 12:41
+
+
+这个也要apex吗？en是apex，本社也是apex<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 4756#       发表于 2021-7-22 12:42
+
+
+ 本帖最后由 winda 于 2021-7-22 12:57 编辑 
+
+驾驶员设定光蹦出个开高达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宅浓度很低的一般现充感。还完全不懂v式的rp放弃念设定，对v圈也没啥了解吧。
+还没ns，纯正枪男。
+
+
+*****
+
+####  十四洲  
+##### 4757#       发表于 2021-7-22 12:43
+
+
+来了
+
+
+*****
+
+####  alcoholic1000  
+##### 4758#       发表于 2021-7-22 12:47
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-22 13:02 编辑 
+
+不快な朝飯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=rTAaT30kQK8](https://www.youtube.com/watch?v=rTAaT30kQK8)
+
+
+あぺさんじ募集要項　
+
+APEXは週何回できますか？
+
+APEXのランクは？
+
+APEXの大会経験は？
+
+
+别再说设定了！！<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  tyccc  
+##### 4759#       发表于 2021-7-22 12:47
+
+
+ovagong怎么连声音都不装一下的
+
+
+*****
+
+####  Suny08  
+##### 4760#       发表于 2021-7-22 12:47
+
+
+红毛这个是oba吧，那第一个估计是oba的哪个朋友了
+
+
+*****
+
+####  心垂万刃  
+##### 4761#       发表于 2021-7-22 12:48
+
+
+2434是电竞会社吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 4762#       发表于 2021-7-22 12:50
+
+
+vspo：你虹还要占我们生态位？
+
+
+*****
+
+####  OldGlory  
+##### 4763#       发表于 2021-7-22 12:54
+
+
+vspo不出男人，这叫互补
+
+
+*****
+
+####  Suny08  
+##### 4764#       发表于 2021-7-22 12:56
+
+
+釜山终于有男人陪她打ow了，贴贴捏
+
+
+*****
+
+####  hulaoda007  
+##### 4765#       发表于 2021-7-22 12:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52056418&amp;ptid=1972669" target="_blank">winda 发表于 2021-7-22 12:42</a>
+
+驾驶员设定光蹦出个开高达宅浓度很低的一般现充感。还完全不懂v式的rp放弃念设定，对v圈也没啥了解 ...</blockquote>
+  有些话要是放19年，估计和虾刚出道一个下场。时代变了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十四洲  
+##### 4766#       发表于 2021-7-22 13:00
+
+
+这些主播能不能v一点
+
+
+*****
+
+####  克罗夏  
+##### 4767#       发表于 2021-7-22 13:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">从晴翔到虚无
+
+
+*****
+
+####  FCCHua  
+##### 4768#       发表于 2021-7-22 13:01
+
+
+可以快进下一位了，不要告诉我这一批全员电竞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 4769#       发表于 2021-7-22 13:02
+
+
+ 本帖最后由 hulaoda007 于 2021-7-22 13:09 编辑 
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">つまんねー  早就说了打枪的宅浓度很低了。
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你虹这次不会是五个低浓度枪 X 5吧...
+
+
+  FPS好み特有の陽キャ感嫌いーー。。。
+
+
+*****
+
+####  渡鸦骑士  
+##### 4770#       发表于 2021-7-22 13:05
+
+
+一个比一个消磨期待感<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  我不是很好  
+##### 4771#       发表于 2021-7-22 13:05
+
+
+ 本帖最后由 我不是很好 于 2021-7-22 13:08 编辑 
+
+apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我在等日程表
+
+
+*****
+
+####  purdre  
+##### 4772#       发表于 2021-7-22 13:06
+
+
+红毛talk力不比黑毛好多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然又是个打枪的
+
+
+*****
+
+####  percy1234  
+##### 4773#       发表于 2021-7-22 13:09
+
+
+对纯纯的电竞哥还能有啥期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 4774#       发表于 2021-7-22 13:09
+
+
+素材用心点了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这位没玩过mc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和上一位一样高纯度枪男啊
+
+
+*****
+
+####  十四洲  
+##### 4775#       发表于 2021-7-22 13:10
+
+
+毕竟是前职业嘛
+
+
+*****
+
+####  hulaoda007  
+##### 4776#       发表于 2021-7-22 13:11
+
+
+ 本帖最后由 hulaoda007 于 2021-7-22 13:19 编辑 
+
+  十个枪男里有九个说话很流利，却好像啥都没说。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">enikara你行不行啊。
+
+  诶...好油腻的wink啊...呀...话说隔壁居然还觉得有趣...？
+
+
+  人家皇至少是真的有趣啊...这俩人不就是一般Apex玩家A和B嘛...
+
+
+*****
+
+####  dybang  
+##### 4777#       发表于 2021-7-22 13:13
+
+
+都是打工人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 4778#       发表于 2021-7-22 13:17
+
+
+这红毛和黑毛一看就是打算复刻黑黑打枪那种感觉了。
+隔壁黑黑粉多觉得好应该没问题？
+
+
+*****
+
+####  十四洲  
+##### 4779#       发表于 2021-7-22 13:18
+
+
+迫不及待的营业…
+
+
+*****
+
+####  我不是很好  
+##### 4780#       发表于 2021-7-22 13:19
+
+
+感觉不到v。彩虹社干脆把加藤纯一挖过来吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 4781#       发表于 2021-7-22 13:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑黑也不是打枪打出来的啊
+
+
+*****
+
+####  dybang  
+##### 4782#       发表于 2021-7-22 13:22
+
+
+不是打枪打得好就一定有人看的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">估计好混时长吧，看能整什么活来
+
+
+                                                
