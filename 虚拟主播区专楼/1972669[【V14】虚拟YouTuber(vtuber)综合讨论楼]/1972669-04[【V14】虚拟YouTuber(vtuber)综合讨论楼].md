@@ -4337,3 +4337,39 @@ lack给鲨鱼姐这个设计，鲨鱼竟然只是个四次元口袋
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 4880#       发表于 2021-7-22 18:33
+
+
+ 本帖最后由 hulaoda007 于 2021-7-22 18:35 编辑 
+
+  iim的妹妹我感觉不会像gibara那样子撕皮...
+
+  但感觉是个真清楚势。主要是“嗯...”和“嘿嘿”的时候真可爱。
+
+  嗯...我认为Lain会是这五个人里面打到最后的。一如珊瑚其实是五人组里最强的。（指N站人气）
+ 登录数判断是否皇的日子该过去了！
+
+
+*****
+
+####  ヒトニナル  
+##### 4881#       发表于 2021-7-22 18:58
+
+
+ンゴ那已经是ニコニコの女了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suzutsuki  
+##### 4882#       发表于 2021-7-22 19:03
+
+
+鲨鱼妹有点可爱，爱了，看她以后播什么选择推不推<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+                                                 
