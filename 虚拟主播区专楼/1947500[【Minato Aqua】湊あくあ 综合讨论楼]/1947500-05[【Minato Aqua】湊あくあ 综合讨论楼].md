@@ -6728,3 +6728,73 @@ syl：这pokemon unite还不如lol呢
 
 
                                                  
+
+*****
+
+####  nian1538  
+##### 6547#       发表于 2021-7-22 19:26
+
+
+服务器挂逼之前唱了5首
+
+两首名字带横须贺的歌
+
+高校舰队OP
+
+咖喱
+
+夏色12Jump
+
+
+*****
+
+####  梅斯之围  
+##### 6548#       发表于 2021-7-22 19:54
+
+
+日清自己弄的台
+
+
+*****
+
+####  fangjun96  
+##### 6549#       发表于 2021-7-22 20:11
+
+
+emm现在啥情况，日清还没好吗
+
+
+*****
+
+####  星の守  
+##### 6550#       发表于 2021-7-22 20:12
+
+
+没了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 6551#       发表于 2021-7-22 20:13
+
+
+连接太频繁导致服务器崩了？人工ddos吗这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+好像可以申请退款。可能会重新定一个时间。
+
+
+太惨了
+
+
+*****
+
+####  乌鸦绅士  
+##### 6552#       发表于 2021-7-22 20:28
+
+
+所以错过的部分连回放都没得看吗<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+                                                 
