@@ -885,3 +885,39 @@ https://www.amazon.co.jp/dp/B098T51T7X?tag=nataliecomic-22
 
 
                                                  
+
+*****
+
+####  Piano-Forest  
+##### 82#         楼主| 发表于 2021-7-22 16:19
+
+
+#シンエヴァ 
+
+
+7/21の終映（一部劇場を除く）にて
+
+
+観客動員　669万人
+
+興行収入　102.2億円
+
+
+となりました。
+
+
+ご鑑賞いただいた皆様、
+
+本当にありがとうございました！！
+
+
+*****
+
+####  LLLLLuB  
+##### 83#       发表于 2021-7-22 16:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">发行商的票房推算还挺精确的，磨到百万就收工
+
+
+                                                 
