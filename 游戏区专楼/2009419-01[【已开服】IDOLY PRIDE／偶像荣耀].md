@@ -5073,3 +5073,17 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  Aureth  
+##### 364#       发表于 2021-7-22 23:13
+
+
+终于来了，专属照片，正好给本次PVP的CENTER<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/ce3d865a1b8eb3fbdf13ee3269b84ef0/IMG_CMP_202377349.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
