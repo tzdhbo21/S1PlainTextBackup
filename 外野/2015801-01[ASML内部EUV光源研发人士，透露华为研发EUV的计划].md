@@ -1875,3 +1875,54 @@ IT之家了解到，ASML 表示他们正努力增加 EUV 在存储产业的量�
 
 
                                                  
+
+*****
+
+####  kumasukiyaki  
+##### 137#         楼主| 发表于 2021-7-22 14:15
+
+
+<strong>SMEE封装光刻机搬入青岛新核芯</strong>
+
+[https://www.eet-china.com/mp/a64571.html](https://www.eet-china.com/mp/a64571.html)
+
+
+7月20日，青岛新核芯高端封测项目首台光刻工艺设备进场仪式在山东青岛西海岸新区举行，标志着该项目建设进入关键性节点，为年底投产奠定了坚实基础。
+
+<img src="http://mianbaoban-assets.oss-cn-shenzhen.aliyuncs.com/xinyu-images/MBXY-CR-201cc887a39c1187b92e297141bb4f22.png" referrerpolicy="no-referrer">
+<img src="http://mianbaoban-assets.oss-cn-shenzhen.aliyuncs.com/xinyu-images/MBXY-CR-370351eed0983f0c92aaaa79b657d58a.png" referrerpolicy="no-referrer">
+<img src="http://mianbaoban-assets.oss-cn-shenzhen.aliyuncs.com/xinyu-images/MBXY-CR-6d57582fa8e8e05a338b3f7c591d5bdf.png" referrerpolicy="no-referrer">
+
+
+图片来源：青岛西海岸新区国际招商
+
+
+据悉，此次进场的设备为SMEE封装光刻机。
+
+
+青岛西海岸新区国际招商消息显示，目前，该项目厂区已经搬入机台设备46台，预计将于10月份进行试生产，12月份形成量产能力。项目投产后将极大推动新区乃至青岛市集成电路产业转型级升，助力产业链完善，推动经济社会高质量发展。
+
+
+2020年4月，青岛新核芯高端封测项目通过网上 “云签约”落地新区，将主要运用世界领先封装技术封装目前需求量快速增长的 5G通讯、人工智能等应用芯片。项目实现当年签约、当年落地、当年封顶。
+
+
+2020年4月15日，青岛半导体高端封测项目通过网上“云签约”，项目落地中日（青岛）地方发展合作示范区，中日（青岛）地方发展合作示范区位于青岛西海岸新区。签约时消息显示，项目总投资10亿元，主要运用世界领先的高端封装技术，封装目前需求量快速增长的5G、人工智能等应用芯片。去年12月22日，青岛半导体高端封测项目主厂房顺利封顶。
+
+
+由此看来，青岛新核芯高端封测项目或为青岛半导体高端封测项目。
+
+
+*****
+
+####  高龙  
+##### 138#       发表于 2021-7-22 14:29
+
+
+ 本帖最后由 高龙 于 2021-7-22 14:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52024177&amp;ptid=2015801" target="_blank">十六夜鬼月 发表于 2021-7-19 20:17</a>
+
+所以感觉说到底最好tg跟华为就学韩国政府和三星，把华为扶植成半导体产业的龙头，触手涵盖整个半导体产业 ...</blockquote>
+那出来供出来的就不是三星了，是荒板科技。
+
+
+                                                 

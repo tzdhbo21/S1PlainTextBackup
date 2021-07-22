@@ -3294,3 +3294,569 @@ apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 
                                                 
+
+*****
+
+####  hulaoda007  
+##### 4783#       发表于 2021-7-22 13:23
+
+
+ 本帖最后由 hulaoda007 于 2021-7-22 13:28 编辑 
+
+  脸部动作让我想起哈哥。
+
+  嘶...声音还有点像社长。
+
+  好像还行。
+
+  太好了，两个枪男只是铺垫。虹还能赢。
+
+
+*****
+
+####  FCCHua  
+##### 4784#       发表于 2021-7-22 13:23
+
+
+ 本帖最后由 FCCHua 于 2021-7-22 13:26 编辑 
+
+第三位无声系？哦，终于出声了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+这位是大家期待的素人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真飞鸟i  
+##### 4785#       发表于 2021-7-22 13:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹新人的同接和以前比是大跃进了。不知道是箱推力增强了，还是nen成功把白皮引到虹了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  purdre  
+##### 4786#       发表于 2021-7-22 13:24
+
+
+终于有人mute艺了，放了一个心
+
+
+*****
+
+####  purdre  
+##### 4787#       发表于 2021-7-22 13:27
+
+
+素人终于来了，我大喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 4788#       发表于 2021-7-22 13:29
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-22 13:47 编辑 
+
+噛みで草
+
+台本読む、素人感ある
+
+学生の研究発表会かよ
+
+
+高評価！高評価！
+
+
+这种虚无一本正经强装瞎搞企划做一半腰斩的虚无感，很对味
+
+光速谢罪，是虹人<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+什么，时间才过了一半？！只能现编了，我写，我写
+
+狂四郎2030？30+感，好评
+
+
+*****
+
+####  hulaoda007  
+##### 4789#       发表于 2021-7-22 13:30
+
+
+ 本帖最后由 hulaoda007 于 2021-7-22 13:32 编辑 
+
+  至少感觉是在努力做一个虹V...加油吧...
+
+  有点...节奏太慢了...不过画力好像不错。
+
+
+*****
+
+####  我不是很好  
+##### 4790#       发表于 2021-7-22 13:30
+
+
+这个有点意思
+
+
+*****
+
+####  OldGlory  
+##### 4791#       发表于 2021-7-22 13:30
+
+
+素人味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dybang  
+##### 4792#       发表于 2021-7-22 13:30
+
+
+不知道是不是真面瘫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">期待3d
+
+
+*****
+
+####  percy1234  
+##### 4793#       发表于 2021-7-22 13:32
+
+
+这一个不就rp起来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+已经在期待纪念回回看初配信了
+
+
+*****
+
+####  SteveS  
+##### 4794#       发表于 2021-7-22 13:33
+
+
+无聊的一期，不合口味啊
+
+
+*****
+
+####  我不是很好  
+##### 4795#       发表于 2021-7-22 13:34
+
+
+看到现在，不打枪的话给90分
+
+
+*****
+
+####  hulaoda007  
+##### 4796#       发表于 2021-7-22 13:35
+
+
+  谢罪很有意思，高评价。
+
+
+*****
+
+####  FCCHua  
+##### 4797#       发表于 2021-7-22 13:36
+
+
+同接怎么又涨了，目前新人里最高的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 4798#       发表于 2021-7-22 13:37
+
+
+初配信谢罪会见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  percy1234  
+##### 4799#       发表于 2021-7-22 13:38
+
+
+说明虹的观众群还是没变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这个不念设定了，根本没准备设定<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+准备现场手写了
+
+
+*****
+
+####  hulaoda007  
+##### 4800#       发表于 2021-7-22 13:40
+
+
+  正在加油做一个虹主播，这件事还是要给高评价的。
+
+
+
+
+*****
+
+####  FCCHua  
+##### 4801#       发表于 2021-7-22 13:45
+
+
+原来是奔三组，本社那群大叔应该会很开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  死体残留  
+##### 4802#       发表于 2021-7-22 13:48
+
+
+喜欢樱兰啊 
+
+
+*****
+
+####  hulaoda007  
+##### 4803#       发表于 2021-7-22 13:48
+
+
+  嘿～不挺好的。
+
+
+*****
+
+####  alcoholic1000  
+##### 4804#       发表于 2021-7-22 13:53
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-22 14:01 编辑 
+
+狂四郎1997年
+
+寄生獣1990年
+
+銃夢1995年
+
+「採用担当高評価！採用担当高評価！この新人は天才です！葛葉も気に入ってます！」
+
+
+被煎熬感，绝赞
+
+🐏🐮🌸🌱🐜🍣
+
+
+静凛💜@ShizuRin23
+
+確かに加賀美さんとシェリンをフュージョンさせようとして事故った感じだった
+
+
+アクシア 7.5串 登録2.01万→4.15万(配信終了直後)
+
+ローレン 7.5串 登録2.05万→3.73万(配信終了直後)
+
+レオス 　9.0串 登録1.94万→4.25万(配信終了直後)
+
+
+*****
+
+####  qq845629713  
+##### 4805#       发表于 2021-7-22 13:55
+
+
+虽然你们这么说，但这三人还是前两个受女观众喜欢，虹女liver都迫不及待要和他们联动apex、ow等fps了
+
+电竞男朋友太香了
+
+
+*****
+
+####  渡鸦骑士  
+##### 4806#       发表于 2021-7-22 13:55
+
+
+说实话……个人很难理解虹观众喜欢这样的男人的想法。
+虽然挺有趣（）
+
+
+*****
+
+####  渡鸦骑士  
+##### 4807#       发表于 2021-7-22 13:59
+
+
+虹观众的母性感觉都太多了……
+
+
+*****
+
+####  purdre  
+##### 4808#       发表于 2021-7-22 14:00
+
+
+科学家成了这批新人里第一个关注的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看推的时候想都没想到
+
+
+*****
+
+####  FCCHua  
+##### 4809#       发表于 2021-7-22 14:00
+
+
+ 本帖最后由 FCCHua 于 2021-7-22 14:05 编辑 
+
+我倒是想看新虹女，然而今年目前就抽了一位，能咋办啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+syl 怎么第四位声音也很熟悉，破案了，en男人调到本社来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 4810#       发表于 2021-7-22 14:01
+
+
+  可惜要上班...不然想看iim的妹妹...
+
+
+*****
+
+####  我不是很好  
+##### 4811#       发表于 2021-7-22 14:03
+
+
+英语？<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 4812#       发表于 2021-7-22 14:05
+
+
+  有趣...没准真是美国人，声音那么低。
+
+
+*****
+
+####  alcoholic1000  
+##### 4813#       发表于 2021-7-22 14:05
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-22 14:36 编辑 
+
+ベル？
+
+後ろ男2人の種感凄いな
+
+鬼&amp;吸血鬼、こいつ？ダメ<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+「睡眠導入講義ASMR」←普通（虚無）
+
+
+最不感兴趣的一位
+
+游戏偏好意外的还行
+
+
+*****
+
+####  hulaoda007  
+##### 4814#       发表于 2021-7-22 14:06
+
+
+  不对，是组长。
+
+
+*****
+
+####  十四洲  
+##### 4815#       发表于 2021-7-22 14:07
+
+
+这不是超像圭利吗？
+
+
+*****
+
+####  hulaoda007  
+##### 4816#       发表于 2021-7-22 14:07
+
+
+很熟练嘛，前世干啥的？
+
+
+*****
+
+####  percy1234  
+##### 4817#       发表于 2021-7-22 14:08
+
+
+这个安定的底边感<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霜浪  
+##### 4818#       发表于 2021-7-22 14:08
+
+
+科学家蓝毛不算女性面向吧，皮差点，感觉就是一般向整活势
+
+
+*****
+
+####  我不是很好  
+##### 4819#       发表于 2021-7-22 14:11
+
+
+ 本帖最后由 我不是很好 于 2021-7-22 14:13 编辑 
+
+这个没兴趣
+
+观众别跑啊，给小妹妹多留点观众吧，3和4换一下就好了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 4820#       发表于 2021-7-22 14:12
+
+
+  不是受众...
+
+
+*****
+
+####  我不是很好  
+##### 4821#       发表于 2021-7-22 14:19
+
+
+底边确定？
+
+
+*****
+
+####  OldGlory  
+##### 4822#       发表于 2021-7-22 14:19
+
+
+这人除了会英语有什么优点吗
+
+
+*****
+
+####  patema  
+##### 4823#       发表于 2021-7-22 14:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">会英语就是有点捏，到时候en男v出来吸国外小妹妹不正好
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  FCCHua  
+##### 4824#       发表于 2021-7-22 14:24
+
+
+直播间退出，等着看新虹女了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 4825#       发表于 2021-7-22 14:25
+
+
+女性向肯定是前两个红毛黑毛啊，科学家初配信同接最高不能保证之后任何的后劲，看简介不会玩游戏不会唱歌，比起油嘴滑舌贯了的配信pro，之后的发展肯定会跟不上，虽然还是目前最喜欢的一个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 4826#       发表于 2021-7-22 14:25
+
+
+小妹妹同接能破7万吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 4827#       发表于 2021-7-22 14:26
+
+
+莉莉姆妹感觉贡贡或者大米都救不了，只能道明寺来救了
+
+
+*****
+
+####  我不是很好  
+##### 4828#       发表于 2021-7-22 14:26
+
+
+所以道明寺人呢，亏我真期待了一把<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  percy1234  
+##### 4829#       发表于 2021-7-22 14:30
+
+
+乐观点，没准进enkr做幕后了呢<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 4830#       发表于 2021-7-22 14:31
+
+
+ 本帖最后由 winda 于 2021-7-22 14:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">老滚，辐射，刺客信条，游戏品味取向很明确啊还想剪英文的实况视频，海外向很针对了
+
+
+
+
+*****
+
+####  FCCHua  
+##### 4831#       发表于 2021-7-22 14:32
+
+
+游戏意外的还行？有点反差
+
+
+*****
+
+####  ヒトニナル  
+##### 4832#       发表于 2021-7-22 14:35
+
+
+可以找点国外的独立游戏来玩玩啊，搞个谜叔复刻版<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">日本人吃不吃这一套我就不知道了
+
+
+*****
+
+####  purdre  
+##### 4833#       发表于 2021-7-22 14:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52057155&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-7-22 13:55</a>
+
+说实话……个人很难理解虹观众喜欢这样的男人的想法。
+
+虽然挺有趣（）</blockquote>
+虹观众看虹男不都是少女漫画里面的欠扁男主看女主么：
+
+
+妖艳剑活配信pro，不行。
+
+素人犯错整活正好，ふーん、おもしれー男ｗ
+
+
+                                               
