@@ -3860,3 +3860,235 @@ syl 怎么第四位声音也很熟悉，破案了，en男人调到本社来了<i
 
 
                                                
+
+*****
+
+####  我不是很好  
+##### 4834#       发表于 2021-7-22 14:37
+
+
+这个是真提不起兴趣。和3反差太大的原因？
+
+
+*****
+
+####  十四洲  
+##### 4835#       发表于 2021-7-22 14:39
+
+
+真的有下课的长舒一口气的感觉
+
+
+*****
+
+####  vkyo  
+##### 4836#       发表于 2021-7-22 14:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">所以为啥剑持说这次来新人他很开心 还是社内top level的开心 单纯因为一年没新人了吗
+
+
+*****
+
+####  alcoholic1000  
+##### 4837#       发表于 2021-7-22 14:42
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-22 15:21 编辑 
+
+バネキ！？
+
+三角姐贵？
+
+
+【悲報】タバコすわない
+
+不知道是在rp慌张还是真的慌张总之我个人挺好这一口的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+是不是演没关系，演本身也是媚び的一种，サービス
+
+
+新虹女不打ape！别无所求了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 4838#       发表于 2021-7-22 14:42
+
+
+好rrm啊，声音完全没猜到，狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  percy1234  
+##### 4839#       发表于 2021-7-22 14:43
+
+
+ 本帖最后由 percy1234 于 2021-7-22 14:45 编辑 
+
+鲨鱼姐竟然是这个声音
+打游戏一定会大喊大叫吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  patema  
+##### 4840#       发表于 2021-7-22 14:43
+
+
+鲨鱼姐声音可爱过头了吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">请问是鲨鱼代播吗
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  我不是很好  
+##### 4841#       发表于 2021-7-22 14:44
+
+
+虹女<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CielChloe  
+##### 4842#       发表于 2021-7-22 14:44
+
+
+<blockquote>alcoholic1000 发表于 2021-7-22 14:42
+
+バネキ！？</blockquote>是有点像<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 4843#       发表于 2021-7-22 14:46
+
+
+鲨鱼姐走可爱路线？
+
+
+*****
+
+####  我不是很好  
+##### 4844#       发表于 2021-7-22 14:47
+
+
+同接还没过七万，女粉这么无情的吗，凑热闹都不愿意<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 4845#       发表于 2021-7-22 14:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">姐你菜过头了吧，bgm，麦都是问题
+
+
+*****
+
+####  FCCHua  
+##### 4846#       发表于 2021-7-22 14:48
+
+
+ 本帖最后由 FCCHua 于 2021-7-22 14:51 编辑 
+
+真紧张还是假紧张，麦太草了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 4847#       发表于 2021-7-22 14:48
+
+
+老女人装嫩是吧
+
+
+*****
+
+####  hulaoda007  
+##### 4848#       发表于 2021-7-22 15:00
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">下班才能看了...
+
+
+*****
+
+####  percy1234  
+##### 4849#       发表于 2021-7-22 15:02
+
+
+ 本帖最后由 percy1234 于 2021-7-22 15:16 编辑 
+
+感觉有点太演了，台本味好重<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+撕皮求求了
+同接掉到6w了
+
+
+*****
+
+####  purdre  
+##### 4850#       发表于 2021-7-22 15:09
+
+
+鲨鱼等一个撕皮
+
+
+*****
+
+####  死体残留  
+##### 4851#       发表于 2021-7-22 15:17
+
+
+ 本帖最后由 死体残留 于 2021-7-22 15:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">找了个fps苦手来rp保镖
+这皮和魂真的搭不上 这个是比教授还底的真底边
+去杏还适合点
+
+
+*****
+
+####  winda  
+##### 4852#       发表于 2021-7-22 15:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">这初配信的水准，别说杏，anmr都不要吧
+
+
+*****
+
+####  渡鸦骑士  
+##### 4853#       发表于 2021-7-22 15:21
+
+
+我都开始怀疑是希小姐的后辈了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 4854#       发表于 2021-7-22 15:22
+
+
+公开处刑？我就一会儿没看，怎么了？
+
+
+*****
+
+####  FCCHua  
+##### 4855#       发表于 2021-7-22 15:25
+
+
+看了眼目前订阅，还行，第三<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+                                                 

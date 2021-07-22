@@ -9877,3 +9877,48 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 80267#       发表于 2021-7-22 14:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52057577&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-22 14:28</a>
+奥伯龙周年主要有一个问题就是裁缝妖精要怎么处理，到目前为止还没有在周年池里塞4星的先例。不像奥伯龙可 ...</blockquote>
+为什么不能塞个4星，总有第一次不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 80268#       发表于 2021-7-22 14:55
+
+
+裁缝后头肯定还有剧情啊，毕竟也是当年摩根身边的
+
+
+*****
+
+####  zakki  
+##### 80269#       发表于 2021-7-22 14:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52057577&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-22 14:28</a>
+
+奥伯龙周年主要有一个问题就是裁缝妖精要怎么处理，到目前为止还没有在周年池里塞4星的先例。不像奥伯龙可 ...</blockquote>
+糖果藤蔓和紫罗兰可能和杀狐一块去2.65落地，再整个类似ccc的活动
+
+
+*****
+
+####  angelooo  
+##### 80270#       发表于 2021-7-22 14:56
+
+
+<blockquote>xiongxingyu 发表于 2021-7-22 14:28
+奥伯龙周年主要有一个问题就是裁缝妖精要怎么处理，到目前为止还没有在周年池里塞4星的先例。不像奥伯龙可 ...</blockquote>
+姆莉安只是套了个糖果蔓藤的皮啊，不是本人，只画了立绘这件事当然是肯定的23333，我也比较在意小裁缝，要么8.4开奥伯龙+小裁缝，然后周年空降，要么8.4妇科某五星+小裁缝，奥伯龙周年
+
+
+                                                 
