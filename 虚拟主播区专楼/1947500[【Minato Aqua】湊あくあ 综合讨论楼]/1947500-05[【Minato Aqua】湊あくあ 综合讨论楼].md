@@ -6680,3 +6680,17 @@ syl：这pokemon unite还不如lol呢
 
 
                                                  
+
+*****
+
+####  提挈天地  
+##### 6543#       发表于 2021-7-22 11:16
+
+
+泥潭日v看官不是在给自己贴标签的路上就是在给别人贴标签的路上，属实《敢问路在何方》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+打着综合讨论楼名头的专楼不转进不是好真爱楼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
