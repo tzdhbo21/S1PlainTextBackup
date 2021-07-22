@@ -2674,3 +2674,27 @@ YouTube将开始试点测试一项新功能，使观众能够直接从直播视�
 
 
                                                  
+
+*****
+
+####  渡鸦骑士  
+##### 4728#       发表于 2021-7-22 08:03
+
+
+凜前辈也要开twitch台了啊
+
+
+*****
+
+####  FCCHua  
+##### 4729#       发表于 2021-7-22 08:04
+
+
+ 本帖最后由 FCCHua 于 2021-7-22 08:42 编辑 
+
+一觉起来错过两对cp的tc，麻了
+还好有留档
+昨晚第三对的山神和未来人恋爱情感上怕不是be了（大概），山神怎么就真a上去了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+                                                 

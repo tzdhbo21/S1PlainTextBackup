@@ -10299,3 +10299,22 @@ accubattery自己本身就是个耗电大户啊
 
 
                                                  
+
+*****
+
+####  TTest  
+##### 724#       发表于 2021-7-22 08:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52048110&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-7-21 18:39</a>
+
+正常手段去不掉，这就是默认的Android手势操作样式。
+
+
+非正常手段靠root应该有办法吧</blockquote>
+好像是这样，试了不少app都做不到，唯一一个能做到的还有bug<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+早知道不升11了，至少还能用adb隐藏
+
+
+                                                 
