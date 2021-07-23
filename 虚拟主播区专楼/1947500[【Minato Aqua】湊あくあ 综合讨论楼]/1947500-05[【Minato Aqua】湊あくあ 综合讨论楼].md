@@ -6877,3 +6877,46 @@ live
 
 
                                                  
+
+*****
+
+####  面具13  
+##### 6560#       发表于 2021-7-23 17:42
+
+
+<blockquote>湊あくあ⚓ヴァンパイア歌った！@minatoaqua 2分钟
+
+【重大告知】
+
+湊あくあ3周年記念！！！
+
+YouTubeで無料ライブ第2弾を開催します✨✨
+
+
+「あくあ色 3rd Anniversary Live」
+
+
+⚓2st 3D LIVE⚓
+
+8月9日 21:00〜
+
+Aqua Channelにて配信開始
+
+
+3年間本当にありがとう。
+
+4年目も、世界中あくあ色に染まれ！！！</blockquote>
+没新意<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 6561#       发表于 2021-7-23 18:27
+
+
+“2st 3D live”
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">什么丈育，你这学英语学了个锤子
+
+
+                                                 

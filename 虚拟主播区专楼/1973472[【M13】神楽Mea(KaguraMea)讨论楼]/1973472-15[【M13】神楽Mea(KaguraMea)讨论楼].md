@@ -2031,3 +2031,258 @@ tc
 
 
                                                 
+
+*****
+
+####  Klience  
+##### 21185#       发表于 2021-7-23 16:32
+
+
+那东西能叫开幕式？ 我觉得像是在举行某种邪神仪式<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21186#       发表于 2021-7-23 16:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那也就是里面一两个节目
+
+
+*****
+
+####  路人庚  
+##### 21187#       发表于 2021-7-23 16:32
+
+
+ 本帖最后由 路人庚 于 2021-7-23 16:45 编辑 
+
+tc播了也是播了，话说合唱不能没人奶舞元，所以我要奶一口舞咩合唱（
+
+
+*****
+
+####  yywzjsw  
+##### 21188#       发表于 2021-7-23 16:37
+
+
+所以很好奇日本的开幕式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21189#       发表于 2021-7-23 16:38
+
+
+那我奶个和时雨妈、粽子吧。上次和星川合作过了、下次联动好像就这几个人来着<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 21190#       发表于 2021-7-23 16:49
+
+
+会不会是咩舞合唱要落地了。。。。
+
+
+*****
+
+####  foofoo  
+##### 21191#       发表于 2021-7-23 16:53
+
+
+<blockquote>专业划水人员 发表于 2021-7-23 16:49
+会不会是咩舞合唱要落地了。。。。</blockquote>
+咩和舞元唱过了（虽然是五人合唱曲）……
+
+
+*****
+
+####  呓亘  
+##### 21192#       发表于 2021-7-23 16:55
+
+
+之前咩和卯月合唱之后就分手了 这次要是舞咩合唱 估计也会唱完就分手吧嘻嘻
+
+
+*****
+
+####  呓亘  
+##### 21193#       发表于 2021-7-23 16:55
+
+
+傻卵女人
+
+
+*****
+
+####  T_Hb  
+##### 21194#       发表于 2021-7-23 16:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21195#       发表于 2021-7-23 17:00
+
+
+那不如指望舞元找到新欢来摆脱傻卵女人 楼友该帮舞元相亲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 21196#       发表于 2021-7-23 17:01
+
+
+有人能在TC问问是几人合唱曲吗
+
+
+*****
+
+####  时间在我手中  
+##### 21197#       发表于 2021-7-23 17:10
+
+
+都下了还问个几把，我日
+
+
+*****
+
+####  GRMeA104  
+##### 21198#       发表于 2021-7-23 17:11
+
+
+说了三人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|无端奶双人合唱补鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  呓亘  
+##### 21199#       发表于 2021-7-23 17:11
+
+
+啊...sorry.....
+
+
+*****
+
+####  往世雷书  
+##### 21200#       发表于 2021-7-23 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52072103&amp;ptid=1973472" target="_blank">呓亘 发表于 2021-7-23 16:55</a>
+之前咩和卯月合唱之后就分手了 这次要是舞咩合唱 估计也会唱完就分手吧嘻嘻 ...</blockquote>
+那就卯月莉莉姆Mea三人合唱吧嘻嘻
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  T_Hb  
+##### 21201#       发表于 2021-7-23 17:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有什么前女友、现女友的歌啊，噱头炒起来感觉又是一个百万播放
+
+
+*****
+
+####  肚子疼了  
+##### 21202#       发表于 2021-7-23 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52072496&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-23 17:29</a>
+
+有没有什么前女友、现女友的歌啊，噱头炒起来感觉又是一个百万播放</blockquote>
+狐狸精<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21203#       发表于 2021-7-23 17:33
+
+
+三人合唱那当然要推一首《ACUTE》了
+
+
+【“ACUTE”初音未来Future Tone 原版PV 1080P 60fps-哔哩哔哩】[https://b23.tv/chc0tY](https://b23.tv/chc0tY)
+
+
+*****
+
+####  Klience  
+##### 21204#       发表于 2021-7-23 17:39
+
+
+就不能是卯月 mea 莉莉姆的世界名画合唱吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cushaw  
+##### 21205#       发表于 2021-7-23 17:45
+
+
+届~か~ない~恋~をしていても~<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 21206#       发表于 2021-7-23 17:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总之这里是机场，左边mea、右边rrm，后面是卵用
+
+
+*****
+
+####  2014720  
+##### 21207#       发表于 2021-7-23 18:15
+
+
+这人每次消沉的时间总是很微妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

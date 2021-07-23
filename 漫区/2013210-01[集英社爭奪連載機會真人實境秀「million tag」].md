@@ -1752,3 +1752,126 @@ https://sp.shonenjump.com/p/sp/million-tag/#ep4
 
 
                                                  
+
+*****
+
+####  最强惠酱  
+##### 121#       发表于 2021-7-23 16:53
+
+
+我比较喜欢co2，个人排名是co2←消极←押石=早志←xp=爆漫王
+
+消极画小女孩真的很邪气，只是根据林编改的故事实在是没有一开始他自己想的那么有趣，可惜没有母亲的人设
+
+co2画的非常干净易看，故事也很有意思，真不敢相信是最年少，感觉好干练
+
+押石的风格好狂气，无厘头的故事也很喜欢
+
+早志的漫画我觉得是和co2一样扎实的，不亏是开头边干助手边处理课题，你说她实际上连载过我都信
+
+爆漫王和xp姐实在很普通<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acejoe  
+##### 122#       发表于 2021-7-23 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52072080&amp;ptid=2013210" target="_blank">最强惠酱 发表于 2021-7-23 16:53</a>
+
+我比较喜欢co2，个人排名是co2←消极←押石=早志←xp=爆漫王
+
+消极画小女孩真的很邪气，只是根据林编改的故 ...</blockquote>
+消极的小女孩让我想到某黄漫作者的小女孩。
+
+はぐはぐ
+
+
+*****
+
+####  タマネギ  
+##### 123#       发表于 2021-7-23 17:44
+
+
+这些新人的漫画质素挺高的
+
+
+*****
+
+####  碳酸锂缓释片  
+##### 124#       发表于 2021-7-23 17:46
+
+
+第四集已更新
+[https://www.youtube.com/watch?v=MIvfemYlECs](https://www.youtube.com/watch?v=MIvfemYlECs)
+<img src="http://tvax2.sinaimg.cn/large/006ajUXPly1gsr0x74knvj30pe0eadq1.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最强惠酱  
+##### 125#       发表于 2021-7-23 17:51
+
+
+怪不得能推特勾搭上，原来是消极姐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+co2好可惜，可能这就是专业编辑的眼光和我普通人的区别吧，我也希望押石能赢一回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最强惠酱  
+##### 126#       发表于 2021-7-23 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52072412&amp;ptid=2013210" target="_blank">acejoe 发表于 2021-7-23 17:22</a>
+
+消极的小女孩让我想到某黄漫作者的小女孩。
+
+はぐはぐ</blockquote>
+邪气啥或许是挺相似的，不过はぐはぐ最近画的假纯爱有点骇人
+
+
+*****
+
+####  麻里奈命  
+##### 127#       发表于 2021-7-23 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52072693&amp;ptid=2013210" target="_blank">碳酸锂缓释片 发表于 2021-7-23 17:46</a>
+
+第四集已更新
+
+https://www.youtube.com/watch?v=MIvfemYlECs</blockquote>
+晚上回家看，感觉性癖组能上全靠最后的放飞
+
+
+*****
+
+####  フリーレン  
+##### 128#         楼主| 发表于 2021-7-23 18:04
+
+
+我槽完全沒想到啊，不小心睡著了沒第一時間看，等會再來看，雖然扣掉押石的話跟我想的排名差不多，押石我覺得最大的問題可能在於分鏡和故事情感轉場還不夠滑順上，跟四頁那時候說差不多的問題，兔子和貓貓最大的優勢在於完整性，就是故事在普通，讀者也能看懂她想表達啥，最年少故事設定有意思分鏡也還行，但這次短篇可能缺少一點重點，爆漫王組哪方面都不行就不說了
+
+
+*****
+
+####  北山玖公  
+##### 129#       发表于 2021-7-23 18:19
+
+
+不知道这次第一名是什么奖励，如果还是和最终审批的那两位求建议的话，我感觉林编就够用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 130#       发表于 2021-7-23 18:28
+
+
+没想到co2没入围，婚礼也没，我觉得这两个很好看啊，兔子组反而太平凡了，不过我觉得这两个评委可能更注重分镜和完成度？这次三个入围作品虽然是画的ネーム但是完成度已经都一半了（兔子组的稿真挺漂亮），婚礼那个有点太草稿可能看起来比较混乱
+
+
+                                                 
