@@ -5126,3 +5126,19 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  Aureth  
+##### 368#       发表于 2021-7-23 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52069059&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-23 12:43</a>
+
+最新发现，洗掉专属技能会变全员
+
+是否专属，应该是刷出专属技能，也就是洗点是有可能出专属技能的</blockquote>
+感谢，不过这个属性还不错应该不用洗，跟着等级升品质就好。
+
+
+                                                 

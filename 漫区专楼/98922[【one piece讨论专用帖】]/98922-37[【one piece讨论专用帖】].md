@@ -17080,3 +17080,18 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  游蜓  
+##### 55431#       发表于 2021-7-23 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52056848&amp;ptid=98922" target="_blank">evangelina 发表于 2021-7-22 13:27</a>
+厨子之前喊救命怎么现在就双翼了.....</blockquote>
+我比较认同的说法是，厨子经过蛋糕岛之后人格正常了点知道向伙伴寻求帮助了
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
