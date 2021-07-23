@@ -5809,3 +5809,25 @@ aaa.png
 
 
                                                  
+
+*****
+
+####  霜浪  
+##### 5012#       发表于 2021-7-24 06:14
+
+
+ 本帖最后由 霜浪 于 2021-7-24 06:16 编辑 
+
+亏这个心态不行，直播了九个小时反而成神回，这就是直播运吗……嘛这完全燃烧后还能耗多久不知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dybang  
+##### 5013#       发表于 2021-7-24 06:18
+
+
+艹真让他装到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个算准备过的吧，期待初见
+
+
+                                                 
