@@ -5164,3 +5164,233 @@ nico也看，油管也看，这才称的上是健全<img src="https://static.sar
 
 
                                                 
+
+*****
+
+####  alcoholic1000  
+##### 4953#       发表于 2021-7-23 19:30
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-23 19:33 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/23/193003bgrah9ut49ljjtyl.png" referrerpolicy="no-referrer">
+
+
+<strong>【にじクイvsレバガチャ】重大告知コラボ配信！【7月23日.png</strong> (226.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-23 19:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/23/193003ikxmk0czjmtmhodc.png" referrerpolicy="no-referrer">
+
+
+<strong>【にじクイvsレバガチャ】重大告知コラボ配信！-2.png</strong> (313.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-23 19:30 上传
+
+
+[https://event.nijisanji.app/showdown/](https://event.nijisanji.app/showdown/)
+
+
+-にじクイステージ-
+
+OPEN 12:00 START 13:00
+
+全席指定8,300円（ドリンク代込み）
+
+出演
+
+ジョー・力一/黛灰/健屋花那/不破湊
+
+GUEST
+
+花畑チャイカ/リゼ・ヘルエスタ
+
+
+-レバガチャダイパンステージ-
+
+OPEN 17:00 START 18:00
+
+全席指定8,300円（ドリンク代込み）
+
+出演
+
+社築/笹木咲/シェリン・バーガンディ
+
+GUEST
+
+イブラヒム/エクス・アルビオ/ニュイ・ソシエール/葉山舞鈴
+
+
+*****
+
+####  真飞鸟i  
+##### 4954#       发表于 2021-7-23 19:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了性别以外不也应该考虑今年虹en出道的影响吗？白皮最喜欢点订阅凑热闹了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  霜浪  
+##### 4955#       发表于 2021-7-23 19:46
+
+
+有一说一五人素质还行吧，而且你虹观众干涸太久了，去年世女出道又太淡了根本没完全燃烧
+
+
+*****
+
+####  gaiadc  
+##### 4956#       发表于 2021-7-23 20:10
+
+
+这就是双天才无敌的V西吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  死体残留  
+##### 4957#       发表于 2021-7-23 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52075223&amp;ptid=1972669" target="_blank">gaiadc 发表于 2021-7-23 20:10</a>
+这就是双天才无敌的V西吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">还好老板娘分的是b组
+
+
+*****
+
+####  死体残留  
+##### 4958#       发表于 2021-7-23 20:23
+
+
+虹这哪里抽来的单机rta玩家？
+
+
+*****
+
+####  空集  
+##### 4959#       发表于 2021-7-23 20:24
+
+
+不是 这人 怎么 那么高?
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  空集  
+##### 4960#       发表于 2021-7-23 20:24
+
+
+同接理论被破坏了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  十四洲  
+##### 4961#       发表于 2021-7-23 20:25
+
+
+嚣张且话多
+
+
+*****
+
+####  我不是很好  
+##### 4962#       发表于 2021-7-23 20:26
+
+
+枪男的末日到了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 4963#       发表于 2021-7-23 20:26
+
+
+万万没想到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+鲨鱼妹也快点银盾吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 4964#       发表于 2021-7-23 20:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟是整个彩虹一百余人里数得上的出道直播，在前辈里话题性也拉满了
+
+
+*****
+
+####  我不是很好  
+##### 4965#       发表于 2021-7-23 20:27
+
+
+我还以为真要一命通关
+
+
+*****
+
+####  IDIDIDID  
+##### 4966#       发表于 2021-7-23 20:31
+
+
+反正不大A特A都值得鼓励，蓝毛男人stonk！
+
+
+*****
+
+####  poipanchao  
+##### 4967#       发表于 2021-7-23 20:31
+
+
+这应该说是……一币通关？
+
+
+*****
+
+####  alcoholic1000  
+##### 4968#       发表于 2021-7-23 20:33
+
+
+超魔界村RTA+最速银盾噱头，而且这人配信水平可以的，屁话多还能兼顾拾评论，操作也不拉<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+同接数字拳打APEX脚踢棒球，为新王的诞生献上礼炮
+
+
+*****
+
+####  Suny08  
+##### 4969#       发表于 2021-7-23 20:35
+
+
+以后就走路线，主机游戏rta 或者攻略势，就是10倍界王拳版露露
+
+
+*****
+
+####  poipanchao  
+##### 4970#       发表于 2021-7-23 20:42
+
+
+蓝毛就算了
+
+怎么鲨妹也2W，而且也是银盾目前
+
+
+                                                 
