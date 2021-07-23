@@ -17281,3 +17281,15 @@ ame好拼啊，一场不落
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1125#       发表于 2021-7-24 07:13
+
+
+[Misc.] Gura is featured on the latest Taco Bell commercial, via billboard [during Tokyo Olympics]! 
+<img src="https://p.sda1.dev/2/2793663bbc7f097f0b1e6dbcbff9c5d2/20210724_071302.jpg" referrerpolicy="no-referrer">
+
+
+                                                 
