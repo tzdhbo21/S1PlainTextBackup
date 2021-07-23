@@ -7553,3 +7553,36 @@ jrpg核心系统终于出现了
 
 
                                                  
+
+*****
+
+####  qiyu1234  
+##### 2059#       发表于 2021-7-23 11:55
+
+
+ 本帖最后由 qiyu1234 于 2021-7-23 12:03 编辑 
+
+琳薇儿的角色预告
+
+[https://www.youtube.com/watch?v=CtHRzQVEM04](https://www.youtube.com/watch?v=CtHRzQVEM04)
+
+
+另外官推发了芙露露跟琳薇儿的对话演示，我一开始看的英文官推，发现这表情对不上，台词语气很激动，但表情一点都不生动啊，是不是拉跨了，然后看了日文视频，发现原来是英文本地化的问题，台词跟情绪跟原版相比都变了，结果表情还是按照日文原版的没变
+
+
+英文片段
+[https://twitter.com/TalesofU/status/1418326661930504194](https://twitter.com/TalesofU/status/1418326661930504194)
+
+
+日文片段
+[https://twitter.com/Tales_of_ARISE/status/1418400804583530501](https://twitter.com/Tales_of_ARISE/status/1418400804583530501)
+
+
+传说系列的英文配音其实一直都很一般，表情不做适配是一回事，有些角色的英文配音我觉得也并不搭（比如TOX裘德）
+
+
+【芙露露的朋友】内容演示
+[https://twitter.com/Tales_of_ARISE/status/1418402795657465860](https://twitter.com/Tales_of_ARISE/status/1418402795657465860)
+
+
+                                                 

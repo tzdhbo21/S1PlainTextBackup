@@ -6809,3 +6809,60 @@ emm现在啥情况，日清还没好吗
 
 
                                                  
+
+*****
+
+####  面具13  
+##### 6554#       发表于 2021-7-23 11:35
+
+
+傍晚感觉应该是跟这次live相关的告知
+
+
+*****
+
+####  lightsuger  
+##### 6555#       发表于 2021-7-23 12:11
+
+
+ 本帖最后由 lightsuger 于 2021-7-23 12:14 编辑 
+
+过去的重大告知：
+
+live
+
+2.0
+
+3D泳装
+
+话说这推特还包含了一个信息：今天不播<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 6556#       发表于 2021-7-23 12:16
+
+
+以前的重大告知还包含了24小时耐久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  soci  
+##### 6557#       发表于 2021-7-23 12:27
+
+
+可能是三周年live
+
+
+*****
+
+####  面具13  
+##### 6558#       发表于 2021-7-23 12:28
+
+
+行，三周年live特邀加兵给上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

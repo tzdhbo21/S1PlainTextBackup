@@ -4756,3 +4756,141 @@ https://b23.tv/gqMFdU</blockquote>
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 4918#       发表于 2021-7-23 11:37
+
+
+ 本帖最后由 hulaoda007 于 2021-7-23 11:43 编辑 
+
+  说起来想问一下...虹粉丝里自己的断层是如何的？比如说即便在喜欢虹的前提下，也有喜欢看Nico的和喜欢看youtube的和喜欢看Tiktok的。（我怀疑Tiktok受众群是有，考虑到虹Liver曾经模仿过Tinktok的meme）
+
+
+*****
+
+####  hulaoda007  
+##### 4919#       发表于 2021-7-23 11:37
+
+
+  [https://www.nicovideo.jp/watch/sm39067745](https://www.nicovideo.jp/watch/sm39067745)
+
+  莉莉姆的妹妹Lain的“嗯...”系列在Nico上已经有剪辑了。我也觉得她的“嗯”很好听...但真要变成ニコ動の女吗...?
+
+
+*****
+
+####  hulaoda007  
+##### 4920#       发表于 2021-7-23 11:37
+
+
+ 本帖最后由 hulaoda007 于 2021-7-23 11:44 编辑 
+
+  话说有Liver直播看奥运开幕吗？
+
+
+
+
+*****
+
+####  Suny08  
+##### 4921#       发表于 2021-7-23 11:47
+
+
+nico女皇也没什么不好的，去年夜见也当了一年，就是自己涨粉几乎和直播没关系了，出一个大火nico剪辑涨一次粉，直播中会有很多说从nico来的人而已，总归也是个涨粉的好渠道的
+
+
+*****
+
+####  渡鸦骑士  
+##### 4922#       发表于 2021-7-23 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52068165&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-7-23 11:37</a>
+说起来想问一下...虹粉丝里自己的断层是如何的？比如说即便在喜欢虹的前提下，也有喜欢看Nico的和喜欢看y ...</blockquote>
+别的不说我觉得一期种一入坑的和三马鹿入坑的感受肯定完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 4923#       发表于 2021-7-23 12:00
+
+
+现在的nico公主是珊瑚，剪辑师赢得太多了
+
+
+*****
+
+####  渡鸦骑士  
+##### 4924#       发表于 2021-7-23 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52068171&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-7-23 11:37</a>
+话说有Liver直播看奥运开幕吗？</blockquote>
+我d的那么多主播，加上论坛讨论的，一个提到奥运会的都没有。
+日本人大概真的已经放弃自己这个奥运会了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 4925#       发表于 2021-7-23 12:08
+
+
+nico也看，油管也看，这才称的上是健全<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+最主要是nico上搞剪辑做MAD的好几个人脑子都不太正常，这种味道太令人欲罢不能了
+
+
+*****
+
+####  hulaoda007  
+##### 4926#       发表于 2021-7-23 12:09
+
+
+ 本帖最后由 hulaoda007 于 2021-7-23 12:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52068497&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-7-23 11:59</a>
+
+别的不说我觉得一期种一入坑的和三马鹿入坑的感受肯定完全不一样</blockquote>
+ 大的来说统合以前和统合以后不一样...小的来说一期二期，Gamers，种一，种二都不一样...
+
+  一期的粉丝在我看来真的很死忠...同样种一也是...（哈哥黑子也很死忠）毕竟对此前的观众来说，是一个个group，对此后来说就是一个个人了。但我确实很喜欢早期像OTN哪怕社醉酒的时候的那种气氛就是了。一期也是，感觉就是朋友闲着没事一起做傻事，气氛十分平和...（回看当时枫和elu的面包超人切片其实俩人杂谈时有很多空隙和沉默，但气氛还是很好...）
+
+  
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">奥运那么惨吗？吐槽一下也行啊？！
+
+  脑子不太正常...？那答案只有一个啊。当然是虚拟ブ...
+
+  （有一说一，Sukikirai上脑子不正常的也很多，而且更直球，有趣是有趣）
+
+
+*****
+
+####  dybang  
+##### 4927#       发表于 2021-7-23 12:19
+
+
+奥运喜提福岛待遇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官方各种宣传，民间不敢提
+
+
+*****
+
+####  FCCHua  
+##### 4928#       发表于 2021-7-23 12:23
+
+
+虹的最速银盾看来要大幅度刷新了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霜浪  
+##### 4929#       发表于 2021-7-23 12:31
+
+
+蓝毛都9w了，开播前才不到2w，史诗级初配信的力量啊
+
+
+                                                

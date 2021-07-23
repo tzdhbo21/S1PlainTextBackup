@@ -5110,3 +5110,19 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  yuugi  
+##### 367#       发表于 2021-7-23 12:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52063488&amp;ptid=2009419" target="_blank">Aureth 发表于 2021-7-22 23:13</a>
+
+终于来了，专属照片，正好给本次PVP的CENTER</blockquote>
+最新发现，洗掉专属技能会变全员
+
+是否专属，应该是刷出专属技能，也就是洗点是有可能出专属技能的
+
+
+                                                 
