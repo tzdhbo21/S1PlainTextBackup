@@ -7586,3 +7586,35 @@ jrpg核心系统终于出现了
 
 
                                                  
+
+*****
+
+####  边境的  
+##### 2060#       发表于 2021-7-23 22:17
+
+
+笑死 toz地位史诗级提升的一天
+
+<img src="https://img.saraba1st.com/forum/202107/23/221638zhuhr42tttbtr7re.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>506F4F9E-D1A4-4CEA-86F9-47E025E19456.jpeg</strong> (334.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-23 22:16 上传
+
+
+狂战稍微平庸了点，还是期待本作音乐能出彩些的
+
+
+*****
+
+####  LT_Harry  
+##### 2061#         楼主| 发表于 2021-7-23 22:18
+
+
+奥运会开幕式出现了 Tales of Graces 的音乐，整挺好👍
+
+
+                                                 

@@ -5394,3 +5394,204 @@ GUEST
 
 
                                                  
+
+*****
+
+####  ヒトニナル  
+##### 4971#       发表于 2021-7-23 20:48
+
+
+看着人打游戏极其舒适啊，订阅了订阅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dybang  
+##### 4972#       发表于 2021-7-23 20:51
+
+
+这嗓子真不错，看能坚持多久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等他哀嚎不断最后耻辱下播
+
+
+*****
+
+####  IDIDIDID  
+##### 4973#       发表于 2021-7-23 21:02
+
+
+希望这一组同期爱强一点，流量别被老前辈们吸走了🤗
+
+
+*****
+
+####  喜闻乐见  
+##### 4974#       发表于 2021-7-23 21:05
+
+
+明天管人就能用上了
+<img src="http://ww1.sinaimg.cn/large/0026IPSsgy1gsr6pumafmj60sj0pf4ki02.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 4975#       发表于 2021-7-23 21:26
+
+
+不是莉莉姆妹强，这新人buff太顶了，新虹男还是等于2个新虹女的
+
+
+*****
+
+####  真飞鸟i  
+##### 4976#       发表于 2021-7-23 21:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">箱推力确实是大跃进了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  霜浪  
+##### 4977#       发表于 2021-7-23 21:37
+
+
+蓝毛哥这个后力不行啊，都被分走了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">，所以通关到底要多久呢
+
+
+*****
+
+####  qq845629713  
+##### 4978#       发表于 2021-7-23 21:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 呵呵，你新人再牛能进vrlive，能进机台活动么，能光速插队3D么，不能说个锤子
+
+
+*****
+
+####  purdre  
+##### 4979#       发表于 2021-7-23 21:41
+
+
+蓝毛住在Eden的疯狂科学家RP居然能在玩魔界村时好好遵守，还能说出点世界观，感动了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 4980#       发表于 2021-7-23 21:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 你虹最强恶心人的就是等级制度，新人就算再爆红也得排队3D，活动也没你份，所以怎么样都没用
+
+
+
+
+*****
+
+####  AKili  
+##### 4981#       发表于 2021-7-23 21:41
+
+
+憋了一年的出道buff还是强
+
+
+*****
+
+####  poipanchao  
+##### 4982#       发表于 2021-7-23 21:42
+
+
+能的，en就行
+
+
+*****
+
+####  Suny08  
+##### 4983#       发表于 2021-7-23 21:45
+
+
+不准插队！我要早点看小红3d和live<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 4984#       发表于 2021-7-23 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52077191&amp;ptid=1972669" target="_blank">霜浪 发表于 2021-7-23 21:37</a>
+
+蓝毛哥这个后力不行啊，都被分走了，所以通关到底要多久呢</blockquote>
+耐久硬核游戏活该被分流，而且看他体力也不行，就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霜浪  
+##### 4985#       发表于 2021-7-23 21:52
+
+
+体力多直播几次健身环不就行了，不过看硬核游戏不如看萌音虚无直播捏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 4986#       发表于 2021-7-23 21:54
+
+
+就是要排捏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 4987#       发表于 2021-7-23 22:07
+
+
+我看见枪男就头痛，蓝毛加油啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 4988#       发表于 2021-7-23 22:11
+
+
+小千，mondo，shiromanta第二<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">cr+最协黑黑好像还从没赢过千皇吧
+
+
+*****
+
+####  霜浪  
+##### 4989#       发表于 2021-7-23 22:12
+
+
+所以蓝毛有人特出来吗，这个游戏力和杂谈力应该不难吧，除非5ch拉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 4990#       发表于 2021-7-23 22:13
+
+
+无奖竞猜蓝毛一个月后第一次社内联动的前辈会是谁？
+
+
+*****
+
+####  hulaoda007  
+##### 4991#       发表于 2021-7-23 22:20
+
+
+  我偏向初配信那些是整活，不是真的...如果我的直觉准的话...
+
+  但至少愿意去做虹系正统，够了...Apex真的早点过气吧...
+
+
+                                                
