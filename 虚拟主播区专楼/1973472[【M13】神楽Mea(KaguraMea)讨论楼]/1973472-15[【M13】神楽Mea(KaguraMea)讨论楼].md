@@ -2286,3 +2286,28 @@ tc播了也是播了，话说合唱不能没人奶舞元，所以我要奶一口
 
 
                                                  
+
+*****
+
+####  汇聚群光  
+##### 21208#       发表于 2021-7-23 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52072496&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-23 17:29</a>
+
+有没有什么前女友、现女友的歌啊，噱头炒起来感觉又是一个百万播放</blockquote>
+当然是《我成了别人的女朋友》了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+不过这首歌貌似不太适合合唱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 21209#       发表于 2021-7-23 19:12
+
+
+傻卵女人除了TC今天还播吗
+
+
+                                                 

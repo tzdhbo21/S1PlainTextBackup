@@ -5114,3 +5114,53 @@ nico也看，油管也看，这才称的上是健全<img src="https://static.sar
 
 
                                                  
+
+*****
+
+####  霜浪  
+##### 4948#       发表于 2021-7-23 18:35
+
+
+对新人太有压力了……
+
+
+*****
+
+####  Suny08  
+##### 4949#       发表于 2021-7-23 18:38
+
+
+都说你虹今年衰退的厉害，结果新五人组开局直接起飞，想了半天世怜女和今年新人的差距到底在哪里，我觉得可能只有性别了
+
+
+*****
+
+####  IDIDIDID  
+##### 4950#       发表于 2021-7-23 18:42
+
+
+难道不是应该想一想VALZ三小只和今年这五个差距在哪里吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  purdre  
+##### 4951#       发表于 2021-7-23 18:43
+
+
+但鲨妹混得挺不错啊，只能说世怜女设定太中规中矩了吧，EN还处于大多数都是MMR看动漫小姑娘的状态有张好皮都能混得不错，但JP早已是靠个性搏出路的时代了
+
+
+*****
+
+####  过不了审  
+##### 4952#       发表于 2021-7-23 18:51
+
+
+[https://www.youtube.com/watch?v=tZ7n4p89wsA](https://www.youtube.com/watch?v=tZ7n4p89wsA)
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+                                                
