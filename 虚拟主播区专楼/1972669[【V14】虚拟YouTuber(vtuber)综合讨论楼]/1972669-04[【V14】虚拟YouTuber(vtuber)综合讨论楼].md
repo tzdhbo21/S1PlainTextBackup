@@ -5595,3 +5595,88 @@ GUEST
 
 
                                                 
+
+*****
+
+####  purdre  
+##### 4992#       发表于 2021-7-23 22:30
+
+
+如果初配信是整活那我愿称他为彩虹第一心机哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 4993#       发表于 2021-7-23 22:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> KING现在播游戏联动和打枪同接都稳定下来了阿
+
+
+*****
+
+####  空集  
+##### 4994#       发表于 2021-7-23 22:37
+
+
+反正有宫助例子初配信都可以是演的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  霜浪  
+##### 4995#       发表于 2021-7-23 22:39
+
+
+男版金鱼坂奶一个
+
+
+*****
+
+####  十四洲  
+##### 4996#       发表于 2021-7-23 22:42
+
+
+那谁来做那个梦月roa呢
+
+
+*****
+
+####  我不是很好  
+##### 4997#       发表于 2021-7-23 22:43
+
+
+红毛是枪男这一点就够我受的了，声音也好讨厌<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 4998#       发表于 2021-7-23 23:08
+
+
+猎杀哥差不多得了，炸鱼都紧张成这样，打固定靶都紧张得不停yin. Jiao，至于么
+
+
+*****
+
+####  rzrbtk  
+##### 4999#       发表于 2021-7-23 23:24
+
+
+郡道新衣服好看是好看就是风格有点微妙，像是roa监制<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 5000#       发表于 2021-7-23 23:25
+
+
+蓝毛去上厕所忘了关立绘，RP上脑解释说立绘会在这里是因为就地解决尿在了瓶子里，然后毫不犹豫的喝了口可乐。我愿意称蓝毛一声哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

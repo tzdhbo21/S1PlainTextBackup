@@ -7618,3 +7618,23 @@ jrpg核心系统终于出现了
 
 
                                                  
+
+*****
+
+####  zero12  
+##### 2062#       发表于 2021-7-23 22:53
+
+
+传说系列历史地位提升的一天
+
+
+*****
+
+####  hugosol  
+##### 2063#       发表于 2021-7-23 23:26
+
+
+这作好像只有樱庭统？音乐不抱太大期待了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

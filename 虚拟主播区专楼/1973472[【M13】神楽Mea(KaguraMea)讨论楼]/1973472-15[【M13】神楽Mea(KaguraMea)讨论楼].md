@@ -2569,3 +2569,59 @@ tc播了也是播了，话说合唱不能没人奶舞元，所以我要奶一口
 
 
                                                  
+
+*****
+
+####  咸鱼渣  
+##### 21235#       发表于 2021-7-23 22:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这开幕式经费被贪了多少
+
+
+*****
+
+####  呓亘  
+##### 21236#       发表于 2021-7-23 22:27
+
+
+这开幕式铁德不配位了，花这么多钱办成这个德行
+
+
+*****
+
+####  T_Hb  
+##### 21237#       发表于 2021-7-23 22:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 21238#       发表于 2021-7-23 22:34
+
+
+烦死了，傻卵女人现在在干嘛呢，动都不动一下
+
+
+*****
+
+####  Klience  
+##### 21239#       发表于 2021-7-23 22:45
+
+
+贪污贪了多少以至于东京奥运会会计自杀呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 21240#       发表于 2021-7-23 23:20
+
+
+他妈的多了这么多楼结果是奥运会<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+                                                 
