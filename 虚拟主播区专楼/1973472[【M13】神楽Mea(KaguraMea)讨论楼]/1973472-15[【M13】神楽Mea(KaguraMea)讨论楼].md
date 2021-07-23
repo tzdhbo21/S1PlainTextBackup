@@ -1662,3 +1662,146 @@ yhm会看新闻么？
 
 
                                                  
+
+*****
+
+####  gongge666  
+##### 21147#       发表于 2021-7-23 14:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52070272&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-7-23 14:18</a>
+
+没搞懂NEET就天天熬夜是为啥，时间充足不该自由点吗，我现在熬夜是因为上班时间太多，有补偿心理 ...</blockquote>
+她应该是没日夜的概念，如果在外面租房子的话，且不说有没有窗户，就算有窗大概率被隔音棉盖着，这导致她在房间里只要不开灯就是全黑的，只要不出房门不看时间就不知道白天黑夜。在这种房间中呆着时间一长就没日夜概念了，白天啥都干不了只能睡觉晚上能看人直播看电视剧反而会醒着
+
+
+*****
+
+####  Klience  
+##### 21148#       发表于 2021-7-23 14:37
+
+
+吃点酸东西<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 21149#       发表于 2021-7-23 14:37
+
+
+【神楽めあ TC开始】
+标题：ちょっとだｋ
+时间：2021-07-23 14:36:42 UTC+08:00
+网址：https://twitcasting.tv/KaguraMea_VoV
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21150#       发表于 2021-7-23 14:37
+
+
+tc
+
+
+
+
+*****
+
+####  T_Hb  
+##### 21151#       发表于 2021-7-23 14:38
+
+
+ 本帖最后由 T_Hb 于 2021-7-23 14:39 编辑 
+
+来了来了，预言成功<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+怎么又在聊mikey，还没腻啊
+
+
+*****
+
+####  Dualist彩  
+##### 21152#       发表于 2021-7-23 14:42
+
+
+把小麻关在笼子里一定很乖吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21153#       发表于 2021-7-23 14:53
+
+
+《野兽之舞》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21154#       发表于 2021-7-23 14:54
+
+
+怎么这个时间播，想摸鱼看都不能、<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">等你们个rp今晚播不播
+
+
+*****
+
+####  Klience  
+##### 21155#       发表于 2021-7-23 14:55
+
+
+带个蓝牙耳机听呗 虽然今天上班忘了带 我也听不了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21156#       发表于 2021-7-23 14:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我网页版TC甚至打不开了
+
+
+*****
+
+####  yywzjsw  
+##### 21157#       发表于 2021-7-23 14:58
+
+
+恩？tc上面什么时候多了个vtuber的标签？
+
+
+*****
+
+####  时间在我手中  
+##### 21158#       发表于 2021-7-23 14:59
+
+
+早就有了
+
+
+*****
+
+####  yywzjsw  
+##### 21159#       发表于 2021-7-23 15:01
+
+
+以前咋没注意到<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">感觉今天的麦、有些断断续续？
+
+
+*****
+
+####  路人庚  
+##### 21160#       发表于 2021-7-23 15:13
+
+
+去年上半年就有vtuber标志了啊
+
+
+                                                
