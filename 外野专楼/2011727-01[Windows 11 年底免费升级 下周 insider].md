@@ -5738,3 +5738,19 @@ dev通道很正常，目前来看大家都这样，等更新吧
 
 
                                                  
+
+*****
+
+####  V5Style  
+##### 476#       发表于 2021-7-23 10:28
+
+
+ 本帖最后由 V5Style 于 2021-7-23 10:29 编辑 
+
+这个版本的UAC弹窗的文本几乎全乱了。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+应该不是语言包的问题，反馈中心其它地区的也遇到了。
+<img src="https://p.sda1.dev/2/e827bd7ce22908a94cc9972f53a582d7/image.png" referrerpolicy="no-referrer">
+
+
+                                                 

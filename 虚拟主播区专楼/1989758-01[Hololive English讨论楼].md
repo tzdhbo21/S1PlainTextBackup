@@ -17096,3 +17096,64 @@ aew 摔跤
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1116#       发表于 2021-7-23 10:09
+
+
+<img src="https://img.saraba1st.com/forum/202107/23/100911gb4mqllscbadsqcy.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (133.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-23 10:09 上传
+
+
+*****
+
+####  wiig  
+##### 1117#       发表于 2021-7-23 10:09
+
+
+<img src="https://img.saraba1st.com/forum/202107/23/100940sk9t49wvt4z4kktw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>XLPLMU[HWWCQJ{Q$N2X.jpg</strong> (181.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-23 10:09 上传
+
+
+*****
+
+####  wiig  
+##### 1118#       发表于 2021-7-23 10:50
+
+
+<img src="https://img.saraba1st.com/forum/202107/23/105042zki11jm5i5t5cjc8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (476.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-23 10:50 上传
+
+
+*****
+
+####  影山银  
+##### 1119#       发表于 2021-7-23 11:06
+
+
+看切片评论才知道Iofi竟然染上新冠了，管人这种家里蹲职业都会被感染的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9738, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

@@ -4701,3 +4701,58 @@ mrr✘luna√
 
 
                                                  
+
+*****
+
+####  FCCHua  
+##### 4913#       发表于 2021-7-23 09:32
+
+
+pomu要做个预防遗传的手术，7.28-8.16休息
+
+
+*****
+
+####  Suny08  
+##### 4914#       发表于 2021-7-23 10:34
+
+
+pomu这波休止感觉有点跟不上同期了，鱼靠着ghs太阳龙靠耐久都起飞了，就她一直没什么特色，本身还是社畜直播时间不够，上次整阴间活效果也不好，休止一个月回来估计都要被企鹅超了，作为自己en的半个推还是有点心疼
+
+
+*****
+
+####  winda  
+##### 4915#       发表于 2021-7-23 10:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算解除了联动限制，seeds2期+voiz本身就算边缘人大量发生的地方，现在一二期种一都聚过了就种二搞不起全员大集合了
+
+
+*****
+
+####  hulaoda007  
+##### 4916#       发表于 2021-7-23 11:09
+
+
+  绿仙当时好像也是voiz来着？
+  现在则是种一骨干...
+  不过一期和种一是真的关系好。
+
+
+*****
+
+####  rzrbtk  
+##### 4917#       发表于 2021-7-23 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52065966&amp;ptid=1972669" target="_blank">icecry 发表于 2021-7-23 08:57</a>
+你d的女人好奇怪
+
+https://b23.tv/gqMFdU</blockquote>
+郡道美玲是谁？
+
+说实话原神做得越好更新得越快我越恨这个游戏，郡郡啥时候会厌倦呢<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+                                                 

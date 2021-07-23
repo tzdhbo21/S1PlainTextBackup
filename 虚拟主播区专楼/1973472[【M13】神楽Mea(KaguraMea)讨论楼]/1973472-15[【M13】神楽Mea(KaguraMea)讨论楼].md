@@ -1277,3 +1277,224 @@ syl，mea也醒了，精致睡眠危<img src="https://static.saraba1st.com/image
 
 
                                                  
+
+*****
+
+####  yywzjsw  
+##### 21113#       发表于 2021-7-23 09:34
+
+
+要不然就是大姨妈又要乱了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21114#       发表于 2021-7-23 09:41
+
+
+会思考这种问题，也是老陰キャ了
+
+
+*****
+
+####  yywzjsw  
+##### 21115#       发表于 2021-7-23 09:57
+
+
+突然想起来，昨天不是去出去了、还看电影，不会就那么运气不好的感染上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人辰  
+##### 21116#       发表于 2021-7-23 09:58
+
+
+ 本帖最后由 路人辰 于 2021-7-23 10:07 编辑 
+
+20210723东京10点（1、2）
+
+
+<img src="https://img.saraba1st.com/forum/202107/23/100735g7e0tj7majueutub.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C52BFF25-3902-4305-A1A4-1DFD322E49B4.jpeg</strong> (52 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-23 10:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/23/095833ma788jzayb1rrsdu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2FE0AF0D-7DC9-4B1F-94C7-BC22B809CBD3.jpeg</strong> (342.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-23 09:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/23/100731upgpuigogitgduzd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>72292BCB-C255-4579-BADE-89A70588EC17.jpeg</strong> (122.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-23 10:07 上传
+
+
+*****
+
+####  T_Hb  
+##### 21117#       发表于 2021-7-23 09:58
+
+
+ 本帖最后由 T_Hb 于 2021-7-23 10:04 编辑 
+
+你也太快进了吧，1天就发作了是吧
+
+11点钟睡觉，真有她的
+
+
+*****
+
+####  yywzjsw  
+##### 21118#       发表于 2021-7-23 10:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反正日本那一天2000，不奇怪
+
+
+*****
+
+####  Klience  
+##### 21119#       发表于 2021-7-23 10:06
+
+
+第四次紧急宣言再加上疫苗保存、接种方面都出问题<[img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dualist彩  
+##### 21120#       发表于 2021-7-23 10:19
+
+
+臭傻逼求你别出去了，尼玛这病粘上了就算不死对嗓子声音伤害老大了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  路人庚  
+##### 21121#       发表于 2021-7-23 10:20
+
+
+ 本帖最后由 路人庚 于 2021-7-23 10:29 编辑 
+
+下午6点睡，凌晨2点起（睡8小时）
+
+凌晨2点起，上午11点睡（醒9小时之后又睡）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果把躺床上玩手机的时间也算是睡眠时间的话，她头疼大概纯粹是睡觉睡太多造成的（而且新冠症状也没有头疼这一条
+
+
+话说回来，从去年到现在一直持续存在的阿b“强制”线下活动，和周围人的影响，看来是把她对疫情的恐惧消除的差不多了（这是不是好事呢
+
+
+*****
+
+####  T_Hb  
+##### 21122#       发表于 2021-7-23 10:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得是坏事，不如怂一点，她有说过打了疫苗没
+
+
+*****
+
+####  yywzjsw  
+##### 21123#       发表于 2021-7-23 10:26
+
+
+那么怕打针、怎么可能去打、而且现在日本那疫苗情况，你敢去打<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 21124#       发表于 2021-7-23 10:27
+
+
+床上盘手机，睡眠不足吧
+
+
+*****
+
+####  T_Hb  
+##### 21125#       发表于 2021-7-23 10:29
+
+
+上次不是12点说睡觉，4点发条fleet说睡了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21126#       发表于 2021-7-23 10:31
+
+
+生理盐水 过期疫苗 一次两针 她要是看了新闻她敢去打？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21127#       发表于 2021-7-23 10:32
+
+
+ 本帖最后由 路人庚 于 2021-7-23 10:33 编辑 
+
+上面说反了，编辑了一下
+
+
+不过疫苗的话还是要看她周围有没有人打，毕竟这事羊群效应明显（网上的新闻对人造成的影响很小的
+
+
+*****
+
+####  gongge666  
+##### 21128#       发表于 2021-7-23 11:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52067132&amp;ptid=1973472" target="_blank">Klience 发表于 2021-7-23 10:31</a>
+
+生理盐水 过期疫苗 一次两针 她要是看了新闻她敢去打？</blockquote>
+yhm会看新闻么？
+
+
+*****
+
+####  Cushaw  
+##### 21129#       发表于 2021-7-23 11:12
+
+
+不是新冠就好，不知道年纪大了身体出一次毛病会不会把她作息和生活习惯改正一点<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Klience  
+##### 21130#       发表于 2021-7-23 11:16
+
+
+我觉得想多了 之前这人还说要把作息改回来 但是现在呢 还不是一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
