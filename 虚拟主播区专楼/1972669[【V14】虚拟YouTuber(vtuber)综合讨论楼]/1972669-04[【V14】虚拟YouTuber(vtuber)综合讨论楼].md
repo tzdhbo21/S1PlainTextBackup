@@ -6028,3 +6028,138 @@ syl大小姐抽到lize异时空同位体转生ob和可以先发的夺三振先�
 
 
                                                  
+
+*****
+
+####  我不是很好  
+##### 5031#       发表于 2021-7-24 19:32
+
+
+这教授不会是拉过来凑数的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 5032#       发表于 2021-7-24 19:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">cypher cup两场打完千草律可otogi队第三，杏星队第四
+
+
+*****
+
+####  霜浪  
+##### 5033#       发表于 2021-7-24 19:54
+
+
+教授看完同期昨天的9小时传说受刺激了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dybang  
+##### 5034#       发表于 2021-7-24 20:03
+
+
+怎么教授比鲨鱼妹先绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">变声一步到位么
+
+
+*****
+
+####  我不是很好  
+##### 5035#       发表于 2021-7-24 20:05
+
+
+我的评价是不太行。新人期再观察一段时间，万一突然搞个大活呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 5036#       发表于 2021-7-24 20:11
+
+
+葵皇最近天天rank这样子是不是要参加最协了
+
+
+*****
+
+####  我不是很好  
+##### 5037#       发表于 2021-7-24 20:19
+
+
+ 本帖最后由 我不是很好 于 2021-7-24 20:34 编辑 
+
+红毛同接上来就过万，我和枪男势不两立<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+两万了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+三万了<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十四洲  
+##### 5038#       发表于 2021-7-24 20:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52086947&amp;ptid=1972669" target="_blank">我不是很好 发表于 2021-7-24 20:19</a>
+
+红毛同接上来就过万，我和枪男势不两立</blockquote>
+是被枪男狠狠伤过心了吗，怎么这么看不顺眼猎杀哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以看看别的嘛
+
+
+*****
+
+####  FCCHua  
+##### 5039#       发表于 2021-7-24 20:25
+
+
+猎杀红毛的声音属实是太吵了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 5040#       发表于 2021-7-24 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52086970&amp;ptid=1972669" target="_blank">十四洲 发表于 2021-7-24 20:21</a>
+是被枪男狠狠伤过心了吗，怎么这么看不顺眼猎杀哥可以看看别的嘛</blockquote>
+在看教授。期待搞个大活，虽然看起来今天是不可能了，感觉太传统了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  peh  
+##### 5041#       发表于 2021-7-24 20:36
+
+
+ 本帖最后由 peh 于 2021-7-24 20:38 编辑 
+
+基本不看打枪男v，问下一般是打枪水平越高粉越多吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">顺便看了看蓝毛，这新的5个人是故意配成声音和皮不搭的吗，鲨鱼姐和红毛也是
+
+
+*****
+
+####  dybang  
+##### 5042#       发表于 2021-7-24 20:37
+
+
+King在叶家卿卿我我，枪民补空位而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 5043#       发表于 2021-7-24 20:37
+
+
+才注意是长尾景的生日
+
+
+                                                
