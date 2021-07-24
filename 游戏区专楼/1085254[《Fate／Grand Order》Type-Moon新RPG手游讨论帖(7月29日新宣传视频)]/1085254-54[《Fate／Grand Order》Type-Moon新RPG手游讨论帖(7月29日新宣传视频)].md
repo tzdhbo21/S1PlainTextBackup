@@ -9933,3 +9933,26 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  zore  
+##### 80272#       发表于 2021-7-24 18:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年从者卡面总不能是公款追星了吧
+
+
+*****
+
+####  里村紅葉  
+##### 80273#       发表于 2021-7-24 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52085917&amp;ptid=1085254" target="_blank">zore 发表于 2021-7-24 18:32</a>
+
+周年从者卡面总不能是公款追星了吧</blockquote>
+万一以后的卡面全是公款追星呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
