@@ -9989,3 +9989,44 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  不垃圾屌丝  
+##### 80277#       发表于 2021-7-25 00:02
+
+
+笑死，削人棍直播间一群人为了佩佩性取向吵架<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  khxooo  
+##### 80278#       发表于 2021-7-25 00:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52088811&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-7-25 00:02</a>
+
+笑死，削人棍直播间一群人为了佩佩性取向吵架
+
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅 ...</blockquote>
+其实一开始我很普通的说佩佩算是普通的性别认知障碍，然后他看剧情后认为是前世转生，于是我坚持了一下我的观点，不清楚他为什么这么激动，后面我都不敢说话了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不垃圾屌丝  
+##### 80279#       发表于 2021-7-25 00:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52089028&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-25 00:26</a>
+其实一开始我很普通的说佩佩算是普通的性别认知障碍，然后他看剧情后认为是前世转生，于是我坚持了一下我 ...</blockquote>
+当初CCC杂谈那期我就觉得削人棍这人挺容易钻牛角尖的
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

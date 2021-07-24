@@ -6525,3 +6525,23 @@ Hasan Kahraman (BLUEBOX Game studios) changed his Twitter background to a pictur
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 499#       发表于 2021-7-25 00:19
+
+
+既然挖上来了，我也更新点什么
+
+1. 吉田修平回应abandoned传闻：🤔
+[https://twitter.com/yosp/status/1417511006780071936](https://twitter.com/yosp/status/1417511006780071936)
+
+2. Hasan说寂静岭里最喜欢2
+[https://twitter.com/HasanEKahraman/status/1415830424698462210](https://twitter.com/HasanEKahraman/status/1415830424698462210)
+
+3. BlueBoxGameStudio给小岛点赞，后来又移除了
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/omb3pc](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/omb3pc)
+
+
+                                                 
