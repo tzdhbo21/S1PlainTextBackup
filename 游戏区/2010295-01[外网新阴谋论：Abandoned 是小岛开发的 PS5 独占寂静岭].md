@@ -6494,3 +6494,23 @@ Hasan Kahraman (BLUEBOX Game studios) changed his Twitter background to a pictur
 
 
                                                  
+
+*****
+
+####  ky怪  
+##### 496#       发表于 2021-7-24 22:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  subject07  
+##### 497#       发表于 2021-7-24 22:24
+
+
+意思是要等奥运会结束这闹剧才能收场?
+
+
+                                                 

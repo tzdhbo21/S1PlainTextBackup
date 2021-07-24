@@ -3127,3 +3127,45 @@ yysy 这画风我一时半会还认不出这是时雨妈</blockquote>
 
 
                                                  
+
+*****
+
+####  往世雷书  
+##### 21288#       发表于 2021-7-24 21:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52087406&amp;ptid=1973472" target="_blank">JY要塞 发表于 2021-7-24 21:13</a>
+麻妈代打</blockquote>
+她好像说过她妈看她直播，觉得杂谈很无聊，不知道观众喜欢她哪点了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  草牛  
+##### 21289#       发表于 2021-7-24 21:48
+
+
+麻妈说的对
+
+
+*****
+
+####  yywzjsw  
+##### 21290#       发表于 2021-7-24 21:52
+
+
+岳母说的对
+
+
+*****
+
+####  雪风utopia  
+##### 21291#       发表于 2021-7-24 22:00
+
+
+麻妈说得好
+
+
+                                                 
