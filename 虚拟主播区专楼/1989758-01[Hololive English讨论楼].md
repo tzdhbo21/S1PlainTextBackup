@@ -17304,3 +17304,16 @@ ame好拼啊，一场不落
 
 
                                                  
+
+*****
+
+####  我不是很好  
+##### 1127#       发表于 2021-7-24 11:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52080946&amp;ptid=1989758" target="_blank">wiig 发表于 2021-7-24 07:13</a>
+[Misc.] Gura is featured on the latest Taco Bell commercial, via billboard [during Tokyo Olympics]!  ...</blockquote>
+这几天怎么总能在莫名其妙的地方看见en<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
