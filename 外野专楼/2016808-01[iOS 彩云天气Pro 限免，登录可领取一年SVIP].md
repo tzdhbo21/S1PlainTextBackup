@@ -1239,3 +1239,42 @@ ios15不是要更新天气app了，好像不错，手机里面放几个天气应
 
 
                                                  
+
+*****
+
+####  奈落的孤火花  
+##### 97#       发表于 2021-7-24 10:41
+
+
+填我邀请码【72725195】
+
+打开【彩云天气】[https://datarangers.com.cn/datatracer/surl/a/ds2XdYOA](https://datarangers.com.cn/datatracer/surl/a/ds2XdYOA) 
+
+即可领最高价值【90元】会员 
+
+【免广告-几点几分下雨-卫星云图】
+
+复制此消息可自动填写邀请码
+
+（好运连连，邀请码48小时内有效哦）
+
+
+*****
+
+####  rosennesta  
+##### 98#       发表于 2021-7-24 10:46
+
+
+复制了楼上的
+
+填我邀请码【78833041】
+打开【彩云天气】https://datarangers.com.cn/datatracer/surl/a/JkXtj9Xg 
+即可领最高价值【90元】会员 
+【免广告-几点几分下雨-卫星云图】
+复制此消息可自动填写邀请码
+（好运连连，邀请码48小时内有效哦）
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
