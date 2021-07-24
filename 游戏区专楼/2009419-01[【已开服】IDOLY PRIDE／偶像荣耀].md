@@ -5168,3 +5168,42 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  yuugi  
+##### 371#       发表于 2021-7-24 17:14
+
+
+ 本帖最后由 yuugi 于 2021-7-24 17:25 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/24/171351lpdys4x43hldzbyp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-24-16-37-50-521_game.qualiarts.idolypride.jpg</strong> (184.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-24 17:13 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/24/171408o74ud40d4piu8iui.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-24-16-34-11-487_game.qualiarts.idolypride.jpg</strong> (227.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-24 17:14 上传
+
+
+第一发7m核弹，没想到是四星
+
+
+但后面的265不知道咋过了
+
+
+                                                 
