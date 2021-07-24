@@ -6472,3 +6472,14 @@ We have changed the app name from Realtime Trailers to Realtime Experience so th
 
 
                                                  
+
+*****
+
+####  针刺骑士  
+##### 494#       发表于 2021-7-24 16:42
+
+
+Hasan Kahraman (BLUEBOX Game studios) changed his Twitter background to a picture of a small island. A small island in Japanese is called 小島. Translated to English it's Kojima.
+
+
+                                                 
