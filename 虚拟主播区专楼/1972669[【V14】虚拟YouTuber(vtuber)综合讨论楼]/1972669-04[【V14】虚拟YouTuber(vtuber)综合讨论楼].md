@@ -6208,3 +6208,37 @@ King在叶家卿卿我我，枪民补空位而已<img src="https://static.saraba
 
 
                                                  
+
+*****
+
+####  OldGlory  
+##### 5048#       发表于 2021-7-25 01:02
+
+
+[https://www.reddit.com/r/Nijisan ... etting_popular_but/](https://www.reddit.com/r/Nijisanji/comments/opjaw1/its_great_that_nijisanji_is_getting_popular_but/)
+
+
+彩虹红迪upvote最多的就是这种帖子吗？
+
+
+*****
+
+####  purdre  
+##### 5049#       发表于 2021-7-25 01:05
+
+
+ 本帖最后由 purdre 于 2021-7-25 01:12 编辑 
+
+现在虹在英语圈那边的地位就是低得就算杏人当面跳脸也是虹人出来反省道歉的程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我点踩了
+
+
+*****
+
+####  我不是很好  
+##### 5050#       发表于 2021-7-25 01:16
+
+
+其实一直觉得虹en的weeb味有点重<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                 
