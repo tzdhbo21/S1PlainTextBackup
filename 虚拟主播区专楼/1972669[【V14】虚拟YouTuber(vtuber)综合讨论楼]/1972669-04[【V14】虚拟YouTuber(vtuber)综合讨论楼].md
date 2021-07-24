@@ -5921,3 +5921,27 @@ aaa.png
 
 
                                                  
+
+*****
+
+####  FCCHua  
+##### 5023#       发表于 2021-7-24 13:45
+
+
+熊猫人选了11岁当捕手，真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NBXX  
+##### 5024#       发表于 2021-7-24 14:09
+
+
+ 本帖最后由 NBXX 于 2021-7-24 14:12 编辑 
+
+<img src="https://p.sda1.dev/2/19257da3c7bd28a12f462501b96c7aa8/4E2NSI_LUI322GF7O_JK8RF.png" referrerpolicy="no-referrer">
+
+youtu.be/YRK8hsgA7L0
+
+
+                                                 
