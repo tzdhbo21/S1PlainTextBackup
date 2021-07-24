@@ -2009,3 +2009,17 @@ https://www.youtube.com/watch?v=MIvfemYlECs</blockquote>
 
 
                                                  
+
+*****
+
+####  acejoe  
+##### 137#       发表于 2021-7-24 09:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52080470&amp;ptid=2013210" target="_blank">北山玖公 发表于 2021-7-24 02:08</a>
+
+贺来就很给面子，真身出镜还教三个人，哪像藤本，死死护卫自己，藤本现在比贺来壮一个量级，就连身 ...</blockquote>
+减弱矛盾冲突意味着要在别的地方补回去，分镜和细节上下功夫，要是消极的故事让性癖姐画，绝对死别会好很多。
+
+
+                                                 
