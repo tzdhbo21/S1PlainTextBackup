@@ -10030,3 +10030,20 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  森兰丸  
+##### 80280#       发表于 2021-7-25 03:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52057577&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-22 14:28</a>
+
+奥伯龙周年主要有一个问题就是裁缝妖精要怎么处理，到目前为止还没有在周年池里塞4星的先例。不像奥伯龙可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">裁缝没讲的多了去了.....目前只知道她以前就和摩根在一起....也是过去就认识盾娘了
+
+
+但她对盾娘无论是过去还是现在忘了她的这件事完全不感到意外....最后打摩根时也没跟着估哒一起进去....不知道跑哪去了
+
+
+                                                 
