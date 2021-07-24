@@ -6242,3 +6242,33 @@ King在叶家卿卿我我，枪民补空位而已<img src="https://static.saraba
 
 
                                                  
+
+*****
+
+####  空集  
+##### 5051#       发表于 2021-7-25 01:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52089276&amp;ptid=1972669" target="_blank">purdre 发表于 2021-7-25 01:05</a>
+现在虹在英语圈那边的地位就是低得就算杏人当面跳脸也是虹人出来反省道歉的程度反正我点踩了 ...</blockquote>
+原来你是英语圈外宾?<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  purdre  
+##### 5052#       发表于 2021-7-25 01:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52089446&amp;ptid=1972669" target="_blank">空集 发表于 2021-7-25 01:38</a>
+
+原来你是英语圈外宾?
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+红迪有个号就能点踩啊
+
+
+                                                 

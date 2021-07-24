@@ -6968,3 +6968,23 @@ Aqua Channelにて配信開始
 
 
                                                  
+
+*****
+
+####  面具13  
+##### 6566#       发表于 2021-7-25 01:41
+
+
+唉，要是能多唱点偏低音的抒情歌多好啊，比假声萌音强多了
+
+
+*****
+
+####  我不是很好  
+##### 6567#       发表于 2021-7-25 01:42
+
+
+游戏回多来点<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+                                                 
