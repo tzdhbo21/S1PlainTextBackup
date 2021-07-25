@@ -6479,3 +6479,43 @@ VR関西（樋口楓）：2回戦敗退
 
 
                                                  
+
+*****
+
+####  Suny08  
+##### 5069#       发表于 2021-7-25 17:39
+
+
+大小姐在这么玩感觉离炎上不远了啊，是哪个anti出的鬼点子推荐她来当监督的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 5070#       发表于 2021-7-25 17:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前辈想赢，但是大小姐不想，县大会一轮游还是要点操作的
+
+
+
+
+*****
+
+####  flyskywalker92  
+##### 5071#       发表于 2021-7-25 18:07
+
+
+她就是个蹭 啥人气高就玩 啥都不精
+
+
+*****
+
+####  我不是很好  
+##### 5072#       发表于 2021-7-25 18:29
+
+
+虹棒玩到这种程度也算一种能力
+
+
+                                                
