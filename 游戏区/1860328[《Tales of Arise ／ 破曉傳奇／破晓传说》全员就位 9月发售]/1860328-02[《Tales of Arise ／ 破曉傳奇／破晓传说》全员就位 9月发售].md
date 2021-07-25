@@ -7649,3 +7649,24 @@ jrpg核心系统终于出现了
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2065#         楼主| 发表于 2021-7-25 14:47
+
+
+<img src="https://img.saraba1st.com/forum/202107/25/144645jh6hh05ryhvhsb0l.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (13.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-25 14:46 上传
+
+
+之前有人提及过这次的媒体 preview 可能是通过 Parsec 实现的，现在确认了——确实
+
+
+                                                 
