@@ -3734,3 +3734,14 @@ GAMERS有个用封面的B2挂画限定版
 
 
                                                  
+
+*****
+
+####  azbycx4111  
+##### 306#       发表于 2021-7-25 22:51
+
+
+送的11连券到现在抽了16张了没一个金<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 
