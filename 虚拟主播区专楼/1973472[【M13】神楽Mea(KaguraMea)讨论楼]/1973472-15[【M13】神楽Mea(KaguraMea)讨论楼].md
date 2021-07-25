@@ -3592,3 +3592,217 @@ yysy 这画风我一时半会还认不出这是时雨妈</blockquote>
 
 
                                                  
+
+*****
+
+####  2014720  
+##### 21331#       发表于 2021-7-25 19:27
+
+
+憋说了，不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 21332#       发表于 2021-7-25 19:40
+
+
+果然…好女人要有的是，烟、楼顶…还有轻飘飘的衣服呀
+
+
+*****
+
+####  Klience  
+##### 21333#       发表于 2021-7-25 19:55
+
+
+圣诞老人？
+
+
+*****
+
+####  雪风utopia  
+##### 21334#       发表于 2021-7-25 19:59
+
+
+呜呜，由歧姐<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 21335#       发表于 2021-7-25 20:00
+
+
+那估计她烟瘾挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21336#       发表于 2021-7-25 20:03
+
+
+妈的 以前看老外整活视频用这首歌看多了 现在听这歌的开头有点ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21337#       发表于 2021-7-25 20:04
+
+
+ 本帖最后由 T_Hb 于 2021-7-25 20:07 编辑 
+
+MV还可以啊
+
+爱丽丝和羽衣老师唱歌是这种声线吗
+
+
+*****
+
+####  雪风utopia  
+##### 21338#       发表于 2021-7-25 20:07
+
+
+是那个男人<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黒長直姫  
+##### 21339#       发表于 2021-7-25 20:07
+
+
+meme害死人 我也开头就出戏
+
+
+*****
+
+####  路人庚  
+##### 21340#       发表于 2021-7-25 20:09
+
+
+<img src="https://img.saraba1st.com/forum/202107/25/200956dtotlo87fk78esxp.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (47.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-25 20:09 上传
+
+
+*****
+
+####  古战场亡魂  
+##### 21341#       发表于 2021-7-25 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52094728&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-25 20:09</a></blockquote>
+你不会换日本的tz吗
+
+
+*****
+
+####  汇聚群光  
+##### 21342#       发表于 2021-7-25 20:11
+
+
+感觉bgm的声音还是太大了，这三个人掐起萌音来本来就不太好分辨，伴奏又这么吵，更加听不出来哪句歌词是谁唱的了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21343#       发表于 2021-7-25 20:11
+
+
+我稍微好一点，能分出来咩咩的
+
+
+*****
+
+####  雪风utopia  
+##### 21344#       发表于 2021-7-25 20:11
+
+
+是我不认识的时雨妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21345#       发表于 2021-7-25 20:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52094729&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-7-25 20:10</a>
+
+你不会换日本的tz吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，默认是hk的，之前都没遇到过（换了日本节点没问题了，服了
+
+
+*****
+
+####  Cushaw  
+##### 21346#       发表于 2021-7-25 20:14
+
+
+ 本帖最后由 Cushaw 于 2021-7-25 20:24 编辑 
+
+yhm的英文<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21347#       发表于 2021-7-25 20:14
+
+
+ 本帖最后由 T_Hb 于 2021-7-25 20:29 编辑 
+
+哈哈哈哈，那个strength有点震撼我，死脱楞死
+
+我去翻了下原唱，怎么是strange<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">，是说这种曲里面怎么会有strength这种单词
+
+
+*****
+
+####  路人庚  
+##### 21348#       发表于 2021-7-25 20:32
+
+
+ 本帖最后由 路人庚 于 2021-7-25 20:37 编辑 
+
+三人音色的区别还算是比较大的，反正这次听着没有沙沙感了，也挺好的
+
+除了2分50秒开始的那段制作人员名单看着像是后期临时加上去的（这种看上去与整体的艺术风格都不搭的字体甚至让我怀疑是你咩姐自己后期加的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+相比之前几个一图流pv，这次pv的特效也是够多的，感觉是一个要大几千才能拿下来的pv
+
+
+另外顺便（既视感
+
+
+<img src="https://img.saraba1st.com/forum/202107/25/202932yeeme0w9ey099o1c.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (137.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-25 20:29 上传
+
+
+*****
+
+####  古战场亡魂  
+##### 21349#       发表于 2021-7-25 20:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">想找找历史作品来着。
+
+
+                                                 

@@ -6555,3 +6555,141 @@ VR関西（樋口楓）：2回戦敗退
 
 
                                                  
+
+*****
+
+####  qq845629713  
+##### 5074#       发表于 2021-7-25 19:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不愧是神速高中，连设定都是神速，神速进入游戏
+
+
+*****
+
+####  alcoholic1000  
+##### 5075#       发表于 2021-7-25 19:30
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-25 19:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52094254&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-7-25 19:27</a>
+
+不愧是神速高中，连设定都是神速，神速进入游戏</blockquote>
+神速重置，转生有但属性不大行
+
+这是拆别人组合的报应吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/25/193941gwjo5b28q9lsullz.png" referrerpolicy="no-referrer">
+
+
+<strong>【 パワプロ2021 】神　速　始　動【 ＃にじさんじ甲子園 】.png</strong> (129.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-25 19:39 上传
+
+
+有了有了，拆别人组合不需要吃报应的，明年继续！
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 1|神速再重置，神速GG|
+
+
+查看全部评分
+
+
+*****
+
+####  gaiadc  
+##### 5076#       发表于 2021-7-25 19:32
+
+
+二抽平均值50<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 5077#       发表于 2021-7-25 19:39
+
+
+ 本帖最后由 qq845629713 于 2021-7-25 19:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 神抽一个ssr还行
+
+KING不知道把这个ace给谁呢
+
+
+*****
+
+####  我不是很好  
+##### 5078#       发表于 2021-7-25 19:42
+
+
+奶一个king同接破十万<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 5079#       发表于 2021-7-25 19:44
+
+
+King当然还是知道给好基友无敌组合aqf 的
+
+
+*****
+
+####  hulaoda007  
+##### 5080#       发表于 2021-7-25 20:05
+
+
+  我没想到有一天葛叶的直播同接会高过偶像大师16周年直播...
+
+
+*****
+
+####  qq845629713  
+##### 5081#       发表于 2021-7-25 20:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> king怎么在这分配角色的时候这么墨迹了
+
+
+*****
+
+####  IDIDIDID  
+##### 5082#       发表于 2021-7-25 20:07
+
+
+king真是对歌姬爱得深沉
+
+
+*****
+
+####  Suny08  
+##### 5083#       发表于 2021-7-25 20:08
+
+
+避火啊，抢了3bk和smc，还得考虑自己兄弟aqf，那不就得好好考虑了
+
+
+*****
+
+####  gaiadc  
+##### 5084#       发表于 2021-7-25 20:18
+
+
+King演了半天，最后还是顾及各家粉丝势力把最强的两位给了不破和阿床
+
+
+                                                 
