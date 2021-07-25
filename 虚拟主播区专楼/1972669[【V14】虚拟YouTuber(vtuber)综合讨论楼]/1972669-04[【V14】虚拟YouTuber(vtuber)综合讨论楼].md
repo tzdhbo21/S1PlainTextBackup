@@ -6713,3 +6713,17 @@ King演了半天，最后还是顾及各家粉丝势力把最强的两位给了�
 
 
                                                  
+
+*****
+
+####  harry3  
+##### 5087#       发表于 2021-7-25 21:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52089276&amp;ptid=1972669" target="_blank">purdre 发表于 2021-7-25 01:05</a>
+
+现在虹在英语圈那边的地位就是低得就算杏人当面跳脸也是虹人出来反省道歉的程度反正我点踩了 ...</blockquote>
+谁叫虹找人好好运营个reddit社区再买点量都不干
+
+
+                                                 
