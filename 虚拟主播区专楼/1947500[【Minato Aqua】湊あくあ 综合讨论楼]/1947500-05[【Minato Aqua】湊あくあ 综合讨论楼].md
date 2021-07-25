@@ -6999,3 +6999,23 @@ Aqua Channelにて配信開始
 
 
                                                  
+
+*****
+
+####  zpy393  
+##### 6569#       发表于 2021-7-25 08:20
+
+
+游戏民大满足,只要不是马娘一切好说<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 6570#       发表于 2021-7-25 13:03
+
+
+看来认同播马娘=摆烂的人还挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

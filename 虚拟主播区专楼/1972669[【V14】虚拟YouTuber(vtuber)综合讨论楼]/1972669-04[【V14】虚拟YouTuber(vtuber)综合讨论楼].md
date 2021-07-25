@@ -6318,3 +6318,51 @@ oreapo大晚上的双排完
 
 
                                                  
+
+*****
+
+####  JoelBirch  
+##### 5057#       发表于 2021-7-25 07:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52089866&amp;ptid=1972669" target="_blank">flyskywalker92 发表于 2021-7-25 05:53</a>
+月灵歌会的歌是谁选的啊。。</blockquote>
+理论上应该还是她自己选的，估计参考了字幕组或者批站运营的建议
+
+
+*****
+
+####  hulaoda007  
+##### 5058#       发表于 2021-7-25 09:13
+
+
+ 本帖最后由 hulaoda007 于 2021-7-25 09:16 编辑 
+
+  为啥在Lain身上感觉到了大小姐+废人感呢...？
+
+  看好继任珊瑚。
+
+
+*****
+
+####  winda  
+##### 5059#       发表于 2021-7-25 12:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大小姐这虹棒，不懂大会规则（用带道具的旧号开新档，结果被赶电车的舞元叫住手把手建新号），不懂棒球规则（不知道好球坏球），不懂游戏机制（不知道红特效果），地狱过头了
+
+现在踩赞6700:800
+
+
+*****
+
+####  我不是很好  
+##### 5060#       发表于 2021-7-25 12:57
+
+
+<blockquote>winda 发表于 2021-7-25 12:47
+大小姐这虹棒，不懂大会规则（用带道具的旧号开新档，结果被赶电车的舞元叫住手把手建新号），不懂 ...</blockquote>
+把虹棒玩成了debuff？
+
+
+                                                 
