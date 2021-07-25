@@ -4349,3 +4349,160 @@ debu塔姆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 
                                                 
+
+*****
+
+####  2014720  
+##### 21396#       发表于 2021-7-25 23:34
+
+
+苔苔<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 21397#       发表于 2021-7-25 23:34
+
+
+胖胖胖胖胖
+
+
+*****
+
+####  T_Hb  
+##### 21398#       发表于 2021-7-25 23:39
+
+
+我觉得这次苔本可以称之为好活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21399#       发表于 2021-7-25 23:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后返场也有台本小剧场还行
+
+
+*****
+
+####  雪风utopia  
+##### 21400#       发表于 2021-7-25 23:39
+
+
+至少没有那么烂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ashero  
+##### 21401#       发表于 2021-7-25 23:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烂活 就是有点好 好活 就是有点烂
+
+
+*****
+
+####  Klience  
+##### 21402#       发表于 2021-7-25 23:41
+
+
+烂活 但是没有完全烂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 21403#       发表于 2021-7-25 23:42
+
+
+好评！被叫debu这人好急啊！本坦克民安心了。
+
+
+*****
+
+####  路人庚  
+##### 21404#       发表于 2021-7-25 23:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中规中矩罢，如果流程能快点，多来几个话题挑选几个精彩回复放出来就更好了（当然那就更像v骚了
+
+
+*****
+
+####  T_Hb  
+##### 21405#       发表于 2021-7-25 23:43
+
+
+比上次那个活好多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甘栗No.007  
+##### 21406#       发表于 2021-7-25 23:44
+
+
+砰 砰 砰 的水桶debu塔姆
+
+
+*****
+
+####  JY要塞  
+##### 21407#       发表于 2021-7-25 23:45
+
+
+坦克民稳如泰山
+
+
+*****
+
+####  咸鱼渣  
+##### 21408#       发表于 2021-7-25 23:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">急眼了就说明真的是坦克了
+
+
+*****
+
+####  T_Hb  
+##### 21409#       发表于 2021-7-25 23:47
+
+
+ 本帖最后由 T_Hb 于 2021-7-25 23:48 编辑 
+
+什么时候来点利空坦克民的消息吧，坦总赢有点腻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  咸鱼渣  
+##### 21410#       发表于 2021-7-25 23:53
+
+
+利空不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">坦克的吨位还要涨上去，涨到一百吨（
+
+
+*****
+
+####  JY要塞  
+##### 21411#       发表于 2021-7-25 23:55
+
+
+先杀非坦克民，再杀轻坦民
+
+
+*****
+
+####  T_Hb  
+##### 21412#       发表于 2021-7-26 00:09
+
+
+<img src="https://p.sda1.dev/2/a9286f372f788f439a3627d635a6fbac/IMG_20210726_000910.jpg" referrerpolicy="no-referrer">
+
+
+                                                 
