@@ -3806,3 +3806,187 @@ yhm的英文<img src="https://static.saraba1st.com/image/smiley/face2017/068.png
 
 
                                                  
+
+*****
+
+####  时间在我手中  
+##### 21350#       发表于 2021-7-25 20:41
+
+
+[https://www.bilibili.com/video/BV1pK4y1f7Wy](https://www.bilibili.com/video/BV1pK4y1f7Wy)
+
+只有这个感觉
+
+
+*****
+
+####  古战场亡魂  
+##### 21351#       发表于 2021-7-25 20:44
+
+
+还有这Production Cooperation是干嘛的啊，往期歌曲联动也没有这位置啊
+
+
+*****
+
+####  路人庚  
+##### 21352#       发表于 2021-7-25 20:44
+
+
+ 本帖最后由 路人庚 于 2021-7-25 20:48 编辑 
+
+关于歌词，油管下面好像新增了一段话
+
+
+你咩姐也发现歌词搞错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202107/25/204439hn3htzte5x1abv5i.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (65.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-25 20:44 上传
+
+
+*****
+
+####  T_Hb  
+##### 21353#       发表于 2021-7-25 20:44
+
+
+ 本帖最后由 T_Hb 于 2021-7-25 20:56 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/25/205322zm1ux4zmwfx8ahh7.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (47.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-25 20:53 上传
+
+
+Vtuber相关音乐、视频和设计，Producer、Director、Consultant,总之就是帮了忙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甘栗No.007  
+##### 21354#       发表于 2021-7-25 20:49
+
+
+快找售后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 21355#       发表于 2021-7-25 20:51
+
+
+联动是几点阿 
+
+
+*****
+
+####  古战场亡魂  
+##### 21356#       发表于 2021-7-25 20:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">严谨的日本人（笑）
+
+
+*****
+
+####  2014720  
+##### 21357#       发表于 2021-7-25 20:53
+
+
+蚌埠住了
+
+
+*****
+
+####  路人庚  
+##### 21358#       发表于 2021-7-25 21:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52095209&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-7-25 20:44</a>
+
+还有这Production Cooperation是干嘛的啊，往期歌曲联动也没有这位置啊</blockquote>
+这pv的Movie也是属于这个Production Cooperation的，看推特好像是一个叫“NMA”的pv制作团体，之前我翻到他们做过绿粽子的pv以为是时雨那边的关系，不过后来才看到他们之前也做过德龙的pv，估计应该就是个专门接pv制作委托的团体了
+
+
+*****
+
+####  T_Hb  
+##### 21359#       发表于 2021-7-25 21:02
+
+
+<img src="https://img.saraba1st.com/forum/202107/25/210232euz0znxlxqn86pd8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (15.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-25 21:02 上传
+
+
+远古卡组复活
+
+
+*****
+
+####  路人辰  
+##### 21360#       发表于 2021-7-25 21:03
+
+
+20210725东京21点
+
+<img src="https://img.saraba1st.com/forum/202107/25/210307fr12zvjhrhd622qj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E1F73DC4-FCF5-467E-9A25-DF1597C0C848.jpeg</strong> (177 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-25 21:03 上传
+
+
+
+
+*****
+
+####  路人庚  
+##### 21361#       发表于 2021-7-25 21:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是修订歌词又是解决视频屏蔽问题，你咩姐视奸你楼又一石锤（）
+
+
+*****
+
+####  T_Hb  
+##### 21362#       发表于 2021-7-25 21:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你咩姐要是视奸你楼，早就把楼炸了
+
+
+*****
+
+####  2014720  
+##### 21363#       发表于 2021-7-25 21:14
+
+
+接pv能把mix和林义信换了吗
+
+这两人真就你麻的御用大厨？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+                                                
