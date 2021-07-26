@@ -7051,3 +7051,68 @@ Syl，老板娘这棒球连着三个三振惨啊， ars还上了红特，来年�
 
 
                                                  
+
+*****
+
+####  gaiadc  
+##### 5113#       发表于 2021-7-26 20:46
+
+
+圆圆好惨，还好王牌是捕A
+
+
+*****
+
+####  我不是很好  
+##### 5114#       发表于 2021-7-26 20:49
+
+
+king昨天的虹棒怎么那么多踩？
+
+
+*****
+
+####  qq845629713  
+##### 5115#       发表于 2021-7-26 20:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 900踩而已，三马鹿CP粉战斗力就像往天空仍斧头，天空是那么高远，那么辽阔，斧子扔得再高，也触及不到天空的皮毛
+
+
+*****
+
+####  SuntoryNomu  
+##### 5116#       发表于 2021-7-26 21:00
+
+
+萌宠推主。
+
+<img src="https://img.saraba1st.com/forum/202107/26/205937sje8leyp5al5ddky.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E7OQPQSVUAcTy8X.jpg</strong> (438.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-26 20:59 上传
+
+
+*****
+
+####  qq845629713  
+##### 5117#       发表于 2021-7-26 21:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> bora回归直播能5w同接不？
+
+
+*****
+
+####  rzrbtk  
+##### 5118#       发表于 2021-7-26 21:14
+
+
+一想到king虽然爆拆3bk、对队员呼呼喝喝，但最终依然会拿下最高单窗同接，甚至可能凭着king体质拿下第二届冠军，我就…我就…<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+                                                 
