@@ -807,3 +807,16 @@ SUPER POWER！液！<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
                                                  
+
+*****
+
+####  KDConan  
+##### 72#       发表于 2021-7-27 07:49
+
+
+黑色不太适合责任心这么强的人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">操心那么久的事情
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
