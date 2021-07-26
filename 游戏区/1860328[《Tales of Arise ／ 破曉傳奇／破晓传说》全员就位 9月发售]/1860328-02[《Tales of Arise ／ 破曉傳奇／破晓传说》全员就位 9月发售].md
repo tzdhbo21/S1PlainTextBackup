@@ -7670,3 +7670,35 @@ jrpg核心系统终于出现了
 
 
                                                  
+
+*****
+
+####  医生狼多  
+##### 2066#       发表于 2021-7-26 10:17
+
+
+居然参加本次cj<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zero12  
+##### 2067#       发表于 2021-7-26 10:25
+
+
+还有绯红结系 过审了吗？
+
+
+*****
+
+####  医生狼多  
+##### 2068#       发表于 2021-7-26 10:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52099764&amp;ptid=1860328" target="_blank">zero12 发表于 2021-7-26 10:25</a>
+还有绯红结系 过审了吗？</blockquote>
+试玩（或者只是播片）是不用过审的
+当然有人举报除外，ubi当年cj就是被这么搞的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

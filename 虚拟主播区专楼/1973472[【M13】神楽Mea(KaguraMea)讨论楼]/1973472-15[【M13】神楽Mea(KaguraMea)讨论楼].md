@@ -4579,3 +4579,46 @@ debu塔姆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 
                                                  
+
+*****
+
+####  时间在我手中  
+##### 21420#       发表于 2021-7-26 10:04
+
+
+上周就应该熬夜把那个狗屎歌回做出来的
+
+
+结果一周都没怎么播，除了把ae成功打开了学了点东西以外，上周还是什么都没做
+
+
+比较蛋疼的是我PV从mix到画画的，其实都没给完稿给我，我只能先做文字效果了
+
+
+思考了一下，今晚害得把文字重新排版
+
+
+咩宝你带走我吧啊哈哈哈啊哈哈哈
+
+
+
+
+*****
+
+####  路人辰  
+##### 21421#       发表于 2021-7-26 10:30
+
+
+20210726东京9点
+
+<img src="https://img.saraba1st.com/forum/202107/26/103002jmybwsplg8iibbzw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>825F537E-9E24-490E-85C3-907B87D63DF1.jpeg</strong> (221.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-26 10:30 上传
+
+
+                                                
