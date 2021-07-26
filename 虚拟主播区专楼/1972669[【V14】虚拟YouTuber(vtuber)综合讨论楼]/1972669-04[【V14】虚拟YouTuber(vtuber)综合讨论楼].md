@@ -7116,3 +7116,86 @@ king昨天的虹棒怎么那么多踩？
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 5119#       发表于 2021-7-26 21:40
+
+
+  我直觉King不会赢，不知道为啥。
+
+
+*****
+
+####  我不是很好  
+##### 5120#       发表于 2021-7-26 21:49
+
+
+决赛想看大小姐大战若女将，可以满足我的愿望吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  格林卡罗尔  
+##### 5121#       发表于 2021-7-26 21:49
+
+
+king拿冠军还是不大可能，目前冠军最有力候补是sasaki，虽然大家基本都才刚刚开局变数还很大
+
+
+*****
+
+####  我不是很好  
+##### 5122#       发表于 2021-7-26 21:50
+
+
+selly套个皮算了
+
+
+*****
+
+####  IDIDIDID  
+##### 5123#       发表于 2021-7-26 21:54
+
+
+king不进决赛田角同接奇观这块谁给他补啊😯
+
+
+*****
+
+####  我不是很好  
+##### 5124#       发表于 2021-7-26 21:56
+
+
+可以考虑让king宣布毕业<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suzutsuki  
+##### 5125#       发表于 2021-7-26 21:57
+
+
+bora回归直播5w都来了 有个5000我都满足了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 5126#       发表于 2021-7-26 22:00
+
+
+ そにろじ、復活！
+
+
+*****
+
+####  FCCHua  
+##### 5127#       发表于 2021-7-26 22:05
+
+
+大福:开局是什么？棒球等live之后再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

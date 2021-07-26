@@ -3789,3 +3789,56 @@ GAMERS有个用封面的B2挂画限定版
 
 
                                                  
+
+*****
+
+####  yuugi  
+##### 310#       发表于 2021-7-26 21:54
+
+
+ 本帖最后由 yuugi 于 2021-7-26 21:57 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/26/215636qpkdszynngpd1qdm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-26-22-06-53-376_jp.co.allb.jpg</strong> (247.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-26 21:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/26/215412it3mmmzos2rlu38q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-26-22-08-24-884_jp.co.allb.jpg</strong> (199.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-26 21:54 上传
+
+
+*****
+
+####  kos_mos  
+##### 311#       发表于 2021-7-26 22:07
+
+
+新卡就2张
+
+<img src="https://img.saraba1st.com/forum/202107/26/220707zjrvgfyliy416k4l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E7OO6IoVoAMrW6O.jpg</strong> (254.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-26 22:07 上传
+
+
+レギオンリーグ2连败了
+
+
+                                                 

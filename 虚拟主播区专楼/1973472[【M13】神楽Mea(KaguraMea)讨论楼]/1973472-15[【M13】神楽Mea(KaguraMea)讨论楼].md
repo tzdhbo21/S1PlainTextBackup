@@ -4813,3 +4813,62 @@ syl，这歌有几个音让我跳戏到next to you那首曲子里去了草（
 
 
                                                  
+
+*****
+
+####  2014720  
+##### 21438#       发表于 2021-7-26 21:35
+
+
+属于是标准立本人了
+
+
+*****
+
+####  T_Hb  
+##### 21439#       发表于 2021-7-26 21:38
+
+
+ 本帖最后由 T_Hb 于 2021-7-26 21:49 编辑 
+
+这首比上次唱的好多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">今天高音好棒
+
+
+*****
+
+####  rosevalley46  
+##### 21440#       发表于 2021-7-26 21:55
+
+
+今晚还可以啊,同接也高了点
+
+
+*****
+
+####  甘栗No.007  
+##### 21441#       发表于 2021-7-26 22:11
+
+
+可以给我一只这样的哈姆太郎吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 21442#       发表于 2021-7-26 22:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21443#       发表于 2021-7-26 22:20
+
+
+糊出猪叫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

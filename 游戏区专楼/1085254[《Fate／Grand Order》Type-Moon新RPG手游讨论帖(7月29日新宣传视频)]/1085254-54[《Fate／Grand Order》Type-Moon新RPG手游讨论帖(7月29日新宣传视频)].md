@@ -10154,3 +10154,17 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 80290#       发表于 2021-7-26 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52105058&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-26 18:35</a>
+
+不可能，最近豹了妖兰，YLS不可能这么好心给我再出一个五星，只希望到时候送的石头给个哈贝喵就完 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">读心GO 就怕到时候奥伯龙X宝你的哈贝喵还在池子里
+
+
+                                                 
