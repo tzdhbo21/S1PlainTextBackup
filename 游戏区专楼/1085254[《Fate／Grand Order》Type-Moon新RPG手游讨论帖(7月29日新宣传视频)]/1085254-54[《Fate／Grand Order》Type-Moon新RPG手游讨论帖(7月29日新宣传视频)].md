@@ -10097,3 +10097,46 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  rooarr  
+##### 80285#       发表于 2021-7-26 16:48
+
+
+前两年周年送的石头是不是应该多于150个<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qixinno2  
+##### 80286#       发表于 2021-7-26 16:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这几天靠着清自由本拿石头终于抽到了妖兰
+
+
+*****
+
+####  khxooo  
+##### 80287#       发表于 2021-7-26 16:54
+
+
+最近石不过3，以防自己抽到奥伯龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 80288#       发表于 2021-7-26 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52104005&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-26 16:54</a>
+
+最近石不过3，以防自己抽到奥伯龙</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通常你这么做抽到奥伯龙的几率会极大增加
+
+
+                                                 
