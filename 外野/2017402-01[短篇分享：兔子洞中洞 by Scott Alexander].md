@@ -780,3 +780,16 @@ SUPER POWER！液！<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
                                                  
+
+*****
+
+####  a479281660  
+##### 70#       发表于 2021-7-26 23:45
+
+
+只有普京受伤的世界，成立了！
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
