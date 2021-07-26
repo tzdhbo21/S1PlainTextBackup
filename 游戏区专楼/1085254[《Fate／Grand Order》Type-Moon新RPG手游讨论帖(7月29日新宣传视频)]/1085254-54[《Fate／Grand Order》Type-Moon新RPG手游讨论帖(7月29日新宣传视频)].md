@@ -10140,3 +10140,17 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 80289#       发表于 2021-7-26 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52104090&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-26 17:02</a>
+
+通常你这么做抽到奥伯龙的几率会极大增加</blockquote>
+不可能，最近豹了妖兰，YLS不可能这么好心给我再出一个五星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

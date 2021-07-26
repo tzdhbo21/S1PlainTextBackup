@@ -4709,3 +4709,27 @@ debu塔姆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 
                                                  
+
+*****
+
+####  T_Hb  
+##### 21430#       发表于 2021-7-26 17:43
+
+
+ 本帖最后由 T_Hb 于 2021-7-26 18:38 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/26/182631vdtyy3r33dntdftc.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (62.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-26 18:26 上传
+
+
+8点，原来是先建直播间，然后重新做的封面
+
+
+                                                 
