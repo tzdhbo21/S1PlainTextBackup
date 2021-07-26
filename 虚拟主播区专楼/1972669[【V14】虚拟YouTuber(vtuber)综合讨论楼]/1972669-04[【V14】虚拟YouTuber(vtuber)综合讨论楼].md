@@ -7005,3 +7005,49 @@ syl 还把**弄上趋势了www
 
 
                                                  
+
+*****
+
+####  alcoholic1000  
+##### 5111#       发表于 2021-7-26 19:35
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-26 20:40 编辑 
+
+豆猫是什么rsq主播，快打旋风喘成这样
+
+对青少年的坏影响，不可估量！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+Syl，老板娘这棒球连着三个三振惨啊， ars还上了红特，来年来个投手吧
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| purdre| + 1|看笑了|
+
+
+查看全部评分
+
+
+*****
+
+####  purdre  
+##### 5112#       发表于 2021-7-26 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52105617&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-7-26 19:35</a>
+
+豆猫是什么rsq主播，快打旋风喘成这样
+
+对青少年的坏影响，不可估量！ ...</blockquote>
+当时看到一半把音量调小了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+                                                 
