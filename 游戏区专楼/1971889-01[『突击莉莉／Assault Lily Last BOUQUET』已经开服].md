@@ -3765,3 +3765,16 @@ GAMERS有个用封面的B2挂画限定版
 
 
                                                  
+
+*****
+
+####  Tehebe  
+##### 308#       发表于 2021-7-26 11:32
+
+
+这50%的五星太牛逼了吧…
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

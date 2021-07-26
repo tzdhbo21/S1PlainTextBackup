@@ -17438,3 +17438,16 @@ BUSSY101<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" re
 
 
                                                  
+
+*****
+
+####  影山银  
+##### 1135#       发表于 2021-7-26 11:14
+
+
+老师真被ollie贴到了啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9738, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
