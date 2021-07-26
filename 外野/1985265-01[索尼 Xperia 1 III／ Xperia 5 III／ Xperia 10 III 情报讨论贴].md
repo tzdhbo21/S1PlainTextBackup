@@ -10329,3 +10329,19 @@ accubattery自己本身就是个耗电大户啊
 
 
                                                  
+
+*****
+
+####  黑糖花园  
+##### 726#       发表于 2021-7-26 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52037822&amp;ptid=1985265" target="_blank">TTest 发表于 2021-7-20 22:26</a>
+手机底部的白色提示线怎么去掉？
+强迫症很难受</blockquote>
+用三大键不就没有吗
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
