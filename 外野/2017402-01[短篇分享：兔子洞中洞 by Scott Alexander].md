@@ -793,3 +793,17 @@ SUPER POWER！液！<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
                                                  
+
+*****
+
+####  塞斯克法  
+##### 71#       发表于 2021-7-27 01:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52099405&amp;ptid=2017402" target="_blank">真田丸 发表于 2021-7-26 09:52</a>
+
+病毒破坏你的细胞也算是肉体伤害，自然死亡也是细胞死亡也算肉体伤害，蓝色这个是最强能力，或者说至少保 ...</blockquote>
+那还选啥呢，这个都直接永生了，可能唯一的副作用就是不能剪头发不能剪指甲不能刮胡子吧
+
+
+                                                 

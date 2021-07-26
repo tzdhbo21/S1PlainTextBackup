@@ -7738,3 +7738,44 @@ jrpg核心系统终于出现了
 
 
                                                 
+
+*****
+
+####  qiyu1234  
+##### 2072#       发表于 2021-7-27 01:23
+
+
+传统的小剧场系统多半没了，跟料理一起整合进地图上的篝火露营系统了
+
+
+<img src="https://img.saraba1st.com/forum/202107/27/012251oscyatbyt7zycjbe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (192.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-27 01:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/27/012254tctmqqc2gnxoce7c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (345.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-27 01:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/27/012256iagv01059ieoox8o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (303.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-27 01:22 上传
+
+
+                                                 
