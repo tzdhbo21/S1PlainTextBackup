@@ -10374,3 +10374,21 @@ accubattery自己本身就是个耗电大户啊
 
 
                                                  
+
+*****
+
+####  shunfeng  
+##### 729#       发表于 2021-7-27 09:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52029553&amp;ptid=1985265" target="_blank">猫溺泉君 发表于 2021-7-20 10:57</a>
+确实体验不错，但是经常性的不知道在运行什么，在兜里熄屏一小时能掉二三十的电，还巨他妈热
+
+现在我除了 ...</blockquote>
+黑域新版本也不麻烦，就是每次重启后要重新激活一遍。
+新版本按无线调试来，连接wifi-激活开发者选项-打开无线调试-使用配对码配对设备-输入对应数字，激活后不要关闭开发者选项，无线调试可以关
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
