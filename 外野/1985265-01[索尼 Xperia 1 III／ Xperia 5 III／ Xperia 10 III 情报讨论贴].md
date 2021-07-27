@@ -10489,3 +10489,34 @@ Xperia 1 III 系统更新
 
 
                                                  
+
+*****
+
+####  TTest  
+##### 736#       发表于 2021-7-27 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52111359&amp;ptid=1985265" target="_blank">无印凉粉 发表于 2021-7-27 09:42</a>
+白条是给你左右拖动切换任务用的。隐藏了这个功能还怎么用？</blockquote>
+这没关系吧，保留功能和修改显示效果不冲突
+
+— from Sony XQ-AT72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  TTest  
+##### 737#       发表于 2021-7-27 23:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52105543&amp;ptid=1985265" target="_blank">黑糖花园 发表于 2021-7-26 19:25</a>
+用三大键不就没有吗
+
+—— 来自 Sony XQ-BC72, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+用三大键缩小可视范围不说
+还必须把手移到底部，个人觉得不太方便
+
+— from Sony XQ-AT72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 

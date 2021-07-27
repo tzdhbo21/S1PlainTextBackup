@@ -10515,3 +10515,46 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  rooarr  
+##### 80317#       发表于 2021-7-27 22:27
+
+
+今年肯定是保底了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80318#       发表于 2021-7-27 22:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52121612&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-7-27 22:27</a>
+
+今年肯定是保底了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">保底 指4星从者
+
+
+*****
+
+####  rooarr  
+##### 80319#       发表于 2021-7-27 22:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52121623&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-27 22:28</a>
+保底 指4星从者</blockquote>
+你居然知道我是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 80320#       发表于 2021-7-27 22:37
+
+
+就算是四星也请来个限定四星好吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我正好给莉莉丝补个宝
+
+
+                                                 
