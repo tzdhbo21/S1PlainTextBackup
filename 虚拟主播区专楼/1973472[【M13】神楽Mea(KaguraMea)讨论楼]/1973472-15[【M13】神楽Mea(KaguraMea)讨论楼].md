@@ -5068,3 +5068,57 @@ yysy，我还要听听再说<img src="https://static.saraba1st.com/image/smiley/
 
 
                                                  
+
+*****
+
+####  路人庚  
+##### 21463#       发表于 2021-7-27 13:37
+
+
+因为最近翻唱太多了所以我不奶新翻唱了
+
+
+但我要奶一口0802就是一场歌回+生日语音发售（
+
+
+*****
+
+####  2014720  
+##### 21464#       发表于 2021-7-27 13:46
+
+
+昨天也是在擦枪走火的边缘了吧，我差点想都想上去打住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过说的的也没啥问题就是了
+
+
+*****
+
+####  时间在我手中  
+##### 21465#       发表于 2021-7-27 14:05
+
+
+昨晚直播说的没啥问题啊，只不过你非要说的话容易被迁怒就是了
+
+
+*****
+
+####  ashero  
+##### 21466#       发表于 2021-7-27 14:08
+
+
+隔阵子风头过了再发估计就没问题 说觉得奥运很热血和喜欢福原爱的姑且不怎么会被挑刺吧
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  T_Hb  
+##### 21467#       发表于 2021-7-27 14:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说的话是没啥问题，自己国家赢了很高兴，中国队很厉害，喜欢爱酱
+
+
+                                                 
