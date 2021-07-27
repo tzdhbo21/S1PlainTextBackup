@@ -10216,3 +10216,26 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 80295#       发表于 2021-7-27 17:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52117867&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-27 17:13</a>
+
+开了周年本阿，每天转发送12石头阿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这？   话说该去把福袋石头买好了。免得过几天还涨价
+
+
+*****
+
+####  森兰丸  
+##### 80296#       发表于 2021-7-27 18:22
+
+
+++这盖提亚要怎么打....苟也苟不住打也打不动啊
+
+
+                                                 

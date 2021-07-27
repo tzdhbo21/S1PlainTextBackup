@@ -8876,3 +8876,34 @@ syl，绫总还剩十分钟
 
 
                                                  
+
+*****
+
+####  因为你不会  
+##### 12770#       发表于 2021-7-27 17:56
+
+
+<img src="https://img.saraba1st.com/forum/202107/27/175539wsjisszacsvycia1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>搜狗截图20210727185512.jpg</strong> (26.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-27 17:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/27/175540l0wwy5mx0gw8z5ry.jpg" referrerpolicy="no-referrer">
+
+
+<strong>搜狗截图20210727185527.jpg</strong> (24.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-27 17:55 上传
+
+
+绫总啊绫总，下个月我该怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
