@@ -10392,3 +10392,30 @@ accubattery自己本身就是个耗电大户啊
 
 
                                                  
+
+*****
+
+####  tsounaiq  
+##### 730#       发表于 2021-7-27 09:22
+
+
+定了个256黑色，准备再配张256的sd卡，用了这么多年的xz1终于能退役了
+
+— from Sony G8342, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
+
+
+*****
+
+####  无印凉粉  
+##### 731#       发表于 2021-7-27 09:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52037822&amp;ptid=1985265" target="_blank">TTest 发表于 2021-7-20 22:26</a>
+
+手机底部的白色提示线怎么去掉？
+
+强迫症很难受</blockquote>
+白条是给你左右拖动切换任务用的。隐藏了这个功能还怎么用？
+
+
+                                                 
