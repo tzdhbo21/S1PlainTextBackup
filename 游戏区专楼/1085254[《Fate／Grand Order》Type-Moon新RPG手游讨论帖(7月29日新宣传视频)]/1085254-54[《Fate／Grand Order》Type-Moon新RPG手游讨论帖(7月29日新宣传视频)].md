@@ -10558,3 +10558,26 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  areklose  
+##### 80321#       发表于 2021-7-27 23:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">临睡前清体力更新了，这是更新了啥
+
+
+*****
+
+####  alucardcz  
+##### 80322#       发表于 2021-7-28 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52122570&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-27 23:36</a>
+
+临睡前清体力更新了，这是更新了啥</blockquote>
+可以换礼装了（部分
+
+
+                                                 

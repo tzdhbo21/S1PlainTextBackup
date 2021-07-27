@@ -7903,3 +7903,30 @@ CJ是确定有试玩了？？？？</blockquote>
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2085#         楼主| 发表于 2021-7-27 23:54
+
+
+<img src="https://img.saraba1st.com/forum/202107/27/235439yeduqkizktifdwss.png" referrerpolicy="no-referrer">
+
+
+<strong>wujing_meme_talesofarise.png</strong> (41.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-27 23:54 上传
+
+
+*****
+
+####  reficul  
+##### 2086#       发表于 2021-7-28 00:28
+
+
+没有小剧场？篝火谈心的话，谈话的场景被限定得有点严重吧，小剧场的话可以天南地北地聊，而且可以是各种不同场景下的对话
+
+
+                                                 
