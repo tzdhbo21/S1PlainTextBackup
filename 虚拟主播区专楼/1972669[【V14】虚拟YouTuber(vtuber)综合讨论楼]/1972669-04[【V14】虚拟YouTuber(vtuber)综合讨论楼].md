@@ -7630,3 +7630,59 @@ Zsyl，毛到豆哥真是赚大了，游戏提前练好了再上播，能拼时�
 
 
                                                 
+
+*****
+
+####  空集  
+##### 5163#       发表于 2021-7-27 21:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  霜浪  
+##### 5164#       发表于 2021-7-27 21:44
+
+
+很正常，严格讲纯歌势和演剧根本不吃香，主流歌手声优还不够卷的吗，虹现在签的几个主流出道的就没一个歌或者演剧路线<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+估计彩虹哥也是发现了，这新五人都不是唱歌的
+
+要说管人和养成系偶像挺像的，唱歌跳舞不pro但是大场面不拉垮就行了，重要的是独特的个人魅力<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 5165#       发表于 2021-7-27 21:50
+
+
+红毛黑毛合体了？刚出道就养连体人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 5166#       发表于 2021-7-27 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 就算再红火又有什么意义呢？抱不到小团体就等着露露化吧
+
+
+露露难道能上虹棒么？
+
+
+*****
+
+####  霜浪  
+##### 5167#       发表于 2021-7-27 22:19
+
+
+露露收益可不差，就是摸<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+                                                 
