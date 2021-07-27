@@ -7810,3 +7810,23 @@ jrpg核心系统终于出现了
 
 
                                                  
+
+*****
+
+####  hugosol  
+##### 2076#       发表于 2021-7-27 12:59
+
+
+没有2d头像skit了？完了粪作预定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Emmerich  
+##### 2077#       发表于 2021-7-27 13:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">估计demo是月底直播之后放出来吧 不然给cj一个demo也太好了
+
+
+                                                 
