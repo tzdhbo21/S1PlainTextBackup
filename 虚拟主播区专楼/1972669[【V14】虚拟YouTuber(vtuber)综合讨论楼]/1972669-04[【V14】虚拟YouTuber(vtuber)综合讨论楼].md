@@ -7284,3 +7284,47 @@ bora回归直播5w都来了 有个5000我都满足了<img src="https://static.sa
 
 
                                                  
+
+*****
+
+####  霜浪  
+##### 5136#       发表于 2021-7-27 11:49
+
+
+今年女人太稀少了，你换成4女1男这还起得来吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+而且从20以后虹再没招过正统moe女主播，世怜女人设限制太大
+
+
+*****
+
+####  aptx318  
+##### 5137#       发表于 2021-7-27 12:29
+
+
+你虹这新人buff还蛮可怕的
+
+
+*****
+
+####  空集  
+##### 5138#       发表于 2021-7-27 12:30
+
+
+世怜女 惨
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  FCCHua  
+##### 5139#       发表于 2021-7-27 12:32
+
+
+ 本帖最后由 FCCHua 于 2021-7-27 12:34 编辑 
+
+新人这就上quiz了，鲨鱼妹没啥问题，但是男生怎么不是那个豆猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

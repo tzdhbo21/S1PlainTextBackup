@@ -10419,3 +10419,16 @@ accubattery自己本身就是个耗电大户啊
 
 
                                                  
+
+*****
+
+####  alter08  
+##### 732#       发表于 2021-7-27 12:00
+
+
+xzp摔坏换了这台，刚到手用了会儿，888发热这么厉害吗，上边框烫的一笔，横着玩手游根本握不住<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
