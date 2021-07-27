@@ -7506,3 +7506,52 @@ Syl，ssk这队伍配置得分太艰难了，毛到土算不亏
 
 
                                                  
+
+*****
+
+####  我不是很好  
+##### 5154#       发表于 2021-7-27 18:37
+
+
+两边都有人在耐久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霜浪  
+##### 5155#       发表于 2021-7-27 18:44
+
+
+这次五人组除了一对打枪的是走黑黑路线，教授才是和VΔLZ对标吧，各方面方面能力都不错，好像也会整活，但是没有记忆点，如果不是这次新人buff太强估计也埋了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+蓝毛才出道几天能让人记住的梗都一堆，想想VΔLZ不是也有个吉祥物，不过没记住<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dybang  
+##### 5156#       发表于 2021-7-27 18:50
+
+
+确实，已经忘了VΔLZ这三位设定是干啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SuntoryNomu  
+##### 5157#       发表于 2021-7-27 19:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202107/27/185955qi838non7oxewn3e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>27185255.jpg</strong> (105.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-27 18:59 上传
+
+
+                                                 

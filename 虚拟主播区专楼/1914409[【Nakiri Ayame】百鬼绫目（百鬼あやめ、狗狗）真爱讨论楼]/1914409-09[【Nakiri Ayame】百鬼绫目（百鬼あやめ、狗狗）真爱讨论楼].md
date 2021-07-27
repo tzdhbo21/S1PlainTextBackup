@@ -8907,3 +8907,26 @@ syl，绫总还剩十分钟
 
 
                                                  
+
+*****
+
+####  Fami水  
+##### 12771#       发表于 2021-7-27 18:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主播没有出事，主播只是不想播
+
+
+*****
+
+####  寺川愛美  
+##### 12772#       发表于 2021-7-27 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52118394&amp;ptid=1914409" target="_blank">因为你不会 发表于 2021-7-27 17:56</a>
+
+绫总啊绫总，下个月我该怎么说</blockquote>
+東主有喜，放假x天
+
+
+                                                 

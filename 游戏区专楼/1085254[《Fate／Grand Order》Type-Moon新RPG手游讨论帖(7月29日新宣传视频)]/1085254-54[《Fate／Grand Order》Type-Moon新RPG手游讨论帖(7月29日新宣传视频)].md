@@ -10239,3 +10239,64 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 80297#       发表于 2021-7-27 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52118672&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-27 18:22</a>
+
+++这盖提亚要怎么打....苟也苟不住打也打不动啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？？  不是白给的吗  带个宝石c呆  第1回合直接宝具  然后前排3个先狗 狗到护罩没了换后排打手带走啊
+
+
+*****
+
+####  森兰丸  
+##### 80298#       发表于 2021-7-27 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52118917&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-27 18:43</a>
+
+？？  不是白给的吗  带个宝石c呆  第1回合直接宝具  然后前排3个先狗 狗到护罩没了换后排打手带走 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">SL了一下过了....这盖提亚平A也分2种....2下かめはめ波直接带走3个满血的人
+
+
+*****
+
+####  里村紅葉  
+##### 80299#       发表于 2021-7-27 19:01
+
+
+生放CV里怎么有个悠人g...小林千晃，是配戴比特吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不垃圾屌丝  
+##### 80300#       发表于 2021-7-27 19:08
+
+
+C呆梅林卑弥呼铁三角10个回合过了，几乎没掉过血，这个盖提亚有改过什么吗？
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 80301#       发表于 2021-7-27 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52119202&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-7-27 19:08</a>
+
+C呆梅林卑弥呼铁三角10个回合过了，几乎没掉过血，这个盖提亚有改过什么吗？
+
+
+—— 来自 Sony XQ-AT72, And ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没感觉罩子没了大公换上来直接一套带走了
+
+
+                                                 
