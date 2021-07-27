@@ -10179,3 +10179,17 @@ nga这么反海豹的地方，居然还有人来这个海豹楼看一眼的啊<i
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 80292#       发表于 2021-7-27 10:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52110047&amp;ptid=1085254" target="_blank">zore 发表于 2021-7-27 06:56</a>
+
+上一次自选四星啥时候?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前年吧 自从去年的五星自选后就没有四星自选了
+
+
+                                                 
