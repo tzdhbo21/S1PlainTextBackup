@@ -7555,3 +7555,78 @@ Syl，ssk这队伍配置得分太艰难了，毛到土算不亏
 
 
                                                  
+
+*****
+
+####  我不是很好  
+##### 5158#       发表于 2021-7-27 19:46
+
+
+ 本帖最后由 我不是很好 于 2021-7-27 20:18 编辑 
+
+かなた金盾了，サンゴ还在14.9万徘徊，虹人能不能给底边点温暖<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 5159#       发表于 2021-7-27 20:31
+
+
+2021年12月17日
+KMNZ 1st ONEMAN LIVE 众筹中
+
+
+*****
+
+####  winda  
+##### 5160#       发表于 2021-7-27 20:44
+
+
+ 本帖最后由 winda 于 2021-7-27 21:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">看了下虹kr星际，suha比别人要强一筹啊
+syl重新分组5v1了
+
+
+
+
+*****
+
+####  free  
+##### 5161#       发表于 2021-7-27 20:49
+
+
+<img src="https://img.saraba1st.com/forum/202107/27/204903gygymwyuhgwryya0.png" referrerpolicy="no-referrer">
+
+
+<strong>HH.png</strong> (10.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-27 20:49 上传
+
+
+*****
+
+####  alcoholic1000  
+##### 5162#       发表于 2021-7-27 20:56
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-27 21:01 编辑 
+
+ヒメヒナ还是更喜欢一专<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+Syl，按照推生，虹运营最近（三周年）才终于知覚黑黑を金の成る木（King原话）
+
+
+就这种迟钝程度，我猜测VΔLZ和世怜女是对标18年的大失败企划VOIZ（歌&amp;演剧方向、单一性别构成），而21年新枪男可能是发现摇钱树黑黑后的紧急复刻（FPS加强版），剩下的一个对欧美特攻、一个传统萌音卡再加一个「虹味儿」...抽卡思路是广撒网
+
+
+Zsyl，毛到豆哥真是赚大了，游戏提前练好了再上播，能拼时长绝对不摸，只要没爆雷稳住一军地位下一届虹甲子园监督绝对有他（还是パワプロ超ガチ勢）
+
+这テ99被狙惨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+                                                

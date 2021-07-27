@@ -10300,3 +10300,204 @@ C呆梅林卑弥呼铁三角10个回合过了，几乎没掉过血，这个盖�
 
 
                                                  
+
+*****
+
+####  シャル  
+##### 80302#       发表于 2021-7-27 19:27
+
+
+ 本帖最后由 シャル 于 2021-7-27 19:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52118672&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-27 18:22</a>
+
+++这盖提亚要怎么打....苟也苟不住打也打不动啊</blockquote>
+？？？
+
+
+盖提亚很弱小啊
+
+
+后排是啥？等倍伤害一宝玉玉两炮带走<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+QQ图片20210727192714.jpg
+(101.17 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-27 19:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/27/192726u66wbmxsywebfhwx.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 80303#       发表于 2021-7-27 19:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下一回合梅林CBA给梵高加BUFF换下去 第二回合梵高上来宝具连发盖总直接成木桩了 感觉可以看到各种虐杀盖总
+
+
+*****
+
+####  الطائر  
+##### 80304#       发表于 2021-7-27 19:28
+
+
+这不就是2017年二周年卡池么，礼装都不带换的。
+
+
+*****
+
+####  シャル  
+##### 80305#       发表于 2021-7-27 19:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52119469&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-27 19:27</a>
+
+试了下一回合梅林CBA给梵高加BUFF换下去 第二回合梵高上来宝具连发盖总直接成木桩了 感觉可以看到各 ...</blockquote>
+梵高可以完封盖提亚
+
+
+外国人真TM厉害
+
+
+*****
+
+####  qixinno2  
+##### 80306#       发表于 2021-7-27 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52119497&amp;ptid=1085254" target="_blank">シャル 发表于 2021-7-27 19:29</a>
+
+梵高可以完封盖提亚</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">每回合都是恐怖晕眩 盖总根本不会动
+
+
+*****
+
+####  シャル  
+##### 80307#       发表于 2021-7-27 20:05
+
+
+李依李读书没人看吗
+
+
+捕获11.JPG
+(111.39 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-27 20:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/27/200452dcrcdbgmdm4lcdf9.jpg" referrerpolicy="no-referrer">
+
+
+捕获333.JPG
+(55.08 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-27 20:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/27/200452c5srycr8d88sfv7c.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80308#       发表于 2021-7-27 20:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毫无兴趣
+
+
+*****
+
+####  qixinno2  
+##### 80309#       发表于 2021-7-27 20:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只关心周年能不能白送我个限定五星
+
+
+*****
+
+####  里村紅葉  
+##### 80310#       发表于 2021-7-27 20:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52120126&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-27 20:24</a>
+
+我只关心周年能不能白送我个限定五星</blockquote>
+建议直接暗杀YLS比较快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  alucardcz  
+##### 80311#       发表于 2021-7-27 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52120126&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-27 20:24</a>
+
+我只关心周年能不能白送我个限定五星</blockquote>
+做梦呢 常驻都不会给<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80312#       发表于 2021-7-27 20:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52120126&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-27 20:24</a>
+我只关心周年能不能白送我个限定五星</blockquote>
+继续睡，梦里什么都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 80313#       发表于 2021-7-27 20:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">YLS敢不敢让自己期间限定的变成光
+
+
+*****
+
+####  qb0079  
+##### 80314#       发表于 2021-7-27 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52119085&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-27 19:01</a>
+
+生放CV里怎么有个悠人g...小林千晃，是配戴比特吗</blockquote>
+悠人哥是巴沙洛缪啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80315#       发表于 2021-7-27 21:10
+
+
+wdl送个普通5x都叽叽歪歪的
+
+指望送限定那还不如指望yls爬<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                
