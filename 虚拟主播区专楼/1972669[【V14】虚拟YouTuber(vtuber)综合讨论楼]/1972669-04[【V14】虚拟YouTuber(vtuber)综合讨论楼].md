@@ -7399,3 +7399,59 @@ SYL
 
 
                                                  
+
+*****
+
+####  霜浪  
+##### 5145#       发表于 2021-7-27 16:39
+
+
+安妮卡拉能不能把xxx和19几个底边开了捏<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑之和  
+##### 5146#       发表于 2021-7-27 16:43
+
+
+开底边的活彩虹和维阿也是一脉相承是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 5147#       发表于 2021-7-27 16:44
+
+
+底边呼吸都是错的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 5148#       发表于 2021-7-27 16:48
+
+
+早该裁员了，尤其是海外分部。二三十个海外底边养起来也挺不容易的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 5149#       发表于 2021-7-27 17:23
+
+
+猎杀哥和大师哥这就开始营业了，就这么想当第二个黑黑啊，it takes two起手下一步是不是就是情歌对唱了
+
+
+*****
+
+####  我不是很好  
+##### 5150#       发表于 2021-7-27 17:29
+
+
+枪男加营业性贴贴。你们彩虹社还不如找几个真基佬去卖腐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

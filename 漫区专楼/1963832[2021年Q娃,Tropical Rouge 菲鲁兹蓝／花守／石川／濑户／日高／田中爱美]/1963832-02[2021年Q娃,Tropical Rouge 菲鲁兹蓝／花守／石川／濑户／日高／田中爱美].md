@@ -6098,3 +6098,18 @@ E6qDvUZVkAU97iR.jfif
 
 
                                                  
+
+*****
+
+####  天邪鬼  
+##### 1950#       发表于 2021-7-27 16:41
+
+
+三角形是啥意思
+就不能是珊瑚卖的好生产的多吗？我记得之前有就珊瑚的立牌卖光的情况
+而人鱼则是卖完了都懒得继续生产
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
