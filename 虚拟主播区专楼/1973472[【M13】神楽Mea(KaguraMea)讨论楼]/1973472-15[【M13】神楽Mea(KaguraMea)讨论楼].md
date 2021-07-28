@@ -8495,3 +8495,70 @@ fc2限定？
 
 
                                                  
+
+*****
+
+####  路人庚  
+##### 21790#       发表于 2021-7-29 00:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我刚刚翻了几十件这家店设计的衣服，基本都突出一个宽（）
+
+
+也许你咩姐喜欢这种类型的原因找到了
+
+
+（当然我也喜欢宽松点的衣服
+
+
+*****
+
+####  雪风utopia  
+##### 21791#       发表于 2021-7-29 00:49
+
+
+你麻穿着是紧身衣吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 21792#       发表于 2021-7-29 00:53
+
+
+还蛮神秘的，本肥肥买衣服也才选个54左右肩宽，总不能你麻跟我肩宽差不多吧，那可没法看了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+不过我仔细看了看那个衣服造型，袖子在肩膀处是有开口拉链的，如果是按那个地方展开计算肩宽的话倒是说得过去<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这样就是一件普通大号卫衣，不过小体型女生估计还是没法穿，这75衣长80宽，套上去跟麻袋一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21793#       发表于 2021-7-29 01:00
+
+
+不是，你们没看过女孩子选衣服吗？这种卫衣就是要大码的，穿上去看上去能遮住身体的最好…
+
+
+*****
+
+####  yywzjsw  
+##### 21794#       发表于 2021-7-29 01:02
+
+
+卫衣就是要穿上去松松垮垮的样子.
+
+
+*****
+
+####  T_Hb  
+##### 21795#       发表于 2021-7-29 01:03
+
+
+ 本帖最后由 T_Hb 于 2021-7-29 01:04 编辑 
+
+我又去看了一下favorite的推，好多V联名衣服啊
+<img src="https://p.sda1.dev/2/0599df28d956da33d61e9ba2925e7041/IMG_CMP_229959593.jpeg" referrerpolicy="no-referrer">
+想看你麻穿这种
+
+
+                                                 
