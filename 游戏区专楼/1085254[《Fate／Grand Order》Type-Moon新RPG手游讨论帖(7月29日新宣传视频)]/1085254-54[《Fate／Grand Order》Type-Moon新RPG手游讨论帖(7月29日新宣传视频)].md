@@ -10706,3 +10706,32 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 80334#       发表于 2021-7-28 11:41
+
+
+当年必须抱着牺牲前排觉悟的gay提亚如今已经是垫脚石了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 80335#       发表于 2021-7-28 12:36
+
+
+其实当年就可以靠叠防和给他上个强化无效来弄过去了
+
+
+*****
+
+####  xiongxingyu  
+##### 80336#       发表于 2021-7-28 12:47
+
+
+其实盖总开场的人理炮只要来个技能封印就哑火了，直接开不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

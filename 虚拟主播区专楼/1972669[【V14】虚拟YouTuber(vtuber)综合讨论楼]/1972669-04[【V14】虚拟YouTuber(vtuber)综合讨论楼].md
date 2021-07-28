@@ -7761,3 +7761,118 @@ Zsyl，毛到豆哥真是赚大了，游戏提前练好了再上播，能拼时�
 
 
                                                  
+
+*****
+
+####  黑暗剑  
+##### 5173#       发表于 2021-7-28 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52128475&amp;ptid=1972669" target="_blank">哈曼的YY 发表于 2021-7-28 11:25</a>
+露露化啥意思 和人联动少？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">2k就是把例子洗成形容词，然后前后几个个号多次不同论坛复读，造成“不管你信不信，反正我是信了”的感觉，习惯就好
+
+
+*****
+
+####  哈曼的YY  
+##### 5174#       发表于 2021-7-28 11:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52128632&amp;ptid=1972669" target="_blank">黑暗剑 发表于 2021-7-28 11:32</a>
+
+2k就是把例子洗成形容词，然后前后几个个号多次不同论坛复读，造成“不管你信不信，反正我是信了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">...
+
+
+看到今天as这个事 突然想问问露露是什么时候被挖的 当时人们都什么反应?
+
+没被挖是不是就不会被跟踪狂骚扰了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+直播脑锻炼的时候红外线扫描的手都要挡 感觉也不是完全没想藏啊
+
+
+*****
+
+####  死体残留  
+##### 5175#       发表于 2021-7-28 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52128838&amp;ptid=1972669" target="_blank">哈曼的YY 发表于 2021-7-28 11:44</a>
+...
+
+
+看到今天as这个事 突然想问问露露是什么时候被挖的 当时人们都什么反应?</blockquote>
+自己po已经画过的猩猩画像，记得出道没多久
+如果是自己重新再画就可能挖不到大号了
+
+
+*****
+
+####  poipanchao  
+##### 5176#       发表于 2021-7-28 11:57
+
+
+ 本帖最后由 poipanchao 于 2021-7-28 12:24 编辑 
+
+露露正式被挖是在生化2直播的时候
+突然有人进来刷屏中之人信息
+她还是电脑白痴连禁言都不会
+后来事后复盘，早在出道没多久在5ch的偶像串里就有人认出来了
+再加上她声线基本没换过，没发猩猩图也总有一天要被特的
+
+
+*****
+
+####  耻照  
+##### 5177#       发表于 2021-7-28 12:01
+
+
+露皇既然中之人推特和ins高强度营业就不可能没做好不被挖的准备了。实际上不仅刚出道就被猜出来，PS4直播也泄露了账户名。
+
+
+真不想被挖的得是奶油妹那种，出了事第一时间把ins锁了。
+
+
+*****
+
+####  渡鸦骑士  
+##### 5178#       发表于 2021-7-28 12:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52122210&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-7-27 23:12</a>
+
+还真耐久成功了 豆猫这打块能力比星街差多少？</blockquote>
+从我云到的，那个狙击豆猫的菠萝包，现在星街开t99的话正常大概有三四个这样的水平的会去狙她。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哈曼的YY  
+##### 5179#       发表于 2021-7-28 12:24
+
+
+哎 以前抛头露面过的目标还是太大了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 5180#       发表于 2021-7-28 12:25
+
+
+说起来露露现在推特营业再开
+应该快要开始工作了吧
+
+
+*****
+
+####  FCCHua  
+##### 5181#       发表于 2021-7-28 12:55
+
+
+地缚灵果然一直都在
+谢谢你，叶子<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+                                                 

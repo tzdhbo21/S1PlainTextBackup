@@ -6599,3 +6599,110 @@ Normal Reedus发布了一则视频……
 
 
                                                  
+
+*****
+
+####  C男  
+##### 504#       发表于 2021-7-28 11:42
+
+
+就是代工个潜龙谍影hd版，哪来这么多戏
+
+
+*****
+
+####  漫漫来  
+##### 505#       发表于 2021-7-28 11:48
+
+
+大的药来了？
+
+
+*****
+
+####  漫漫来  
+##### 506#       发表于 2021-7-28 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52128821&amp;ptid=2010295" target="_blank">C男 发表于 2021-7-28 11:42</a>
+就是代工个潜龙谍影hd版，哪来这么多戏</blockquote>
+mgs1可没有带眼罩的人
+
+
+*****
+
+####  ssd  
+##### 507#       发表于 2021-7-28 12:00
+
+
+害搁这折腾呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  csolfans  
+##### 508#       发表于 2021-7-28 12:41
+
+
+营销这块，起码算是玩明白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  血狂毘沙门  
+##### 509#       发表于 2021-7-28 12:54
+
+
+我觉得到现在已经属于烂中烂活了
+
+就算这时候岛哥哥亲自蹦出来说是他一手导演的 那也是烂活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  C男  
+##### 510#       发表于 2021-7-28 12:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52128957&amp;ptid=2010295" target="_blank">漫漫来 发表于 2021-7-28 11:49</a>
+
+mgs1可没有带眼罩的人</blockquote>
+那就是燃烧战车
+
+
+
+
+*****
+
+####  小泉花陽  
+##### 511#       发表于 2021-7-28 13:14
+
+
+明天预载文件会不会被抓取解包被人提前把内容放出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byisme001  
+##### 512#       发表于 2021-7-28 13:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52130389&amp;ptid=2010295" target="_blank">小泉花陽 发表于 2021-7-28 13:14</a>
+明天预载文件会不会被抓取解包被人提前把内容放出来</blockquote>
+不是只有ps5版吗，破解了吗
+
+
+*****
+
+####  luoyianwu  
+##### 513#       发表于 2021-7-28 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52130389&amp;ptid=2010295" target="_blank">小泉花陽 发表于 2021-7-28 13:14</a>
+
+明天预载文件会不会被抓取解包被人提前把内容放出来</blockquote>
+我觉得就是怕被datamine才分段更新
+
+
+                                                
