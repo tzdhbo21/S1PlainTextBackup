@@ -5974,3 +5974,648 @@ YYSY,有时候真感慨她是日本人，要不以她的性格大概率是XZx王
 
 
                                                 
+
+*****
+
+####  路人庚  
+##### 21550#       发表于 2021-7-28 14:40
+
+
+新谷子
+
+
+*****
+
+####  T_Hb  
+##### 21551#       发表于 2021-7-28 14:42
+
+
+ 本帖最后由 T_Hb 于 2021-7-28 14:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52131604&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-28 14:40</a>
+新谷子</blockquote>
+补图<img src="https://p.sda1.dev/2/a3dee2c06b0abb3429060c5ba7efd602/IMG_CMP_141437867.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 21552#       发表于 2021-7-28 14:43
+
+
+啊，好想有钱<img src="https://p.sda1.dev/2/56ff08d68f4fc989dbdb4c6725a370fb/2f1d9171bf9355f5.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21553#       发表于 2021-7-28 14:44
+
+
+19000日元···<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道怎么说好了
+
+
+*****
+
+####  T_Hb  
+##### 21554#       发表于 2021-7-28 14:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这玩意儿根本穿不出去，省钱了！
+
+
+*****
+
+####  路人庚  
+##### 21555#       发表于 2021-7-28 14:46
+
+
+竟然整了个卫衣，这确实比较意外了
+
+
+（不过，这个牌放到生日回打出来不是可以省点准备其他内容的功夫吗
+
+
+*****
+
+####  2014720  
+##### 21556#       发表于 2021-7-28 14:46
+
+
+我寻思还挺帅打算咬牙坚持一下呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这下下巴脱臼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21557#       发表于 2021-7-28 14:47
+
+
+那说明生日回已经塞不下谷子了，大的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21558#       发表于 2021-7-28 14:47
+
+
+1100我勉强还是能行的，但是这东西真的不是冬天穿的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 21559#       发表于 2021-7-28 14:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">咬个屁，不咬了
+
+
+*****
+
+####  路人庚  
+##### 21560#       发表于 2021-7-28 14:48
+
+
+bsyl，仔细看了看设计，这衣服设计的还挺帅的（所以真的会有新衣服吗
+
+
+*****
+
+####  T_Hb  
+##### 21561#       发表于 2021-7-28 14:49
+
+
+这要是新衣服不是直接漏底了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 21562#       发表于 2021-7-28 14:51
+
+
+我没钱，所以和我没关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21563#       发表于 2021-7-28 14:51
+
+
+这尺寸 小身材的能穿 身材大点的估计难咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21564#       发表于 2021-7-28 14:51
+
+
+ 本帖最后由 时间在我手中 于 2021-7-28 14:53 编辑 
+
+L2D新衣服没啥劲，真要选我想要点新活儿
+
+这衣服有钱就买个试试吧···大概
+
+很快我aeg这玩意儿就基本通关了，以后基本就是ae与C盘剩余空间的搏斗力
+
+
+*****
+
+####  Cushaw  
+##### 21565#       发表于 2021-7-28 14:51
+
+
+什么富农
+syl，大的真的来了结果楼友都跑了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yywzjsw  
+##### 21566#       发表于 2021-7-28 14:52
+
+
+艹连：连不连裙子
+
+
+*****
+
+####  Klience  
+##### 21567#       发表于 2021-7-28 14:54
+
+
+某种意义还真是大的（指价格）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21568#       发表于 2021-7-28 14:54
+
+
+再整个腿环？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21569#       发表于 2021-7-28 14:55
+
+
+这价格看你怎么想，本质上你买两个来打dx也就这个价格了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游也就两单的事
+
+
+*****
+
+####  路人庚  
+##### 21570#       发表于 2021-7-28 14:58
+
+
+这衣服的立绘上的环新增了1个啊，现在一共是右腿、右手臂
+
+
+不得不说这衣服设计的很时尚，完全看不出是二次元相关的那种痛衣，作为一般社畜觉得不存在适合穿这种衣服的场合（毕竟也不爱泡酒吧和压马路），唯一可能会穿的场合只有去漫展了（虽然漫展这辈子也只去过2次
+
+
+
+
+*****
+
+####  Klience  
+##### 21571#       发表于 2021-7-28 14:59
+
+
+1200我还不如去买LOL通行证和新皮肤呢
+
+
+*****
+
+####  yywzjsw  
+##### 21572#       发表于 2021-7-28 15:00
+
+
+肩55，什么坦克啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 21573#       发表于 2021-7-28 15:01
+
+
+别尬黑，按咩宝的身材做的
+
+
+*****
+
+####  时间在我手中  
+##### 21574#       发表于 2021-7-28 15:01
+
+
+坦总赢，最近的版本充分告诉了粉丝们，神乐mea已经是一头肥猫了
+
+
+*****
+
+####  Klience  
+##### 21575#       发表于 2021-7-28 15:04
+
+
+别尬黑 这是咩特地照顾自家粉丝 来自咩咩的关怀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21576#       发表于 2021-7-28 15:05
+
+
+＊生産未確定商品の為、生産時表記と異なる場合がございます
+
+●サイズ【FREE】
+
+肩幅：55㎝　身幅：80cm　着丈：75㎝　袖丈：63㎝　アームホール：35㎝
+
+●カラー ブラック
+
+
+（下图是百度的衣服尺码表）
+
+<img src="https://img.saraba1st.com/forum/202107/28/150459glmb06bwze188n1p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>AECE6E68-EDDD-486E-9A31-45275E49FA36.jpeg</strong> (33.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-28 15:04 上传
+
+
+*****
+
+####  掉头学姐  
+##### 21577#       发表于 2021-7-28 15:05
+
+
+咩宝是xxxl
+
+
+*****
+
+####  T_Hb  
+##### 21578#       发表于 2021-7-28 15:06
+
+
+咩宝是free<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21579#       发表于 2021-7-28 15:07
+
+
+完了 要是下次咩直播被人提起这事 是不是又要破防了 自身坦克瞒不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 21580#       发表于 2021-7-28 15:07
+
+
+啥玩意啊什么xxxxxxl码 什么极巨化啊<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人辰  
+##### 21581#       发表于 2021-7-28 15:08
+
+
+20210728东京15点
+
+<img src="https://img.saraba1st.com/forum/202107/28/150758meey0rqq8zynv1fy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>9B5C672A-AE04-48C1-B35B-E6B29BA947C0.jpeg</strong> (299.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-28 15:07 上传
+
+
+*****
+
+####  yywzjsw  
+##### 21582#       发表于 2021-7-28 15:08
+
+
+话说我看介绍、好像是到一定数量才生产<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+过期主播能达到吗？还这么贵、<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 21583#       发表于 2021-7-28 15:08
+
+
+ 本帖最后由 往世雷书 于 2021-7-28 15:11 编辑 
+
+正常人＜微胖＜肥胖＜不可逾越之壁＜她
+
+省一楼，想那么多干嘛，任何一个事业民都不如她了解她的数据，肯定是心里有数了，就算实在不够正好也能让粉丝心疼她一波
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  草牛  
+##### 21584#       发表于 2021-7-28 15:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生产不了一定第一时间赶到嘲笑
+
+
+*****
+
+####  时之虫  
+##### 21585#       发表于 2021-7-28 15:10
+
+
+太贵了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+砍一半我绝对买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21586#       发表于 2021-7-28 15:11
+
+
+快进到订购数0彻底绝望开播哭泣，早该哭哭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 21587#       发表于 2021-7-28 15:12
+
+
+生产不了就打个1100的sc假装买了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yywzjsw  
+##### 21588#       发表于 2021-7-28 15:13
+
+
+带个亲签、我也可以当生日谷子买<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gongge666  
+##### 21589#       发表于 2021-7-28 15:14
+
+
+平时一个工商都不接，怎么突然接了价格这么高的商单呢，你说这是她自己想出的我可不信。价格也不合理，你就算换holo和B站他们也不敢卖这么贵啊
+
+
+*****
+
+####  古战场亡魂  
+##### 21590#       发表于 2021-7-28 15:14
+
+
+？？？这天气你不该卖T恤抹布吗？？？
+
+
+*****
+
+####  T_Hb  
+##### 21591#       发表于 2021-7-28 15:14
+
+
+想啥呢，当然是自己出的谷子，还商单
+
+
+*****
+
+####  路人庚  
+##### 21592#       发表于 2021-7-28 15:14
+
+
+搜了下，大部分百度搜出来的衣服尺码表都是对应的衬衫，没有对应外套的（
+
+
+姑且找到一个像是外套的尺码表，随意看看罢（你咩姐2米天空树石锤+1
+
+
+<img src="https://img.saraba1st.com/forum/202107/28/151442zvfqv2zh88fzscom.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>DB6AD71A-0530-46BD-B0E0-BD40BF0BB28F.jpeg</strong> (299.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-28 15:14 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/28/151443m39pp5ro9f191osk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>CFD36CFD-B337-41F6-8A57-24A762332B1A.jpeg</strong> (242.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-28 15:14 上传
+
+
+*****
+
+####  2014720  
+##### 21593#       发表于 2021-7-28 15:15
+
+
+人家基数大还说不定
+
+
+你麻嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 21594#       发表于 2021-7-28 15:15
+
+
+卧槽这一件衣服一千多<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21595#       发表于 2021-7-28 15:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我还是直接打钱吧
+
+
+*****
+
+####  时间在我手中  
+##### 21596#       发表于 2021-7-28 15:17
+
+
+你还要算所谓国际运费捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21597#       发表于 2021-7-28 15:17
+
+
+ 本帖最后由 路人庚 于 2021-7-28 15:19 编辑 
+
+买衣服当然要买反季的（
+
+
+不过说不定其实是预约3个月，然后秋季才开始制作（
+
+
+syl，只能说大伙的衣服确实都蛮便宜的，啥时候你咩姐进军男士商务西装品牌我必买一套（如果太有难度可以先出一个周边皮带吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21598#       发表于 2021-7-28 15:20
+
+
+你们去淘宝找这个牌子的代购看看，基本上是这个价、而且算是原宿风（太前卫了）你麻的审美在 判断。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虹好像没出过卫衣吧，卫衣我就印象里绫总在周年谷子里出过一次、还是带了亲签、那样也没有2w。
+
+有签名我就买<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cushaw  
+##### 21599#       发表于 2021-7-28 15:20
+
+
+你麻麻的这么大我买来给谁穿啊，挂着看吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  GRMeA104  
+##### 21600#       发表于 2021-7-28 15:21
+
+
+论证你麻是不是飘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  JY要塞  
+##### 21601#       发表于 2021-7-28 15:21
+
+
+重坦，不许飘
+
+
+*****
+
+####  2014720  
+##### 21602#       发表于 2021-7-28 15:21
+
+
+不是飘了是疯了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21603#       发表于 2021-7-28 15:22
+
+
+飘不飘不知道，但肯定坦了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 21604#       发表于 2021-7-28 15:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牌子贵是吧，麻麻的
+
+
+*****
+
+####  aisakahammer  
+##### 21605#       发表于 2021-7-28 15:22
+
+
+别人一看，刀客塔？
+
+
+*****
+
+####  离心  
+##### 21606#       发表于 2021-7-28 15:22
+
+
+好贵啊
+
+
+*****
+
+####  clvan_  
+##### 21607#       发表于 2021-7-28 15:23
+
+
+溢价的主要原因是小规模生产，还有设计成本，所有类似的产品都这样，而且这还是秋冬外套不是印个图案完事的T恤。
+
+样式倒挺好的，是能正常穿出去的，总比亚克力砖挂画啪唧摆在那看强。
+
+
+*****
+
+####  yywzjsw  
+##### 21608#       发表于 2021-7-28 15:23
+
+
+对了、刚刚又去看了一眼，衣长75、宽80、是不是因为布料多、所以那么贵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21609#       发表于 2021-7-28 15:23
+
+
+你这东西其实如果有个套餐 衣服 签名 周边绑定卖1200的话其实还能接受
+
+
+                                               
