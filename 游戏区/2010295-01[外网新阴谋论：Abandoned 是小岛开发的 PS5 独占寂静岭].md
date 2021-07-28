@@ -6706,3 +6706,27 @@ mgs1可没有带眼罩的人</blockquote>
 
 
                                                 
+
+*****
+
+####  heseran  
+##### 514#       发表于 2021-7-28 14:06
+
+
+要是真的kojima就有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  luoyianwu  
+##### 515#       发表于 2021-7-28 14:09
+
+
+[https://www.reddit.com/r/TheBlue ... isode_of_an_arabic/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/osxlsw/konami_is_sponsoring_an_episode_of_an_arabic/)
+“由Konami赞助的阿拉伯语podcast明天将采访Hasan”
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">什么
+
+
+                                                 

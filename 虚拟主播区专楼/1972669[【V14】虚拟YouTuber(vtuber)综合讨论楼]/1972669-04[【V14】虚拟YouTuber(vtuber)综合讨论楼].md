@@ -7876,3 +7876,28 @@ Zsyl，毛到豆哥真是赚大了，游戏提前练好了再上播，能拼时�
 
 
                                                  
+
+*****
+
+####  哈曼的YY  
+##### 5182#       发表于 2021-7-28 13:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52129608&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-7-28 12:25</a>
+
+说起来露露现在推特营业再开
+
+应该快要开始工作了吧</blockquote>
+在动森里写过有designer梦想 去了服装展莫非真的要做设计师<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霜浪  
+##### 5183#       发表于 2021-7-28 14:32
+
+
+露中之人从今年年初更名就开始重新活动了，配了个游戏小角色吧，应该从那时就决定毕业了，她根本就没想藏，应该也算虹上位少数魂在籍时期曝光度依然那么高的了
+
+
+                                                 
