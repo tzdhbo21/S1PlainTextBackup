@@ -10788,3 +10788,106 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 80341#       发表于 2021-7-28 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52132963&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-28 16:13</a>
+
+我进去就麻了 退出来换成了王哈尼托和助战王哈 靠即死过去的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥　水武藏４回合冲浪就结束了啊
+
+
+*****
+
+####  qixinno2  
+##### 80342#       发表于 2021-7-28 18:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是卡楼了 怎么总是看不到后面的帖子
+
+
+*****
+
+####  黑上シグマ  
+##### 80343#       发表于 2021-7-28 21:37
+
+
+竹帚日记更新了，妖兰找的CHOCO也是蘑菇的厨放
+
+
+*****
+
+####  森兰丸  
+##### 80344#       发表于 2021-7-28 21:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">竹帚日记对摩根补充的几点真是越描越黑.....这蘑菇还是早点收手吧
+
+
+*****
+
+####  シャル  
+##### 80345#       发表于 2021-7-28 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52138300&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-28 21:39</a>
+
+竹帚日记对摩根补充的几点真是越描越黑.....这蘑菇还是早点收手吧</blockquote>
+这有啥，异闻摩根又没找男人生小孩<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80346#       发表于 2021-7-28 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52138300&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-28 21:39</a>
+
+竹帚日记对摩根补充的几点真是越描越黑.....这蘑菇还是早点收手吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戈壁不用去看我都知道肯定会一片好评　然后喷ｄｗ废物
+
+
+*****
+
+####  森兰丸  
+##### 80347#       发表于 2021-7-28 22:00
+
+
+ 本帖最后由 森兰丸 于 2021-7-28 22:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52138525&amp;ptid=1085254" target="_blank">シャル 发表于 2021-7-28 21:53</a>
+
+这有啥，异闻摩根又没找男人生小孩</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可清清楚楚的记得这2.6刚开时因为贝先生说摩根是他老婆....妖崔也要跟贝先生结婚而让多少云玩家疯了
+
+
+还有那么好的一个狮子头都被骂成什么样了
+
+
+*****
+
+####  exiaexa  
+##### 80348#       发表于 2021-7-28 22:10
+
+
+ 本帖最后由 exiaexa 于 2021-7-28 22:15 编辑 
+
+真的是，万万没想到
+
+2.6整了这么长的文本量，菌类你特么还能在竹箒打补丁的
+
+绝他妈的绝了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+这么点破事儿不是两句描写就讲完了吗
+
+而且我记得这里有个伸手的CG，合着你们压根没画完
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

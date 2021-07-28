@@ -8673,3 +8673,38 @@ ollie挺好的，很可爱，也有活力，感觉是想不开了才和郡道扯
 
 
                                                  
+
+*****
+
+####  rzrbtk  
+##### 5249#       发表于 2021-7-28 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52137769&amp;ptid=1972669" target="_blank">霜浪 发表于 2021-7-28 21:07</a>
+郡道和教授？细嗦</blockquote>
+不是，可不敢乱讲<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">！
+是杏的红色僵尸！一起apex！
+郡道目前跟新人没什么联系的
+
+
+*****
+
+####  FCCHua  
+##### 5250#       发表于 2021-7-28 21:48
+
+
+sky新曲预告推的回复里看到了星弥，感觉很久很久没推特互动了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  ヒトニナル  
+##### 5251#       发表于 2021-7-28 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">虹男居然和ナポリの男たち联动人狼，神秘啊
+
+
+                                                

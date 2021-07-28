@@ -8094,3 +8094,208 @@ micro豚还行，大🐖养小🐖
 
 
                                                 
+
+*****
+
+####  T_Hb  
+##### 21754#       发表于 2021-7-28 21:32
+
+
+ 本帖最后由 T_Hb 于 2021-7-28 21:36 编辑 
+
+她说的也太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">拿猪肉喂猪，我好像见过一个有类似剧情的小游戏
+
+
+*****
+
+####  LIPP  
+##### 21755#       发表于 2021-7-28 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52138146&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-7-28 21:30</a>
+宽80，长75还穿不了嘛也许是要减肥了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我的意思是虽然元素还不错，但是好像不适合老年人穿出去乱跑啊
+
+
+*****
+
+####  雪风utopia  
+##### 21756#       发表于 2021-7-28 21:33
+
+
+迷你🐖，不是坦克好评<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21757#       发表于 2021-7-28 21:34
+
+
+主播自己不就是🐷
+
+
+*****
+
+####  T_Hb  
+##### 21758#       发表于 2021-7-28 21:39
+
+
+ 本帖最后由 T_Hb 于 2021-7-28 21:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我去，这吃的，只能说坦又赢
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">腹太鼓
+
+
+*****
+
+####  yywzjsw  
+##### 21759#       发表于 2021-7-28 21:42
+
+
+可爱都声音
+
+
+*****
+
+####  aliade  
+##### 21760#       发表于 2021-7-28 21:48
+
+
+你咩唱歌是不是经常摇头晃脑的，怎么老是灵魂出窍
+
+—— 来自 Xiaomi M2101K9C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  T_Hb  
+##### 21761#       发表于 2021-7-28 21:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议看看可爱的家用3D歌回
+
+
+*****
+
+####  时间在我手中  
+##### 21762#       发表于 2021-7-28 21:49
+
+
+是，老犯病了，就像头肥猪一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21763#       发表于 2021-7-28 21:52
+
+
+上次那家用3d，听着听着都后仰了
+
+
+*****
+
+####  yywzjsw  
+##### 21764#       发表于 2021-7-28 21:59
+
+
+这首bgm怎么那么大，果然是你麻喜欢bgm大吧
+
+
+*****
+
+####  T_Hb  
+##### 21765#       发表于 2021-7-28 22:01
+
+
+ 本帖最后由 T_Hb 于 2021-7-28 22:03 编辑 
+
+这bgm有点头疼，怎么方言出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21766#       发表于 2021-7-28 22:11
+
+
+**这bgm不是可以调好吗，为什么要搞这种
+
+
+*****
+
+####  aisakahammer  
+##### 21767#       发表于 2021-7-28 22:11
+
+
+ 这唱的不错啊
+
+
+*****
+
+####  T_Hb  
+##### 21768#       发表于 2021-7-28 22:12
+
+
+ 本帖最后由 T_Hb 于 2021-7-28 22:13 编辑 
+
+今天活力四射，真开心<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aliade  
+##### 21769#       发表于 2021-7-28 22:13
+
+
+没有技巧全是感情
+
+—— 来自 Xiaomi M2101K9C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Ky·Kiske  
+##### 21770#       发表于 2021-7-28 22:16
+
+
+抗疫压力大，有点听不下这些萌萌曲
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1||
+| ashero| + 1||
+| T_Hb| + 1|辛苦|
+
+
+查看全部评分
+
+
+*****
+
+####  yywzjsw  
+##### 21771#       发表于 2021-7-28 22:21
+
+
+这个哈哈哈，有些涩
+
+
+*****
+
+####  2014720  
+##### 21772#       发表于 2021-7-28 22:21
+
+
+这唱的也太骚了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+                                                 

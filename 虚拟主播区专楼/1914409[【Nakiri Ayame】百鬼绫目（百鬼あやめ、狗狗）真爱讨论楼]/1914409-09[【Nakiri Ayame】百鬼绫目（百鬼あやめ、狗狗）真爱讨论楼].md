@@ -9045,3 +9045,36 @@ syl，绫总还剩十分钟
 
 
                                                  
+
+*****
+
+####  stedckk  
+##### 12783#       发表于 2021-7-28 21:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搬家搬两个多月的我看只有绫总一个
+
+
+*****
+
+####  Fami水  
+##### 12784#       发表于 2021-7-28 22:02
+
+
+ 本帖最后由 Fami水 于 2021-7-28 22:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是说是电脑问题么，搬家的时候直播的电脑可能想去环游世界了，至今还未归
+
+syl 我佛了 这次怎么连贴图都不上了 
+
+
+*****
+
+####  星尘的杨桃精  
+##### 12785#       发表于 2021-7-28 22:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这麦的声咋这么尖
+
+
+                                                 
