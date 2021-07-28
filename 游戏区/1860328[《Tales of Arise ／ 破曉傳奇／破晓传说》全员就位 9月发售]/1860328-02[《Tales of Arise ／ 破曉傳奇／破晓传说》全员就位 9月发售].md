@@ -7930,3 +7930,15 @@ CJ是确定有试玩了？？？？</blockquote>
 
 
                                                  
+
+*****
+
+####  Booorunestud  
+##### 2087#       发表于 2021-7-29 04:17
+
+
+前段时间玩如龙7吧，最有趣的就是时不时插播的小剧场
+怎么你正经的jrpg还拉了胯呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
