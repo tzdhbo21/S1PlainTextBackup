@@ -8153,3 +8153,209 @@ Syl，又抽了
 
 
                                                  
+
+*****
+
+####  FCCHua  
+##### 5202#       发表于 2021-7-28 18:36
+
+
+拖同接喽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  格林卡罗尔  
+##### 5203#       发表于 2021-7-28 18:39
+
+
+<img src="https://img.saraba1st.com/forum/202107/28/183919qotb0u0ga3o8yz0z.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210728183847.png</strong> (42.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-28 18:39 上传
+
+
+虹杏本社组队，难得一见
+
+
+*****
+
+####  Suzutsuki  
+##### 5204#       发表于 2021-7-28 18:40
+
+
+来看看有没有bora<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 5205#       发表于 2021-7-28 18:40
+
+
+应该没有bora<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suzutsuki  
+##### 5206#       发表于 2021-7-28 18:44
+
+
+ 本帖最后由 Suzutsuki 于 2021-7-28 18:45 编辑 
+
+没bora就不太想看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这最协看点对我来说还是看ひなの在哪个队 毕竟是少数几个能指挥也能打的
+
+
+*****
+
+####  哈曼的YY  
+##### 5207#       发表于 2021-7-28 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52131495&amp;ptid=1972669" target="_blank">霜浪 发表于 2021-7-28 14:32</a>
+
+露中之人从今年年初更名就开始重新活动了，配了个游戏小角色吧，应该从那时就决定毕业了，她根本就没想藏， ...</blockquote>
+可以求一下游戏名字吗
+
+
+*****
+
+####  FCCHua  
+##### 5208#       发表于 2021-7-28 18:50
+
+
+ 本帖最后由 FCCHua 于 2021-7-28 18:56 编辑 
+
+狱卒真的和不破，三枝一组啊，那天的整活看来是暗示？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+黛灰和卵用的组合太意外了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 5209#       发表于 2021-7-28 18:53
+
+
+这届看样子组合意外性要成为话题了……
+不安
+
+
+*****
+
+####  alcoholic1000  
+##### 5210#       发表于 2021-7-28 18:55
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-28 19:17 编辑 
+
+我有个问题：ACG届有キメハラ，你虹是不是有エペハラ，不打最协的虹男会被大家隐性霸凌
+
+Syl，看样子杏星凑了两队？
+
+
+Zsyl，看豆哥这捏人，wubba lubba dub dub？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  渡鸦骑士  
+##### 5211#       发表于 2021-7-28 18:57
+
+
+西西这队倒是……
+
+
+*****
+
+####  渡鸦骑士  
+##### 5212#       发表于 2021-7-28 19:00
+
+
+社……<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 5213#       发表于 2021-7-28 19:01
+
+
+本次最协组队的话题度提高了不是一点半点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 5214#       发表于 2021-7-28 19:02
+
+
+但是没有bora<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十四洲  
+##### 5215#       发表于 2021-7-28 19:02
+
+
+太好玩了
+
+
+*****
+
+####  Suzutsuki  
+##### 5216#       发表于 2021-7-28 19:02
+
+
+花芽姐妹来了！<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 5217#       发表于 2021-7-28 19:04
+
+
+那这届平均水平应该会低一些。
+故意瞄着没参加过的人……
+
+
+*****
+
+####  FCCHua  
+##### 5218#       发表于 2021-7-28 19:07
+
+
+ 本帖最后由 FCCHua 于 2021-7-28 19:09 编辑 
+
+小千是不是钻石里分最高的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl hnn箱内组队了
+
+
+*****
+
+####  Suzutsuki  
+##### 5219#       发表于 2021-7-28 19:08
+
+
+ひなの这队有点实力的
+
+
+*****
+
+####  FCCHua  
+##### 5220#       发表于 2021-7-28 19:15
+
+
+ 本帖最后由 FCCHua 于 2021-7-28 19:23 编辑 
+
+杏星组队，那没事了
+草，是巧可老师
+
+
+                                                 
