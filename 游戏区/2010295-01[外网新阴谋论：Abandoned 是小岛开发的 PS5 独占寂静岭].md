@@ -6783,3 +6783,43 @@ mgs1可没有带眼罩的人</blockquote>
 
 
                                                  
+
+*****
+
+####  920619lqy  
+##### 520#       发表于 2021-7-29 06:52
+
+
+这装神弄鬼够了吧，该现出真身了
+
+
+*****
+
+####  SICP  
+##### 521#       发表于 2021-7-29 07:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52115328&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-7-27 13:52</a>
+https://www.instagram.com/p/CRz8E0Fj8QZ/
+
+Normal Reedus发布了一则视频……
+
+另外，abandoned后天开始预 ...</blockquote>
+这不就是寂静岭的兔子么，蹭热度还是实锤？
+
+
+*****
+
+####  luoyianwu  
+##### 522#       发表于 2021-7-29 07:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52141405&amp;ptid=2010295" target="_blank">SICP 发表于 2021-7-29 07:06</a>
+
+这不就是寂静岭的兔子么，蹭热度还是实锤？</blockquote>
+其实岛哥哥和Normal Reedus粉丝数差不多一个量级，我今天才发现的。很难说谁赚
+
+无论阴谋论是真是假，今天开始到正式公开为止都会有越来越多的巧合<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+                                                 
