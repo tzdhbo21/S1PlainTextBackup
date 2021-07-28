@@ -6767,3 +6767,19 @@ mgs1可没有带眼罩的人</blockquote>
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 519#       发表于 2021-7-29 06:25
+
+
+<img src="https://p.sda1.dev/2/40125ceeb6ecd8d355bd0560fe4aac4b/E7ZzW4qXsAAdrIv.jfif.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/73edd96075ac4e601d806c1800ca1833/5f58d01eec793f1f53f70245-6-large.jpg" referrerpolicy="no-referrer">https://twitter.com/TheHubKW/status/1420449840610353152/photo/1
+
+由<strong>Konami</strong>赞助的媒体Al Hub发表了采访<strong>Blue Box Gaming Studio</strong> Hasan的访谈照片。
+
+在照片中屏幕的前方有<strong>索尼</strong>的经典标志，屏幕后方藏着<strong>小岛</strong>的路登斯人手办
+
+
+                                                 
