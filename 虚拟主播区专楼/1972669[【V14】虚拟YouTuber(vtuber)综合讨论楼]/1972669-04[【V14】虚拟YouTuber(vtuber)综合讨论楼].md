@@ -8359,3 +8359,270 @@ syl hnn箱内组队了
 
 
                                                  
+
+*****
+
+####  alcoholic1000  
+##### 5221#       发表于 2021-7-28 19:24
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-28 19:55 编辑 
+
+大丈夫？燃えない？
+
+
+​ふぇありすさん？！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">黒ノ火廻
+
+阿葵上钻了啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 也不差这一分啊，哈弟给我读空气
+
+
+*****
+
+####  poipanchao  
+##### 5222#       发表于 2021-7-28 19:27
+
+
+夏哥大腿，打肿你们的脸
+
+
+*****
+
+####  qq845629713  
+##### 5223#       发表于 2021-7-28 19:31
+
+
+这届参赛人员还真是神秘
+
+经典黑黑压轴
+
+
+*****
+
+####  FCCHua  
+##### 5224#       发表于 2021-7-28 19:31
+
+
+ 本帖最后由 FCCHua 于 2021-7-28 19:33 编辑 
+
+黑黑来了，三缺一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+阿葵最近大a特a啥比赛都不参加吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 5225#       发表于 2021-7-28 19:39
+
+
+黑黑组队点数就快超了，还能带个谁阿
+
+
+*****
+
+####  十四洲  
+##### 5226#       发表于 2021-7-28 19:39
+
+
+没给分数不是还有操作空间吗😏
+
+
+*****
+
+####  Suny08  
+##### 5227#       发表于 2021-7-28 19:41
+
+
+黑黑车这vip位一般人真遭不住，估计没人敢自告奋勇的，葵皇这咖位才顶得住，或者疯婆子酢酸这级别的
+
+
+*****
+
+####  poipanchao  
+##### 5228#       发表于 2021-7-28 19:44
+
+
+我觉得这个位子空着，简直是把本间桑放火上烤
+最近她又是大a特a地玩直布罗陀，又有这么一个量身定做的位子
+万一不是她，就显得很惨了
+葛葵不仲了？
+
+
+*****
+
+####  格林卡罗尔  
+##### 5229#       发表于 2021-7-28 19:50
+
+
+刚好是4pt，要不葵赶紧冲波钻<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 5230#       发表于 2021-7-28 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 近期刚上钻，大A特A，抗压能力强的女V————嘶
+
+
+卧槽，七海nanami，是你？！！？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|上钻就超了1pt|
+
+
+查看全部评分
+
+
+*****
+
+####  poipanchao  
+##### 5231#       发表于 2021-7-28 19:53
+
+
+葵皇已经钻了
+bora说下次会参加<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 5232#       发表于 2021-7-28 19:54
+
+
+ 本帖最后由 渡鸦骑士 于 2021-7-28 19:56 编辑 
+
+olie你声音怎么这么软……疯起来阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 5233#       发表于 2021-7-28 19:58
+
+
+你葵疯狂上钻就为了不参加黑黑最协，这不仲味倒是很nijisanji，
+
+
+白金的一抓一大堆，
+
+SYL，bora 30号回归恰饱饱不是正好，
+
+
+*****
+
+####  FCCHua  
+##### 5234#       发表于 2021-7-28 20:00
+
+
+然后转播间切了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SuntoryNomu  
+##### 5235#       发表于 2021-7-28 20:01
+
+
+<img src="https://img.saraba1st.com/forum/202107/28/200135s4vvyyre6364epvd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E6o_DKEUcAMpQ-V.jpg</strong> (188.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-28 20:01 上传
+
+
+*****
+
+####  poipanchao  
+##### 5236#       发表于 2021-7-28 20:11
+
+
+分倒不是问题，不用现实点的分
+
+其他18队都用的6月时点分，凭啥针对葵皇
+
+
+我还是觉得葛葵不仲
+
+
+*****
+
+####  qq845629713  
+##### 5237#       发表于 2021-7-28 20:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 不仲就不仲呗，现在king急需把那些尾巴大的垃圾组合甩开，不能给king带来收益的联动、组合都没必要存在了，
+
+
+KING要找还有上升期的liver联动
+
+
+*****
+
+####  alcoholic1000  
+##### 5238#       发表于 2021-7-28 20:27
+
+
+エデン組联动my鲨鱼就像狗比家庭中被轮流家暴的小女儿，我心疼<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空集  
+##### 5239#       发表于 2021-7-28 20:30
+
+
+ollie好吵草  不过好像原来就那么吵我本来也基本没看过(郡道还挂机多一点)
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  OldGlory  
+##### 5240#       发表于 2021-7-28 20:31
+
+
+鲨鱼妹还是连男人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 5241#       发表于 2021-7-28 20:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 没事，两个打枪男RP成鲨鱼妹的弟弟，然后鲨鱼妹RP成女儿，组成新的家庭组合，
+
+
+*****
+
+####  Suzutsuki  
+##### 5242#       发表于 2021-7-28 20:33
+
+
+鲨鱼妹好惨 被暴打<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十四洲  
+##### 5243#       发表于 2021-7-28 20:34
+
+
+我觉得文职组确实比武力组有前途（指贴贴营业）
+
+
+                                                 
