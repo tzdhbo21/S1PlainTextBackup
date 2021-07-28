@@ -8708,3 +8708,14 @@ sky新曲预告推的回复里看到了星弥，感觉很久很久没推特互�
 
 
                                                 
+
+*****
+
+####  qq845629713  
+##### 5252#       发表于 2021-7-28 22:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> KING这夏甲子园被对手轰了9比1，太惨了，
+
+
+                                                 

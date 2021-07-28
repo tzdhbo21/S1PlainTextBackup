@@ -10891,3 +10891,100 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  不垃圾屌丝  
+##### 80349#       发表于 2021-7-28 22:25
+
+
+蘑菇当惯老板了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">没人管他当然想到哪写到哪
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 80350#       发表于 2021-7-28 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52138636&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-28 22:00</a>
+
+我可清清楚楚的记得这2.6刚开时因为贝先生说摩根是他老婆....妖崔也要跟贝先生结婚而让多少云玩家 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狮子头好人啊　惨啊　（
+
+
+*****
+
+####  alucardcz  
+##### 80351#       发表于 2021-7-28 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52138793&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-28 22:10</a>
+
+真的是，万万没想到
+
+2.6整了这么长的文本量，菌类你特么还能在竹箒打补丁的
+
+绝他妈的绝了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ｃｇ只来得及画上半　下半摸了
+
+
+*****
+
+####  khxooo  
+##### 80352#       发表于 2021-7-28 23:11
+
+
+ 本帖最后由 khxooo 于 2021-7-28 23:13 编辑 
+
+不知道转发数够了没有？怎么不见石头的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 80353#       发表于 2021-7-28 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52139606&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-28 23:11</a>
+
+不知道转发数够了没有？怎么不见石头的？</blockquote>
+看了下公告，石头要8月2号开始发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80354#       发表于 2021-7-28 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52139655&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-28 23:15</a>
+
+看了下公告，石头要8月2号开始发</blockquote>
+这是怕转发数不能当天达成，所以多等几天吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80355#       发表于 2021-7-28 23:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52139262&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-28 22:46</a>
+
+ｃｇ只来得及画上半　下半摸了</blockquote>
+就这个竹箒日记已经让我迷幻到
+
+我不知道应该骂DW技术力太菜，这么多年了依旧连个热更塞内容都不会
+
+还是转过头应该去骂type-moon你们连老本行塞CG都不会干了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+唯一能确定的是这群吊人在用心做妖兰
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
