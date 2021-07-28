@@ -7770,3 +7770,327 @@ syl  改到9点了
 
 
                                                 
+
+*****
+
+####  T_Hb  
+##### 21722#       发表于 2021-7-28 21:05
+
+
+开幕就带货啊，是不是一直挂这了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21723#       发表于 2021-7-28 21:07
+
+
+隔壁看到个沙雕图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在想要不要转过来
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kayz996| + 1|不要|
+| 2014720| + 1|不要|
+
+
+查看全部评分
+
+
+*****
+
+####  2014720  
+##### 21724#       发表于 2021-7-28 21:07
+
+
+预约人数不够不就挂那了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21725#       发表于 2021-7-28 21:08
+
+
+如果是我想的那个的话 请发隔壁吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21726#       发表于 2021-7-28 21:10
+
+
+还是不发了，发隔壁感觉会被感知树给缠上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21727#       发表于 2021-7-28 21:11
+
+
+你麻自己想穿
+
+
+*****
+
+####  Klience  
+##### 21728#       发表于 2021-7-28 21:11
+
+
+那我知道是什么东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21729#       发表于 2021-7-28 21:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">只有我不知道了
+
+
+*****
+
+####  时间在我手中  
+##### 21730#       发表于 2021-7-28 21:13
+
+
+为了带货，竟然都说穿上这样的死宅可爱了，喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21731#       发表于 2021-7-28 21:14
+
+
+到时候不够生产数就好玩了
+
+
+*****
+
+####  T_Hb  
+##### 21732#       发表于 2021-7-28 21:14
+
+
+好像买的人还挺多的
+
+
+*****
+
+####  yywzjsw  
+##### 21733#       发表于 2021-7-28 21:16
+
+
+看评论下好像很多人想买
+
+
+*****
+
+####  路人庚  
+##### 21734#       发表于 2021-7-28 21:16
+
+
+有的人嘴上说着不买结果还是预约了，我不说是谁（
+
+
+*****
+
+####  Kayz996  
+##### 21735#       发表于 2021-7-28 21:16
+
+
+都是有钱人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21736#       发表于 2021-7-28 21:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看来还是你咩姐懂阿宅，你楼全都玩不明白
+
+
+*****
+
+####  yywzjsw  
+##### 21737#       发表于 2021-7-28 21:18
+
+
+反正我准备冲了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21738#       发表于 2021-7-28 21:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我还是老老实实塞点钱吧
+
+
+*****
+
+####  草牛  
+##### 21739#       发表于 2021-7-28 21:21
+
+
+说好的一起看麻麻哭呢😭
+
+
+*****
+
+####  时间在我手中  
+##### 21740#       发表于 2021-7-28 21:21
+
+
+量力而行，生日还有别的也能冲
+
+
+*****
+
+####  Klience  
+##### 21741#       发表于 2021-7-28 21:22
+
+
+1200还是算了 虽然能买 但对我来说买这种自己没什么机会穿出去还不如买点好一点的外设或者皮肤给自己爽更好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21742#       发表于 2021-7-28 21:22
+
+
+等到生日之后也不迟，看看生日有啥，没想要的就衣服吧
+
+
+*****
+
+####  T_Hb  
+##### 21743#       发表于 2021-7-28 21:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你咩姐能不能出点实用点的周边，买起来方便
+
+
+*****
+
+####  yywzjsw  
+##### 21744#       发表于 2021-7-28 21:23
+
+
+<blockquote>Klience 发表于 2021-7-28 21:22
+1200还是算了 虽然能买 但对我来说买这种自己没什么机会穿出去还不如买点好一点的外设或者皮肤给自己爽更好 ...</blockquote>
+不是1200，你要算代购的溢价，还有国际运费什么的，到手能1500了
+
+
+*****
+
+####  Klience  
+##### 21745#       发表于 2021-7-28 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52138038&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-7-28 21:23</a>
+
+不是1200，你要算代购的溢价，还有国际运费什么的，到手能1500了</blockquote>
+1500单买一件衣服 又没有其他东西绑定销售 而且这衣服秋天冬天才穿得出去 秋天还不一定能穿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21746#       发表于 2021-7-28 21:28
+
+
+micro豚还行，大🐖养小🐖
+
+
+*****
+
+####  LIPP  
+##### 21747#       发表于 2021-7-28 21:28
+
+
+其实对我最大的阻力是肥肥能不能穿出去<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+现在开始吃药还来得及吗
+
+
+*****
+
+####  时间在我手中  
+##### 21748#       发表于 2021-7-28 21:29
+
+
+好吃的迷你🐷<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21749#       发表于 2021-7-28 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52138101&amp;ptid=1973472" target="_blank">Klience 发表于 2021-7-28 21:27</a>
+
+1500单买一件衣服 又没有其他东西绑定销售 而且这衣服秋天冬天才穿得出去 秋天还不一定能穿 ...</blockquote>
+我觉得到手了会发现、根本穿不出去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21750#       发表于 2021-7-28 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52138116&amp;ptid=1973472" target="_blank">LIPP 发表于 2021-7-28 21:28</a>
+
+其实对我最大的阻力是肥肥能不能穿出去
+
+现在开始吃药还来得及吗</blockquote>
+宽80，长75还穿不了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">也许是要减肥了
+
+
+
+
+*****
+
+####  T_Hb  
+##### 21751#       发表于 2021-7-28 21:30
+
+
+经济负担得起 不影响生活，想买来做纪念就可以买呗
+
+我是偏实用主义，所以不买
+
+
+*****
+
+####  2014720  
+##### 21752#       发表于 2021-7-28 21:31
+
+
+我希望来件抹布什么的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21753#       发表于 2021-7-28 21:32
+
+
+去年那5件抹布......算了不说了
+
+
+                                                
