@@ -8006,3 +8006,150 @@ ssk这个卡抽的也太爽了
 
 
                                                 
+
+*****
+
+####  哈曼的YY  
+##### 5194#       发表于 2021-7-28 17:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52133935&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-7-28 17:12</a>
+
+那个游戏是v前的</blockquote>
+新配的游戏叫啥？
+
+
+*****
+
+####  alcoholic1000  
+##### 5195#       发表于 2021-7-28 17:51
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-28 18:03 编辑 
+
+叶今天聊到说自己会听小红的歌（应该是デモーニッシュ），同事的歌都挺经常听的（这点确实，他没事就会在推分享歌投稿，上次把山神吓了一跳），rp了下虹箱推「我可是古参，大家不是吗？」，还挺意外的有跟同事们聊天吹水
+
+
+正好有评论问他会限一般干什么
+
+「唱歌，唱很烂的歌」有这句话几年会限没白熬，就当支持某种缥缈虚无的音乐梦想了
+
+
+ARlive照例的前夜祭应该会有，这次是黑黑咎人时间未定（营业也要内卷起来了）
+
+昨天吃了Uber Eats，大変申；最近吃饭会被「你还在控糖」的理由被King出警，刀也乐
+
+
+正在聊棒球，故意cue了阿床在哪队的问题（...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+西西最喜欢高校大家都必须要喜欢西西啊，不喜欢的会被我挨个谈话^ ^（宗教？校霸？）（ゲーマーズ復活！かなしいな復活！）棒球还挺感兴趣的，但估计虹甲结束就没热情了（是啊玩的时候光顾着谈恋爱了
+
+
+Syl，又抽了
+
+【「NIJISANJI ID」ライバーデビュー！】
+
+インドネシアVTuberグループ「NIJISANJI ID」より、3名のライバーが新たにデビュー！
+
+7/31(土)21:00より、初配信リレーを実施！
+
+
+<img src="https://img.saraba1st.com/forum/202107/28/180250rxtm1zr77i66l7ol.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>NIJISANJI ID.jpeg</strong> (751.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-28 18:02 上传
+
+
+[https://prtimes.jp/main/html/rd/p/000000304.000030865.html](https://prtimes.jp/main/html/rd/p/000000304.000030865.html)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  毛头小希  
+##### 5196#       发表于 2021-7-28 18:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52118932&amp;ptid=1972669" target="_blank">霜浪 发表于 2021-7-27 18:44</a>
+
+这次五人组除了一对打枪的是走黑黑路线，教授才是和VΔLZ对标吧，各方面方面能力都不错，好像也会整活，但 ...</blockquote>
+你什么时候产生了只有那对枪男在营业的错觉？四男一女，两个年轻的男的拉出来营业的话，两个年纪大的怎么也不可能放养吧……
+
+实际上感觉教授已经试图在跟豆猫哥营业了，但是是不是真的在营业以及效果怎么样就要看今晚eden组联动了
+
+顺带一提教授音声在梦女里评价很好，五人的出道音声销售量第一的是豆哥，第二就是教授
+
+另外教授其实经常在直播间或者推特跟英语圈观众和EN那帮前辈打关系，但是没看上面有人说我都想不起来VALZ原来有英文buff的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mmbk  
+##### 5197#       发表于 2021-7-28 18:04
+
+
+好像又有一波小菜要来，过多久不知道就是了
+
+
+*****
+
+####  ヒトニナル  
+##### 5198#       发表于 2021-7-28 18:07
+
+
+有一说一教授那个深夜朗读我觉得效果不错，顺便我希望他以后能发挥优势念念英文文本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 5199#       发表于 2021-7-28 18:16
+
+
+ 本帖最后由 purdre 于 2021-7-28 18:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52134632&amp;ptid=1972669" target="_blank">毛头小希 发表于 2021-7-28 18:00</a>
+
+你什么时候产生了只有那对枪男在营业的错觉？四男一女，两个年轻的男的拉出来营业的话，两个年纪大的怎么 ...</blockquote>
+教授有很大可能营业上手我不否认，但他对蓝毛就单纯是喜欢看他直播吧，至少我看教授对蓝毛直播的感想还是（NICONICO时期）老宅观众发出来的弹幕的感觉。
+
+
+和红毛黑毛俩人那个尴尬的营业看得我浑身起鸡皮疙瘩感觉完全不一样。就算以后真贴贴了我觉得也会和舞元力一比较接近而不是黑黑。
+
+
+*****
+
+####  winda  
+##### 5200#       发表于 2021-7-28 18:28
+
+
+哈弟开最协队伍发表直播了
+
+
+*****
+
+####  格林卡罗尔  
+##### 5201#       发表于 2021-7-28 18:29
+
+
+哈弟这边在墨迹什么，打开一看开了半小时还没发表
+
+
+                                                 
