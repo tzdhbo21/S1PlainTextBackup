@@ -10639,3 +10639,70 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 80328#       发表于 2021-7-28 09:24
+
+
+为什么还有人对yls有期望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 80329#       发表于 2021-7-28 09:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伟大的艾斯奥塔曼告诉我们 热忱之心不可泯灭,纵使这份感情被背叛过千百次
+
+
+*****
+
+####  khxooo  
+##### 80330#       发表于 2021-7-28 09:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52126390&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-28 09:27</a>
+伟大的艾斯奥塔曼告诉我们 热忱之心不可泯灭,纵使这份感情被背叛过千百次 ...</blockquote>
+我信奉的是一次不忠，百次不容，所以无论发生什么事都没所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 80331#       发表于 2021-7-28 09:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52126390&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-28 09:27</a>
+
+伟大的艾斯奥塔曼告诉我们 热忱之心不可泯灭,纵使这份感情被背叛过千百次 ...</blockquote>
+超兽（指YLS）没有痛觉，所以你的攻击不要停下来啊！<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 80332#       发表于 2021-7-28 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52126591&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-28 09:40</a>
+
+我信奉的是一次不忠，百次不容，所以无论发生什么事都没所谓了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是什么让你变成这样 YLS吗
+
+
+*****
+
+####  qixinno2  
+##### 80333#       发表于 2021-7-28 10:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52126805&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-28 09:53</a>
+
+超兽（指YLS）没有痛觉，所以你的攻击不要停下来啊！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥特电锯警告
+
+
+                                                 
