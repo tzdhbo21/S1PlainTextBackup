@@ -10748,3 +10748,43 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  シャル  
+##### 80338#       发表于 2021-7-28 15:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52132009&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-7-28 15:07</a>
+
+这周年本比起盖提亚还是七章那个比较恶心（好吧其实是我以为是提妈带了双梅林和冠位弓进去打磨了20多个回合 ...</blockquote>
+哈哈，我超人熊和王哈梅林3冠位进去硬砍12回合，超人熊打拉哈姆还是比较麻烦的
+
+
+*****
+
+####  zore  
+##### 80339#       发表于 2021-7-28 16:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52126030&amp;ptid=1085254" target="_blank">snakeling 发表于 2021-7-28 09:00</a>
+
+剧情限定能选个特总，勉强可以接受了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前提是他送你五星
+
+但是???估计也就是点什么没用的小玩意儿了
+
+
+*****
+
+####  qixinno2  
+##### 80340#       发表于 2021-7-28 16:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52132009&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-7-28 15:07</a>
+
+这周年本比起盖提亚还是七章那个比较恶心（好吧其实是我以为是提妈带了双梅林和冠位弓进去打磨了20多个回合 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我进去就麻了 退出来换成了王哈尼托和助战王哈 靠即死过去的
+
+
+                                                 

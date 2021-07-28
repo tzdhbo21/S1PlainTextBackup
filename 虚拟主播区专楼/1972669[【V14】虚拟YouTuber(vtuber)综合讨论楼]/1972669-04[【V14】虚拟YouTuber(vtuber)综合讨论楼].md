@@ -7901,3 +7901,65 @@ Zsyl，毛到豆哥真是赚大了，游戏提前练好了再上播，能拼时�
 
 
                                                  
+
+*****
+
+####  Suny08  
+##### 5184#       发表于 2021-7-28 15:35
+
+
+那meari是不是也要毕业了，毕竟都动画op主流出道了
+
+
+*****
+
+####  dybang  
+##### 5185#       发表于 2021-7-28 16:12
+
+
+不至于吧，一个是有相关企划后取消，一个是本来就没有
+
+
+*****
+
+####  rzrbtk  
+##### 5186#       发表于 2021-7-28 16:15
+
+
+郡道要和ollie联动打apex了，一个不会日语一个不会英语，实在是不知道会怎样
+
+
+*****
+
+####  渡鸦骑士  
+##### 5187#       发表于 2021-7-28 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52133007&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-7-28 16:15</a>
+
+郡道要和ollie联动打apex了，一个不会日语一个不会英语，实在是不知道会怎样 ...</blockquote>
+不是……ollie会点日语的……，还开过日语only直播……比moona好多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rzrbtk  
+##### 5188#       发表于 2021-7-28 16:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52133078&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-7-28 16:20</a>
+
+不是……ollie会点日语的……，还开过日语only直播……比moona好多了</blockquote>
+不是啊，这个是郡道和ollie聊天的时候自己的评价，没有说完全不会就是交流不太流利的意思
+
+
+*****
+
+####  qq845629713  
+##### 5189#       发表于 2021-7-28 16:25
+
+
+mememe女士只要你虹这边不耽误人家主流进出，就没什么，当个副业挺舒服的，还能和KING、剑持这些池面当朋友
+
+
+                                                 

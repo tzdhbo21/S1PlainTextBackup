@@ -6619,3 +6619,670 @@ syl，只能说大伙的衣服确实都蛮便宜的，啥时候你咩姐进军�
 
 
                                                
+
+*****
+
+####  T_Hb  
+##### 21610#       发表于 2021-7-28 15:24
+
+
+衣服是挺好的，就是我穿不出去，没场合穿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21611#       发表于 2021-7-28 15:24
+
+
+这有什么的，我当年淘宝买的狂三痛衣我现在一样敢穿出去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21612#       发表于 2021-7-28 15:25
+
+
+顺便，我都看到有人在准备<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">国内自制了
+
+这衣服运回来、运费也要1~2000吧
+
+
+*****
+
+####  路人庚  
+##### 21613#       发表于 2021-7-28 15:25
+
+
+好一点的外套上千也正常，不过这大概也确实不是普通学生能承受的价格（学生党就图一乐吧
+
+
+*****
+
+####  GRMeA104  
+##### 21614#       发表于 2021-7-28 15:26
+
+
+1k2跨海买套皮女主播联动衣装怎么想都超出我的消费观了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甘栗No.007  
+##### 21615#       发表于 2021-7-28 15:26
+
+
+来个真人模特看看上身的效果
+先奶一口0人购买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21616#       发表于 2021-7-28 15:26
+
+
+哈哈、你麻说去打小钢珠可以穿、但国内没有小钢珠店<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21617#       发表于 2021-7-28 15:26
+
+
+只能说量力而行，交大的穷狗废物带学生还是算了吧，BGO叫你氪个福袋都要老子出的hape<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21618#       发表于 2021-7-28 15:28
+
+
+0不可能的，aut肯定会买、官组那群人..........<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不评论。
+
+加个签名我就买<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 21619#       发表于 2021-7-28 15:30
+
+
+等个直播吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl楼友似乎已经进化到肉体金钱交易了<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21620#       发表于 2021-7-28 15:31
+
+
+这东西要怎么个捆绑签名法啊，不太懂，彩虹那边的懂哥介绍一下
+
+
+*****
+
+####  鷹書たかしょ  
+##### 21621#       发表于 2021-7-28 15:36
+
+
+造型设计很不错，但根据我的直觉这衣服适合纤瘦型的前卫精神小伙穿，肥人哭泣
+
+
+*****
+
+####  gongge666  
+##### 21622#       发表于 2021-7-28 15:36
+
+
+确定想买的人先别急着买，看看她会不会直播求着观众买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">气气她让她产生危机感
+
+
+*****
+
+####  Klience  
+##### 21623#       发表于 2021-7-28 15:37
+
+
+ 本帖最后由 Klience 于 2021-7-28 15:38 编辑 
+
+平时都是穿着正装上班 休息都是待在家里 这衣服买回来就是放衣柜吃灰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21624#       发表于 2021-7-28 15:37
+
+
+看了下那个衣服店的推特官号，感觉就是专门设计制作这种二次元潮牌风格的衣服店，整体风格感觉有点像是当年地下偶像时期兴趣爱好（或 fan service 精神？）的延续
+
+
+推特官号图片里其中有几件外套也是挺大的，大概可以参考感受一下
+
+
+*****
+
+####  yywzjsw  
+##### 21625#       发表于 2021-7-28 15:39
+
+
+你带签名谷子预定不就好了，放上卫衣、亲签、还有其它周边。表个价格、然后表明守注生产。这是第一档。
+
+第二档就是复制签名的套餐。
+
+第三档就是单独周边的贩卖。
+
+隔壁都卖了那么久了、业界早就考验过的模式。
+
+你麻就不能抄抄。
+
+反正是预定生产。
+
+你根据卖出去的谷子数去预定不就好了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21626#       发表于 2021-7-28 15:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你麻高估了自家阿宅的消费水平
+
+
+*****
+
+####  yywzjsw  
+##### 21627#       发表于 2021-7-28 15:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52132400&amp;ptid=1973472" target="_blank">鷹書たかしょ 发表于 2021-7-28 15:36</a>
+
+造型设计很不错，但根据我的直觉这衣服适合纤瘦型的前卫精神小伙穿，肥人哭泣 ...</blockquote>
+肥人可以把衣服撑起来。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21628#       发表于 2021-7-28 15:40
+
+
+问题是这商业合作也不知道啥形式吧，你麻是个傻批又不需要验证的，天知道怎么搞上的
+
+
+*****
+
+####  草牛  
+##### 21629#       发表于 2021-7-28 15:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">买个屁，就等着她求我，哭哭也行
+
+
+*****
+
+####  2014720  
+##### 21630#       发表于 2021-7-28 15:41
+
+
+你麻好歹知道自己饭盒人数吧，咋想的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  makourisu-2  
+##### 21631#       发表于 2021-7-28 15:41
+
+
+不会这女人真就赚了太多，对金钱数字缺乏认知了吧<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 21632#       发表于 2021-7-28 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52132258&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-7-28 15:26</a>
+1k2跨海买套皮女主播联动衣装怎么想都超出我的消费观了</blockquote>
+这不比上六个月舰长实惠多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 21633#       发表于 2021-7-28 15:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">咩宝之前不还说过谷子价格会咨询苔苔么，可能真的不亏
+
+
+*****
+
+####  yywzjsw  
+##### 21634#       发表于 2021-7-28 15:43
+
+
+还能咋。
+
+大概率不是别人找她的，她自己找上去的。
+
+3周年的生日，想搞个不一样的。然后就想自己设计个衣服什么的、头脑一热的早了对方去联系、然后头脑一样的出了这个价格。头脑一热的、不知道有多少人买。
+
+你麻傻逼也不是一天两天了。
+
+给钱、给设计、然后挂牌生产。大概率是这种合作。
+
+或者就是这个品牌的人是你麻的熟人、或者是你麻的粉丝、然后联系上、<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21635#       发表于 2021-7-28 15:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许她自己的要求也没那么高（大概是预定有10件就算成功？
+
+
+*****
+
+####  yywzjsw  
+##### 21636#       发表于 2021-7-28 15:44
+
+
+或者盒饭w党的，够了最低生产数？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 21637#       发表于 2021-7-28 15:45
+
+
+没事，黄就黄了，真没人关注，黄了都没人知道🤣
+
+
+*****
+
+####  时间在我手中  
+##### 21638#       发表于 2021-7-28 15:45
+
+
+万档一个月700R左右，这衣服要搞得翻倍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是饭盒万档人数打五折，5个就算赢了捏
+
+
+*****
+
+####  雪风utopia  
+##### 21639#       发表于 2021-7-28 15:45
+
+
+都过气了，才想到这个<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21640#       发表于 2021-7-28 15:46
+
+
+你咩姐的神必人脉还是别去想了，想破头都不会想通当年是怎么上的秋叶原大屏幕和线下扭蛋机的（
+
+
+*****
+
+####  yywzjsw  
+##### 21641#       发表于 2021-7-28 15:47
+
+
+看他们讨论国内仿制的有模有样的，不要到时候比你麻先出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21642#       发表于 2021-7-28 15:47
+
+
+往好了想，这谷子放这里出来了，说明生日回有大的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シルフィエット  
+##### 21643#       发表于 2021-7-28 15:47
+
+
+不能拿饭盒万档比啊，这是一起性消费+实物的
+
+
+*****
+
+####  往世雷书  
+##### 21644#       发表于 2021-7-28 15:47
+
+
+ 本帖最后由 往世雷书 于 2021-7-28 15:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52132486&amp;ptid=1973472" target="_blank">makourisu-2 发表于 2021-7-28 15:41</a>
+不会这女人真就赚了太多，对金钱数字缺乏认知了吧还是说有钱人的生活我不懂 ...</blockquote>
+“我很小气，养猫的话一个月只能出三万日元”
+你们不会连我养猫2/3的钱都拿不出吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  路人庚  
+##### 21645#       发表于 2021-7-28 15:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看这国内山寨不也是个路子（到时候200块一件买不了吃亏买不了上当，除了钱到不了你咩姐手里毫无笋丝
+
+
+*****
+
+####  2014720  
+##### 21646#       发表于 2021-7-28 15:48
+
+
+还是养的太瞟了
+
+
+*****
+
+####  路人庚  
+##### 21647#       发表于 2021-7-28 15:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52132568&amp;ptid=1973472" target="_blank">往世雷书 发表于 2021-7-28 15:47</a>
+
+“我很小气，养猫的话一个月只能出三万日元的食费”
+
+你们不会连我养猫2/3的钱都拿不出吧</blockquote>
+别尬黑，这年头在城市里养猫养狗的每个月不支出2k真养不来（
+
+
+*****
+
+####  雪风utopia  
+##### 21648#       发表于 2021-7-28 15:50
+
+
+生日会究竟是杏爱音声呢还是果体3D呢<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21649#       发表于 2021-7-28 15:52
+
+
+答案是兴爱音声搭配asmr附赠神秘FC2房间链接和密码<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 21650#       发表于 2021-7-28 15:52
+
+
+桀桀，是百人耐久
+
+
+*****
+
+####  yywzjsw  
+##### 21651#       发表于 2021-7-28 15:53
+
+
+大概率是made in china<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21652#       发表于 2021-7-28 15:53
+
+
+桀桀，是20个尼哥
+
+
+*****
+
+####  Klience  
+##### 21653#       发表于 2021-7-28 15:53
+
+
+主人 锁链 兽耳.mp4<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21654#       发表于 2021-7-28 15:55
+
+
+这奶的都太不切实际了，奶一个靠谱一点的：泳装3D回（
+
+
+*****
+
+####  T_Hb  
+##### 21655#       发表于 2021-7-28 15:55
+
+
+别念了，别念了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21656#       发表于 2021-7-28 15:56
+
+
+麻了，这么二次元，我现在觉得大概率是他们找的你麻<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+每件都要配个二次元概念图
+
+
+QQ图片20210728155559.jpg
+(151.29 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-28 15:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/28/155538dmbqwb3mbk2hb329.jpg" referrerpolicy="no-referrer">
+
+
+QQ图片20210728155605.jpg
+(132.13 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-28 15:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/28/155538j2flwaawz8afscgz.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 21657#       发表于 2021-7-28 15:57
+
+
+小麻现在的人气真的能被找的上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+
+
+*****
+
+####  T_Hb  
+##### 21658#       发表于 2021-7-28 15:57
+
+
+这店的推关注和被关注里好多管人
+
+
+*****
+
+####  路人庚  
+##### 21659#       发表于 2021-7-28 15:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以都说了是二次元潮牌啊（不过我看到这种风格的第一反应居然是小蓝
+
+
+（呜呜呜，小蓝<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 21660#       发表于 2021-7-28 16:05
+
+
+不懂就问，小蓝是u姨吗
+
+所以晚上会有直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  T_Hb  
+##### 21661#       发表于 2021-7-28 16:06
+
+
+状态不好，估计无了
+
+
+*****
+
+####  鷹書たかしょ  
+##### 21662#       发表于 2021-7-28 16:06
+
+
+nmd，对着比你麻还小的都能叫姨了是吧
+
+
+*****
+
+####  Dualist彩  
+##### 21663#       发表于 2021-7-28 16:08
+
+
+U姨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21664#       发表于 2021-7-28 16:08
+
+
+状态确实不好 这负战绩没眼看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21665#       发表于 2021-7-28 16:11
+
+
+只能祈祷生日没啥大出血周边二号了，不然我只能寄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来个和以前差不多价格的音声就行反正
+
+
+*****
+
+####  专业划水人员  
+##### 21666#       发表于 2021-7-28 16:12
+
+
+有小麻真人卖家秀吗！
+
+
+*****
+
+####  yywzjsw  
+##### 21667#       发表于 2021-7-28 16:12
+
+
+你麻就不能搞个亲签套装！非洲狗没人权！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">唯独对手速有自信
+
+
+*****
+
+####  掉头学姐  
+##### 21668#       发表于 2021-7-28 16:17
+
+
+我最贵的衣服是羽绒服了，都没超过1000，我无了，虽然看起来还挺不错的
+
+
+*****
+
+####  JY要塞  
+##### 21669#       发表于 2021-7-28 16:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原味能卖多少
+
+
+*****
+
+####  yywzjsw  
+##### 21670#       发表于 2021-7-28 16:19
+
+
+可以去东京街头逮你麻了，现在穿着的肯定是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dualist彩  
+##### 21671#       发表于 2021-7-28 16:19
+
+
+原味儿建议克隆
+
+
+*****
+
+####  时间在我手中  
+##### 21672#       发表于 2021-7-28 16:22
+
+
+逮到就瞬间让她变成rbq<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21673#       发表于 2021-7-28 16:29
+
+
+呵呵，后面我忘了
+
+
+                                               
