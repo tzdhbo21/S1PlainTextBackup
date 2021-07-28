@@ -10605,3 +10605,37 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  eyeego  
+##### 80325#       发表于 2021-7-28 08:04
+
+
+？？？送你个盘子 再等9年就可以自选5星啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  snakeling  
+##### 80326#       发表于 2021-7-28 09:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52125343&amp;ptid=1085254" target="_blank">zore 发表于 2021-7-28 07:10</a>
+
+送五星顶了天剧情限定了
+
+大拐都是期间限定啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">剧情限定能选个特总，勉强可以接受了。
+
+
+*****
+
+####  仰望神的括约肌  
+##### 80327#       发表于 2021-7-28 09:07
+
+
+去年的？？？就送了个三星指令纹章 我觉得还是放低期待比较好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
