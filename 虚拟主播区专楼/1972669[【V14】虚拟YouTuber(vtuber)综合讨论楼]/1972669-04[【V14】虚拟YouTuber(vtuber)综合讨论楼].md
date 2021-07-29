@@ -9439,3 +9439,108 @@ ssk噶吃和pst肉体厨都比较少吧。
 
 
                                                  
+
+*****
+
+####  alcoholic1000  
+##### 5308#       发表于 2021-7-29 19:30
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-29 19:54 编辑 
+
+来了啊啊啊——
+
+<img src="https://img.saraba1st.com/forum/202107/29/193014se58l9569ps90o99.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>8月12日 22-00 より  #竜胆尊新衣装 お披露目。.jpeg</strong> (69.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-29 19:30 上传
+
+
+8月12日 22:00 より
+
+ #竜胆尊新衣装 お披露目。
+
+
+▼ 待機所はこちら
+[https://youtu.be/bC_faM_29e0](https://youtu.be/bC_faM_29e0)
+
+Syl，船长这个泳装好，拉链还能拉
+
+
+*****
+
+####  FCCHua  
+##### 5309#       发表于 2021-7-29 19:31
+
+
+ 本帖最后由 FCCHua 于 2021-7-29 19:33 编辑 
+
+新衣服，终于！！
+syl hnn多少次醒来就跑kamito那里去了，差点错过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 5310#       发表于 2021-7-29 20:09
+
+
+船长这个拉链拉不下去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  qq845629713  
+##### 5311#       发表于 2021-7-29 20:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 老板娘这抽卡彻底烂掉了，也许这就是底边的命运吧
+
+
+*****
+
+####  Suny08  
+##### 5312#       发表于 2021-7-29 20:28
+
+
+虹甲有king牺牲自己给大家兜底都不用慌的，感觉king这次比赛彻底放飞自己了，估计玩的挺嗨的
+
+
+*****
+
+####  alcoholic1000  
+##### 5313#       发表于 2021-7-29 20:30
+
+
+虽然想说这次最摆烂的是rion，但虹甲这种看运气的最后不一定怎么样
+
+
+老板娘这个190捕很不错，两个投手都不太行，只能继续用ars了
+
+
+*****
+
+####  空集  
+##### 5314#       发表于 2021-7-29 20:31
+
+
+<img src="https://img.saraba1st.com/forum/202107/29/203023syi6p6ya2j6uu28i.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210729195937.png</strong> (86.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-29 20:30 上传
+
+
+    拉链cover不让拉下来只存在于设定图里
+
+
+                                                
