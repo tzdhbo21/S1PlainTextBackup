@@ -10387,3 +10387,67 @@ yhm果然还是离我太远啦<img src="https://static.saraba1st.com/image/smile
 
 
                                                 
+
+*****
+
+####  2014720  
+##### 21970#       发表于 2021-7-30 00:49
+
+
+正义披露是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21971#       发表于 2021-7-30 00:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">停一停，警惕和平演变小蓝颜值讨论楼
+
+
+*****
+
+####  JY要塞  
+##### 21972#       发表于 2021-7-30 00:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正义披露一下麻坦，谢谢，杀杀非坦克民
+
+
+*****
+
+####  rosevalley46  
+##### 21973#       发表于 2021-7-30 01:08
+
+
+国v不是coser就是女团或者唱见舞见，论颜是有点底气的……
+
+
+*****
+
+####  往世雷书  
+##### 21974#       发表于 2021-7-30 01:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52157801&amp;ptid=1973472" target="_blank">OldGlory 发表于 2021-7-30 00:42</a>
+喷了，u18r也叫“没见过目前哪个颜出的套皮主播能比的”，你看的哪个位面的套皮主播。
+
+ ...</blockquote>
+老哥还有吗，其他人的也行，好久没见过新图了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  clvan_  
+##### 21975#       发表于 2021-7-30 01:18
+
+
+不会真觉得国内女主播coser、up什么的摆弄起美颜修图比yhm差吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+网上的脸图一乐就完事了
+
+
+                                                 
