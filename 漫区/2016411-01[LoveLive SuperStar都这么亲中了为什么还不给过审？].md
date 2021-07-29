@@ -1917,3 +1917,82 @@ tmd有中国人为啥就乳化了…前几代好几个外国人那还乳了对�
 
 
                                                  
+
+*****
+
+####  狂河冰不烈  
+##### 140#       发表于 2021-7-29 11:02
+
+
+任何境外的影视文艺作品，如果真想过审进入中国的话，唯一的办法就是彻底跟中国不沾边，不出现任何直接的中国元素，也不出现任何与中国有关的元素。只有这样才能彻底杜绝“辱华”的可能性。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  compass01  
+##### 141#       发表于 2021-7-29 11:26
+
+
+钓鱼贴还是讨论钓鱼话题。
+
+tkk到底是不是睿站强推的产物？虽然明面上鲤鱼是lantis塞进去的，但是鲤鱼加入lantis是不是叔叔曲线塞人的布局？如果是的话不能播出岂不是亏大了。
+
+
+*****
+
+####  luozicheng  
+##### 142#         楼主| 发表于 2021-7-29 11:39
+
+
+你们在哪里看的啊b站怎么还是没有，没弹幕没评论没味，我哭死
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| LRS2376852435|-1|动画疯，请|
+
+
+查看全部评分
+
+
+*****
+
+####  yhw1871  
+##### 143#       发表于 2021-7-29 11:42
+
+
+ 本帖最后由 yhw1871 于 2021-7-29 11:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52144667&amp;ptid=2016411" target="_blank">luozicheng 发表于 2021-7-29 11:39</a>
+
+你们在哪里看的啊b站怎么还是没有，没弹幕没评论没味，我哭死</blockquote>
+某弹幕播放器啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/29/114322allk0ao8c9joblo2.png" referrerpolicy="no-referrer">
+
+
+<strong>弹弹.png</strong> (29.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-29 11:43 上传
+
+
+*****
+
+####  incontri  
+##### 144#       发表于 2021-7-29 11:44
+
+
+重新定义亲中<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+                                                 
