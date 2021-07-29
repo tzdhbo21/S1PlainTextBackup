@@ -17739,3 +17739,20 @@ IRS 唱 Rick Roll!
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1151#       发表于 2021-7-29 18:37
+
+
+【TALES OF TALK】
+
+A super exclusive interview with #TalesOfArise PRODUCER Tomizawa Yusuke!
+Deep insight and special footage awaits you in this special episode!
+テイルズオブアライズのプロデューサーである富澤ユースケを案件として特別取材させていただきます!
+
+<img src="https://p.sda1.dev/2/d46ec38fe6b3f4d713d24830663cc399/IMG_CMP_44860022.jpeg" referrerpolicy="no-referrer">
+
+
+                                                 

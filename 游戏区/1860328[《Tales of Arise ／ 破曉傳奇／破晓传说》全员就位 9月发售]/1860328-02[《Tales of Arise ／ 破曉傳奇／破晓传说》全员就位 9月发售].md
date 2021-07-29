@@ -7968,3 +7968,111 @@ CJ是确定有试玩了？？？？</blockquote>
 
 
                                                  
+
+*****
+
+####  godless2020  
+##### 2089#       发表于 2021-7-29 18:42
+
+
+ChinaJoy主办方于今日凌晨发布重大公告，本届ChinaJoy的入场人员无一例外必须持有七日核酸阴性证明（且必须是在上海做的核酸检测）才可入场。入场需要进行双码检查，健康码红色、黄色。行程码绿码(但是下面带有小星号的用户）都将无法入场。 ​​​​
+
+
+*****
+
+####  laoz  
+##### 2090#       发表于 2021-7-29 19:04
+
+
+草，还有厨师服
+
+<img src="https://img.saraba1st.com/forum/202107/29/190443a3wyerej8gwor1u1.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (80.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-29 19:04 上传
+
+
+*****
+
+####  zero12  
+##### 2091#       发表于 2021-7-29 19:07
+
+
+奇装异服不是老传统了吗？请玩家不要再过场动画里穿奇怪的衣服。
+
+
+*****
+
+####  qiyu1234  
+##### 2092#       发表于 2021-7-29 19:07
+
+
+新的SKIT表现方式还算生动，不过因为用的3D建模，有几个公式化动作略显呆板
+
+
+*****
+
+####  zero12  
+##### 2093#       发表于 2021-7-29 19:09
+
+
+把绯红结系的ppt过场做成SKIT，一鱼两吃。
+
+
+*****
+
+####  laoz  
+##### 2094#       发表于 2021-7-29 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52152658&amp;ptid=1860328" target="_blank">zero12 发表于 2021-7-29 19:07</a>
+
+奇装异服不是老传统了吗？请玩家不要再过场动画里穿奇怪的衣服。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这个是料理的时候强制穿的服装吧
+
+
+*****
+
+####  qiyu1234  
+##### 2095#       发表于 2021-7-29 19:14
+
+
+SKIT用3D建模的优点就在这里了
+
+
+<img src="https://img.saraba1st.com/forum/202107/29/191401h1kizccuhtuztih1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (415.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-29 19:14 上传
+
+
+*****
+
+####  塔奇克马  
+##### 2096#       发表于 2021-7-29 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52152772&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-29 19:14</a>
+
+SKIT用3D建模的优点就在这里了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">woooooooo
+
+
+*****
+
+####  忧郁  
+##### 2097#       发表于 2021-7-29 19:18
+
+
+所以bn自己其实也很嫌弃ufo对不对<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

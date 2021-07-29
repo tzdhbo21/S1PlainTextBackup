@@ -17173,3 +17173,16 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  rryu  
+##### 55439#       发表于 2021-7-29 19:20
+
+
+黑玛利亚的奶<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
