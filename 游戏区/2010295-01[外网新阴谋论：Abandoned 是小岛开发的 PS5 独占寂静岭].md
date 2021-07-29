@@ -6966,3 +6966,63 @@ Normal Reedus发布了一则视频……
 
 
                                                  
+
+*****
+
+####  医生狼多  
+##### 536#       发表于 2021-7-29 17:48
+
+
+喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[cp]【传闻：《合金装备6》正在开发中！】“合金装备”系列自从2018年推出《合金装备：幸存》之后就没有了新消息，而鉴于游戏主创小岛秀夫已离开科乐美，不少玩家也希望这个系列就此完结。然而最近一位知名俄罗斯记者Anton Logvinov爆料称：《合金装备6》真实存在！
+
+近日有网友询问Anton，你认为Blue Box工作室那个《废弃》是什么？他回答说：“看起来很像MGS6。是的，科乐美正在开发它，这件事我早就知道了，显然是有人想模仿小岛秀夫那种宣发方式。”不过他也在后面补充说：“好吧，也可能是重制版的消息。”Anton Logvinov曾经在2019年12月爆料过“地平线零之曙光登陆PC”的消息，他是最早一批爆料这个消息的人；因此这次他爆料“科乐美在开发合金装备新作”的消息也有一定可信度。而且今年2月也有其他人爆料称“科乐美将合金装备IP外包出去开发”（与小岛秀夫无关）。
+
+值得一提的是，Blue Box工作室在昨天还发布了一则推特，其中的背景图上隐约似乎有类似《合金装备》“Big Boss”的眼罩形象，结合今天的爆料，或许Blue Box工作室的新作《废弃》就是科乐美外包出去的《合金装备》？当然在官方正式公布消息前，一切都只是猜测了。[/cp]
+
+
+*****
+
+####  电磁炮233  
+##### 537#       发表于 2021-7-29 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52151394&amp;ptid=2010295" target="_blank">医生狼多 发表于 2021-7-29 17:48</a>
+喷了
+[cp]【传闻：《合金装备6》正在开发中！】“合金装备”系列自从2018年推出《合金装备：幸存》 ...</blockquote>
+好的不学学这个<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  筒井彩芽  
+##### 538#       发表于 2021-7-29 17:54
+
+
+玩过头了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最开始那会要是接上爆料还行，托了太久了
+
+
+*****
+
+####  920619lqy  
+##### 539#       发表于 2021-7-29 18:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52149093&amp;ptid=2010295" target="_blank">新八 发表于 2021-7-29 02:01</a>
+
+现在唯一能反转拯救的方法就是出一个牛逼到炸的寂静岭新作了吧</blockquote>
+来一个 寂静岭：合金装备 吼不吼啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ティグル  
+##### 540#       发表于 2021-7-29 18:23
+
+
+konami作品挨个来是吧，那我猜是魂斗罗：寂静岭
+
+
+                                                 
