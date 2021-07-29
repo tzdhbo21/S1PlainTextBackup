@@ -8996,3 +8996,159 @@ MKR这种知根知底的老熟人不比什么uuum外来的小黑脸强
 
 
                                                  
+
+*****
+
+####  帕克桑  
+##### 5277#       发表于 2021-7-29 13:33
+
+
+听完了 这玩的还挺大<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lhawp  
+##### 5278#       发表于 2021-7-29 13:49
+
+
+听完了，所以这到底是什么play<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CielChloe  
+##### 5279#       发表于 2021-7-29 13:53
+
+
+ 本帖最后由 CielChloe 于 2021-7-29 14:33 编辑 
+
+虽然很像，但是有没有什么更确凿的证据，比如十年老粉认证啥的？
+
+不过这里应该没人会信ibss ysss这种营业组合是真的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CielChloe  
+##### 5280#       发表于 2021-7-29 13:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52145866&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-7-29 12:44</a>
+
+这人根本没打算藏</blockquote>
+bsyl，5月的照片，为啥现在才爆？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  Lucy_Diamonds  
+##### 5281#       发表于 2021-7-29 13:56
+
+
+呼叫独姨讲解独角兽的100种分类方法
+
+
+*****
+
+####  Lucy_Diamonds  
+##### 5282#       发表于 2021-7-29 14:05
+
+
+<img src="https://img.saraba1st.com/forum/202107/29/140440co067rokkccu2bpo.png" referrerpolicy="no-referrer">
+
+
+<strong>图片.png</strong> (110.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-29 14:04 上传
+
+
+胜代发的 阿霞解释新谷为什么有她的 去年就开始做了 立本人拉到现在才做出来
+
+
+*****
+
+####  LilighT  
+##### 5283#       发表于 2021-7-29 14:06
+
+
+听完了,太蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 5284#       发表于 2021-7-29 14:20
+
+
+ 本帖最后由 winda 于 2021-7-29 14:27 编辑 
+<blockquote>qq845629713 发表于 2021-7-29 12:44
+这人根本没打算藏</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202107/29/141830bs61lxv18uzz68r1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>image0.jpg</strong> (63.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-29 14:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/29/141843hy3lk0b4q3jjbdnd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_0729_125755.jpg</strong> (69.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-29 14:18 上传
+
+
+今年4月mkr发的九血鬼出去玩的vlog里还把某个很像pst的女性给拍进去了，这次算是确认下两人进度了，顺便还能听听ssk装小宝宝撒娇原声大碟<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 5285#       发表于 2021-7-29 14:22
+
+
+熊猫人你发声正常点，吓一跳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gaiadc  
+##### 5286#       发表于 2021-7-29 14:27
+
+
+没听出来
+
+pst印象里声音比较干，就像是没音染的耳机的那种感觉，而ssk的声音则是带音染的那种
+
+视频里那个声音，离pst有点远，和ssk比，语速慢声调高，听不出
+
+
+话说如果ssk有男友的话，那安洁属于什么程度的RP？一向毫无羞耻感的安洁，在谈到ssk时话都说不清楚了，真正的RP之神？
+
+
+*****
+
+####  qq845629713  
+##### 5287#       发表于 2021-7-29 14:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52147094&amp;ptid=1972669" target="_blank">winda 发表于 2021-7-29 14:20</a>
+
+今年4月mkr发的九血鬼出去玩的vlog里还把某个很像pst的女性给拍进去了，这次算是确认下两人进度了，顺便 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> kmm和pst这下人生赢家了，都有帅帅男朋友，兴趣爱好还相符
+
+
+                                                
