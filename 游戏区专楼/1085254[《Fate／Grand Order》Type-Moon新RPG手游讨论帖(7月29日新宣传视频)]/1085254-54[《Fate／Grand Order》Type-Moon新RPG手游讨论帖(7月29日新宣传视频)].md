@@ -11097,3 +11097,53 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 80365#       发表于 2021-7-29 23:41
+
+
+图鉴中Beast的头像全部不见了，官方看来想搞事？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 80366#       发表于 2021-7-30 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52157086&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-29 23:41</a>
+
+图鉴中Beast的头像全部不见了，官方看来想搞事？</blockquote>
+只是单纯bug了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80367#       发表于 2021-7-30 00:17
+
+
+<blockquote>引用第80361楼alucardcz于2021-07-29 22:04发表的  :
+
+引用:白夜羽 发表于 2021-7-29 21:54草啊，花了两周想起来就打想不起来算完，还以为终于......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是明年上半年开2.65，下半年开2.7，2023年开2.75再接终章吗？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  khxooo  
+##### 80368#       发表于 2021-7-30 00:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52157376&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-7-30 00:01</a>
+
+只是单纯bug了吧</blockquote>
+有个说法我比较同意，就算是BUG，估计也是因为动了兽这方面的代码导致了这几个兽的图像出现BUG。当然，至于是不是真的就只能等官方正式公布了。
+
+
+                                                 
