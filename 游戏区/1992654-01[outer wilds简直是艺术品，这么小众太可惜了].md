@@ -3391,3 +3391,25 @@ Steam地址：[https://store.steampowered.com/app/1622100/](https://store.steamp
 
 
                                                  
+
+*****
+
+####  martinium  
+##### 250#       发表于 2021-7-30 04:31
+
+
+来了来了！都是新场景啊
+
+— from samsung SM-G781U1, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  luoyianwu  
+##### 251#       发表于 2021-7-30 05:02
+
+
+制作人采访时墙上贴了一些便条，有的恶搞，有的却很像真的
+
+
+                                                 
