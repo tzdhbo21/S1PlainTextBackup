@@ -6823,3 +6823,19 @@ Normal Reedus发布了一则视频……
 
 
                                                  
+
+*****
+
+####  SICP  
+##### 523#       发表于 2021-7-29 08:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52141437&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-7-29 07:21</a>
+
+其实岛哥哥和Normal Reedus粉丝数差不多一个量级，我今天才发现的。很难说谁赚
+
+无论阴谋论是真是假，今天 ...</blockquote>
+我已经开始相信了，现在我这种又想被打脸但是又不想被打脸的感觉真的是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欲罢不能
+
+
+                                                 

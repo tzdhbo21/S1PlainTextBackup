@@ -932,3 +932,28 @@ https://www.amazon.co.jp/dp/B098T51T7X?tag=nataliecomic-22
 
 
                                                  
+
+*****
+
+####  Piano-Forest  
+##### 85#         楼主| 发表于 2021-7-29 08:19
+
+
+追告A：[https://youtu.be/aGu6U3yK0ds](https://youtu.be/aGu6U3yK0ds)
+
+
+追告B：[https://youtu.be/T0jYjzFkHeo](https://youtu.be/T0jYjzFkHeo)
+
+
+*****
+
+####  zhrs456  
+##### 86#       发表于 2021-7-29 09:08
+
+
+这预告不就是直接拿1.0的来用的吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

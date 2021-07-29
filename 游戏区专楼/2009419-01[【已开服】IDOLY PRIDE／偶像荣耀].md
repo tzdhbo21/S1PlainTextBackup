@@ -5287,3 +5287,39 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  pansherry  
+##### 378#       发表于 2021-7-29 08:10
+
+
+你说复制别人队伍的功能的话，没用的啊，照片不一样，结果完全不一样的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  yuugi  
+##### 379#       发表于 2021-7-29 08:30
+
+
+ 本帖最后由 yuugi 于 2021-7-29 09:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52141655&amp;ptid=2009419" target="_blank">pansherry 发表于 2021-7-29 08:10</a>
+
+你说复制别人队伍的功能的话，没用的啊，照片不一样，结果完全不一样的啊
+
+
+—— 来自 samsung SM-G9 ...</blockquote>
+是自己队伍的复制，或者说挑战历史
+
+这改一张就千差万别，改着改着，隔段时间，都忘了接近最高分是怎么来的，留个档再改
+
+还有一不小心按了自动配置前功尽废
+
+
+说起抄别人的队伍，咱居然一直不知道，高分挑战是可以看到前百排名及其队伍
+
+
+                                                 
