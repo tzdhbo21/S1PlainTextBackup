@@ -6861,3 +6861,76 @@ Normal Reedus发布了一则视频……
 
 
                                                  
+
+*****
+
+####  920619lqy  
+##### 526#       发表于 2021-7-29 15:38
+
+
+<blockquote>宛若青空 发表于 2021-7-29 01:10
+怎么一转变MGS了？</blockquote>
+如果蹭了半天寂静岭结果冒出来个MG翻新那我觉得也算烂活了
+
+
+*****
+
+####  wujae  
+##### 527#       发表于 2021-7-29 15:45
+
+
+ 本帖最后由 wujae 于 2021-7-29 15:50 编辑 
+
+所以现在到底什么情况啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+哪个服能下了？
+
+
+*****
+
+####  宛若青空  
+##### 528#       发表于 2021-7-29 15:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52148663&amp;ptid=2010295" target="_blank">920619lqy 发表于 2021-7-29 15:38</a>
+如果蹭了半天寂静岭结果冒出来个MG翻新那我觉得也算烂活了</blockquote>
+现在不管出啥我都觉得蛮烂活的，主要是拖得时间太长整活又多
+
+
+*****
+
+####  新八  
+##### 529#       发表于 2021-7-29 16:01
+
+
+现在唯一能反转拯救的方法就是出一个牛逼到炸的寂静岭新作了吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzy516232108  
+##### 530#       发表于 2021-7-29 16:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">该差不多了吧，是骡子是马拉出来溜溜
+
+
+*****
+
+####  医生狼多  
+##### 531#       发表于 2021-7-29 16:04
+
+
+两周内搞定我还能夸好活，隔这么久了我觉得怎么处理都是烂活了
+
+
+*****
+
+####  heseran  
+##### 532#       发表于 2021-7-29 16:08
+
+
+神神秘秘的，除非是小岛的完全新作或者寂静岭新作，否则一律烂活
+
+
+                                                 

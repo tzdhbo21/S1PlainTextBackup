@@ -11013,3 +11013,18 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  jacatay  
+##### 80358#       发表于 2021-7-29 15:40
+
+
+ 本帖最后由 jacatay 于 2021-7-29 15:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">才打1.0回忆关 都忘了当时没C呆 怎么打的人类恶
+
+盖提亚才是真正的充电宝吧 C呆宝具就没断过
+
+
+                                                 

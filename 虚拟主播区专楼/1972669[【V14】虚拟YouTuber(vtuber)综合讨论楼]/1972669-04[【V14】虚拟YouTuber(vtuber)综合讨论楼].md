@@ -9271,3 +9271,121 @@ ssk直播也不拉，敬业，中之人谈个男朋友应该祝福<img src="http
 
 
                                                  
+
+*****
+
+####  poipanchao  
+##### 5295#       发表于 2021-7-29 15:27
+
+
+kmm还有泳装照来着
+
+
+*****
+
+####  rzrbtk  
+##### 5296#       发表于 2021-7-29 15:30
+
+
+寸O犬能不能也发个自拍来解我相思之苦
+
+
+*****
+
+####  空集  
+##### 5297#       发表于 2021-7-29 15:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">肉体厨浓度升高了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  海洋队手下mayo  
+##### 5298#       发表于 2021-7-29 15:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">原来还在一起啊
+
+之前mkr刚刚播过的游戏隔几天就看见ssk播，好几个游戏爱用的角色/武器也一样，还有水族馆爱，果然不是巧合
+mkr在任天堂主播里面也算混的好的，也没有什么黑料，该说恭喜吧
+
+
+*****
+
+####  LilighT  
+##### 5299#       发表于 2021-7-29 15:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+我也是任任男孩,哪里有我的任任女孩
+
+
+*****
+
+####  Suny08  
+##### 5300#       发表于 2021-7-29 16:16
+
+
+话说这事怎么感觉没像葛尊那次发酵的那么厉害呢，是不是被uuum和enkr大手直接按住了
+
+
+*****
+
+####  poipanchao  
+##### 5301#       发表于 2021-7-29 16:16
+
+
+葛叶什么地位，ssk什么地位
+不要随便碰瓷
+
+
+*****
+
+####  IDIDIDID  
+##### 5302#       发表于 2021-7-29 16:18
+
+
+ssk噶吃和pst肉体厨都比较少吧。
+
+
+*****
+
+####  OldGlory  
+##### 5303#       发表于 2021-7-29 16:19
+
+
+因为mkr没那么多独角兽女粉？
+
+
+*****
+
+####  qq845629713  
+##### 5304#       发表于 2021-7-29 16:23
+
+
+还是因为你虹公关删视频音频速度够快，没有发酵到一定程度，刚有苗头就被掐灭了
+
+
+二是笹木并没有因为和mkr同居就影响直播，更没有实质上的照片实锤，
+
+
+加上笹木也并没有养过什么gachi，唯一破防的大概也就是笹x社机台CP粉，
+
+
+不过我是mkr，看我女朋友在节目上和别的男的这样快乐，我拳头一般要硬了
+
+
+*****
+
+####  hulaoda007  
+##### 5305#       发表于 2021-7-29 16:30
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">我就是觉得pst大脸可爱怎么了？
+
+
+                                                 
