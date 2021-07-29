@@ -8381,3 +8381,16 @@ grade砍掉很正常
 
 
                                                  
+
+*****
+
+####  改名了的  
+##### 2124#       发表于 2021-7-30 05:52
+
+
+总体感觉还可以，说起来这种小剧场会出现克劳德狼牙棒.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+                                                 
