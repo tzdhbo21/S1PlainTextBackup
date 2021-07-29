@@ -17160,3 +17160,16 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  Freemasons  
+##### 55438#       发表于 2021-7-29 15:14
+
+
+这种在战场上制造敌人亲人幻象的伎俩真的是无语<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+前脚是一堆敌人，后脚冒出死去的亲🐎来，能上当的人得多智障
+当年圣斗士的海将军再怎么说也是在1ｖ１无外界干扰的情况下玩变身的
+
+
+                                                 

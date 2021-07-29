@@ -9250,3 +9250,212 @@ mea找的mix那都是自家人 可比外面再另找mix经济实惠多了 不香
 
 
                                                 
+
+*****
+
+####  草牛  
+##### 21864#       发表于 2021-7-29 14:35
+
+
+我马上取关
+
+
+*****
+
+####  T_Hb  
+##### 21865#       发表于 2021-7-29 14:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我早取关了
+
+
+*****
+
+####  2014720  
+##### 21866#       发表于 2021-7-29 14:41
+
+
+那我就是宝可梦和腾讯anti了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21867#       发表于 2021-7-29 14:43
+
+
+这游戏 太有既视感了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21868#       发表于 2021-7-29 14:44
+
+
+这UI，挺眼熟的只能说
+
+
+*****
+
+####  专业划水人员  
+##### 21869#       发表于 2021-7-29 14:45
+
+
+是不是开始氪了。。。。
+
+
+*****
+
+####  aisakahammer  
+##### 21870#       发表于 2021-7-29 14:45
+
+
+王者荣耀+风暴英雄
+
+
+
+
+*****
+
+####  T_Hb  
+##### 21871#       发表于 2021-7-29 14:45
+
+
+简化了一切能简化的moba手游
+
+
+*****
+
+####  时间在我手中  
+##### 21872#       发表于 2021-7-29 14:47
+
+
+坏了，氪了一万，宝批咩啊成了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21873#       发表于 2021-7-29 14:48
+
+
+坏起来了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rosevalley46  
+##### 21874#       发表于 2021-7-29 14:50
+
+
+日一m,她上瘾也正常<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我反正接触的moba多,这个除了画面还能忍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21875#       发表于 2021-7-29 14:51
+
+
+不氪101 氪这破游戏是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21876#       发表于 2021-7-29 14:51
+
+
+ 本帖最后由 T_Hb 于 2021-7-29 14:53 编辑 
+
+她也算日1M？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21877#       发表于 2021-7-29 14:52
+
+
+反正都是给腾讯送钱，而且LOL这不是有粉丝送吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 21878#       发表于 2021-7-29 14:56
+
+
+那她现在LOL也不播啊 也就私下和野男人玩 
+
+
+*****
+
+####  时间在我手中  
+##### 21879#       发表于 2021-7-29 14:57
+
+
+为了广大人民群众的血压着想，LOL不播是最好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21880#       发表于 2021-7-29 14:58
+
+
+播101都没人看的，还要被指导，不如私下和野男人玩来的爽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 21881#       发表于 2021-7-29 15:00
+
+
+想看你麻视角不知道是什么样的脑血操作<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rosevalley46  
+##### 21882#       发表于 2021-7-29 15:03
+
+
+有一说一这个游戏看兰熊播同接也一般
+
+
+*****
+
+####  Klience  
+##### 21883#       发表于 2021-7-29 15:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52147774&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-7-29 15:00</a>
+
+想看你麻视角不知道是什么样的脑血操作</blockquote>
+建议只看波比 其他别看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21884#       发表于 2021-7-29 15:11
+
+
+要吃roast beef是吧
+
+
+*****
+
+####  T_Hb  
+##### 21885#       发表于 2021-7-29 15:11
+
+
+你麻牛丼吃出花了吗
+
+
+                                                
