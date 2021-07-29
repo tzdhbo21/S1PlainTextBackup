@@ -5341,3 +5341,16 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  Aureth  
+##### 381#       发表于 2021-7-29 12:09
+
+
+昨晚最后半小时忘了上线补JJC次数以为自己寄了，没想到<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

@@ -8760,3 +8760,103 @@ syl，你咩姐那衣服其实挺帅的啊，甚至就连我都想穿上后拍�
 
 
                                                 
+
+*****
+
+####  JY要塞  
+##### 21814#       发表于 2021-7-29 11:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快进到小麻就是模特
+
+
+*****
+
+####  时间在我手中  
+##### 21815#       发表于 2021-7-29 11:44
+
+
+那不就是直接找了个球来穿
+
+
+*****
+
+####  T_Hb  
+##### 21816#       发表于 2021-7-29 11:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又在转那几首翻唱，根本没人去看
+
+
+*****
+
+####  yywzjsw  
+##### 21817#       发表于 2021-7-29 11:49
+
+
+你麻的每天乐趣、自己还是希望数据好看的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 21818#       发表于 2021-7-29 11:56
+
+
+桀桀，建议主播换个mix，别整天捣鼓你那人声听不清bgm庞大的玩意儿力
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">前几天提取了一个干声感觉就很呃呃
+
+
+*****
+
+####  T_Hb  
+##### 21819#       发表于 2021-7-29 11:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">合唱播放已经碾压了路标和旅人，你咩姐能不能多来点
+
+
+*****
+
+####  掉头学姐  
+##### 21820#       发表于 2021-7-29 12:04
+
+
+跟好听不好听有啥关系吗，小土妹根本搞不清现在是流量称王的年代
+
+
+*****
+
+####  路人庚  
+##### 21821#       发表于 2021-7-29 12:06
+
+
+确实，她应该在油管整个vtl、sss翻唱，在b站整个猫中毒翻唱，然后坐着吸流量吸到饱
+
+
+*****
+
+####  yywzjsw  
+##### 21822#       发表于 2021-7-29 12:14
+
+
+醒醒、在蹭、也火不起来。就那bgm过高的mix<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 21823#       发表于 2021-7-29 12:23
+
+
+ 本帖最后由 路人庚 于 2021-7-29 12:26 编辑 
+
+没抓住重点啊，mix从来不是影响点击率的主要因素，题材才是
+
+合唱曲点击率高还不是因为它本身自带的鬼畜流量远大于旅人汗路标
+
+（等等路标似乎看的人也蛮多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，那似乎又说明mix确实没啥影响了
+
+
+                                                 
