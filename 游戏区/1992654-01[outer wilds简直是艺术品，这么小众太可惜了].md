@@ -3360,3 +3360,34 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+*****
+
+####  Piano-Forest  
+##### 249#       发表于 2021-7-30 03:33
+
+
+ 本帖最后由 Piano-Forest 于 2021-7-30 04:12 编辑 
+
+We've recently announced that Outer Wilds will be coming to Nintendo Switch this summer! 
+
+
+游戏NS版将于今年夏季推出
+
+
+Outer Wilds: Echoes of the Eye is coming to PS4, Xbox One, Steam, and Epic Games Store on September 28th. 
+
+
+dlc将于9月28日推出
+
+
+宣传视频：[https://youtu.be/pt9M6WumjtE](https://youtu.be/pt9M6WumjtE)
+
+
+Steam地址：[https://store.steampowered.com/app/1622100/](https://store.steampowered.com/app/1622100/)
+
+<img src="https://p.sda1.dev/2/9e0a0313adbffff6b4b46d80d8a6162e/dlc-key-art-logo_orig.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/dd488011f7c35a75156f6f917b38a1cc/20210730_040216.jpg" referrerpolicy="no-referrer">
+
+
+                                                 
