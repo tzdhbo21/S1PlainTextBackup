@@ -6934,3 +6934,35 @@ Normal Reedus发布了一则视频……
 
 
                                                  
+
+*****
+
+####  byisme001  
+##### 533#       发表于 2021-7-29 16:38
+
+
+数毛社不数一下Hasan Kahraman是真人还是捏出来的吗
+
+
+*****
+
+####  zzy516232108  
+##### 534#       发表于 2021-7-29 16:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52149825&amp;ptid=2010295" target="_blank">byisme001 发表于 2021-7-29 16:38</a>
+
+数毛社不数一下Hasan Kahraman是真人还是捏出来的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看他那个所谓真人出场的道歉视频，总感觉是fox engine
+
+
+*****
+
+####  gingawang  
+##### 535#       发表于 2021-7-29 16:49
+
+
+一个预告从欧洲杯没开始拖到新赛季英超开打 蓝点开发口技马担任监督的we4重制版没跑了😬次时代
+
+
+                                                 
