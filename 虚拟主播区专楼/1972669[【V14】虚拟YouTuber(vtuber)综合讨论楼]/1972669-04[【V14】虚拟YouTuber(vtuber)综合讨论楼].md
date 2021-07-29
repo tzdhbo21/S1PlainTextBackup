@@ -8752,3 +8752,27 @@ eden组的gangbeasts太混沌了，节目效果好爆炸，各个角色也很分
 
 
                                                  
+
+*****
+
+####  winda  
+##### 5256#       发表于 2021-7-29 09:49
+
+
+ 本帖最后由 winda 于 2021-7-29 10:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下nen两ftg选手的gg strive联动，finana这是按着rosemi打啊
+
+finana好歹会ram民工连，确返也算有模有样，rosemi完全就是有点别的游戏底子的萌新syl finana换faust后rosemi段子也熟练多会打了，差距缩小不少
+
+
+*****
+
+####  qq845629713  
+##### 5257#       发表于 2021-7-29 10:34
+
+
+昨天串里提到的笹木和男朋友同居音频有人存了么？我搜了一圈，链接全被橄榄了
+
+
+                                                 

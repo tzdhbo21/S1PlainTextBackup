@@ -8573,3 +8573,105 @@ fc2限定？
 
 
                                                  
+
+*****
+
+####  时间在我手中  
+##### 21797#       发表于 2021-7-29 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52141465&amp;ptid=1973472" target="_blank">Mr.shelter 发表于 2021-7-29 07:31</a>
+
+对啊，这就是宽松风格的啊</blockquote>
+票宝也穿个看看）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让我看看T女粉的power，说不定发推还能让吊人发情惹
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|但是，我拒绝！|
+
+
+查看全部评分
+
+
+*****
+
+####  路人庚  
+##### 21798#       发表于 2021-7-29 09:50
+
+
+在兰熊评论区冒出来了一下（大概算是早起了
+
+
+*****
+
+####  T_Hb  
+##### 21799#       发表于 2021-7-29 09:52
+
+
+兰太郎最近天天宝可梦啊，咩咩不跟着玩玩吗
+
+
+*****
+
+####  路人庚  
+##### 21800#       发表于 2021-7-29 10:12
+
+
+ 本帖最后由 路人庚 于 2021-7-29 10:16 编辑 
+
+你咩姐一眼就看出了宝可梦moba本质就是致敬101这个铁一样的事实于是作为原教旨主义者你咩姐断不可能主动参与游戏（话说如果最初她玩的是doto估计常驻游戏大概是要换成doto力
+
+
+syl，你咩姐那衣服其实挺帅的啊，甚至就连我都想穿上后拍个照发推特，女粉又何必拒绝（
+
+
+*****
+
+####  T_Hb  
+##### 21801#       发表于 2021-7-29 10:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那真是狗都不玩，她连野男人都找不到
+
+
+*****
+
+####  时间在我手中  
+##### 21802#       发表于 2021-7-29 10:23
+
+
+这衣服要到怕不是明年都有可能，到时候再说吧，说不定退坑反踩了捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 21803#       发表于 2021-7-29 10:30
+
+
+看了一下拼团的，乐观估计大概有50人？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Cushaw  
+##### 21804#       发表于 2021-7-29 10:34
+
+
+不是说好让小麻急一会再买吗？
+亚撒西的世界<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

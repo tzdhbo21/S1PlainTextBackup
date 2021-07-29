@@ -1880,3 +1880,40 @@ tmd有中国人为啥就乳化了…前几代好几个外国人那还乳了对�
 
 
                                                  
+
+*****
+
+####  nihilxp  
+##### 137#       发表于 2021-7-29 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52141023&amp;ptid=2016411" target="_blank">printer22 发表于 2021-7-29 02:31</a>
+
+关键是日本现在是美国小弟里最跳的一个，恨不得当反华马前卒，你引进它的东西确实要小心一点不是？毕竟人家 ...</blockquote>
+啥时解的
+
+
+*****
+
+####  luciferion  
+##### 138#       发表于 2021-7-29 09:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52141023&amp;ptid=2016411" target="_blank">printer22 发表于 2021-7-29 02:31</a>
+
+关键是日本现在是美国小弟里最跳的一个，恨不得当反华马前卒，你引进它的东西确实要小心一点不是？毕竟人家 ...</blockquote>
+不会真的有人关心日本说什么吧？他日本才表态和鬼岛在一起，他美爹就表态将继续坚持一个中国原则了。一个半殖半封国家说什么都是废话
+
+
+*****
+
+####  kimibsb  
+##### 139#       发表于 2021-7-29 10:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52039053&amp;ptid=2016411" target="_blank">庸necro 发表于 2021-7-21 00:30</a>
+唐可可要是成绩好是不是就是中国人都是书呆子的刻板印象</blockquote>
+设定里唐可可还真就是成绩好体育差<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 

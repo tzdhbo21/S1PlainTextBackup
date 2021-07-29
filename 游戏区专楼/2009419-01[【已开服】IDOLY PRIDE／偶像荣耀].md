@@ -5323,3 +5323,21 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  pansherry  
+##### 380#       发表于 2021-7-29 10:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52141812&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-29 08:30</a>
+
+是自己队伍的复制，或者说挑战历史
+
+这改一张就千差万别，改着改着，隔段时间，都忘了接近最高分是怎么来的 ...</blockquote>
+自己队伍复制是可以复制，编成最下面一排有个コピー，就是只能另存为新队伍，没有记录功能
+
+队伍多了合成饰品就麻烦了，所以我还是经常删到只剩一个队伍然后卸完饰品去合成<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
