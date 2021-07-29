@@ -11051,3 +11051,49 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  白夜羽  
+##### 80361#       发表于 2021-7-29 21:54
+
+
+草啊，花了两周想起来就打想不起来算完，还以为终于把主线推完了，结果还有一部分要8月才开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是真的仏了
+
+
+*****
+
+####  alucardcz  
+##### 80362#       发表于 2021-7-29 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52155746&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-7-29 21:54</a>
+
+草啊，花了两周想起来就打想不起来算完，还以为终于把主线推完了，结果还有一部分要8月才开我是真的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 8。4万一公布个终章2022年呢
+
+
+*****
+
+####  白夜羽  
+##### 80363#       发表于 2021-7-29 22:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52155874&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-29 22:04</a>
+8。4万一公布个终章2022年呢</blockquote>
+那不是更好吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80364#       发表于 2021-7-29 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52155874&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-29 22:04</a>
+
+8。4万一公布个终章2022年呢</blockquote>
+然后给你公布，2.7的日期是10月，终章12月，FGO2022关服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

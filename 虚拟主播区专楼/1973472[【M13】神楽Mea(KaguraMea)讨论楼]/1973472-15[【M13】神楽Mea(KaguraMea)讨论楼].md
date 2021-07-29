@@ -10017,3 +10017,155 @@ U18R不比天空树土坦好看多了
 
 
                                                 
+
+*****
+
+####  路人庚  
+##### 21940#       发表于 2021-7-29 21:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，也不是所有人的直播都像你咩姐这么刺激的，各人有各人的特点好吧
+
+
+顺便醒醒，这年头光有弹唱p用没有，除非你能先进入大公司然后…（剩下的不说了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 21941#       发表于 2021-7-29 21:38
+
+
+她那个管人身份直播的怎么样啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了一下好像u18r的tc台还一直在播的，这是两个身份都在用？
+
+
+*****
+
+####  往世雷书  
+##### 21942#       发表于 2021-7-29 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52154975&amp;ptid=1973472" target="_blank">呓亘 发表于 2021-7-29 21:08</a>
+U18R不比天空树土坦好看多了</blockquote>
+
+来了来了，这颜值我没见过目前哪个颜出的套皮主播能比的，最强的是今年19岁
+
+
+<img src="https://img.saraba1st.com/forum/202107/29/213825fcn44xglgxwu4gpd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>819099F656EFD9CE4DE3929826522FE4.jpg</strong> (56.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-29 21:38 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|敖，比某人会拍照|
+
+
+查看全部评分
+
+
+*****
+
+####  T_Hb  
+##### 21943#       发表于 2021-7-29 21:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">可惜我只对咩咩有欲望
+
+
+*****
+
+####  专业划水人员  
+##### 21944#       发表于 2021-7-29 21:42
+
+
+腿~腿~腿~
+
+
+*****
+
+####  Klience  
+##### 21945#       发表于 2021-7-29 21:43
+
+
+你是小看了yhm的美颜技术是吗 不过u1的底子应该不会差<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 21946#       发表于 2021-7-29 22:02
+
+
+小麻不好看，不会打扮，不会拍照，还不会p图<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 21947#       发表于 2021-7-29 22:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又转推，今天没了
+
+
+*****
+
+####  时间在我手中  
+##### 21948#       发表于 2021-7-29 22:16
+
+
+发了个饭盒，下个月我信你的鬼话
+
+
+*****
+
+####  路人庚  
+##### 21949#       发表于 2021-7-29 23:10
+
+
+ 本帖最后由 路人庚 于 2021-7-29 23:15 编辑 
+
+最近饭盒确实被mixi折腾的快失去原本的作用了要，不过大概算是缓过来了，也是好的
+
+
+syl，反正看mixi的推特，他自言自语说是被全ban了（
+
+
+*****
+
+####  T_Hb  
+##### 21950#       发表于 2021-7-29 23:13
+
+
+ 本帖最后由 T_Hb 于 2021-7-29 23:16 编辑 
+
+最近估计也挺忙的，谷子要联系，生日要准备
+下个月要是没大活动估计就能轻松点了
+
+
+*****
+
+####  thisisaspider  
+##### 21951#       发表于 2021-7-29 23:30
+
+
+来个rua和mea弹唱月兔 我打5k<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
