@@ -5787,3 +5787,26 @@ dev通道好像快要切到win11下一个大版本了，果断切了beta<img src
 
 
                                                  
+
+*****
+
+####  すぴぱら  
+##### 480#       发表于 2021-7-30 22:29
+
+
+试了wsl2装gui app
+遇到了不支持hidpi，不能跨虚拟机ctrl + v，还不能在linux gui输入中文，按qq截图还把wslg搞崩溃了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  ikariam_hk  
+##### 481#       发表于 2021-7-30 23:08
+
+
+win11还分什么家庭版专业版吗？家庭中文版上去是什么版本?
+
+
+                                                

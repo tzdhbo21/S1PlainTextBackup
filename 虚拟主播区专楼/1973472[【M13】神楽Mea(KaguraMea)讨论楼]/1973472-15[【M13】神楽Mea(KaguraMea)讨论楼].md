@@ -11277,3 +11277,45 @@ bsyl
 
 
                                                  
+
+*****
+
+####  呓亘  
+##### 22053#       发表于 2021-7-30 22:33
+
+
+在纠结买不买....
+
+
+*****
+
+####  Dualist彩  
+##### 22054#       发表于 2021-7-30 23:11
+
+
+竟然能够数，搞得我甚至有点想买
+
+
+*****
+
+####  JY要塞  
+##### 22055#       发表于 2021-7-30 23:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">贫穷使我清醒
+
+
+不如攒钱等娶麻
+
+
+*****
+
+####  T_Hb  
+##### 22056#       发表于 2021-7-30 23:14
+
+
+买的理由是限定款，
+不买的理由很多，被迫理性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
