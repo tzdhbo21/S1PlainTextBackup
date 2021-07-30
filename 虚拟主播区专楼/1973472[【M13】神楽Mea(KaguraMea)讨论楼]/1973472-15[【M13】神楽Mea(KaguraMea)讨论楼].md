@@ -11319,3 +11319,309 @@ bsyl
 
 
                                                  
+
+*****
+
+####  时间在我手中  
+##### 22057#       发表于 2021-7-30 23:41
+
+
+啊，一个晚上进展不错，明天白天完事就可以安心等肥猪直播力
+
+
+*****
+
+####  Klience  
+##### 22058#       发表于 2021-7-30 23:43
+
+
+原来昨天犬山和咩去吃东西了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22059#       发表于 2021-7-30 23:46
+
+
+ 本帖最后由 T_Hb 于 2021-7-30 23:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ashero  
+##### 22060#       发表于 2021-7-30 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52174743&amp;ptid=1973472" target="_blank">Klience 发表于 2021-7-30 23:43</a>
+
+原来昨天犬山和咩去吃东西了啊</blockquote>
+当真？
+
+
+*****
+
+####  甘栗No.007  
+##### 22061#       发表于 2021-7-30 23:53
+
+
+好兄弟来点repo
+
+
+*****
+
+####  路人庚  
+##### 22062#       发表于 2021-7-30 23:53
+
+
+翻了一圈苔苔相关，没找到，求个出处
+
+
+*****
+
+####  T_Hb  
+##### 22063#       发表于 2021-7-30 23:53
+
+
+我甚至是猜的，因为我不看苔苔直播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+竟然是小号
+
+
+*****
+
+####  Klience  
+##### 22064#       发表于 2021-7-30 23:53
+
+
+推特犬山小号啊 自己去看 打游戏没空
+
+
+*****
+
+####  路人庚  
+##### 22065#       发表于 2021-7-30 23:55
+
+
+好吧居然是小号
+
+<img src="https://img.saraba1st.com/forum/202107/30/235520ljy32yd3kyogje3x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>A937DDB8-0E80-48D9-B11D-443C3CE3AB3B.jpeg</strong> (117.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 23:55 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  T_Hb  
+##### 22066#       发表于 2021-7-30 23:57
+
+
+她是不是出门就是老几样啊，烤肉 涮涮锅
+
+
+*****
+
+####  时间在我手中  
+##### 22067#       发表于 2021-7-30 23:59
+
+
+等等，这两人终于线下了？？？
+
+
+我超，姨化病毒Omega！
+
+
+*****
+
+####  ashero  
+##### 22068#       发表于 2021-7-31 00:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52174854&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-30 23:55</a>
+
+好吧居然是小号</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">苔苔：debudebudebu 麻麻：谁说我debu的 老娘才不肥 
+
+苔苔：有种来线下 麻麻：来就来
+
+
+*****
+
+####  路人庚  
+##### 22069#       发表于 2021-7-31 00:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这其实应该算是之前舞元联动时候就约好了的罢，不过苔苔怎么没像直播里说的一样也叫上舞元啊（
+
+
+*****
+
+####  JY要塞  
+##### 22070#       发表于 2021-7-31 00:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">重坦又赢了！
+
+
+*****
+
+####  T_Hb  
+##### 22071#       发表于 2021-7-31 00:04
+
+
+能出门见人，我觉得不算赢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zz_hina  
+##### 22072#       发表于 2021-7-31 00:04
+
+
+真跟苔姨出去了是没想到的
+
+
+*****
+
+####  rosevalley46  
+##### 22073#       发表于 2021-7-31 00:05
+
+
+这个年龄又不是富家出身你指望她吃啥,怀石么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 22074#       发表于 2021-7-31 00:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">srds，这顿饭应该算是苔苔约的吧，苔苔这不请你咩姐恰顿好的吗（
+
+
+*****
+
+####  T_Hb  
+##### 22075#       发表于 2021-7-31 00:08
+
+
+请你麻吃大份牛丼，至福<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22076#       发表于 2021-7-31 00:10
+
+
+那这衣服有可能是通过犬山的人脉去联系 然后完事后请犬山吃饭也说不定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 22077#       发表于 2021-7-31 00:12
+
+
+ 本帖最后由 2014720 于 2021-7-31 00:14 编辑 
+
+苔苔不是那种吃饭去银座的人吗，不知道乡下土妹怎么就突然提起勇气跟她吃饭去了
+
+又不知道她给麻麻怎么教育人生了，姨化进城**加速了
+
+
+*****
+
+####  T_Hb  
+##### 22078#       发表于 2021-7-31 00:12
+
+
+我觉得应该不是，好多小V也有找那家店出衣服，关注列表里没有犬山，倒是有tomari
+
+
+*****
+
+####  GRMeA104  
+##### 22079#       发表于 2021-7-31 00:17
+
+
+ 本帖最后由 GRMeA104 于 2021-7-31 00:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52174935&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-31 00:03</a>
+
+这其实应该算是之前舞元联动时候就约好了的罢，不过苔苔怎么没像直播里说的一样也叫上舞元啊（ ...</blockquote>
+说不定舞元去了没有说而已<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+不过yysy,这几天东京疫情绝赞upup,你麻还敢出去约饭局是不是已经被姨们同化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22080#       发表于 2021-7-31 00:19
+
+
+不过看了一下推特的疫情 哎 只能说注意安全了
+
+
+
+
+*****
+
+####  路人庚  
+##### 22081#       发表于 2021-7-31 00:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实她这种打工遇到困难都要找苔苔打电话哭诉的人现在才线下跟苔苔约饭本来就已经是很稀奇的事了不过看苔苔没怎么提及你咩姐外貌特征的描述估计平时应该也是有过视频或者发过自拍来着（毕竟之前也说过你咩姐晒过牙齿的照片
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过虽然苔苔没提及但我怀疑参加这个饭局的肯定不会只有你咩姐汗苔苔两个人
+
+
+*****
+
+####  T_Hb  
+##### 22082#       发表于 2021-7-31 00:20
+
+
+想看咩宝的烂牙
+
+
+*****
+
+####  呓亘  
+##### 22083#       发表于 2021-7-31 00:31
+
+
+肯定不会只有两人 说不定到时搞个七十二疑麻
+
+
+*****
+
+####  呓亘  
+##### 22084#       发表于 2021-7-31 00:37
+
+
+原来是昨天去的啊...
+
+
+                                                

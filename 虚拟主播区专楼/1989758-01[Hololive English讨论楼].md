@@ -17825,3 +17825,23 @@ The bus drivers on the job
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1156#       发表于 2021-7-31 00:26
+
+
+✧・ﾟ:*NEW COVER SONG PREMIERE*:・ﾟ✧ 
+
+Envy Baby - English Cover
+by Calliope Mori
+
+“You are a prisoner, a low thing, loathing.”
+
+✧・ﾟ7.31 Premiere・ﾟ✧
+23:00 JST  /  7:00am PDT / 15:00 BST
+<img src="https://p.sda1.dev/2/fce31c1045dab42e8fe2ee8336e22dea/IMG_CMP_124539692.jpeg" referrerpolicy="no-referrer">
+
+
+                                                 
