@@ -8702,3 +8702,16 @@ CJ居然有试玩吗，期待坛友感想<img src="https://static.saraba1st.com/
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2143#         楼主| 发表于 2021-7-31 01:41
+
+
+https://youtu.be/K_75MrrznnY
+奥尔芬对奇莎兰说：你的名字没有姓氏？听起来像是达纳人会有的名字。
+希侬也没有姓氏（至少没公布），会不会有什么深意……<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+                                                 
