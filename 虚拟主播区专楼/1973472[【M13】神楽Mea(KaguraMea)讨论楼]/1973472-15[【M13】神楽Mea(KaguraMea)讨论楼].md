@@ -11108,3 +11108,102 @@ bs的照片，你麻算是廋的，现在估计都胖了，是肥婆了  肥�
 
 
                                                  
+
+*****
+
+####  hjcxiaowo  
+##### 22039#       发表于 2021-7-30 19:20
+
+
+这联动衣服是女装是吗 还好贵啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22040#       发表于 2021-7-30 19:22
+
+
+ 本帖最后由 T_Hb 于 2021-7-30 19:30 编辑 
+
+有点偏女款，联动的favorite是个管人潮牌，都是这个价，确实有点贵<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22041#       发表于 2021-7-30 19:55
+
+
+ 本帖最后由 T_Hb 于 2021-7-30 20:00 编辑 
+
+bsyl
+<img src="https://p.sda1.dev/2/3e355248679540a18e78d2935b3589c1/IMG_CMP_149642156.jpeg" referrerpolicy="no-referrer">
+
+够保底了
+
+
+*****
+
+####  路人庚  
+##### 22042#       发表于 2021-7-30 19:55
+
+
+看来预约数是达标了，希望之后能把尺码更新一下多来几种尺寸的
+
+
+*****
+
+####  T_Hb  
+##### 22043#       发表于 2021-7-30 19:56
+
+
+ 本帖最后由 T_Hb 于 2021-7-30 20:18 编辑 
+
+分尺码还要统计，我看你麻肯定会嫌麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+反正她自己穿得下，就没人穿不下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+明天这个月最后一播
+
+
+*****
+
+####  路人辰  
+##### 22044#       发表于 2021-7-30 20:16
+
+
+20210730东京21点
+
+<img src="https://img.saraba1st.com/forum/202107/30/201605pbjjvk0b04bjbd6v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>141B1D47-A172-4946-9809-0440A58C9131.jpeg</strong> (168.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 20:16 上传
+
+
+*****
+
+####  路人庚  
+##### 22045#       发表于 2021-7-30 20:18
+
+
+等fleet功能停了之后该找个时间把你咩姐发过的全部fleet打包整理一下了（可惜前面2、3个月的因为没意识到字幕组也会删fleet就没存，估计需要一些时间才能尽量收集完了
+
+
+*****
+
+####  往世雷书  
+##### 22046#       发表于 2021-7-30 20:37
+
+
+这波是慈母粉战胜了严父粉<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

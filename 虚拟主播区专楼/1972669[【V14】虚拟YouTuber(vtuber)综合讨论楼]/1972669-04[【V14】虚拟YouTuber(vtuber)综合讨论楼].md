@@ -10037,3 +10037,284 @@ Screenshot_20210730-181531_1.jpg
 
 
                                                  
+
+*****
+
+####  qq845629713  
+##### 5358#       发表于 2021-7-30 18:49
+
+
+【にじさんじ公式チャンネル メンバーシップについて】
+
+
+先ほどから、にじさんじ公式YouTubeチャンネルのメンバーシップが一時停止状態になっております。
+
+現在原因の調査・対応を行っていますので、今しばらくお待ちください。
+
+
+好阿，404你做的好阿！，正义出拳，干碎enkr
+
+
+*****
+
+####  gaiadc  
+##### 5359#       发表于 2021-7-30 19:05
+
+
+ssk竟然正面回应了
+
+
+*****
+
+####  lhawp  
+##### 5360#       发表于 2021-7-30 19:05
+
+
+熊猫人是真的刚
+
+
+*****
+
+####  西瓜爆裂  
+##### 5361#       发表于 2021-7-30 19:06
+
+
+真就维阿jp啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 5362#       发表于 2021-7-30 19:07
+
+
+说啥了，照顾一下加班楼友啊
+
+
+*****
+
+####  Suny08  
+##### 5363#       发表于 2021-7-30 19:07
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/190728zmy0se10ygxe1xim.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>BC6D4EDC-22EE-4017-8854-11E04543B168.jpeg</strong> (340.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 19:07 上传
+
+
+*****
+
+####  gaiadc  
+##### 5364#       发表于 2021-7-30 19:08
+
+
+弹幕让ssk学婴儿叫来证明一下草
+
+
+*****
+
+####  霜浪  
+##### 5365#       发表于 2021-7-30 19:11
+
+
+ssk真的pro
+
+
+*****
+
+####  alcoholic1000  
+##### 5366#       发表于 2021-7-30 19:11
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-30 19:45 编辑 
+
+说啥了，照顾一下没看的楼友
+
+Syl，葛king3.0什么时候发
+
+
+大概看了，这种说法我个人觉得可以接受，但也亏得是笹木キッズ没有特别武德充沛
+
+
+Zsyl，千歳ルートになりそうね<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  qq845629713  
+##### 5367#       发表于 2021-7-30 19:13
+
+
+ 本帖最后由 qq845629713 于 2021-7-30 19:15 编辑 
+
+等KING想换港区大别野的时候就发了；
+
+我看的repo大概是和KING的说法差不多，没有绝对否定，也死不承认，主
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| OldGlory| + 1|怎么打字打一半，急死我得了|
+
+
+查看全部评分
+
+
+*****
+
+####  sonyjam  
+##### 5368#       发表于 2021-7-30 19:23
+
+
+有没有正面回应的repo啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 5369#       发表于 2021-7-30 19:24
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/192419bn0x3rrrf30vdyv0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210730-192255.jpg</strong> (220.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-30 19:24 上传
+
+
+😯
+
+
+*****
+
+####  霜浪  
+##### 5370#       发表于 2021-7-30 19:33
+
+
+🐝这个就觉得她脑子不太好，彩虹主流都是上进直播抱团的，只有兔头那个级别能solo，这一边想从虹引流一方又不好好当liver，也不会处理人际关系，社里怎么会放心推她<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  空集  
+##### 5371#       发表于 2021-7-30 19:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要歌势够多，然后别人都唱歌外各种社宠人脉
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  SuntoryNomu  
+##### 5372#       发表于 2021-7-30 19:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer"> 成濑鸣这推文引来一群什么牛鬼蛇神。
+
+
+*****
+
+####  poipanchao  
+##### 5373#       发表于 2021-7-30 19:40
+
+
+小蜜蜂自己同期都都不熟，确实不知道她在干什么……
+
+king倒是给面子提过她不少次
+
+
+*****
+
+####  noHentai  
+##### 5374#       发表于 2021-7-30 19:41
+
+
+[https://www.youtube.com/watch?v=fQ8wPkfEe6g&amp;pp=sAQA](https://www.youtube.com/watch?v=fQ8wPkfEe6g&amp;pp=sAQA)
+<img src="https://p.sda1.dev/2/46eb28f7f3015bf0d4c197ade4233080/image.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 5375#       发表于 2021-7-30 20:02
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-30 20:30 编辑 
+
+bora开了，原来还认识met啊
+
+原因就是压力过大，身体状况也不太好，现在好多了，就是帯状疱疹...
+
+Syl，黑黑频道虽然没有官方运营在做事情，但問い合わせ先联系方还是彩虹
+
+
+*****
+
+####  IDIDIDID  
+##### 5376#       发表于 2021-7-30 20:09
+
+
+有没有🌈前10讲一下sakuyui频道是不是和黑黑一样不归田角管啊
+
+
+*****
+
+####  qq845629713  
+##### 5377#       发表于 2021-7-30 20:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> bora这是拿笔记本播的吧，这直播环境堪忧阿
+
+
+*****
+
+####  FCCHua  
+##### 5378#       发表于 2021-7-30 20:11
+
+
+喷了，crossick能不能来个情侣频道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然不是全职主播根本没戏...
+
+
+*****
+
+####  winda  
+##### 5379#       发表于 2021-7-30 20:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真卖姬翻车下场详见山神
+syl 小蜜蜂这心就没放在彩虹上吧，彩虹是工作，自己本账才是要追音乐梦的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真飞鸟i  
+##### 5380#       发表于 2021-7-30 20:33
+
+
+<img src="https://p.sda1.dev/2/038c681610c117afedd2131834aa9ef9/-7307cb4d1aac61a1.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+                                                
