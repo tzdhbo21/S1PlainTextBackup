@@ -11264,3 +11264,16 @@ bsyl
 
 
                                                 
+
+*****
+
+####  往世雷书  
+##### 22052#       发表于 2021-7-30 21:35
+
+
+一个合格的组织怎能没有统一服装呢，这是增加归属感和集体荣誉感的重要手段<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
