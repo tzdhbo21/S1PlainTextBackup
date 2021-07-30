@@ -11207,3 +11207,60 @@ bsyl
 
 
                                                  
+
+*****
+
+####  呓亘  
+##### 22047#       发表于 2021-7-30 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52171071&amp;ptid=1973472" target="_blank">往世雷书 发表于 2021-7-30 20:37</a>
+
+这波是慈母粉战胜了严父粉
+
+
+—— 来自 S1Fun</blockquote>
+啥意思 没懂
+
+
+*****
+
+####  呓亘  
+##### 22048#       发表于 2021-7-30 20:49
+
+
+啊 原来7月有31天 我傻了
+
+
+*****
+
+####  T_Hb  
+##### 22049#       发表于 2021-7-30 20:51
+
+
+一派主张赶紧预约给她衣服凑够保底
+
+另一派主张一件也不预约，等她开直播哭了再预约<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rosevalley46  
+##### 22050#       发表于 2021-7-30 21:25
+
+
+我感觉衣服还是11区粉丝会订的多一些吧
+
+
+
+
+*****
+
+####  2014720  
+##### 22051#       发表于 2021-7-30 21:25
+
+
+别乱说，是你麻自己掏钱付了成本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                

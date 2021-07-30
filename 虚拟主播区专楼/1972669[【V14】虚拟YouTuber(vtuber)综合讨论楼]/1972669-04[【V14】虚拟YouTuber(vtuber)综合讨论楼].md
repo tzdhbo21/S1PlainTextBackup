@@ -10318,3 +10318,41 @@ syl 小蜜蜂这心就没放在彩虹上吧，彩虹是工作，自己本账才�
 
 
                                                 
+
+*****
+
+####  alcoholic1000  
+##### 5381#       发表于 2021-7-30 21:05
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-30 21:28 编辑 
+
+Bsyl
+
+【前日特番】にじさんじ AR STAGE “LIGHT UP TONES” 開催前日特別番組
+[https://www.youtube.com/watch?v=yBYMHMKVai4](https://www.youtube.com/watch?v=yBYMHMKVai4)
+
+Syl，king这发型也太狂了什么时候的<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  海洋队手下mayo  
+##### 5382#       发表于 2021-7-30 21:16
+
+
+ 本帖最后由 海洋队手下mayo 于 2021-7-30 21:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好MKR够聪明，早前拒绝了虹的几次邀请。不然可能真就经典复刻了
+
+
+*****
+
+####  qq845629713  
+##### 5383#       发表于 2021-7-30 21:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 葛西莉好温馨，10w家族那种演出来的根本没意思，KING感觉好久没有这么开心的笑了，
+
+
+                                                 

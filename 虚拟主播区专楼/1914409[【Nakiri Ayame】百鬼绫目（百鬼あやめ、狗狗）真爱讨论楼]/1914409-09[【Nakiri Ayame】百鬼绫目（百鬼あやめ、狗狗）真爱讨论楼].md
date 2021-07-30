@@ -9246,3 +9246,52 @@ syl 我佛了 这次怎么连贴图都不上了
 
 
                                                  
+
+*****
+
+####  cctvyt1  
+##### 12799#       发表于 2021-7-30 20:57
+
+
+出现了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fami水  
+##### 12800#       发表于 2021-7-30 20:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这谜语人 虽然是录播 你要努力个什么劲啊
+
+
+*****
+
+####  nian1538  
+##### 12801#       发表于 2021-7-30 20:59
+
+
+努力不在直播时打lol
+
+
+*****
+
+####  一仙  
+##### 12802#       发表于 2021-7-30 21:01
+
+
+没白等 唱跳的绫还是可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cctvyt1  
+##### 12803#       发表于 2021-7-30 21:20
+
+
+绫总只有3D动起来才可爱
+
+平时就是坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+                                                 
