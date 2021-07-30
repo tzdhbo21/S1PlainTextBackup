@@ -8542,3 +8542,28 @@ DLC服装在剧情过场中的截图
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2130#         楼主| 发表于 2021-7-30 11:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52159191&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-30 08:21</a>
+
+DLC服装在剧情过场中的截图</blockquote>
+选曲基本都是每部作品初期的战斗曲、后期的战斗曲和头目战斗曲。有48首这样的经典曲目可以换着用，想想都激动（PC 暂时除外😅）
+
+
+
+
+*****
+
+####  zero12  
+##### 2131#       发表于 2021-7-30 11:25
+
+
+cj上真的有试玩
+
+
+                                                

@@ -7080,3 +7080,56 @@ Abandoned Realtime Experience App除了日本和中国外都出了。里面目�
 
 
                                                  
+
+*****
+
+####  byisme001  
+##### 545#       发表于 2021-7-30 10:50
+
+
+<blockquote>luoyianwu 发表于 2021-7-30 09:41
+Abandoned Realtime Experience App除了日本和中国外都出了。里面目前是空的，第一个trailer八月十号配信
+
+ ...</blockquote>
+有没有那个试玩版的图，目前进去是什么样的
+
+
+*****
+
+####  医生狼多  
+##### 546#       发表于 2021-7-30 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52160077&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-7-30 09:41</a>
+Abandoned Realtime Experience App除了日本和中国外都出了。里面目前是空的，第一个trailer八月十号配信
+
+ ...</blockquote>
+那可以蹲一下8.6
+
+
+*****
+
+####  luoyianwu  
+##### 547#       发表于 2021-7-30 11:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52161098&amp;ptid=2010295" target="_blank">byisme001 发表于 2021-7-30 10:50</a>
+
+有没有那个试玩版的图，目前进去是什么样的</blockquote>
+让选语言，选完跳一行coming soon，没了
+
+有人试着输了konami code，没有鸟用
+
+
+*****
+
+####  luoyianwu  
+##### 548#       发表于 2021-7-30 11:15
+
+
+<img src="https://p.sda1.dev/2/8886f5fe846a908419ccb8b1a1f9b9bf/blue.png" referrerpolicy="no-referrer">
+
+今日份蓝色窗帘
+
+
+                                                 
