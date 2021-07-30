@@ -3424,3 +3424,44 @@ Steam地址：[https://store.steampowered.com/app/1622100/](https://store.steamp
 
 
                                                  
+
+*****
+
+####  白左  
+##### 253#       发表于 2021-7-30 08:04
+
+
+<blockquote>雾wu 发表于 2021-7-8 19:57
+通关了，感受实在是难以描述，这个故事过于疯狂，过于浪漫，以至于我在看了一遍解析后才敢确认自己对剧情 ...</blockquote>
+可以理解为, 这里的星球和恒星这么小就能达到流体静力平衡, 四眼们的宇宙常数和我们应该是不一样的, 表现为引力作用更强, 强作用力可能更弱, 更容易发生聚变反应, 因此引发临界坍缩时速度应该也更快
+
+
+并且由于坍缩触发进程的加快, 在新星或者超新星爆发之前, 甚至不一定有时间膨胀为红巨星, 就直接爆了
+
+
+上面都是我编的我编不下去了
+
+
+*****
+
+####  Dgnic_  
+##### 254#       发表于 2021-7-30 09:08
+
+
+来了来了！好突然！
+
+
+*****
+
+####  Dgnic_  
+##### 255#       发表于 2021-7-30 09:15
+
+
+There's more to explore here. Coming to PS4, Xbox One, Steam, and Epic Games Store on September 28th. Wishlist on Steam now: https://store.steampowered.com/app/16...​
+
+A strange satellite photo that can’t be explained. A new museum exhibit that marks the trailhead for one last journey into the wilds. Should you pull at the thread and unravel the solar system’s deepest secret, or is some knowledge better left in the dark?
+
+Developed by MOBIUS DIGITAL. Published by Annapurna Interactive.
+
+
+                                                 

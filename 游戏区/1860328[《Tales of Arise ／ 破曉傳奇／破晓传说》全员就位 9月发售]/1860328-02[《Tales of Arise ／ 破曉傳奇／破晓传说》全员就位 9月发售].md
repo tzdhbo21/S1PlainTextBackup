@@ -8394,3 +8394,128 @@ grade砍掉很正常
 
 
                                                  
+
+*****
+
+####  金子一马  
+##### 2125#       发表于 2021-7-30 08:01
+
+
+还是喜欢直接对话，如果说要改进的话，也希望可以边走边对话。而不是搞这种无聊的演出浪费时间
+
+
+*****
+
+####  qiyu1234  
+##### 2126#       发表于 2021-7-30 08:21
+
+
+DLC服装在剧情过场中的截图
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/082001kloqzxzpfa66ajag.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (330.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 08:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/082002omodjjdj9omj9mjd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (673.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 08:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/082002zx25meoqtd6c2uc7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (267.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 08:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/082003tb9y9tsooq9qszqz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4.jpg</strong> (302.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 08:20 上传
+
+
+另外，昨天也公布了BGM包内收录的旧作战斗曲，我是觉得有点微妙，因为每作挑三首的话，有些我很喜欢的没收录进去
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/082003b6oqncni6x9e0d1o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5.JPG</strong> (276.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 08:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/082003b2ygthz2ytkkkkhy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6.JPG</strong> (258.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 08:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/082003kqul6nnlq27yymn1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>7.JPG</strong> (220.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 08:20 上传
+
+
+*****
+
+####  qiyu1234  
+##### 2127#       发表于 2021-7-30 08:34
+
+
+ 本帖最后由 qiyu1234 于 2021-7-30 09:14 编辑 
+
+另外，昨天也确认了主线场景全语音，部分支线会有类似嗯嗯啊啊的语气词，小剧场和战斗是全语音的
+
+
+战斗系统过往会有XX-LMBS的名称，但本作由于考虑到新玩家入坑会有疑惑和理解困难，所以没有定义新系统的名称，当然虽然可以全场自由跑动了，本质是LMBS的发展变体这点没变
+
+
+收集文物的系统替代了战斗评价的GRADE（二周目继承要素），目的是只要收集齐了就行，不需要玩家在战斗上有额外压力
+
+
+本作为单世界观一作完结，跟 X X2 以及 Z B 这种连续作不同，也没有DLC补充剧情
+
+
+非可用角色CV仍然有大物未公布
+
+
+结局好坏这个自然不能透露，但是富泽表示是会让玩家有好的读后感的感觉
+
+
+有自动保存
+
+
+斗技场要素仍然存在，也会有过往客串角色，敬请期待
+
+
+                                                 
