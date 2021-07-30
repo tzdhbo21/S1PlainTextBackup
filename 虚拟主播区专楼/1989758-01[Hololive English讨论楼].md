@@ -17845,3 +17845,39 @@ by Calliope Mori
 
 
                                                  
+
+*****
+
+####  smy20011  
+##### 1157#         楼主| 发表于 2021-7-31 05:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52175138&amp;ptid=1989758" target="_blank">wiig 发表于 2021-7-31 00:26</a>
+
+✧・ﾟ:*NEW COVER SONG PREMIERE*:・ﾟ✧ 
+
+
+Envy Baby - English Cover</blockquote>
+死神不睡觉的么。。
+
+
+*****
+
+####  smy20011  
+##### 1158#         楼主| 发表于 2021-7-31 06:23
+
+
+<img src="https://img.saraba1st.com/forum/202107/31/062345ww9gcqs5yiqryciq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E6pNp_-VcAAqAm-.jpeg</strong> (158.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-31 06:23 上传
+
+
+[https://twitter.com/haruki_3679/status/1417046554259693572](https://twitter.com/haruki_3679/status/1417046554259693572)
+
+
+                                                 
