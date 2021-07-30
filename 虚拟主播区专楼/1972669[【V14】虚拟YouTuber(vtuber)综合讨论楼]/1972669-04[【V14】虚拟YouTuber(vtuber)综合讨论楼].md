@@ -9753,3 +9753,118 @@ syl hnn多少次醒来就跑kamito那里去了，差点错过<img src="https://s
 
 
                                                  
+
+*****
+
+####  LilighT  
+##### 5335#       发表于 2021-7-30 16:34
+
+
+看推也没人没人炎,只能今晚甲子园看看佐佐木女士有几个嘎起了
+
+
+*****
+
+####  gaiadc  
+##### 5336#       发表于 2021-7-30 16:36
+
+
+ 本帖最后由 gaiadc 于 2021-7-30 16:48 编辑 
+
+这声明也没说对方是不是啊
+
+啊，看到说是“第三者”了
+
+
+*****
+
+####  qq845629713  
+##### 5337#       发表于 2021-7-30 16:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这又是企业、又是vtuber的，不就等于变相实锤了声音是笹木的么，而且那声音又不是直播的声音，你还怎么解释？
+
+
+这不就等于官宣了么？
+
+
+*****
+
+####  hulaoda007  
+##### 5338#       发表于 2021-7-30 17:13
+
+
+   变相官宣？这不就是官宣官宣嘛。
+  简单总结就是“对不起，但是真的。”
+  就是可惜我的谁熊猫，熊猫熊猫kids，ysss，sakuyui，rrsk，田角一咲很倾城都没了。
+  以后是mkst的天下了...
+
+
+*****
+
+####  IDIDIDID  
+##### 5339#       发表于 2021-7-30 17:19
+
+
+葵皇赶紧的！😭
+
+
+*****
+
+####  qq845629713  
+##### 5340#       发表于 2021-7-30 17:27
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/172611pekqi991z9lq8e4l.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210730172520.png</strong> (53.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 17:26 上传
+
+
+哈哈哈哈哈哈，哈哈哈哈哈哈，
+
+
+直女卖姬，田角这把人逼到什么份上了，凭牛嘞
+
+
+
+
+*****
+
+####  rzrbtk  
+##### 5341#       发表于 2021-7-30 17:28
+
+
+太及时了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">！
+省一楼，月之曾经是跷家艺术生，化了妆也算可爱，有过男朋友太正常了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 5342#       发表于 2021-7-30 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52167532&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-7-30 17:27</a>
+
+哈哈哈哈哈哈，哈哈哈哈哈哈，
+
+
+直女卖姬，田角这把人逼到什么份上了，凭牛嘞</blockquote>
+属于是gamers特色菜了捏<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CAserlumos  
+##### 5343#       发表于 2021-7-30 17:29
+
+
+那边发公告这边百合营业，乐了
+
+
+                                                
