@@ -10805,3 +10805,235 @@ bs的照片，你麻算是廋的，现在估计都胖了，是肥婆了  肥�
 
 
                                                  
+
+*****
+
+####  T_Hb  
+##### 22011#       发表于 2021-7-30 14:41
+
+
+为什么默认别人是事业民呢，说不定就想看整活呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">  整活整活
+
+
+*****
+
+####  往世雷书  
+##### 22012#       发表于 2021-7-30 14:42
+
+
+ 本帖最后由 往世雷书 于 2021-7-30 14:46 编辑 
+
+希望数据好让她高兴的事业民，和希望数据差让她受刺激的暗黑事业民，都省省吧，庄司是那种想干的事被说不喜欢可能会收敛一下，不想干的事被跪下求着都不干的人<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yywzjsw  
+##### 22013#       发表于 2021-7-30 14:43
+
+
+屠龙者、下面不用在说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+今晚期待个苦情歌连唱姬<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22014#       发表于 2021-7-30 14:45
+
+
+ 本帖最后由 T_Hb 于 2021-7-30 14:48 编辑 
+
+那我奶一口今天摸爆，连推都不发一条<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我当然说的是今天接下来的时间里
+
+
+*****
+
+####  yywzjsw  
+##### 22015#       发表于 2021-7-30 14:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52164767&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-30 14:45</a>
+
+那我奶一口今天摸爆，连推都不发一条</blockquote>
+今天已经发过了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 22016#       发表于 2021-7-30 14:50
+
+
+那我奶口马上tc<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22017#       发表于 2021-7-30 14:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52164719&amp;ptid=1973472" target="_blank">往世雷书 发表于 2021-7-30 14:42</a>
+
+希望数据好让她高兴的事业民，和希望数据差让她受刺激的暗黑事业民，都省省吧，庄司是那种想干的事被说不喜 ...</blockquote>
+我是希望他早日躺平别做梦，谁都知道这人什么尿性，好像来S1M楼整天BB整活就能整一样
+
+
+难听点累的也不是他一个轴不会打pre不会开ae不会用的人去搞剪辑搞后期，日语听不懂同传不见人整天只会做梦，我看着是挺烦的
+
+
+更别提现在就算是有所谓【整活】，按我估计也就是个安抚老粉的屌用，仅此而已
+
+
+我对她事业态度向来就一个字，哪天真烂了急的也不该是我或者粉丝，到现在这种局面主播自己去做什么可比粉丝累死累活搞些没人看的东西有用多了，仅此而已
+
+
+*****
+
+####  yywzjsw  
+##### 22018#       发表于 2021-7-30 14:58
+
+
+总结，找个人嫁了、<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">了事
+
+
+*****
+
+####  yywzjsw  
+##### 22019#       发表于 2021-7-30 14:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52165017&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-7-30 14:58</a>
+
+总结，找个人嫁了、了事</blockquote>
+大家都有光名的未来
+
+
+*****
+
+####  Klience  
+##### 22020#       发表于 2021-7-30 15:06
+
+
+101民只有光明和血压<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  路人庚  
+##### 22021#       发表于 2021-7-30 15:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐不播就会安排，我还以为早就习惯了
+
+
+*****
+
+####  时间在我手中  
+##### 22022#       发表于 2021-7-30 15:13
+
+
+这都要生日了还几把弱智安排，我只能说看不懂气氛
+
+
+有这个时间抱怨滚去学点pre剪辑打轴都好，看看现在海盗肉数量吧
+
+
+*****
+
+####  T_Hb  
+##### 22023#       发表于 2021-7-30 15:17
+
+
+ 本帖最后由 T_Hb 于 2021-7-30 15:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我还等着可爱的新衣服呢，不会是粉的吧
+
+
+*****
+
+####  时间在我手中  
+##### 22024#       发表于 2021-7-30 15:19
+
+
+说不定就是草莓饺子家用DDD而已，希望猪蹄这块做好点<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22025#       发表于 2021-7-30 15:20
+
+
+能不能来回家用3D歌回啊，买了不用多浪费<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 22026#       发表于 2021-7-30 15:21
+
+
+那我想看偶像服的ddd
+
+
+*****
+
+####  雪风utopia  
+##### 22027#       发表于 2021-7-30 15:38
+
+
+能不能来点新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 22028#       发表于 2021-7-30 16:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52165606&amp;ptid=1973472" target="_blank">雪风utopia 发表于 2021-7-30 15:38</a>
+能不能来点新衣服</blockquote>
+新衣和生日放一起是损失啊，两次收钱机会
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 22029#       发表于 2021-7-30 16:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是这个人就是不会捞钱的类型啊
+
+
+*****
+
+####  Klience  
+##### 22030#       发表于 2021-7-30 16:08
+
+
+新衣服不是有了吗（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22031#       发表于 2021-7-30 16:27
+
+
+啊，忽然看到lisa老公好像是出轨了的消息了，一年前我还在为这段剪辑绞尽脑汁呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像吊人那会儿说的是用过lisa老公配音过的drama当配菜吧
+
+#神乐mea勾引有妇之夫（x）
+
+
+                                                
