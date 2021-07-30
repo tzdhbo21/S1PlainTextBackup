@@ -11247,3 +11247,38 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 80377#       发表于 2021-7-30 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52157750&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-29 10:36</a>
+
+有个说法我比较同意，就算是BUG，估计也是因为动了兽这方面的代码导致了这几个兽的图像出现BUG。当然，这 ...</blockquote>
+就是bug,一点深意都没有，同样有显示问题的平景清也修好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80378#       发表于 2021-7-30 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52172702&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-7-30 21:36</a>
+
+就是bug,一点深意都没有，同样有显示问题的平景清也修好了</blockquote>
+哈哈哈哈哈哈，就是想多了，不过毕竟希望提妈落地，有机会肯定奶一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80379#       发表于 2021-7-30 22:21
+
+
+礼装暂时是迦莫、鹤小姐和杨贵妃之间3选2.
+
+
+                                                 
