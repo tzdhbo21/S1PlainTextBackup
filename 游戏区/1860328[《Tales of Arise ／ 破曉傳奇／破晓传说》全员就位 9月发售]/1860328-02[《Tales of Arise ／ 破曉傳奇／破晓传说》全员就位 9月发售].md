@@ -8599,3 +8599,40 @@ cj上真的有试玩
 
 
                                                  
+
+*****
+
+####  57042711  
+##### 2135#       发表于 2021-7-30 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52159304&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-30 08:34</a>
+另外，昨天也确认了主线场景全语音，部分支线会有类似嗯嗯啊啊的语气词，小剧场和战斗是全语音的
+
+
+战斗系统 ...</blockquote>
+过往角色好评啊，看是哪几个幸运儿能先体验新引擎了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  蓝雉  
+##### 2136#       发表于 2021-7-30 13:22
+
+
+<img src="https://img.saraba1st.com/forum/202107/30/132203pxxiqnzr3j9b14ex.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210730132149.png</strong> (62.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-30 13:22 上传
+
+
+话说这里希侬说话语气超担心奥尔芬的,无形的糖啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

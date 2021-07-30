@@ -3476,3 +3476,46 @@ Developed by MOBIUS DIGITAL. Published by Annapurna Interactive.
 
 
                                                  
+
+*****
+
+####  雾wu  
+##### 257#       发表于 2021-7-30 12:38
+
+
+ 本帖最后由 雾wu 于 2021-7-30 12:51 编辑 
+
+期待<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+看简介几大谜题还是一样，主角也是同一个人，然而又出现了非挪麦风格的建筑，难道是平行世界？<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+dlc实机片段[【星际拓荒】DLC：眼之回响 已放出片段_单机游戏热门视频 (bilibili.com)](https://www.bilibili.com/video/BV1K64y1x7zm?from=search&amp;seid=5713103364261989114)
+
+
+*****
+
+####  Dgnic_  
+##### 258#       发表于 2021-7-30 12:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52162888&amp;ptid=1992654" target="_blank">雾wu 发表于 2021-7-30 12:38</a>
+
+期待
+
+看简介几大谜题还是一样，主角也是同一个人，然而又出现了非挪麦风格的建筑，难道是平行世界？ ...</blockquote>
+<img src="https://s1.imagehub.cc/images/2021/07/30/_202107301251486a3582d5cf52cbff.png" referrerpolicy="no-referrer">
+
+
+看预告出现了日食，是新的星球突然出现了？
+
+
+*****
+
+####  lushark  
+##### 259#       发表于 2021-7-30 12:55
+
+
+好消息：终于来了；坏消息：要等俩月……
+
+
+                                                 
