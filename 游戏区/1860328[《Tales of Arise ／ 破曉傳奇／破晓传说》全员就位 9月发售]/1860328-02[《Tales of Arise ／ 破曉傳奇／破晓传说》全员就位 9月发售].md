@@ -8567,3 +8567,35 @@ cj上真的有试玩
 
 
                                                 
+
+*****
+
+####  センチ  
+##### 2132#       发表于 2021-7-30 11:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道这次CJ玩得到吗
+
+疫情一搞 应该人会少点吧
+
+
+*****
+
+####  医生狼多  
+##### 2133#       发表于 2021-7-30 11:52
+
+
+看到群友拍的demo试玩情况，慕了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 2134#       发表于 2021-7-30 12:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">demo是之前媒体试玩那段吗
+还是说有新的
+
+
+                                                 
