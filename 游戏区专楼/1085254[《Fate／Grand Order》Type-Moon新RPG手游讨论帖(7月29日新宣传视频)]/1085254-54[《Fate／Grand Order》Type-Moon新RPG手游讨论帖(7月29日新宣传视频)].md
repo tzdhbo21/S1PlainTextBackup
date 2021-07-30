@@ -11158,3 +11158,20 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 80370#       发表于 2021-7-30 09:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52157574&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-29 10:17</a>
+
+难道不是明年上半年开2.65，下半年开2.7，2023年开2.75再接终章吗？
+
+
+----发送自 STAGE1 App for A ...</blockquote>
+2.6这都掰三瓣了，2.7少说得掰4瓣，后面再接2.75 2.76 2.77 2.78 2.79断章，拖到10周年再进终章不是梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

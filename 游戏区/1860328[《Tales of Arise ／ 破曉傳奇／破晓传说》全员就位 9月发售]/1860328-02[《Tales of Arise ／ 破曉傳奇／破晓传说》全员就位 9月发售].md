@@ -8519,3 +8519,26 @@ DLC服装在剧情过场中的截图
 
 
                                                  
+
+*****
+
+####  hugosol  
+##### 2128#       发表于 2021-7-30 09:51
+
+
+历代bgm每作只有三首也太少了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Guildenstern  
+##### 2129#       发表于 2021-7-30 10:14
+
+
+小剧场用动画表现力才强。二流日厂的3D演出根本指望不上。
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+                                                 

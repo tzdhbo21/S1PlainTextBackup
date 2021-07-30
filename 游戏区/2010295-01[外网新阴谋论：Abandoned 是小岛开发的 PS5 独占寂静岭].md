@@ -7037,3 +7037,46 @@ konami作品挨个来是吧，那我猜是魂斗罗：寂静岭
 
 
                                                  
+
+*****
+
+####  heseran  
+##### 542#       发表于 2021-7-30 09:25
+
+
+所以有新消息了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  luoyianwu  
+##### 543#       发表于 2021-7-30 09:41
+
+
+ 本帖最后由 luoyianwu 于 2021-7-30 09:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52159855&amp;ptid=2010295" target="_blank">heseran 发表于 2021-7-30 09:25</a>
+
+所以有新消息了吗
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+Abandoned Realtime Experience App除了日本和中国外都出了。里面目前是空的，第一个trailer八月十号配信
+
+这段时间可以关注看看索尼到底有没有要办PlayStation Experience，如果有的话就信心大增
+
+
+*****
+
+####  heseran  
+##### 544#       发表于 2021-7-30 10:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52160077&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-07-30 09:41:31</a>
+Abandoned Realtime Experience App除了日本和中国外都出了。里面目前是空的，第一个trailer八月十号配 ...</blockquote>绝了艹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+                                                 
