@@ -11175,3 +11175,50 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 80371#       发表于 2021-7-30 13:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天怎么有维护
+
+
+*****
+
+####  UNISONIA  
+##### 80372#       发表于 2021-7-30 13:14
+
+
+翻页
+
+
+2.6的相关访谈看起来2.7不太像是奈须自己操刀，不排除又是烟雾弹
+
+
+*****
+
+####  黑上シグマ  
+##### 80373#       发表于 2021-7-30 14:07
+
+
+翻页
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  UNISONIA  
+##### 80374#       发表于 2021-7-30 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52163351&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-30 13:12</a>
+
+今天怎么有维护</blockquote>
+妖兰的BUG修复（不知道会不会把图鉴的BUG修了
+
+
+                                                 

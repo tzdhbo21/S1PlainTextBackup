@@ -7133,3 +7133,38 @@ Abandoned Realtime Experience App除了日本和中国外都出了。里面目�
 
 
                                                  
+
+*****
+
+####  foyo  
+##### 549#       发表于 2021-7-30 13:47
+
+
+ 本帖最后由 foyo 于 2021-7-30 13:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52161574&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-7-30 11:15</a>
+
+今日份蓝色窗帘</blockquote>
+绝了，这真的不是岛哥哥在搞事么<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  920619lqy  
+##### 550#       发表于 2021-7-30 14:22
+
+
+<blockquote>luoyianwu 发表于 2021-7-29 21:15
+今日份蓝色窗帘</blockquote>
+完了呀，真的要MGS了吗
+
+
+*****
+
+####  Lamapocos  
+##### 551#       发表于 2021-7-30 14:28
+
+
+前段时间看到了就没关注了，没想到又浮上来了。不管怎么说这都是把营销玩明白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
