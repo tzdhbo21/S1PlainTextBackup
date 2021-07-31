@@ -2283,3 +2283,20 @@ https://www.youtube.com/watch?v=MIvfemYlECs</blockquote>
 
 
                                                  
+
+*****
+
+####  CHCL3  
+##### 156#       发表于 2021-7-31 12:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52177833&amp;ptid=2013210" target="_blank">flyfish 发表于 2021-7-31 11:21</a>
+最后藤本的建议完全打水漂了呀
+
+另外消极君的分镜讲故事能力比其他人高一个档次（可能不止
+
+ ...</blockquote>
+确实，消极的分镜是这几个人中最强的，表达故事的能力很强，整个故事十分易读，可能林就是看中了这一点
+
+
+                                                 
