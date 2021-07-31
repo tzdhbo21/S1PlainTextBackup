@@ -11316,3 +11316,115 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  黑上シグマ  
+##### 80383#       发表于 2021-7-31 17:38
+
+
+泳装9月wwwwww
+
+
+*****
+
+####  rooarr  
+##### 80384#       发表于 2021-7-31 17:39
+
+
+9月才泳装啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80385#       发表于 2021-7-31 17:40
+
+
+那么8月后面怎么办？活动复刻？
+
+
+*****
+
+####  rooarr  
+##### 80386#       发表于 2021-7-31 17:41
+
+
+泳装居然送小芬骑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 80387#       发表于 2021-7-31 17:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泳装小碧池 好耶
+
+
+*****
+
+####  exiaexa  
+##### 80388#       发表于 2021-7-31 17:54
+
+
+主线撑死俩周，还有俩周能塞啥就看明天了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rzxa  
+##### 80389#       发表于 2021-7-31 17:57
+
+
+月姬联动
+
+
+*****
+
+####  qixinno2  
+##### 80390#       发表于 2021-7-31 17:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52181938&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-31 17:54</a>
+
+主线撑死俩周，还有俩周能塞啥就看明天了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强化本 幕间本 狩猎本 或者2X00DL系列随便就能拖吧
+
+
+*****
+
+####  KOBI  
+##### 80391#       发表于 2021-7-31 18:02
+
+
+今年这是野外求生。。。？
+
+还是铁人三项什么的。。这种题材感觉不会有去年好玩啊
+
+
+*****
+
+####  khxooo  
+##### 80392#       发表于 2021-7-31 18:03
+
+
+月姬联动，5星狂阶公主<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80393#       发表于 2021-7-31 18:15
+
+
+ 本帖最后由 alucardcz 于 2021-7-31 18:16 编辑 
+
+今天居然有新消息？ 不是明天吗
+
+
+新泳装活动送泳装小碧池。。
+
+
+                                                 

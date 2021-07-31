@@ -12088,3 +12088,55 @@ BSYL，楼友认为一天不到没上厕所就是便秘这点是不是太不正�
 
 
                                                  
+
+*****
+
+####  呓亘  
+##### 22126#       发表于 2021-7-31 17:32
+
+
+桃铁还有几回啊
+
+
+*****
+
+####  呓亘  
+##### 22127#       发表于 2021-7-31 17:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52181550&amp;ptid=1973472" target="_blank">Cortana 发表于 2021-7-31 17:06</a>
+
+你楼19年4月26日发生啥了，一天盖了3100多楼，不会是打架吧？</blockquote>
+去翻了一下 没打架 纯弱智发散而已
+
+
+*****
+
+####  鷹書たかしょ  
+##### 22128#       发表于 2021-7-31 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52181550&amp;ptid=1973472" target="_blank">Cortana 发表于 2021-7-31 17:06</a>
+你楼19年4月26日发生啥了，一天盖了3100多楼，不会是打架吧？</blockquote>
+看了下，估计是讨论大亏B限
+
+
+*****
+
+####  T_Hb  
+##### 22129#       发表于 2021-7-31 17:50
+
+
+找了半天，放弃了，老实等歌出来
+
+
+*****
+
+####  GRMeA104  
+##### 22130#       发表于 2021-7-31 18:00
+
+
+大概今年11月能完结吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
