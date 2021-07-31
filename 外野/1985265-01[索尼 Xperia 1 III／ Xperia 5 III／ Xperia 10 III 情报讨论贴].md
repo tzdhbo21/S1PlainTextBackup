@@ -10542,3 +10542,37 @@ Xperia 1 III 系统更新
 
 
                                                  
+
+*****
+
+####  8400gs  
+##### 740#       发表于 2021-7-31 09:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52176065&amp;ptid=1985265" target="_blank">leystage 发表于 2021-7-31 07:06</a>
+
+港版昨天晚上发货了。不过看到好像这次台版价格和赠品都比港版实惠，下次可能要对比选择才好 ...</blockquote>
+好像没看到卖台版的？
+
+
+哪家在卖的
+
+
+*****
+
+####  leystage  
+##### 741#         楼主| 发表于 2021-7-31 09:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52176575&amp;ptid=1985265" target="_blank">8400gs 发表于 2021-7-31 09:08</a>
+
+好像没看到卖台版的？
+
+
+哪家在卖的</blockquote>
+对，就是因为没怎么看到，所以才说下次关注一下
+
+便宜和赠品指的是台湾那边索尼官方的消息
+
+
+                                                 
