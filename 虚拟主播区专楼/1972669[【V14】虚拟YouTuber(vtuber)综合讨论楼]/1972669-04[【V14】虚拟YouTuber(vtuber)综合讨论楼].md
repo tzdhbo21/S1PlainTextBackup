@@ -10725,3 +10725,117 @@ juvvel这种彻底失败的东西还能说的？我从没见过哪个唱歌组�
 
 
                                                  
+
+*****
+
+####  我不是很好  
+##### 5418#       发表于 2021-7-31 16:39
+
+
+astel的apex水平放到管人里怎么样？
+
+
+*****
+
+####  Suny08  
+##### 5419#       发表于 2021-7-31 16:51
+
+
+好像都是生唱，好几首走音有点厉害<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 5420#       发表于 2021-7-31 16:55
+
+
+ 本帖最后由 渡鸦骑士 于 2021-7-31 16:57 编辑 
+
+不过这时候反过来想想你虹能把日本的院线资源利用起来也蛮厉害的……照顾到防疫对策，让各地的人都能看到。还有一定的线下气氛。充分利用影院的音响效果和大屏幕。
+
+在电影院里开演唱会，有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 5421#       发表于 2021-7-31 16:57
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-31 17:28 编辑 
+
+音量平衡&gt;收音&gt;&gt;&gt;&gt;&gt;渲染&gt;灯光问题，该吊起来锤
+
+
+我现在对柴卡底裤的花样比什么都要熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">19（29）太骚气了
+
+<img src="https://img.saraba1st.com/forum/202107/31/170520eubb4o5mfrsnmbhy.png" referrerpolicy="no-referrer">
+
+
+<strong>「にじさんじ AR STAGE &amp;quot;LIGHT UP TONES”」DAY1-7.png</strong> (140.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-31 17:05 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/31/171251lomlwm1ygfkzvbd6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>「にじさんじ AR STAGE &amp;quot;LIGHT UP TONES”」DAY1-9.jpg</strong> (201.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-31 17:12 上传
+
+
+给二号梦追做了花屏掉帧马赛克特效，有心了...
+
+<img src="https://img.saraba1st.com/forum/202107/31/172259dzmj47ybm4y4zfl7.png" referrerpolicy="no-referrer">
+
+
+<strong>「にじさんじ AR STAGE &amp;quot;LIGHT UP TONES”」DAY1-10.png</strong> (127.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-31 17:22 上传
+
+
+这女人帅死了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+这就是主流出道的台风，太帅了,流石社霸，我的龙<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 
+
+唱功可能稍逊，也没有天赐的嗓子，但她此刻站在台上就是最carry的...一期生的余裕
+
+
+*****
+
+####  FCCHua  
+##### 5422#       发表于 2021-7-31 16:58
+
+
+ 本帖最后由 FCCHua 于 2021-7-31 17:20 编辑 
+
+这首好可爱，成员还都是seeds的
+德龙环节好少啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+levi好顶<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 5423#       发表于 2021-7-31 17:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52181198&amp;ptid=1972669" target="_blank">我不是很好 发表于 2021-7-31 16:39</a>
+
+astel的apex水平放到管人里怎么样？</blockquote>
+纯粹的枪力不如那几个顶级枪女
+
+但是solomaster培养出来的选点运营能力很好，指挥能力稍差，比赛打的太少
+
+而除了少数几个例外，枪女基本没脑子
+
+
+                                                 

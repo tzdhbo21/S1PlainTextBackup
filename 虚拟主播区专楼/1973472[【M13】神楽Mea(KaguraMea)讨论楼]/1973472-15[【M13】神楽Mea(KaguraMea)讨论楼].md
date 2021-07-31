@@ -12020,3 +12020,71 @@ BSYL，楼友认为一天不到没上厕所就是便秘这点是不是太不正�
 
 
                                                  
+
+*****
+
+####  thisisaspider  
+##### 22122#       发表于 2021-7-31 16:29
+
+
+ 本帖最后由 thisisaspider 于 2021-7-31 16:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52180518&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-7-31 15:38</a>
+
+你录播盘炸了，修一下哥哥</blockquote>
+好的 我看看有点奇妙 我手动加了一个 发现没问题
+
+但之前确实没录到 所以文件没上传
+
+
+*****
+
+####  Cortana  
+##### 22123#       发表于 2021-7-31 17:06
+
+
+你楼19年4月26日发生啥了，一天盖了3100多楼，不会是打架吧？
+
+
+*****
+
+####  时间在我手中  
+##### 22124#       发表于 2021-7-31 17:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52181084&amp;ptid=1973472" target="_blank">thisisaspider 发表于 2021-7-31 16:29</a>
+
+好的 我看看有点奇妙 我手动加了一个 发现没问题
+
+但之前确实没录到 所以文件没上传
+
+ ...</blockquote>
+还行，反正修好了方便我干点东西
+
+
+我AE做出了人生第一个玩意儿了已经）
+
+
+*****
+
+####  T_Hb  
+##### 22125#       发表于 2021-7-31 17:11
+
+
+ 本帖最后由 T_Hb 于 2021-7-31 17:19 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/31/171114ufzmfia4lc4xzn1n.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (8.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-31 17:11 上传
+
+
+8月9号11点，继续折磨桃铁
+兔妈妈这切片切的还挺有意思的
+
+
+                                                 
