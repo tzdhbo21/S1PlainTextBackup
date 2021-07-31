@@ -10671,3 +10671,57 @@ juvvel这种彻底失败的东西还能说的？我从没见过哪个唱歌组�
 
 
                                                  
+
+*****
+
+####  FCCHua  
+##### 5413#       发表于 2021-7-31 16:02
+
+
+ 本帖最后由 FCCHua 于 2021-7-31 16:04 编辑 
+
+虹live开始，看来技术确实又进步了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+但是为什么又是123，最近听了太多遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 5414#       发表于 2021-7-31 16:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> LIVE一开始，笹木就开始棒球，这就是对ARLIVE不带她得无声得抵抗么？
+
+
+*****
+
+####  FCCHua  
+##### 5415#       发表于 2021-7-31 16:07
+
+
+ 本帖最后由 FCCHua 于 2021-7-31 16:19 编辑 
+
+柴卡？！很会唱嘛
+绿仙我的超人，她太能动了不再是站桩<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+千麻你的头顶是不是少了什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flyskywalker92  
+##### 5416#       发表于 2021-7-31 16:11
+
+
+叶的水平 solo大师有点难吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 5417#       发表于 2021-7-31 16:28
+
+
+德龙，永远的有料的女人
+
+
+                                                 

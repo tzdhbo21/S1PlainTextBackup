@@ -10380,3 +10380,17 @@ http://t.cn/A6fc6JSS 在做了在做了
 
 
                                                  
+
+*****
+
+####  supergilaboy  
+##### 6862#       发表于 2021-7-31 15:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52179765&amp;ptid=1484979" target="_blank">cckuku 发表于 2021-7-31 14:25</a>
+
+志保和巴西人这两张发型池，不管是卡面还是发型，质量都好高啊</blockquote>
+elena还是有点微妙，建模和卡图有点差距<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
