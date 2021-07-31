@@ -7444,3 +7444,19 @@ Unite已经在练了，逃不掉的
 
 
                                                  
+
+*****
+
+####  面具13  
+##### 6608#       发表于 2021-7-31 23:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52186028&amp;ptid=1947500" target="_blank">lightsuger 发表于 2021-7-31 22:28</a>
+
+没看直播，推特信息</blockquote>
+时间轴：[https://youtu.be/0VfBB48WMUc?t=4690](https://youtu.be/0VfBB48WMUc?t=4690)
+
+刚出来的那天一起玩了一次，但后面夸宝太忙就没时间玩了，紫宝倒是有些沉迷，等一个盐水联动吧。
+
+
+                                                 
