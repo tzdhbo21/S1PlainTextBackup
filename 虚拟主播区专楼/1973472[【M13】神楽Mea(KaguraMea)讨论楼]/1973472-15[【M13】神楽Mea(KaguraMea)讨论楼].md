@@ -12225,3 +12225,142 @@ BSYL，楼友认为一天不到没上厕所就是便秘这点是不是太不正�
 
 
                                                  
+
+*****
+
+####  时间在我手中  
+##### 22139#       发表于 2021-7-31 19:57
+
+
+今晚来首happy end吧，好久没听FC版的了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 22140#       发表于 2021-7-31 20:01
+
+
+<img src="https://img.saraba1st.com/forum/202107/31/195944g5a92tm55mw49mzk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>0A2F62C1-0CC5-4674-88F2-D6D4823C9DB0.jpeg</strong> (196.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-31 19:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/31/195944wqlgzes7b4w1rrl4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>128A6EE0-8035-4CA3-B6FA-1469A512929C.jpeg</strong> (63.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-31 19:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/31/195946odg959ddkcw9c02d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>BDBACBD5-5FBA-4E6E-ACFD-48DAAEB423DC.jpeg</strong> (75.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-31 19:59 上传
+
+
+无端联想到前两天刷到的这个视频了：
+
+亲眼看着自己养的鱼被杀：日本小学里令人费解的「生命教育」[https://b23.tv/us9IqC](https://b23.tv/us9IqC)
+
+
+<img src="https://img.saraba1st.com/forum/202107/31/195946vno25unk5nzkr232.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>933B448A-5C3A-41CC-982F-31DDD069F317.jpeg</strong> (417.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-31 19:59 上传
+
+
+
+
+*****
+
+####  2014720  
+##### 22141#       发表于 2021-7-31 20:03
+
+
+这下非国民了
+
+
+*****
+
+####  2014720  
+##### 22142#       发表于 2021-7-31 20:09
+
+
+ 本帖最后由 2014720 于 2021-7-31 20:10 编辑 
+
+开了
+
+【神楽めあ 直播开始】
+标题：【歌枠/アーカイブなし】最後【神楽めあ】
+时间：2021-07-31 20:00:00 UTC+08:00
+网址：y2u.be/yVKBXVKh5-o
+
+【神楽めあ Bilibili开始】
+标题：【歌回】最后【神楽Mea】
+时间：2021-07-31 20:07:24 UTC+08:00
+网址：https://live.bilibili.com/12235923
+
+
+*****
+
+####  T_Hb  
+##### 22143#       发表于 2021-7-31 20:13
+
+
+O型血，歧视B型血，特别是B型血的女人
+
+
+*****
+
+####  路人庚  
+##### 22144#       发表于 2021-7-31 20:16
+
+
+还好不是b型血，不然就被aoe到惹（
+
+
+*****
+
+####  JY要塞  
+##### 22145#       发表于 2021-7-31 20:17
+
+
+有麻血民吗
+
+
+*****
+
+####  T_Hb  
+##### 22146#       发表于 2021-7-31 20:22
+
+
+上来就是九月先生，哈哈哈，直接喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 22147#       发表于 2021-7-31 20:23
+
+
+你咩姐的奇妙笑点（
+
+
+                                                

@@ -11457,3 +11457,108 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 80397#       发表于 2021-7-31 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52182116&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-31 18:15</a>
+
+今天居然有新消息？ 不是明天吗
+
+
+新泳装活动送泳装小碧池。。</blockquote>
+不行，否则怎么体现我们再送复活石的恩惠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 80398#       发表于 2021-7-31 19:30
+
+
+这游戏也是快关服了吧....产量比起之前明显缩小了很多
+
+
+今年有印象的活动就一个情人节和怪盗了.....然后怪盗讲了什么剧情基本已经忘得差不多了
+
+
+*****
+
+####  areklose  
+##### 80399#       发表于 2021-7-31 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52182938&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-31 19:30</a>
+
+这游戏也是快关服了吧....产量比起之前明显缩小了很多
+
+
+今年有印象的活动就一个情人节和怪盗了.....然后怪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年新活动的话，按照顺序是平景清，情人节，白清，爬塔，和联动。联动送那么多灵衣都不记得！
+
+
+*****
+
+####  alucardcz  
+##### 80400#       发表于 2021-7-31 19:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52182938&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-31 19:30</a>
+
+这游戏也是快关服了吧....产量比起之前明显缩小了很多
+
+
+今年有印象的活动就一个情人节和怪盗了.....然后怪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">规模小也正常 毕竟疫情现在反反复复  等明天了 等一个无任何改进
+
+
+
+
+*****
+
+####  森兰丸  
+##### 80401#       发表于 2021-7-31 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52183106&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-31 19:46</a>
+
+今年新活动的话，按照顺序是平景清，情人节，白清，爬塔，和联动。联动送那么多灵衣都不记得！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">鹤小姐还有爬塔你不说我还真忘了.....平景清只记得2.55了....活动也是基本没印象
+
+
+*****
+
+####  森兰丸  
+##### 80402#       发表于 2021-7-31 20:05
+
+
+翻页翻页
+
+
+*****
+
+####  alucardcz  
+##### 80403#       发表于 2021-7-31 20:20
+
+
+翻页
+
+
+*****
+
+####  真红眼教授  
+##### 80404#       发表于 2021-7-31 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52183106&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-31 19:46</a>
+
+今年新活动的话，按照顺序是平景清，情人节，白清，爬塔，和联动。联动送那么多灵衣都不记得！ ...</blockquote>
+只会复读产能不足是这样的，在隔壁和各种群里已经看腻了
+
+问就是为什么没开奥运活动
+
+
+                                                

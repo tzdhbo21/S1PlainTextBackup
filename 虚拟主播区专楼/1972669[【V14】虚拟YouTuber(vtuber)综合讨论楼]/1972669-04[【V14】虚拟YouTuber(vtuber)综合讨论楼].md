@@ -10873,3 +10873,46 @@ chima这模赶制痕迹还是明显了点
 
 
                                                  
+
+*****
+
+####  purdre  
+##### 5427#       发表于 2021-7-31 19:43
+
+
+这新人的蓝毛看到绿仙就把持不住，怎么又来个绿仙厨，绿仙前世这么牛逼的吗搞得虹男情醉神迷<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霜浪  
+##### 5428#       发表于 2021-7-31 19:49
+
+
+蓝毛看到live里谁都把持不住，这就是虹痴吧
+
+
+*****
+
+####  alcoholic1000  
+##### 5429#       发表于 2021-7-31 19:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52183074&amp;ptid=1972669" target="_blank">purdre 发表于 2021-7-31 19:43</a>
+
+这新人的蓝毛看到绿仙就把持不住，怎么又来个绿仙厨，绿仙前世这么牛逼的吗搞得虹男情醉神迷 ...</blockquote>
+我看的時候也觉得这豆猫是不是绿仙推，没好意思说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">限界化喊导播切镜头オタク啊
+
+绿仙，2434第一妖女（无性别 ver.），以后田角陆招男V也不用十几页PDF，把绿仙摆上去吧
+
+
+*****
+
+####  霜浪  
+##### 5430#       发表于 2021-7-31 20:38
+
+
+绿仙这个直女卖中性lbgt确实吃香捏
+
+
+                                                 

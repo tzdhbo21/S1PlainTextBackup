@@ -10618,3 +10618,16 @@ Xperia 1 III 系统更新
 
 
                                                  
+
+*****
+
+####  tsounaiq  
+##### 745#       发表于 2021-7-31 20:40
+
+
+装了个google photo 结果相机拍完照片查看图片之后，再退回相机，横屏，相机界面全都乱了。。。
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
