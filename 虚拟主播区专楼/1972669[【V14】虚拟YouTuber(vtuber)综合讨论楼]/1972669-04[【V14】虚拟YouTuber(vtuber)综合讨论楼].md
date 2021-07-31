@@ -10583,3 +10583,50 @@ rd正好八月live，阿菜阿葵一起毕业，好姐妹
 
 
                                                  
+
+*****
+
+####  winda  
+##### 5405#       发表于 2021-7-31 09:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">葵皇还有个juvvel在，短时间内估计不会跑，阿菜上次谈毕业的回应就很微妙了
+
+
+*****
+
+####  渡鸦骑士  
+##### 5406#       发表于 2021-7-31 10:50
+
+
+你虹这波换血以后，就正式成为男性主播为主的团体了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 5407#       发表于 2021-7-31 11:24
+
+
+juvvel这种彻底失败的东西还能说的？我从没见过哪个唱歌组合能上来点几百踩，尊和你葵都转幕后吧，一个辅佐KING，一个当正式社员，时代早变了
+
+
+*****
+
+####  dybang  
+##### 5408#       发表于 2021-7-31 11:25
+
+
+还得换血两期吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">支持先在数量上名义平权
+
+
+*****
+
+####  qq845629713  
+##### 5409#       发表于 2021-7-31 11:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 女的多退点数量上不就平衡了
+
+
+                                                 
