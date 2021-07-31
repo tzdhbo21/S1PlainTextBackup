@@ -11282,3 +11282,17 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  Jamaisvu  
+##### 80380#       发表于 2021-7-31 13:03
+
+
+有没有人参加那个FGO阶位认定测试的啊，我记错时间了，以为是北京时间13：00——14：00，结果是日本时间<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+不过因为还有填空题，我大概率是抓瞎的，不考就不考吧...反正也没实质奖励<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+                                                 
