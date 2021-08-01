@@ -16171,3 +16171,38 @@ https://bbs.nga.cn/read.php?tid=27874948</blockquote>
 
 
                                                  
+
+*****
+
+####  KOBI  
+##### 80814#       发表于 2021-8-2 02:01
+
+
+ 本帖最后由 KOBI 于 2021-8-2 02:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这波后百冲三藏+无脑三连术狗蛮想吐槽杀狐你到底哪边的
+
+可惜术狗伤害有点低
+
+
+*****
+
+####  v22325  
+##### 80815#       发表于 2021-8-2 03:03
+
+
+狐狸终于出了！好！
+
+
+*****
+
+####  森兰丸  
+##### 80816#       发表于 2021-8-2 04:53
+
+
+ 本帖最后由 森兰丸 于 2021-8-2 04:59 编辑 
+
+150石头到帐....再过几小时这楼的败者复活战又能豹跳了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+                                                 
