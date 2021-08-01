@@ -11586,3 +11586,23 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  cckuku  
+##### 80407#       发表于 2021-8-1 08:56
+
+
+可是别人家的x付费石一次十连，不就是必得或者超得吗？叶良树能舍得？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该不会是必得四星吧？
+
+
+*****
+
+####  DARKGRAY  
+##### 80408#       发表于 2021-8-1 09:12
+
+
+有偿石抽够100连必出五星（调低出率增大歪的概率）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
