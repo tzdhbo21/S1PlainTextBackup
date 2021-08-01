@@ -12882,3 +12882,1549 @@ dw真是废物啊<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 
                                              
+
+*****
+
+####  Jamaisvu  
+##### 80531#       发表于 2021-8-1 17:28
+
+
+终于能拥有黑狗了，高兴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+杀狐也落地了，氪一单帮YLS的妈买张返回大气层的票吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 80532#       发表于 2021-8-1 17:28
+
+
+宝具是是强袭钢坦克吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 80533#       发表于 2021-8-1 17:29
+
+
+哈哈哈，奥伯龙奶死了还行，那就是84和小裁缝进2.6池子了233
+
+
+*****
+
+####  xiongxingyu  
+##### 80534#       发表于 2021-8-1 17:29
+
+
+居然是杀狐，传统艺能主线里自己杀自己+1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80535#       发表于 2021-8-1 17:29
+
+
+要是蓝卡杀光炮酒吞又失业了
+
+
+*****
+
+####  清风朗月  
+##### 80536#       发表于 2021-8-1 17:30
+
+
+露易丝终于开上了铁人桃子
+
+
+*****
+
+####  angelooo  
+##### 80537#       发表于 2021-8-1 17:30
+
+
+有剧限当然无脑梅芙亲了，那灵衣啧啧
+
+
+*****
+
+####  exiaexa  
+##### 80538#       发表于 2021-8-1 17:30
+
+
+卧槽，魔道元帅是什么东西，要突破100NP了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80539#       发表于 2021-8-1 17:30
+
+
+这５星居然能选熊利亚？　　那就选泥了
+
+
+*****
+
+####  khxooo  
+##### 80540#       发表于 2021-8-1 17:30
+
+
+YLS你算计我啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  当光停止  
+##### 80541#       发表于 2021-8-1 17:30
+
+
+艹，怎么又来了个宝石。
+
+
+*****
+
+####  smdzh2  
+##### 80542#       发表于 2021-8-1 17:30
+
+
+我 宝石翁 加班
+
+
+*****
+
+####  alucardcz  
+##### 80543#       发表于 2021-8-1 17:30
+
+
+这就没了？
+
+
+*****
+
+####  areklose  
+##### 80544#       发表于 2021-8-1 17:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以了。剧情限定自选有了。放过YLS狗命
+
+
+*****
+
+####  khxooo  
+##### 80545#       发表于 2021-8-1 17:31
+
+
+选狐狸吧，毕竟可以辅助一下。
+
+
+*****
+
+####  1a不解释  
+##### 80546#       发表于 2021-8-1 17:31
+
+
+艹，新的和旧的能合一起吗，旧的就差一张了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  zore  
+##### 80547#       发表于 2021-8-1 17:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真就8.4开新卡池吧
+
+
+*****
+
+####  sosgame67  
+##### 80548#       发表于 2021-8-1 17:33
+
+
+8.4开2.6新卡池看来是板上钉钉了，当然继续拉跨一波也不是没可能<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80549#       发表于 2021-8-1 17:33
+
+
+ 本帖最后由 exiaexa 于 2021-8-1 17:34 编辑 
+
+大概算一下
+
+之前的转推算一起应该60个
+
+增值奖励算250
+
+这边翻倍90个
+
+登陆10连，剧情战斗+商店算他60个石头
+
+差不多460个上下？
+
+
+*****
+
+####  zore  
+##### 80550#       发表于 2021-8-1 17:33
+
+
+海猫之手是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  smdzh2  
+##### 80551#       发表于 2021-8-1 17:34
+
+
+月 球 魔 术<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sosgame67  
+##### 80552#       发表于 2021-8-1 17:35
+
+
+全民自选的话yls亲妈暂时落地一周，后续就看8.4公审蘑菇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOBI  
+##### 80553#       发表于 2021-8-1 17:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">狐狸啊。。那可以安心84抽奥博龙了
+
+反正石头不够高宝怎么都是玩具了
+
+
+*****
+
+####  alucardcz  
+##### 80554#       发表于 2021-8-1 17:35
+
+
+现在就等一个１２０级技能了
+
+
+*****
+
+####  alucardcz  
+##### 80555#       发表于 2021-8-1 17:35
+
+
+其他没什么花头。。
+
+
+*****
+
+####  exiaexa  
+##### 80556#       发表于 2021-8-1 17:36
+
+
+给他算少了，居然有170抽
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dhddhh  
+##### 80557#       发表于 2021-8-1 17:37
+
+
+装甲核心真正的后继者，FGO<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 80558#       发表于 2021-8-1 17:38
+
+
+那个付费石的操作笑的我头都掉了，脸要吗
+
+
+*****
+
+####  zore  
+##### 80559#       发表于 2021-8-1 17:38
+
+
+属于是信仰充值了
+
+甚至连扫荡票也没得换<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80560#       发表于 2021-8-1 17:39
+
+
+福袋去看了看　只有２０２０年上三和２０１９年上三能选<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">　２０２０年的有几个想要有几个雷
+
+
+*****
+
+####  areklose  
+##### 80561#       发表于 2021-8-1 17:40
+
+
+吃饭了。回来看看狐狸解包再决定
+
+
+*****
+
+####  里村紅葉  
+##### 80562#       发表于 2021-8-1 17:41
+
+
+一堆活动是6点开吗，感觉要炸服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80563#       发表于 2021-8-1 17:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194159&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 17:39</a>
+
+福袋去看了看　只有２０２０年上三和２０１９年上三能选　２０２０年的有几个想要有几个雷 ...</blockquote>
+2020上三对我来说效率最高，俩1宝，俩没有
+
+但是那俩没有的特别讨厌绝对不想要orz
+
+
+*****
+
+####  白夜羽  
+##### 80564#       发表于 2021-8-1 17:43
+
+
+ 本帖最后由 白夜羽 于 2021-8-1 17:46 编辑 
+
+哟，竟然是狐狸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冲着这个色色的大腿，抽了！
+
+这周年活动简直是拉中之拉，有预料但没预料到这么拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+福袋看了一下完全妹有抽的必要，有的都有，妹有的几张都是死蚂蚁这种白送都不想要的
+
+
+*****
+
+####  AbigailWilliams  
+##### 80565#       发表于 2021-8-1 17:43
+
+
+泳装看样子还能再搞个生放送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80566#       发表于 2021-8-1 17:43
+
+
+我决定去banana那池，起码不亏
+
+
+*****
+
+####  exiaexa  
+##### 80567#       发表于 2021-8-1 17:43
+
+
+说起来金C金AV还有俩金骑，是不是可以吃个桃子梅林黑贞拉二红卡三兄弟
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80568#       发表于 2021-8-1 17:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老拉二了,我也奶一口拉二吧
+
+
+*****
+
+####  alucardcz  
+##### 80569#       发表于 2021-8-1 17:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194212&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-1 17:43</a>
+
+我决定去banana那池，起码不亏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">banana那池　好亏啊　司马懿和紫某人血亏啊（
+
+
+*****
+
+####  黑上シグマ  
+##### 80570#       发表于 2021-8-1 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194229&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 17:45</a>
+
+banana那池　好亏啊　司马懿和紫某人血亏啊（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">司马懿我没有，也不是特别讨厌，不亏
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">紫式部属于比较喜欢的那类，自然也是不亏
+
+
+*****
+
+####  khxooo  
+##### 80571#       发表于 2021-8-1 17:49
+
+
+为了摩根，拼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  miro112233  
+##### 80572#       发表于 2021-8-1 17:51
+
+
+甚至画不出下半年的饼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eden_hazard  
+##### 80573#       发表于 2021-8-1 17:54
+
+
+一个让我感兴趣的都没有，好歹给张新剪影画个饼啊
+
+
+*****
+
+####  qw7608290  
+##### 80574#       发表于 2021-8-1 17:56
+
+
+艹，一天一抽真的太可乐了，笑哭了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80575#       发表于 2021-8-1 17:56
+
+
+金枪那个希望是艾蕾吧。
+
+
+*****
+
+####  zakki  
+##### 80576#       发表于 2021-8-1 17:57
+
+
+早就不对周年福利抱期待了，等大后天吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡蓮  
+##### 80577#       发表于 2021-8-1 17:59
+
+
+日本人实在是太能吃猪食了，放国内这不是要被冲死<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+*****
+
+####  rooarr  
+##### 80578#       发表于 2021-8-1 17:59
+
+
+ 本帖最后由 rooarr 于 2021-8-1 18:07 编辑 
+
+再赌一次太空凛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+双黄，但是没出凛，出了武藏和杨玉环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zore  
+##### 80579#       发表于 2021-8-1 18:01
+
+
+ 本帖最后由 zore 于 2021-8-1 18:02 编辑 
+
+新pv?<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白夜羽  
+##### 80580#       发表于 2021-8-1 18:01
+
+
+草啊，我礼物箱子本来只有个位数的东西，现在进去一看462
+
+
+
+
+*****
+
+####  exiaexa  
+##### 80581#       发表于 2021-8-1 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194377&amp;ptid=1085254" target="_blank">卡蓮 发表于 2021-8-1 17:59</a>
+
+日本人实在是太能吃猪食了，放国内这不是要被冲死
+
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1N ...</blockquote>
+这你就是瞎说了
+
+放国产手游送170抽大概能被吹成业界之光
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80582#       发表于 2021-8-1 18:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀狐红卡
+
+
+*****
+
+####  cckuku  
+##### 80583#       发表于 2021-8-1 18:05
+
+
+杀狐是红拐？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 80584#       发表于 2021-8-1 18:06
+
+
+这三破配色幻视圆神了艹
+
+
+*****
+
+####  当光停止  
+##### 80585#       发表于 2021-8-1 18:06
+
+
+艹 新时代红拐还行
+
+
+*****
+
+####  alucardcz  
+##### 80586#       发表于 2021-8-1 18:06
+
+
+草啊　狐狸是拐
+
+
+*****
+
+####  zakki  
+##### 80587#       发表于 2021-8-1 18:06
+
+
+草，是红拐
+
+
+*****
+
+####  khxooo  
+##### 80588#       发表于 2021-8-1 18:07
+
+
+C呆2宝！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aunn  
+##### 80589#       发表于 2021-8-1 18:07
+
+
+新宝石翁纯hp，我吐了
+
+
+*****
+
+####  zore  
+##### 80590#       发表于 2021-8-1 18:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满破好烧啊 冲了
+
+
+*****
+
+####  areklose  
+##### 80591#       发表于 2021-8-1 18:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽，看到别人的硬币我邮箱是不是爆炸了
+
+
+*****
+
+####  zakki  
+##### 80592#       发表于 2021-8-1 18:09
+
+
+不过和c呆比差远了，红卡还是被绿卡蓝卡压着
+
+
+*****
+
+####  khxooo  
+##### 80593#       发表于 2021-8-1 18:09
+
+
+我吐了，呼符10连不是一次过抽10张，还是一张一张抽<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOBI  
+##### 80594#       发表于 2021-8-1 18:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这尼玛加上奥博龙连着两个拐？！
+
+YLS你好野。。。
+
+
+*****
+
+####  exiaexa  
+##### 80595#       发表于 2021-8-1 18:11
+
+
+这通用技能
+
+有点蠢啊艹
+
+
+EX卡攻击上升有点尴尬
+
+初始NP提高算是有用的
+
+第三个这个攻击适应性居然是每个人独立的艹
+
+比如旧剑是对saber，伊吹对尺子，给我看傻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80596#       发表于 2021-8-1 18:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194525&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-1 18:09</a>
+
+不过和c呆比差远了，红卡还是被绿卡蓝卡压着</blockquote>
+主要是红卡基本这样了。但至少打柱子那些红卡能上了
+
+
+*****
+
+####  khxooo  
+##### 80597#       发表于 2021-8-1 18:12
+
+
+梅林你洗洗睡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80598#       发表于 2021-8-1 18:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬币技能拉满可以知道20%NP出场
+
+满破宝石激怒
+
+
+*****
+
+####  areklose  
+##### 80599#       发表于 2021-8-1 18:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得梅林没完全入土。本来他现在会上场都是因为那个宝具和2技能。
+
+
+*****
+
+####  exiaexa  
+##### 80600#       发表于 2021-8-1 18:15
+
+
+考哥：这次强化就有我，你们给我等着
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80601#       发表于 2021-8-1 18:15
+
+
+这个开场20np的技能蓝卡大加强啊，双C给可以给个80直接充满，红卡真的。。给50冲拐也不行，必须得奥伯龙70冲拐才有救
+
+
+*****
+
+####  alucardcz  
+##### 80602#       发表于 2021-8-1 18:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀狐沉了　萌新凉了
+
+
+*****
+
+####  areklose  
+##### 80603#       发表于 2021-8-1 18:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时运转来！20发收工
+
+
+*****
+
+####  exiaexa  
+##### 80604#       发表于 2021-8-1 18:19
+
+
+ 本帖最后由 exiaexa 于 2021-8-1 18:20 编辑 
+
+这杀狐，三破造型一言难尽
+
+麻烦安排一下剧情灵衣谢谢
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说有人抽到魔道元帅了吗
+
+啥效果
+
+
+*****
+
+####  黑上シグマ  
+##### 80605#       发表于 2021-8-1 18:20
+
+
+杀狐3单才出，还没算呼符和送的石头…………
+
+
+*****
+
+####  qixinno2  
+##### 80606#       发表于 2021-8-1 18:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果不其然毛都没抽到
+
+
+*****
+
+####  zakki  
+##### 80607#       发表于 2021-8-1 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194678&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 18:19</a>
+这杀狐，三破造型一言难尽
+
+麻烦安排一下剧情灵衣谢谢</blockquote>
+和原版一样只不过加hp
+
+
+*****
+
+####  黑上シグマ  
+##### 80608#       发表于 2021-8-1 18:22
+
+
+再接一个11连，2宝了
+
+
+*****
+
+####  zore  
+##### 80609#       发表于 2021-8-1 18:22
+
+
+ 本帖最后由 zore 于 2021-8-1 18:23 编辑 
+
+免费完了还得氪两单<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80610#       发表于 2021-8-1 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194678&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 18:19</a>
+
+这杀狐，三破造型一言难尽
+
+麻烦安排一下剧情灵衣谢谢</blockquote>
+和旧版一样效果，只是攻击变HP
+
+
+
+
+*****
+
+####  exiaexa  
+##### 80611#       发表于 2021-8-1 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194733&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-1 18:22</a>
+
+和原版一样只不过加hp</blockquote>
+艹，这也太傻逼了
+
+我还以为拉满80NP+其他特效，配合新的通用技能
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80612#       发表于 2021-8-1 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">福袋村正　杀狐血沉　　萌新全麻了
+
+
+*****
+
+####  exiaexa  
+##### 80613#       发表于 2021-8-1 18:26
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 80614#       发表于 2021-8-1 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194678&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 18:19</a>
+
+这杀狐，三破造型一言难尽
+
+麻烦安排一下剧情灵衣谢谢</blockquote>
+ HP宝石翁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白夜羽  
+##### 80615#       发表于 2021-8-1 18:29
+
+
+神经病啊，村正给个术阶特攻什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80616#       发表于 2021-8-1 18:29
+
+
+被动基本只会开放2技能了。挺好。终于有个不错的强化。
+
+
+                                              
+
+*****
+
+####  sosgame67  
+##### 80617#       发表于 2021-8-1 18:29
+
+
+ 本帖最后由 sosgame67 于 2021-8-1 18:30 编辑 
+
+一发10连出货收工，看奥博隆的强度了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  当光停止  
+##### 80618#       发表于 2021-8-1 18:29
+
+
+脑测狂那巨大加强。自充5t cd，双杀狐，一局3t稳定能放两次自充。
+
+新被动又自带20np。配合洗牌服，刷红卡就又有np了.....
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以狂那现在大概能一把放出两次宝具....杀狐又有供星，剩下一面随便刷下卡，暴击带走就行...
+
+
+*****
+
+####  exiaexa  
+##### 80619#       发表于 2021-8-1 18:30
+
+
+ 本帖最后由 exiaexa 于 2021-8-1 18:33 编辑 
+
+震惊，新本居然是加量不加价都是331
+
+
+QP本一次能到400w
+
+狗粮本居然是全业火，震惊我妈
+
+终于不用每次都等无限池了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  闽明  
+##### 80620#       发表于 2021-8-1 18:31
+
+
+福袋出了兔子王，首个满宝五星（含B服）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+杀狐沉船<img src="https://p.sda1.dev/2/5fdf31d496e2935a2d8a6a46e801e904/IMG_CMP_191395890.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  areklose  
+##### 80621#       发表于 2021-8-1 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194832&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-8-1 18:29</a>
+
+神经病啊，村正给个术阶特攻什么意思</blockquote>
+1，3技能是添头。通常很难开满3个技能。。
+
+
+*****
+
+####  alucardcz  
+##### 80622#       发表于 2021-8-1 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194838&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-8-1 18:29</a>
+
+脑测狂那巨大加强。自充5t cd，双杀狐，一局3t稳定能放两次自充。
+
+新被动又自带20np。配合洗牌服，刷红卡就 ...</blockquote>
+你这还要新被动升满　　直接王姐不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80623#       发表于 2021-8-1 18:33
+
+
+梅林:完了,我成玉藻前了
+
+
+*****
+
+####  仰望神的括约肌  
+##### 80624#       发表于 2021-8-1 18:37
+
+
+福袋仇肉丸 石头全沉 麻了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  当光停止  
+##### 80625#       发表于 2021-8-1 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194872&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 18:32</a>
+
+你这还要新被动升满　　直接王姐不好吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">配合洗牌服，100+60+20啊。
+
+剩下20np，整张红卡就解决了。狐狸2技能那个红卡回np数值应该是10％。
+
+
+*****
+
+####  KOBI  
+##### 80626#       发表于 2021-8-1 18:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">被。。被动也要传承结晶
+
+饶了我吧。。那东西完全不够用啊。活动传承结晶不加量就炎上（
+
+
+*****
+
+####  areklose  
+##### 80627#       发表于 2021-8-1 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194872&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 18:32</a>
+
+你这还要新被动升满　　直接王姐不好吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们要先考虑羁绊这个蚊子腿，
+
+
+*****
+
+####  zore  
+##### 80628#       发表于 2021-8-1 18:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹这120级经验也要太多了吧
+
+之前的卖方块去了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80629#       发表于 2021-8-1 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194971&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-1 18:38</a>
+
+艹这120级经验也要太多了吧
+
+之前的卖方块去了</blockquote>
+全新狗粮本欢迎你
+
+打一次顶以前打三次
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80630#       发表于 2021-8-1 18:40
+
+
+8月3日的金卡骑和8月4日的金卡术是4星的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80631#       发表于 2021-8-1 18:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">妈呀，2级1个圣杯。吃不起阿
+
+
+*****
+
+####  音無麻理亜  
+##### 80632#       发表于 2021-8-1 18:41
+
+
+100级一组金狗粮下去进度不如蜗牛爬...
+
+低宝玩家还有机会搞出宝具外全满的角色吗，光技能就要360个硬币...
+
+
+*****
+
+####  alucardcz  
+##### 80633#       发表于 2021-8-1 18:42
+
+
+话说必须１２０那个硬币的地方才能点？
+
+
+*****
+
+####  zakki  
+##### 80634#       发表于 2021-8-1 18:42
+
+
+草，第二发十连一个狐狸一个玻西瓦尔
+
+
+*****
+
+####  zore  
+##### 80635#       发表于 2021-8-1 18:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">副作用就是可能一时间点不满,很气
+
+
+*****
+
+####  areklose  
+##### 80636#       发表于 2021-8-1 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195075&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 18:42</a>
+
+对了这个技能　现在所有人都可以直接开一个吗？　硬币够开一个　　有没有什么负作用？ ...</blockquote>
+硬币数目会根据召唤多少次和羁绊送。升120和开技能都要用硬币。100到102要一个圣杯，40币
+
+
+*****
+
+####  alucardcz  
+##### 80637#       发表于 2021-8-1 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195101&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-1 18:43</a>
+
+硬币数目会根据召唤多少次和羁绊送。升120和开技能都要用硬币。100到102要一个圣杯，40币 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在９０就能进那个界面　看到点一个技能１８０　　能点吗
+
+
+*****
+
+####  areklose  
+##### 80638#       发表于 2021-8-1 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195181&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 18:48</a>
+
+现在９０就能进那个界面　看到点一个技能１８０　　能点吗</blockquote>
+点阿。点一个2技能就好。其他都是垃圾
+
+
+*****
+
+####  khxooo  
+##### 80639#       发表于 2021-8-1 18:49
+
+
+彩光项羽！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80640#       发表于 2021-8-1 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195196&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-1 18:49</a>
+
+点阿。点一个2技能就好。其他都是垃圾</blockquote>
+所以这技能和１２０是独立的？　不是１２０了才能用新技能？
+
+
+
+
+*****
+
+####  areklose  
+##### 80641#       发表于 2021-8-1 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195223&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 18:51</a>
+
+所以这技能和１２０是独立的？　不是１２０了才能用新技能？</blockquote>
+独立的。
+
+
+*****
+
+####  Jamaisvu  
+##### 80642#       发表于 2021-8-1 18:54
+
+
+杀狐三破怎么跟藤崎龙封神演义里的妲己这么像....
+
+（背后这个加特林菩萨有点像明日方舟的能天使...）
+
+
+*****
+
+####  areklose  
+##### 80643#       发表于 2021-8-1 18:54
+
+
+翻页。
+
+
+*****
+
+####  alucardcz  
+##### 80644#       发表于 2021-8-1 18:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">该那自选了　选个白枪呆算了
+
+
+*****
+
+####  eden_hazard  
+##### 80645#       发表于 2021-8-1 18:55
+
+
+杀狐还好，福袋水泥3宝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 80646#       发表于 2021-8-1 18:55
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-1 19:10 编辑 
+
+如果有人的收货箱放着不想拿的狗粮之类的，但是英灵碎片撑得很满，可以用右上角那个筛选来搬碎片哦。
+
+
+*****
+
+####  areklose  
+##### 80647#       发表于 2021-8-1 18:55
+
+
+120和那个被动技能是独立的。不过120吃的圣杯有点狠阿。要10个
+
+
+*****
+
+####  黑上シグマ  
+##### 80648#       发表于 2021-8-1 18:56
+
+
+竹帚日记更新，2.6剩下部分是前篇的2/3，战斗很多
+
+
+*****
+
+####  zore  
+##### 80649#       发表于 2021-8-1 18:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道以前那些人人分圣杯的现在还好吗
+
+
+*****
+
+####  areklose  
+##### 80650#       发表于 2021-8-1 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195313&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-1 18:55</a>
+
+如果有人的收货箱放着不想拿的狗粮之类的，但是英灵碎片撑得很慢，可以用右上角那个筛选来搬碎片哦。 ...</blockquote>
+不用。邮箱有3个选项，全部拿取，拿取选择。拿取卡片以外的资源。选第三个就行
+
+
+*****
+
+####  xiongxingyu  
+##### 80651#       发表于 2021-8-1 18:58
+
+
+三年了，整整三年了，三年前我水骑呆1宝，大象没开图鉴，三年后我的水骑呆4宝了，大象还是没开图鉴，职阶福袋也就算了，年份福袋你金骑转过来是水骑呆，现在年份加下四还是金骑转背是骑呆我也是醉了。
+
+
+*****
+
+####  音無麻理亜  
+##### 80652#       发表于 2021-8-1 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195283&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-1 18:54</a>
+
+杀狐三破怎么跟藤崎龙封神演义里的妲己这么像....
+
+（背后这个加特林菩萨有点像明日方舟的能天使...） ...</blockquote>
+第一反应神意高达，攻击动作也有浮游炮，而且fgo塞萝卜梗也不是一次两次了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80653#       发表于 2021-8-1 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195362&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-1 18:58</a>
+
+三年了，整整三年了，三年前我水骑呆1宝，大象没开图鉴，三年后我的水骑呆4宝了，大象还是没开图鉴，职阶福 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">敢赌敢给
+
+
+*****
+
+####  alucardcz  
+##### 80654#       发表于 2021-8-1 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194946&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-8-1 18:37</a>
+
+配合洗牌服，100+60+20啊。
+
+剩下20np，整张红卡就解决了。狐狸2技能那个红卡回np数值应该是10％。 ...</blockquote>
+想了想　还是没看懂你在说什么　新技能不是开场直接就自动用掉了吗　你带了宝石＝技能白给　
+
+还是说这新技能的２０ｎｐ是可以手动开的？（我还没敢点
+
+
+而且你宝具３连的话　哪有机会给你红卡补刀　怪难道还能有活口
+
+
+*****
+
+####  areklose  
+##### 80655#       发表于 2021-8-1 19:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195406&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 19:00</a>
+
+想了想　还是没看懂你在说什么　新技能不是开场直接就自动用掉了吗　你带了宝石＝技能白给　
+
+还是说这新 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202108/01/190546yfnn3ua5dq5u5xy3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210801190451.jpg</strong> (337.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 19:05 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/190542j1ng54rojn13o4j4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210801190437.jpg</strong> (265.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 19:05 上传
+
+
+带的是60NP礼装
+
+
+*****
+
+####  里村紅葉  
+##### 80656#       发表于 2021-8-1 19:06
+
+
+这尼玛第三个技能都是乱给的？丑阶莉莉丝第三个技能是对枪阶特攻也太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80657#       发表于 2021-8-1 19:07
+
+
+这个图也能解答你没120配不配用被动
+
+
+*****
+
+####  angelooo  
+##### 80658#       发表于 2021-8-1 19:08
+
+
+ 本帖最后由 angelooo 于 2021-8-1 19:10 编辑 
+<blockquote>里村紅葉 发表于 2021-8-1 19:06
+这尼玛第三个技能都是乱给的？丑阶莉莉丝第三个技能是对枪阶特攻也太离谱了 ...</blockquote>
+这三个被动实际有用的就是二技能的初始np，其他两个我都当它不存在了233
+
+
+*****
+
+####  当光停止  
+##### 80659#       发表于 2021-8-1 19:09
+
+
+ 本帖最后由 当光停止 于 2021-8-1 19:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195406&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 19:00</a>
+
+想了想　还是没看懂你在说什么　新技能不是开场直接就自动用掉了吗　你带了宝石＝技能白给　
+
+还是说这新 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pong友，我一直在说3t中2t宝具洗地+1t暴击的思路啊。
+
+红卡宝具三连估计得左转不列颠，请看板娘出山。
+
+
+傻狐狸二技能带np得部分是
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/191334ekxp43vm4qg0qtp3.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210801191329.png</strong> (16.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 19:13 上传
+
+
+。当然“可以手动开”了。
+
+
+*****
+
+####  森兰丸  
+##### 80660#       发表于 2021-8-1 19:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这波送的石头是有灵魂的啊........一次10连出了A狐.....上一次这么出货是多久了
+
+
+*****
+
+####  Jamaisvu  
+##### 80661#       发表于 2021-8-1 19:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195342&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-1 18:57</a>
+
+不用。邮箱有3个选项，全部拿取，拿取选择。拿取卡片以外的资源。选第三个就行 ...</blockquote>
+谢谢，我不懂日语啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">自己研究的
+
+
+*****
+
+####  alucardcz  
+##### 80662#       发表于 2021-8-1 19:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195477&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-1 19:06</a>
+
+带的是60NP礼装</blockquote>
+这样的话红卡除非自充５０不然还是不能硬核３连？　这被动在要带满破宝石启动的情况下＝白给？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80663#       发表于 2021-8-1 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195537&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-8-1 19:09</a>
+
+pong友，我一直在说3t中2t宝具洗地+1t暴击的思路啊。
+
+红卡宝具三连估计得左转不列颠，请看板娘出山 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来根本不在一个频道　我说是技能其实是新的那个被动　讨论的一直是红卡光炮硬核３连
+
+
+*****
+
+####  exiaexa  
+##### 80664#       发表于 2021-8-1 19:14
+
+
+所以还是来奶，奥伯龙三技能是
+
+红魔放30%+红宝具后20/30缓冲吧
+
+50充全都能当兔子王
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 80665#       发表于 2021-8-1 19:14
+
+
+大后天居然是四星术<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">如果皇女连泳装都没有那yls可以回大墓地里躺着了
+
+
+*****
+
+####  Jamaisvu  
+##### 80666#       发表于 2021-8-1 19:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195624&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 19:14</a>
+
+所以还是来奶，奥伯龙三技能是
+
+红魔放30%+红宝具后20/30缓冲吧
+
+50充全都能当兔子王</blockquote>
+奥伯龙作为一个光炮伤害是真的低，宝具作用也就是一个强晕催眠了，我觉得可以发挥一下特性，三技能改成我方全体无敌贯通+对催眠单位特攻+不会造成催眠状态解除。
+
+
+（奥伯龙的技能估计是蘑菇自己设计的吧，他肯定希望自己偶像的画作被人抽，感觉不会太弱，现在能翻盘的也就三技能了，要不就是个普通的充电站和炮弹...）
+
+
+*****
+
+####  areklose  
+##### 80667#       发表于 2021-8-1 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195631&amp;ptid=1085254" target="_blank">smdzh2 发表于 2021-8-1 19:14</a>
+
+大后天居然是四星术如果皇女连泳装都没有那yls可以回大墓地里躺着了</blockquote>
+大后天？。哦，你说强化本。。
+
+
+*****
+
+####  黑上シグマ  
+##### 80668#       发表于 2021-8-1 19:21
+
+
+等等我刚刚发现，这次这日替是什么垃圾玩意儿？
+
+
+*****
+
+####  qixinno2  
+##### 80669#       发表于 2021-8-1 19:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 竟然出了杀狐 莉莉和神才的强化本石头是有灵魂的啊
+
+
+                                                
