@@ -13378,3 +13378,99 @@ goods罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png"
 
 
                                                 
+
+*****
+
+####  路人庚  
+##### 22237#       发表于 2021-8-1 17:28
+
+
+ 本帖最后由 路人庚 于 2021-8-1 17:31 编辑 
+
+那么就是生日音声了
+
+syl，除了翻唱今天还没别的预定
+
+
+*****
+
+####  专业划水人员  
+##### 22238#       发表于 2021-8-1 17:31
+
+
+今晚没说播吧？
+
+
+*****
+
+####  T_Hb  
+##### 22239#       发表于 2021-8-1 17:31
+
+
+没有，明天生日的直播间已经开起来了，家用3D歌回，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22240#       发表于 2021-8-1 17:57
+
+
+ 本帖最后由 时间在我手中 于 2021-8-1 18:17 编辑 
+
+看着FGO日服生放，深感还是吊人好
+
+
+起码不会拿一天付费石头单抽原味麻胖次来糊弄我
+
+ps：概率大概等于你要抽10个月，然后这个胖次可能会是苔姨的那种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，一个月180R，我抽你妈
+
+
+而麻味胖次就是剧情池里面的剧情限定卡的感觉，更直接点，就相当于当年第一部第五章有个猛人南丁池子抽出黑狗五宝的那种概率的感觉w
+
+
+*****
+
+####  时雨rain  
+##### 22241#       发表于 2021-8-1 18:12
+
+
+ 呜呜，狐狸还是个红拐，梅林<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 22242#       发表于 2021-8-1 18:12
+
+
+ 本帖最后由 路人庚 于 2021-8-1 18:20 编辑 
+
+原味麻胖次，这算是糊弄吗
+
+神tm还可能是苔苔胖次，什么神必比喻
+
+
+*****
+
+####  T_Hb  
+##### 22243#       发表于 2021-8-1 18:13
+
+
+ 本帖最后由 T_Hb 于 2021-8-1 18:23 编辑 
+
+原味麻胖次多来点
+
+苔总的还行，太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 22244#       发表于 2021-8-1 18:15
+
+
+原味麻胖次真能算糊弄？<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+                                                 
