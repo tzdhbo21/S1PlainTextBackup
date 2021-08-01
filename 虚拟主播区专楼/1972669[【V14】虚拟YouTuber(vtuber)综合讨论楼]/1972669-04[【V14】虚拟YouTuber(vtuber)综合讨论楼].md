@@ -11169,3 +11169,76 @@ holoen这个PV是啥呀，信息量太少，二期是神话主题？
 
 
                                                  
+
+*****
+
+####  リスカ  
+##### 5447#       发表于 2021-8-1 12:02
+
+
+ 本帖最后由 リスカ 于 2021-8-1 12:16 编辑 
+
+源https://b23.tv/oxp1T2
+首先这篇专栏并不客观 
+
+关于社外监察ipo注册会计师 稍有常识都知道这是上市准备
+
+<img src="https://img.saraba1st.com/forum/202108/01/115803x67whc1bmjzgwbhc.png" referrerpolicy="no-referrer">
+
+
+<strong>1627788964274.png</strong> (254.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 11:58 上传
+
+
+在如图的17阶段 一般需要两年 也就是说大概2023年上市
+
+<img src="https://img.saraba1st.com/forum/202108/01/115824cczx31j1p2jx11x9.png" referrerpolicy="no-referrer">
+
+
+<strong>1f8c29cb00f86b20.png</strong> (82.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 11:58 上传
+
+
+目前官方标识的人数是189人
+
+<img src="https://img.saraba1st.com/forum/202108/01/115834cmf5cm5affxrqkrf.png" referrerpolicy="no-referrer">
+
+
+<strong>-117f5f8d3c67a396.png</strong> (298.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 11:58 上传
+
+
+下面的利润应该是纯利润吧 不了解这种调查报告 直到今年3月58亿营业额12亿利润 
+
+<img src="https://img.saraba1st.com/forum/202108/01/115850h265ij2u2i9u9z2o.png" referrerpolicy="no-referrer">
+
+
+<strong>1627788968006.png</strong> (363.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 11:58 上传
+
+
+另外写专栏的人似乎不知道帝国调查是需要有某个人花钱查你才会动的 本质付费项目 即使没有也十分正常 以及拒绝了会公示 18年彩虹社拒绝了调查
+个人比较疑惑的是昨年7月18日holo自己发了财报而今年还没发
+
+听说彩虹也在上市，彩虹社目前上市是哪个阶段了多久了希望有识者讲讲
+
+
+  
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
