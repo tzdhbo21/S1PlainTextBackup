@@ -14428,3 +14428,663 @@ pong友，我一直在说3t中2t宝具洗地+1t暴击的思路啊。
 
 
                                                 
+
+*****
+
+####  exiaexa  
+##### 80670#       发表于 2021-8-1 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195689&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-1 19:17</a>
+
+奥伯龙作为一个光炮伤害是真的低，宝具作用也就是一个强晕催眠了，我觉得可以发挥一下特性，三技能改成我 ...</blockquote>
+那他作用大减了啊，现在的特色不就是70充的拐吗
+
+有个能甩出去的魔放比啥都强
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  rooarr  
+##### 80671#       发表于 2021-8-1 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194651&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 18:17</a>
+杀狐沉了　萌新凉了</blockquote>
+明天还有，不急。我也沉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zore  
+##### 80672#       发表于 2021-8-1 19:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么都默认奥伯龙高充能了
+
+万一拉了呢?
+
+
+*****
+
+####  zore  
+##### 80673#       发表于 2021-8-1 19:26
+
+
+翻页翻页
+
+
+*****
+
+####  areklose  
+##### 80674#       发表于 2021-8-1 19:29
+
+
+我看了公告了。5星出一个给90币。1到6羁绊每等级5个，7到9每等级10个。10到15每等级20个
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 80675#       发表于 2021-8-1 19:29
+
+
+看微博几个太太所谓的背刺梅林破防真的笑抽我了。
+
+部分玩家的天性就是见不得别人好啊。
+
+还有一个闪闪头像芦屋道满推的喷杀狐是b i t c h，脑回路没问题吗？
+
+
+*****
+
+####  KOBI  
+##### 80676#       发表于 2021-8-1 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195808&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-1 19:25</a>
+
+为什么都默认奥伯龙高充能了
+
+万一拉了呢?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">就这游戏卡池公告只有阶职和宝具的尿性瞎改技能搞劣化不得被炎上到死
+
+一定不会有问题的（
+
+
+*****
+
+####  白金口袋  
+##### 80677#       发表于 2021-8-1 19:33
+
+
+请问一下有梅林的话杀狐还特别人权吗？石头不多了想留着给泳装<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80678#       发表于 2021-8-1 19:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195928&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-1 19:33</a>
+
+请问一下有梅林的话杀狐还特别人权吗？石头不多了想留着给泳装</blockquote>
+差不多ｃ呆和ｃ狐的差距　你自己体会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 80679#       发表于 2021-8-1 19:35
+
+
+额外技能居然是正常吃素材的，有点坑啊，结晶不够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80680#       发表于 2021-8-1 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195945&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 19:34</a>
+
+差不多ｃ呆和ｃ狐的差距　你自己体会</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪个是C呆哪个是C狐，说清楚啊
+
+
+*****
+
+####  areklose  
+##### 80681#       发表于 2021-8-1 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195928&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-1 19:33</a>
+
+请问一下有梅林的话杀狐还特别人权吗？石头不多了想留着给泳装</blockquote>
+杀狐现在比梅林优秀只在于2个狐狸能够100充。实际上你把梅林换成她，上班能上的也就是打柱子。实际上周回很难用得上。因为只有50充。
+
+
+*****
+
+####  v22325  
+##### 80682#       发表于 2021-8-1 19:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">没抽到 明天还有多少石拿啊？
+
+
+*****
+
+####  alucardcz  
+##### 80683#       发表于 2021-8-1 19:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195960&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-1 19:35</a>
+
+额外技能居然是正常吃素材的，有点坑啊，结晶不够了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我把几个主力都拉满了　２０ｎｐ的技能　但是仔细想想水武藏这种开局＋２０又有什么用
+
+
+*****
+
+####  zakki  
+##### 80684#       发表于 2021-8-1 19:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195886&amp;ptid=1085254" target="_blank">fantuanxiaoyi 发表于 2021-8-1 19:29</a>
+看微博几个太太所谓的背刺梅林破防真的笑抽我了。
+
+部分玩家的天性就是见不得别人好啊。
+
+还有一个闪闪头像芦 ...</blockquote>
+草这么有乐子？，就求个喷bitch的链接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80685#       发表于 2021-8-1 19:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195996&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-1 19:38</a>
+
+没抽到 明天还有多少石拿啊？</blockquote>
+我也凉了　明天还有７２吧？　　最后还有１０张护符
+
+
+*****
+
+####  rooarr  
+##### 80686#       发表于 2021-8-1 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195999&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 19:38</a>
+我把几个主力都拉满了　２０ｎｐ的技能　但是仔细想想水武藏这种开局＋２０又有什么用 ...</blockquote>
+我就喂了水武藏和水莉莉丝，其他都不敢动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eyeego  
+##### 80687#       发表于 2021-8-1 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195689&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-1 19:17</a>
+奥伯龙作为一个光炮伤害是真的低，宝具作用也就是一个强晕催眠了，我觉得可以发挥一下特性，三技能改成我 ...</blockquote>
+蘑菇:领导力这个技能很强<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+领导力还是直感来着 我有点忘记了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80688#       发表于 2021-8-1 19:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一个都没喂
+
+
+*****
+
+####  alucardcz  
+##### 80689#       发表于 2021-8-1 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196017&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-1 19:39</a>
+
+我就喂了水武藏和水莉莉丝，其他都不敢动了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水武藏我也拉了　但是仔细一样没毛用啊　　ｃ呆２技能不丢　估计２面根本回不到１００　还是得丢　　最后白给（
+
+
+*****
+
+####  areklose  
+##### 80690#       发表于 2021-8-1 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196038&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-1 19:40</a>
+
+我一个都没喂</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我不信。明明6羁绊就能点。你舍不得吧
+
+
+*****
+
+####  alucardcz  
+##### 80691#       发表于 2021-8-1 19:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我决定吃苹果刷羁绊拿石头去　有３个６０万的　谁告诉我刷２０体力的最高级钱本要刷多少次
+
+
+*****
+
+####  当光停止  
+##### 80692#       发表于 2021-8-1 19:42
+
+
+这经验条我有点慌。
+
+
+*****
+
+####  rooarr  
+##### 80693#       发表于 2021-8-1 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196044&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 19:41</a>
+水武藏我也拉了　但是仔细一样没毛用啊　　ｃ呆２技能不丢　估计２面根本回不到１００　还是得丢 ...</blockquote>
+可以到吧，之前水武藏经常回90多，c呆2技能对水武藏意义不大的
+
+
+*****
+
+####  黑上シグマ  
+##### 80694#       发表于 2021-8-1 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196052&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-1 19:41</a>
+
+我不信。明明6羁绊就能点。你舍不得吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错，是因为太懒
+
+
+*****
+
+####  alucardcz  
+##### 80695#       发表于 2021-8-1 19:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196065&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-1 19:42</a>
+
+可以到吧，之前水武藏经常回90多，c呆2技能对水武藏意义不大的</blockquote>
+２技能有黄金率啊　没这个２技能能满？
+
+
+*****
+
+####  rooarr  
+##### 80696#       发表于 2021-8-1 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196081&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 19:43</a>
+２技能有黄金率啊　没这个２技能能满？</blockquote>
+70黄金率和90黄金率差不了太多，我是这么觉得的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80697#       发表于 2021-8-1 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195920&amp;ptid=1085254" target="_blank">KOBI 发表于 2021-8-1 19:32</a>
+
+就这游戏卡池公告只有阶职和宝具的尿性瞎改技能搞劣化不得被炎上到死
+
+一定不会有问题的（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请以实物为准
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 80698#       发表于 2021-8-1 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196005&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-1 19:38</a>
+
+草这么有乐子？，就求个喷bitch的链接</blockquote>
+[https://weibo.com/u/5091322000?refer_flag=1001030103_](https://weibo.com/u/5091322000?refer_flag=1001030103_)
+
+
+*****
+
+####  alucardcz  
+##### 80699#       发表于 2021-8-1 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196087&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-1 19:44</a>
+
+70黄金率和90黄金率差不了太多，我是这么觉得的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样的话带０４倒是能冲一些本来不能冲的本了
+
+
+*****
+
+####  zore  
+##### 80700#       发表于 2021-8-1 19:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这生命宝石翁要是初始60满破80带个OC上升1就好了
+
+3000生命完全没卵用
+
+
+
+
+*****
+
+####  森兰丸  
+##### 80701#       发表于 2021-8-1 19:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我在想助战里杀狐是放加绊和经验的礼装还是放常规50NP的攻击礼装
+
+
+*****
+
+####  areklose  
+##### 80702#       发表于 2021-8-1 19:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要第一时间把我的狂都点了。以后就可以原地开炮
+
+
+*****
+
+####  黑上シグマ  
+##### 80703#       发表于 2021-8-1 19:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好了我去开了个仇凛的二技能，1级就行，可以少点下礼装技能
+
+
+*****
+
+####  exiaexa  
+##### 80704#       发表于 2021-8-1 19:47
+
+
+怎么你们动作这么快的
+
+我通用技能一个都没点，等逼急了再说
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80705#       发表于 2021-8-1 19:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196126&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 19:46</a>
+
+我在想助战里杀狐是放加绊和经验的礼装还是放常规50NP的攻击礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">羡慕　　萌新血沉　准备吃苹果强刷羁绊了
+
+
+*****
+
+####  exiaexa  
+##### 80706#       发表于 2021-8-1 19:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196126&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 19:46</a>
+
+我在想助战里杀狐是放加绊和经验的礼装还是放常规50NP的攻击礼装</blockquote>
+满破宝石翁啊
+
+两个满破宝石的杀狐狸还挺快乐的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80707#       发表于 2021-8-1 19:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃什么苹果刷羁绊,还不如留着无限池
+
+
+*****
+
+####  上坂莲华  
+##### 80708#       发表于 2021-8-1 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195972&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-1 19:36</a>
+
+杀狐现在比梅林优秀只在于2个狐狸能够100充。实际上你把梅林换成她，上班能上的也就是打柱子。实际上周回 ...</blockquote>
+其实还有-4CD可以让某些5T技能的打手3面开第二轮技能，加上CD服可以-6CD，某些7T自充30-50的就质变了
+
+但大部分打手变化都不算大，也就从换人宝石都没办法3T变成换人宝石可以3T而已，不过不挑本这点还是比较强的
+
+
+*****
+
+####  alucardcz  
+##### 80709#       发表于 2021-8-1 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196166&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-1 19:49</a>
+
+吃什么苹果刷羁绊,还不如留着无限池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我苹果吃不光　太多了　可以在顶２年的无限池估计还吃不光
+
+
+*****
+
+####  exiaexa  
+##### 80710#       发表于 2021-8-1 19:52
+
+
+ 本帖最后由 exiaexa 于 2021-8-1 19:53 编辑 
+
+看需求吧，如果急需狗粮和QP的话
+
+现在猛刷极级的本效率猛太多了
+
+40ap=900w/18个五星狗粮=54个四星狗粮，远超无限池了
+
+
+*****
+
+####  森兰丸  
+##### 80711#       发表于 2021-8-1 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196156&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 19:48</a>
+
+羡慕　　萌新血沉　准备吃苹果强刷羁绊了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">还有这么多天呢....搞不好明天的石头10连就一个双黄....萌新可是萌新哎....要对自己的豹力有信心!
+
+
+*****
+
+####  areklose  
+##### 80712#       发表于 2021-8-1 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196172&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-8-1 19:50</a>
+
+其实还有-4CD可以让某些5T技能的打手3面开第二轮技能，加上CD服可以-6CD，某些7T自充30-50的就质变了
+
+但 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以周回还是打不过蓝卡绿卡阿。
+
+
+*****
+
+####  alucardcz  
+##### 80713#       发表于 2021-8-1 19:53
+
+
+一把最高级钱本１０１５羁绊　　９０石需要７０万羁绊　也就１００个不到的金苹果！　我上了！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">看看是２０亿上限先爆掉还是我先刷好羁绊
+
+
+*****
+
+####  zore  
+##### 80714#       发表于 2021-8-1 19:53
+
+
+无限池还有些杂七杂八的小玩意儿
+
+说不定以后全是5星狗粮呢!<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 80715#       发表于 2021-8-1 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196158&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 19:49</a>
+
+满破宝石翁啊
+
+两个满破宝石的杀狐狸还挺快乐的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">可非洲人就一张满破宝石啊....已经给摩根了
+
+
+*****
+
+####  zakki  
+##### 80716#       发表于 2021-8-1 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196099&amp;ptid=1085254" target="_blank">fantuanxiaoyi 发表于 2021-8-1 19:44</a>
+https://weibo.com/u/5091322000?refer_flag=1001030103_</blockquote>
+还以为是因为梅林被爆破防的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80717#       发表于 2021-8-1 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196208&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 19:53</a>
+
+还有这么多天呢....搞不好明天的石头10连就一个双黄....萌新可是萌新哎....要对自己的豹力有信心! ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">没有这种东西　我已经开始吃苹果刷羁绊了
+
+
+*****
+
+####  rooarr  
+##### 80718#       发表于 2021-8-1 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196234&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 19:54</a>
+没有这种东西　我已经开始吃苹果刷羁绊了</blockquote>
+萌新你的free本居然都清掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80719#       发表于 2021-8-1 19:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196220&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 19:53</a>
+
+可非洲人就一张满破宝石啊....已经给摩根了</blockquote>
+想了想如果让我选助战，我选50NP的吧
+
+只为了点加成去选一个打不出炮的50NP红卡也太尴尬了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80720#       发表于 2021-8-1 19:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196259&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-1 19:56</a>
+
+萌新你的free本居然都清掉了</blockquote>
+你这也太看不起萌新了　我ｆｒｅｅ都是第１时间全清的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80721#       发表于 2021-8-1 19:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">看了看我苹果全部算起来已经超过１０００个金苹果了。。看来摸的时间太久了
+
+
+*****
+
+####  exiaexa  
+##### 80722#       发表于 2021-8-1 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196310&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 19:59</a>
+
+看了看我苹果全部算起来已经超过１０００个金苹果了。。看来摸的时间太久了 ...</blockquote>
+艹，你们萌新从来不抽卡的吗
+
+1000苹果还能满QP的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80723#       发表于 2021-8-1 20:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196362&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 20:01</a>
+
+艹，你们萌新从来不抽卡的吗
+
+1000苹果还能满QP的</blockquote>
+？　我石不过三
+
+１００级都拉了１１个
+
+
+我平时每天都清体力的（钱本<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80724#       发表于 2021-8-1 20:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196378&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 20:02</a>
+
+？　我石不过三
+
+１００级都拉了１１个</blockquote>
+我的QP宛如你的石头
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                               

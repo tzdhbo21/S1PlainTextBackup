@@ -8876,3 +8876,28 @@ STEAM版没BGM包，关键这玩意也没说后面会不会单卖（服装 ...</
 
 
                                                  
+
+*****
+
+####  隔壁老黄  
+##### 2151#       发表于 2021-8-1 20:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52160542&amp;ptid=1860328" target="_blank">Guildenstern 发表于 2021-7-30 10:14</a>
+小剧场用动画表现力才强。二流日厂的3D演出根本指望不上。
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+小剧场哪来的动画
+
+
+*****
+
+####  戏言学者  
+##### 2152#       发表于 2021-8-1 20:11
+
+
+本来正想预购ps4版，突然想到ps5版有60帧和手柄适配（据说非常爽），而我还没有ps5，然后又把预购取消了。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 
