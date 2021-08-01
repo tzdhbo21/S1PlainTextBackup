@@ -12960,3 +12960,102 @@ bsyl
 
 
                                                  
+
+*****
+
+####  路人庚  
+##### 22198#       发表于 2021-8-1 13:26
+
+
+之前这个首播待机间刚放出来的时候我也以为是联动来着
+
+
+不过看这标题，兰熊应该剪的就是这野男人刚刚连麦的那一段了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aisakahammer  
+##### 22199#       发表于 2021-8-1 13:30
+
+
+ 我还以为她要大A特A了
+
+
+*****
+
+####  T_Hb  
+##### 22200#       发表于 2021-8-1 13:32
+
+
+她只会大l特l,而且不开播
+
+
+
+
+*****
+
+####  往世雷书  
+##### 22201#       发表于 2021-8-1 13:59
+
+
+可能对她来说播游戏不如睡觉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  rosevalley46  
+##### 22202#       发表于 2021-8-1 14:11
+
+
+澄清一下,如果不是为了恰饭,播啥她应该觉得都不如睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22203#       发表于 2021-8-1 14:12
+
+
+tc聊天肯定比睡觉有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 22204#       发表于 2021-8-1 14:14
+
+
+能不能tc睡觉，最好能来点梦话<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22205#       发表于 2021-8-1 14:15
+
+
+梦话内容：et哥哥是mea的老公<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 22206#       发表于 2021-8-1 14:17
+
+
+这是你的梦话吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22207#       发表于 2021-8-1 14:17
+
+
+咩梦话：Mikey 我的Mikey prprprpr 哼啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊
+
+
+                                                

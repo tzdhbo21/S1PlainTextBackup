@@ -11242,3 +11242,47 @@ holoen这个PV是啥呀，信息量太少，二期是神话主题？
 
 
                                                  
+
+*****
+
+####  渡鸦骑士  
+##### 5448#       发表于 2021-8-1 13:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52190744&amp;ptid=1972669" target="_blank">リスカ 发表于 2021-8-1 12:02</a>
+
+源https://b23.tv/oxp1T2
+
+首先这篇专栏并不客观 </blockquote>
+哪个阶段也没有……我听说上市要连续三年盈利来着。
+
+彩虹去年好像还是亏的来着？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 5449#       发表于 2021-8-1 13:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52191804&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-8-1 13:51</a>
+
+哪个阶段也没有……我听说上市要连续三年盈利来着。
+
+彩虹去年好像还是亏的来着？ ...</blockquote>
+要连续三年盈利的是A股
+
+
+*****
+
+####  渡鸦骑士  
+##### 5450#       发表于 2021-8-1 14:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52191871&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-8-1 13:57</a>
+
+要连续三年盈利的是A股</blockquote>
+主要是上市不是有盈利指标嘛，当然这东西我确实不动，不瞎扯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
