@@ -912,3 +912,172 @@
 
 
                                                  
+
+*****
+
+####  有优越感的人mk2  
+##### 84#       发表于 2021-8-1 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199195&amp;ptid=2013779" target="_blank">wangh 发表于 2021-8-1 22:44</a>
+
+主要是向晚一系列事件后，a/身上套的光环已经馊掉了。
+
+放以前别人遭遇狂暴鸿儒也许会缩卵保平安。现在遇到 ...</blockquote>
+所有盾都碎了，还出现了新强队，只能跟企鹅比真情实感跟传统V比技术了；a团卸掉粉丝滤镜之后真没资格批别人，还主动切割自家最有活力的人，以后也别打外战了，自取其辱，那么多黑历史人家随便来点高雅创作自己就要破防了，以后就时不时抓几个内部不和谐因素打着玩假装自己无敌吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天邪鬼  
+##### 85#       发表于 2021-8-1 22:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199245&amp;ptid=2013779" target="_blank">KarlsenIn1877 发表于 2021-8-1 22:48</a>
+不好说。是有人把文静当工具的，评论区里有部分人一直在造谣文静宣扬开盒内容的。直播时的程度和评论区里复 ...</blockquote>
+b站好像放不了图，这就很烦，谁都可以无成本造谣。辟谣反而麻烦的要死
+现在就看是要炒一波恰黑流量，还是试着做完美受害者。我是不倾向于后者，因为那就像是在说“如果你德行有亏（哪怕是硬掰出来的），那网暴你就没问题”
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  莫洛骑士  
+##### 86#       发表于 2021-8-1 23:03
+
+
+今天红地毯那段可真是给我看笑了，节目效果好的批爆
+可惜结尾写礼物乐子人太多结果成为了战场，
+但是怕什么，静阿姨三十八年什么没见过？
+
+
+*****
+
+####  夜潇箫  
+##### 87#       发表于 2021-8-1 23:06
+
+
+1万回复了，还有莫名其妙多出来的开盒节奏，没人带节奏我真不信
+
+
+*****
+
+####  斯大林的拖拉机  
+##### 88#       发表于 2021-8-1 23:10
+
+
+把握机会炒一波文静自己粉丝纯度不也提上来了，还能再从as这里再吸一口摇摆粉丝也说不定，到时候再转型千鸟的大类招生担当不就好了
+
+我看不到坏处在哪里啊，这个年代的网络骂战只要不发展到线下能有什么损失
+
+
+*****
+
+####  GAKOTO  
+##### 89#         楼主| 发表于 2021-8-1 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199152&amp;ptid=2013779" target="_blank">夜之中道崩殂 发表于 2021-8-1 22:41</a>
+果然，不战斗就无法生存下去。今天这个楼一天的活跃度赶上一周了</blockquote>
+一个月<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夜之中道崩殂  
+##### 90#       发表于 2021-8-1 23:11
+
+
+后面基本上都是冲刺1w和剪切板大乱斗了。那几个还提向晚、李奕、小粒q的都没有静栗惹牌子，真是……
+
+
+
+
+*****
+
+####  夜之中道崩殂  
+##### 91#       发表于 2021-8-1 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199573&amp;ptid=2013779" target="_blank">GAKOTO 发表于 2021-8-1 23:11</a>
+一个月</blockquote>
+刚才没有一个月，现在差不多一个月了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KarlsenIn1877  
+##### 92#       发表于 2021-8-1 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199559&amp;ptid=2013779" target="_blank">斯大林的拖拉机 发表于 2021-8-1 23:10</a>
+
+把握机会炒一波文静自己粉丝纯度不也提上来了，还能再从as这里再吸一口摇摆粉丝也说不定，到时候再转型千鸟 ...</blockquote>
+我真的不觉得这波炒过来的所谓“粉丝”能够融入除了文静以外千鸟其他成员的直播间。甚至现在引过来的一大批所谓的“粉丝”我觉得只是把文静当作工具用的想法，至于文静或者说千鸟的未来会怎样他们是根本不在意的。
+
+
+*****
+
+####  赤星ビスコ  
+##### 93#       发表于 2021-8-1 23:20
+
+
+我去看了眼了那条状态已经变成两边乐子人的狂欢，盖楼盖到1万了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  斯大林的拖拉机  
+##### 94#       发表于 2021-8-1 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199653&amp;ptid=2013779" target="_blank">KarlsenIn1877 发表于 2021-8-1 23:17</a>
+
+我真的不觉得这波炒过来的所谓“粉丝”能够融入除了文静以外千鸟其他成员的直播间。甚至现在引过来的一大 ...</blockquote>
+只要有增长就行，mmr追着流量跑，乐子浓度到时候自然就会冲淡，千鸟这种企划失去增长反而危险
+
+
+*****
+
+####  天邪鬼  
+##### 95#       发表于 2021-8-1 23:43
+
+
+羊驼下一步不会直接把锅甩给tx吧，毕竟都贵司了
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  IDIDIDID  
+##### 96#       发表于 2021-8-1 23:47
+
+
+当年V8狙狂暴轰入刚出道的A手的时候也有人这么杞忧过，到现在也都能mmr化的都mmr化了，看不得mmr的只配在贴吧酸屁。A手怎么扛过来的千鸟直播员和运营照着抄就是了。
+
+
+*****
+
+####  袜子  
+##### 97#       发表于 2021-8-1 23:53
+
+
+懒得当38岁静二姨的电子家人了，爱咋咋吧，反正冲不过那帮战狂，现在想想B站真厉害啊，至今都能维持主力军是大学生这一点真的不容易，这点精力拿去踩脚踏车发电不好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  夜之中道崩殂  
+##### 98#       发表于 2021-8-1 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52200030&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-8-1 23:47</a>
+当年V8狙狂暴轰入刚出道的A手的时候也有人这么杞忧过，到现在也都能mmr化的都mmr化了，看不得mmr的只配在贴 ...</blockquote>
+千鸟的运营真的会抄吗？<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+                                                

@@ -15840,3 +15840,287 @@ yls说的明明是，不是讨伐战，怎么传着传着就成了是讨伐战�
 
 
                                                
+
+*****
+
+####  rooarr  
+##### 80786#       发表于 2021-8-1 22:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52198820&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 22:13</a>
+什么　我点了几个２０ｎｐ就用掉了几亿？</blockquote>
+才知道啊，一个技能6000w一点都不少的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80787#       发表于 2021-8-1 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199004&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-1 22:29</a>
+
+才知道啊，一个技能6000w一点都不少的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">算了　为了１２０石钱反正肯定先爆仓
+
+
+*****
+
+####  الطائر  
+##### 80788#       发表于 2021-8-1 22:43
+
+
+宝石剑、柳洞寺、龙脉恐成最大赢家
+
+
+*****
+
+####  シャル  
+##### 80789#       发表于 2021-8-1 22:46
+
+
+图鉴313是啥玩意<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80790#       发表于 2021-8-1 22:49
+
+
+发觉这次很多开AP技能的都要吃马角，YLS你也知道这东西没人吃吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  alucardcz  
+##### 80791#       发表于 2021-8-1 22:51
+
+
+出了几张剧透图。。。
+
+
+*****
+
+####  alucardcz  
+##### 80792#       发表于 2021-8-1 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199223&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-1 22:46</a>
+
+图鉴313是啥玩意</blockquote>
+帕西瓦尔
+
+
+*****
+
+####  alucardcz  
+##### 80793#       发表于 2021-8-1 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199250&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-1 22:49</a>
+
+发觉这次很多开AP技能的都要吃马角，YLS你也知道这东西没人吃吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我开了个ｃ呆没注意吃鳞粉　　回过神来已经点下去了
+
+
+*****
+
+####  khxooo  
+##### 80794#       发表于 2021-8-1 22:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199296&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 22:53</a>
+
+我开了个ｃ呆没注意吃鳞粉　　回过神来已经点下去了</blockquote>
+磷粉这东西我这里没人吃，估计也就未来的哈贝喵要吃，所以就点了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80795#       发表于 2021-8-1 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199267&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 22:51</a>
+
+出了几张剧透图。。。</blockquote>
+在哪儿？
+
+
+*****
+
+####  不垃圾屌丝  
+##### 80796#       发表于 2021-8-1 23:00
+
+
+蘑菇日记更新了
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 80797#       发表于 2021-8-1 23:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199387&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-1 22:59</a>
+
+在哪儿？</blockquote>
+[https://bbs.nga.cn/read.php?tid=27874948](https://bbs.nga.cn/read.php?tid=27874948)
+
+
+也许有大透　慎点
+
+
+*****
+
+####  黑上シグマ  
+##### 80798#       发表于 2021-8-1 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199401&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 23:00</a>
+
+https://bbs.nga.cn/read.php?tid=27874948</blockquote>
+我是剧透大欢迎党
+
+
+*****
+
+####  khxooo  
+##### 80799#       发表于 2021-8-1 23:04
+
+
+ 本帖最后由 khxooo 于 2021-8-1 23:06 编辑 
+
+果然黑了，从一开始我就不相信他，哈贝喵又疑似是送的，这样可以省石头了（醒醒你没石头了），现在只希望是限定，这样让我永远都没机会抽到他就好了。
+
+
+*****
+
+####  黑上シグマ  
+##### 80800#       发表于 2021-8-1 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199396&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-8-1 23:00</a>
+
+蘑菇日记更新了
+
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">5页之前我就提了，没人理我
+
+
+*****
+
+####  白夜羽  
+##### 80801#       发表于 2021-8-1 23:08
+
+
+啊，原来福利多不是常驻池的？常驻自选我还想选她来着<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80802#       发表于 2021-8-1 23:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要是就这试用技能最后还是的抽抽
+
+
+*****
+
+####  シャル  
+##### 80803#       发表于 2021-8-1 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199289&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 22:52</a>
+
+帕西瓦尔</blockquote>
+我才发现我没用这货参战<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白夜羽  
+##### 80804#       发表于 2021-8-1 23:11
+
+
+最后咧嘴笑那张还蛮帅的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80805#       发表于 2021-8-1 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199523&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-8-1 23:08</a>
+
+啊，原来福利多不是常驻池的？常驻自选我还想选她来着</blockquote>
+是常驻，但新一点的常驻这次不送
+
+比如某双子也没有
+
+
+*****
+
+####  qixinno2  
+##### 80806#       发表于 2021-8-1 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199523&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-8-1 23:08</a>
+
+啊，原来福利多不是常驻池的？常驻自选我还想选她来着</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下是常驻啊
+
+
+*****
+
+####  yzj134100  
+##### 80807#       发表于 2021-8-1 23:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">充了一单结果钱扣了石头没到账，逼着充多一单才有。还好两个十连就出了
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  不垃圾屌丝  
+##### 80808#       发表于 2021-8-1 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199511&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-1 23:07</a>
+5页之前我就提了，没人理我</blockquote>
+毕竟确实没啥有用的信息<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  khxooo  
+##### 80809#       发表于 2021-8-1 23:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199580&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-1 23:11</a>
+我才发现我没用这货参战</blockquote>
+不是啊，打狗大公不是要用他来解除狗大公的特殊状态的吗？
+
+
+*****
+
+####  AbigailWilliams  
+##### 80810#       发表于 2021-8-1 23:27
+
+
+比起马角，我觉得黑兽脂的含金量更高一点
+
+
+                                                

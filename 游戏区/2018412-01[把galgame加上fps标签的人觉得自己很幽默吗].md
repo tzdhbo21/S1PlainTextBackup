@@ -743,3 +743,39 @@ ps3不喝红酒不能玩，steam是需要什么门槛，大家说说</blockquote
 
 
                                                
+
+*****
+
+####  Firvox  
+##### 65#       发表于 2021-8-1 22:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52194543&amp;ptid=2018412" target="_blank">那由 发表于 2021-8-1 18:10</a>
+网页版还好，可以单独设置语言，如果客户端里面的话强制跟客户端设置的语言，但是我又不想改
+
+日语字 ...</blockquote>
+有个小技巧，在语言设置里勾选第二语言后，在英文评论里也会看到中文评论，反过来也一样，这样不需要改Steam语言也能看到特定多种语言的评论了
+
+
+*****
+
+####  laputah  
+##### 66#       发表于 2021-8-1 23:29
+
+
+我觉得什么逼都没认真逼离谱 点fps跳出来几个黄油对浏览其实没什么影响 第一次见笑笑见多了觉得没意思无视就行 对于认真逼不一样 这个时候认真逼的心目里的完美世界直接崩塌 开启我不能接受狂怒mode
+
+
+*****
+
+####  大秦男女  
+##### 67#         楼主| 发表于 2021-8-1 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199828&amp;ptid=2018412" target="_blank">laputah 发表于 2021-8-1 23:29</a>
+
+我觉得什么逼都没认真逼离谱 点fps跳出来几个黄油对浏览其实没什么影响 第一次见笑笑见多了觉得没意思无视 ...</blockquote>
+啊这......极品
+
+
+                                                 

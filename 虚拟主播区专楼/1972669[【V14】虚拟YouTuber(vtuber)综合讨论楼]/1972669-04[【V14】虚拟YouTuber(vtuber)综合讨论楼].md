@@ -11671,3 +11671,78 @@ vtl...我的vtl...
 
 
                                                  
+
+*****
+
+####  Suny08  
+##### 5473#       发表于 2021-8-1 22:33
+
+
+以下内容需要积分高于 5000 才可浏览
+
+第二天：链接：[https://pan.baidu.com/s/1EeeZUpQQKBftTag5hCnvWA](https://pan.baidu.com/s/1EeeZUpQQKBftTag5hCnvWA) 
+
+提取码：rwbe 
+
+好像因为和谐的原因b源被切成两半了，就先这样子吧
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 6战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| free| + 2||
+| 越动天下| + 1|好评加鹅|
+| alcoholic1000| + 1||
+| argaregeasr| + 1|好评加鹅|
+| 渡鸦骑士| + 1|好评加鹅|
+| WDDzzZ| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  Suny08  
+##### 5474#       发表于 2021-8-1 23:08
+
+
+bsyl，原来你虹还要搞虹足的，没科乐美实况大力支持的话估计效果不可能达得到虹棒的效果吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 5475#       发表于 2021-8-1 23:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 你虹准备上市了么，各路liver开始冲业绩了，想分股权的、准备跑路的、躺平放弃的，
+
+
+大事要发生了，你虹历史转折点开始了
+
+
+*****
+
+####  alcoholic1000  
+##### 5476#       发表于 2021-8-1 23:28
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-1 23:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199522&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-8-1 23:08</a>
+
+bsyl，原来你虹还要搞虹足的，没科乐美实况大力支持的话估计效果不可能达得到虹棒的效果吧，别什么 ...</blockquote>
+我猜虹足搞起来的直接原因是油男那段时间谷歌play100w+帕青哥赚了很多，正巧实况足球打折，就像骚扰一样给steam好友狂塞（油：只是想花钱），比赛就组起来了，他也没想到33人参加<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看规则应该是整活向，和虹棒这种技术流（存疑）大概不一样
+
+顺便一提当时正巧叶生日，给他感动了半天，事后发现人人有份<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+                                                 
