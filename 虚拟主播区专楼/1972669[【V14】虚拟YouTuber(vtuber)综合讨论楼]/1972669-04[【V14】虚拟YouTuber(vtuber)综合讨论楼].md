@@ -11123,3 +11123,28 @@ Prelude｜#holoENPrelude
 
 
                                                  
+
+*****
+
+####  free  
+##### 5444#       发表于 2021-8-1 09:49
+
+
+holoen这个PV是啥呀，信息量太少，二期是神话主题？
+
+
+这个holo error是啥玩意，恐怖游戏吗，这是烂货圆脸想出来的项目？傻了吧唧的圆脸不人气声优主役恐怖游戏，真是一次完成两个心愿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=iHekCdRagR8](https://www.youtube.com/watch?v=iHekCdRagR8)
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/094903ay2zcalhetht8de8.png" referrerpolicy="no-referrer">
+
+
+<strong>圆脸.png</strong> (62.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 09:49 上传
+
+
+                                                 

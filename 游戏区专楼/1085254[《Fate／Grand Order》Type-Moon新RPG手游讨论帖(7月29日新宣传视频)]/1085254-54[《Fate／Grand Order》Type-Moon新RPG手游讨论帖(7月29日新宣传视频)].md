@@ -11606,3 +11606,46 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 80409#       发表于 2021-8-1 09:47
+
+
+万一是那种每天1发优惠呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bikalu  
+##### 80410#       发表于 2021-8-1 10:11
+
+
+来个200连天井（付费石限定）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80411#       发表于 2021-8-1 10:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52189775&amp;ptid=1085254" target="_blank">bikalu 发表于 2021-8-1 10:11</a>
+
+来个200连天井（付费石限定）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">付费石200连是几单啊
+
+
+*****
+
+####  khxooo  
+##### 80412#       发表于 2021-8-1 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52189791&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 10:12</a>
+付费石200连是几单啊</blockquote>
+应该是7.5单左右
+
+
+                                                 

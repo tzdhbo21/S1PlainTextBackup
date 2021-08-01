@@ -17197,3 +17197,25 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  athena_1982  
+##### 55441#       发表于 2021-7-31 00:59
+
+
+布鲁克那句话听起来还真是无尽的凄凉啊……
+
+
+*****
+
+####  svmkty  
+##### 55442#       发表于 2021-8-1 09:56
+
+
+擦？1020还有和谐版？？有没有大图高清的？？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+<img src="http://tiebapic.baidu.com/forum/pic/item/468ccd11728b471035dee17bd4cec3fdfd032345.jpg" referrerpolicy="no-referrer">
+
+
+                                                 
