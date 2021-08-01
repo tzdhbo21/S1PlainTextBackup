@@ -15088,3 +15088,755 @@ https://weibo.com/u/5091322000?refer_flag=1001030103_</blockquote>
 
 
                                                
+
+*****
+
+####  areklose  
+##### 80725#       发表于 2021-8-1 20:14
+
+
+其实杀狐狸要是30群充20他充会好很多，配合新出的被动好歹自己也能放宝具给群充。但可惜不给。
+
+
+*****
+
+####  シャル  
+##### 80726#       发表于 2021-8-1 20:27
+
+
+beast案件了
+
+
+A42E2A01-D2E7-4312-ADB6-96ED57C0BCBB.png
+(1.15 MB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-1 20:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/202657a7wzyxw1175176ay.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80727#       发表于 2021-8-1 20:28
+
+
+阿叶真的深得精髓啊，只要出个大拐就没人会吵抽卡保底什么的了，这招从去年用到今年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80728#       发表于 2021-8-1 20:32
+
+
+福袋暴死
+
+
+1/3新卡没抽到，全部重复
+
+
+BB430399-CBEF-45B4-84C3-D6DCA23F19C9.png
+(1.05 MB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-1 20:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/203129f6q7brrz76np4rp4.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80729#       发表于 2021-8-1 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196681&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-1 20:28</a>
+
+阿叶真的深得精髓啊，只要出个大拐就没人会吵抽卡保底什么的了，这招从去年用到今年 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">其实这拐不算很大　没发生啥质变
+
+
+*****
+
+####  alucardcz  
+##### 80730#       发表于 2021-8-1 20:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">刷了５个苹果人已经麻了。。居然还要刷９５个
+
+
+
+
+*****
+
+####  exiaexa  
+##### 80731#       发表于 2021-8-1 20:35
+
+
+先不说算不算大拐
+
+我早就氪成半只母猪了，他装不装天井已经跟我没关系了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80732#       发表于 2021-8-1 20:37
+
+
+虽然没出最想要的司马懿，但是剩下三个也不算雷。就这样吧
+
+
+*****
+
+####  areklose  
+##### 80733#       发表于 2021-8-1 20:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">自选先等等强化本。
+
+
+*****
+
+####  Jamaisvu  
+##### 80734#       发表于 2021-8-1 20:39
+
+
+B站看到有人算了硬币的需求，转一下：
+
+
+拉满一个从者要660个硬币，15绊给180个，四星抽到一个给30，五星抽到一个给90，开一个技能要120硬币，100级以上喂一个杯子要30个硬币，五宝15绊五星只能获得630个硬币，五宝15绊4星只能获得330个硬币，要全部拉满五星得抽六宝，四星得抽16宝​
+
+
+另外120级需要的狗粮也要上万<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+YLS：听说你们喜欢养成？
+
+
+*****
+
+####  alucardcz  
+##### 80735#       发表于 2021-8-1 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196860&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-1 20:39</a>
+
+B站看到有人算了硬币的需求，转一下：
+
+
+拉满一个从者要660个硬币，15绊给180个，四星抽到一个给30，五星抽 ...</blockquote>
+狗粮上万？　都不够地方放啊？　什么时候有够粮仓库
+
+
+*****
+
+####  alucardcz  
+##### 80736#       发表于 2021-8-1 20:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196843&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-1 20:38</a>
+
+自选先等等强化本。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">萌新直接选了个白枪　大就行了　
+
+
+*****
+
+####  森兰丸  
+##### 80737#       发表于 2021-8-1 20:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">这被动技能真没什么用啊....都是鸡肋....硬币还是用来开120级好了
+
+
+*****
+
+####  黑上シグマ  
+##### 80738#       发表于 2021-8-1 20:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自选我直接老李，剧限齐了
+
+
+*****
+
+####  areklose  
+##### 80739#       发表于 2021-8-1 20:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196901&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 20:41</a>
+
+这被动技能真没什么用啊....都是鸡肋....硬币还是用来开120级好了</blockquote>
+被动开局进场自带20NP怎么能说鸡肋。至于120.那狗粮要求要命阿
+
+
+*****
+
+####  areklose  
+##### 80740#       发表于 2021-8-1 20:44
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/204411rzkckgcd7tweihoc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210801204348.jpg</strong> (75.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 20:44 上传
+
+
+*****
+
+####  黑上シグマ  
+##### 80741#       发表于 2021-8-1 20:46
+
+
+感觉现在没必要先去打强化本，趁现在减半赶紧刷钱
+
+
+*****
+
+####  シャル  
+##### 80742#       发表于 2021-8-1 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197005&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-1 20:46</a>
+
+感觉现在没必要先去打强化本，趁现在减半赶紧刷钱</blockquote>
+的确钱不够强化了
+
+
+*****
+
+####  alucardcz  
+##### 80743#       发表于 2021-8-1 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196901&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 20:41</a>
+
+这被动技能真没什么用啊....都是鸡肋....硬币还是用来开120级好了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">１２０级要12500+个四星狗粮  你想想你做刷的够吗
+
+
+*****
+
+####  rooarr  
+##### 80744#       发表于 2021-8-1 20:50
+
+
+我今天用了4亿的qp了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正在补，目测还有2亿
+
+
+*****
+
+####  zakki  
+##### 80745#       发表于 2021-8-1 20:51
+
+
+福袋还没抽，到底是搏水武藏好还是狂娜好<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80746#       发表于 2021-8-1 20:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197091&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-1 20:50</a>
+
+我今天用了4亿的qp了正在补，目测还有2亿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">１００个苹果刷完估计我钱又爆仓了！
+
+
+*****
+
+####  areklose  
+##### 80747#       发表于 2021-8-1 20:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197112&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-1 20:51</a>
+
+福袋还没抽，到底是搏水武藏好还是狂娜好</blockquote>
+没雷就是最好的那个。或者你看看那个年份有没有限定四星想博一下
+
+
+*****
+
+####  森兰丸  
+##### 80748#       发表于 2021-8-1 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196949&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-1 20:43</a>
+
+被动开局进场自带20NP怎么能说鸡肋。至于120.那狗粮要求要命阿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">20NP现在也就只能拯救一下周回本那些自充只有20的吧....其它场合真想不到有什么用
+
+
+狗粮这东西开一次无限池就能溢出到你恶心.....而且还有圣杯的限制.....和金芙芙一样...一年能喂出一只本命120就不错了
+
+
+*****
+
+####  シャル  
+##### 80749#       发表于 2021-8-1 20:53
+
+
+ 本帖最后由 シャル 于 2021-8-1 20:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197112&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-1 20:51</a>
+
+福袋还没抽，到底是搏水武藏好还是狂娜好</blockquote>
+狂娜<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+但是还是看哪个福袋缺的多
+
+
+我1/3新卡的福袋都爆死<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80750#       发表于 2021-8-1 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197159&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 20:53</a>
+
+20NP现在也就只能拯救一下周回本那些自充只有20的吧....其它场合真想不到有什么用
+
+
+狗粮这东西开 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">可是２０ｎｐ你现在就能直接拉满
+
+
+*****
+
+####  katun  
+##### 80751#       发表于 2021-8-1 20:56
+
+
+不小心把三个技能都开了后才发现升级用的不够了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 以后活动会送通用币吗
+
+
+*****
+
+####  森兰丸  
+##### 80752#       发表于 2021-8-1 20:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">呔....看杀狐3破改了模型还以为有2套宝具....结果还是只有1套....出乎意料的让人失望了
+
+
+*****
+
+####  シャル  
+##### 80753#       发表于 2021-8-1 20:56
+
+
+你们追加技能选哪个？
+
+
+*****
+
+####  黑上シグマ  
+##### 80754#       发表于 2021-8-1 20:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197159&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 20:53</a>
+
+20NP现在也就只能拯救一下周回本那些自充只有20的吧....其它场合真想不到有什么用
+
+
+狗粮这东西开 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">还能拯救下仇凛，可以把10NP衣服扔了
+
+
+*****
+
+####  areklose  
+##### 80755#       发表于 2021-8-1 20:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197159&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 20:53</a>
+
+20NP现在也就只能拯救一下周回本那些自充只有20的吧....其它场合真想不到有什么用
+
+
+狗粮这东西开 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">当然是3宝石平铺队伍收益最大阿。而且无限池子到时候这20NP说不定刚好补上。
+
+
+*****
+
+####  alucardcz  
+##### 80756#       发表于 2021-8-1 20:57
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/205727wqfqbyqzggk2vbqg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2223.jpg</strong> (411.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 20:57 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太菜了　农师傅　虽然你以前也很菜
+
+
+*****
+
+####  khxooo  
+##### 80757#       发表于 2021-8-1 20:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197257&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-1 20:56</a>
+
+你们追加技能选哪个？</blockquote>
+肯定是优先第二个啊，没有什么比开场多20NP重要的
+
+
+*****
+
+####  areklose  
+##### 80758#       发表于 2021-8-1 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197257&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-1 20:56</a>
+
+你们追加技能选哪个？</blockquote>
+2技能不用想了。20NP拯救一堆人手感。而且可以打某些周回本能省了点技能的功夫
+
+
+*****
+
+####  森兰丸  
+##### 80759#       发表于 2021-8-1 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197184&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 20:54</a>
+
+可是２０ｎｐ你现在就能直接拉满</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不拉不拉就不拉....这辣鸡游戏玩到现在那些新加的强化功能到现在就用了个圣杯突破等级上限....指令卡和强化色卡动都没动过
+
+
+*****
+
+####  khxooo  
+##### 80760#       发表于 2021-8-1 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197170&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-1 20:53</a>
+
+狂娜
+
+
+但是还是看哪个福袋缺的多</blockquote>
+我四分3机会NEW都能中雷<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  里村紅葉  
+##### 80761#       发表于 2021-8-1 21:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196860&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-1 20:39</a>
+
+B站看到有人算了硬币的需求，转一下：
+
+
+拉满一个从者要660个硬币，15绊给180个，四星抽到一个给30，五星抽 ...</blockquote>
+所以他设计了2个辣鸡技能，省了240币<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80762#       发表于 2021-8-1 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197254&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 20:56</a>
+
+呔....看杀狐3破改了模型还以为有2套宝具....结果还是只有1套....出乎意料的让人失望了 ...</blockquote>
+呸。这货不是狐狸，是兔子<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80763#       发表于 2021-8-1 21:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有一说一这20NP能把指令卡，强化色卡一起A了。甚至五星只要6羁绊就可以点出来。比要吃圣杯的，吃金芙芙的加强便宜
+
+
+*****
+
+####  areklose  
+##### 80764#       发表于 2021-8-1 21:08
+
+
+特别让我这种凑不到3个满破的宝石的省很多功夫
+
+
+*****
+
+####  khxooo  
+##### 80765#       发表于 2021-8-1 21:14
+
+
+哈贝喵是活动从者？如果是这做半天叶卫兵吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霧谷藤乃  
+##### 80766#       发表于 2021-8-1 21:14
+
+
+FGO抽卡体验还是独树一帜…昨天看对魔忍RPGwiki下面都有人喷……不过是产能支撑不起井
+
+
+*****
+
+####  森兰丸  
+##### 80767#       发表于 2021-8-1 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197464&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-1 21:03</a>
+
+呸。这货不是狐狸，是兔子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">感觉还真只有1破能看....3破那套衣服开坦克出来违和感太大了
+
+
+*****
+
+####  当光停止  
+##### 80768#       发表于 2021-8-1 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197714&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-1 21:14</a>
+
+哈贝喵是活动从者？如果是这做半天叶卫兵吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">啥时候的消息？
+
+接下来的泳装，活动4星不是小碧池吗？
+
+
+*****
+
+####  森兰丸  
+##### 80769#       发表于 2021-8-1 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197599&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-1 21:08</a>
+
+特别让我这种凑不到3个满破的宝石的省很多功夫</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可现在活动周回本都是各种阴间本啊.....很多时候我带满破满级的宝石连1面都秒不掉...要上个魔放之类的才行
+
+
+很难想象不带拐只靠不满破的宝石能3T打完阴间本
+
+
+*****
+
+####  alucardcz  
+##### 80770#       发表于 2021-8-1 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197599&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-1 21:08</a>
+
+特别让我这种凑不到3个满破的宝石的省很多功夫</blockquote>
+１张满破宝石　其他都用的满破虚数的萌新落泪了　就差５！
+
+
+*****
+
+####  eyeego  
+##### 80771#       发表于 2021-8-1 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197764&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-8-1 21:16</a>
+啥时候的消息？
+
+接下来的泳装，活动4星不是小碧池吗？</blockquote>
+解包出来三张图一样 有白送的可能性存在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80772#       发表于 2021-8-1 21:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197735&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-1 21:15</a>
+
+感觉还真只有1破能看....3破那套衣服开坦克出来违和感太大了</blockquote>
+因为兔子实在是....没气势
+
+
+*****
+
+####  zakki  
+##### 80773#       发表于 2021-8-1 21:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197170&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-1 20:53</a>
+狂娜
+
+
+但是还是看哪个福袋缺的多</blockquote>
+两个都是百分之五十的雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gugu153  
+##### 80774#       发表于 2021-8-1 21:31
+
+
+我玩了6年5星都是1宝的，被动技能和我没什么关系了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 80775#       发表于 2021-8-1 21:38
+
+
+梅林上了推特热搜可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80776#       发表于 2021-8-1 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52198003&amp;ptid=1085254" target="_blank">gugu153 发表于 2021-8-1 21:31</a>
+
+我玩了6年5星都是1宝的，被动技能和我没什么关系了</blockquote>
+可以开１个２０np的　　还是有点点关系
+
+
+*****
+
+####  当光停止  
+##### 80777#       发表于 2021-8-1 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52197813&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-1 21:19</a>
+
+解包出来三张图一样 有白送的可能性存在</blockquote>
+之前好像有2.6后边会搞一个类似魔神柱讨伐战的全服活动的传言来着。
+
+2.6这拖得太久，很多舅舅消息之类的东西我都忘了。
+
+
+*****
+
+####  zakki  
+##### 80778#       发表于 2021-8-1 21:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52198259&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-8-1 21:46</a>
+之前好像有2.6后边会搞一个类似魔神柱讨伐战的全服活动的传言来着。
+
+2.6这拖得太久，很多舅舅消息之类的 ...</blockquote>
+yls说的明明是，不是讨伐战，怎么传着传着就成了是讨伐战了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  当光停止  
+##### 80779#       发表于 2021-8-1 21:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52198274&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-1 21:47</a>
+
+yls说的明明是，不是讨伐战，怎么传着传着就成了是讨伐战了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以我后边说了，2.6拖得太久，从5月就开始造势。这堆消息混在一起，记不清楚了。
+
+
+*****
+
+####  不垃圾屌丝  
+##### 80780#       发表于 2021-8-1 21:51
+
+
+平均刷绊的赚到了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，开个初始NP就好，其他120级啥的当不存在
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  zore  
+##### 80781#       发表于 2021-8-1 21:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">司马懿也是rider啊,说不定就强化了呢
+
+
+*****
+
+####  gugu153  
+##### 80782#       发表于 2021-8-1 22:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52198177&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 21:41</a>
+
+可以开１个２０np的　　还是有点点关系</blockquote>
+1宝还要去升6级绊，太累太累<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 80783#       发表于 2021-8-1 22:09
+
+
+3技能除了狂阶是对阶级防暴击，别的都是对阶级加攻击，对啥职介基本都可以找到剧情根据，有些还满实用的，结晶不够啊，这被动技能都要结晶，每个月换的结晶也应该一起改成3个才对啊
+
+然而光是把五星的技能点开就花了1个多小时，4星的以后再说了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80784#       发表于 2021-8-1 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52198723&amp;ptid=1085254" target="_blank">gugu153 发表于 2021-8-1 22:07</a>
+
+1宝还要去升6级绊，太累太累</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">此时一个萌新正在吃苹果刷１５羁绊博杀狐
+
+
+*****
+
+####  alucardcz  
+##### 80785#       发表于 2021-8-1 22:13
+
+
+什么　我点了几个２０ｎｐ就用掉了几亿？
+
+
+                                               

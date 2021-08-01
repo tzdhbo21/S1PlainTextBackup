@@ -18071,3 +18071,38 @@ https://youtu.be/uzEEffCJOjs
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1173#       发表于 2021-8-1 20:57
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/205619g59f9w2h5n80o5i3.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (149.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 20:56 上传
+
+
+✧・ﾟ:*NEW MV PREMIERE*:・ﾟ✧ 
+
+
+The Grim Reaper is a Live-Streamer
+
+Original Song by Calliope Mori
+
+
+"As far as tellin' horror stories goes? My kinda warfare.”
+
+
+✧・ﾟ8.2 Premiere・ﾟ✧
+
+11:00 JST  /  7:00pm PDT / 3:00 BST
+[https://youtu.be/Z5VxUvL_uBo](https://youtu.be/Z5VxUvL_uBo)
+
+
+                                                 

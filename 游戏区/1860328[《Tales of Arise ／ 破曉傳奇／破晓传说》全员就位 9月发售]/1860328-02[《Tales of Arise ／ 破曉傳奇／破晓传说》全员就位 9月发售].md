@@ -8901,3 +8901,118 @@ STEAM版没BGM包，关键这玩意也没说后面会不会单卖（服装 ...</
 
 
                                                  
+
+*****
+
+####  医生狼多  
+##### 2153#       发表于 2021-8-1 20:18
+
+
+有谁知道ps5版手柄适配的程度吗？
+
+
+*****
+
+####  hypnossz86  
+##### 2154#       发表于 2021-8-1 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196435&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-8-1 20:07</a>
+小剧场哪来的动画</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">眨个眼哆嗦两下立绘怎么不是动画了
+虽然简陋但是你可以脑补啊
+
+
+*****
+
+####  Booorunestud  
+##### 2155#       发表于 2021-8-1 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196557&amp;ptid=1860328" target="_blank">医生狼多 发表于 2021-8-1 20:18</a>
+有谁知道ps5版手柄适配的程度吗？</blockquote>
+我有印象的只有说不同魔法有不同的震感
+有去了试玩的人讲讲吗
+
+
+*****
+
+####  a2042312  
+##### 2156#       发表于 2021-8-1 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196485&amp;ptid=1860328" target="_blank">戏言学者 发表于 2021-8-1 20:11</a>
+
+本来正想预购ps4版，突然想到ps5版有60帧和手柄适配（据说非常爽），而我还没有ps5，然后又把预购取消了。 ...</blockquote>
+买PS4版不是也送PS5版，买哪版都一样吧。
+
+
+*****
+
+####  a2042312  
+##### 2157#       发表于 2021-8-1 20:39
+
+
+那些服装DLC可以单买吧，能的话就买个普通版了。
+
+
+*****
+
+####  隔壁老黄  
+##### 2158#       发表于 2021-8-1 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196700&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-8-1 20:29</a>
+
+眨个眼哆嗦两下立绘怎么不是动画了
+
+虽然简陋但是你可以脑补啊</blockquote>
+连GIF都不算的几张图，叫做动画？
+
+
+*****
+
+####  索田八公  
+##### 2159#       发表于 2021-8-1 20:44
+
+
+2d立绘的小剧场可以呈现很夸张的表情和动作，在氛围轻松的小剧场里非常合适，不怎么看好3d演出的水平
+
+
+*****
+
+####  隔壁老黄  
+##### 2160#       发表于 2021-8-1 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196982&amp;ptid=1860328" target="_blank">索田八公 发表于 2021-8-1 20:44</a>
+
+2d立绘的小剧场可以呈现很夸张的表情和动作，在氛围轻松的小剧场里非常合适，不怎么看好3d演出的水平 ...</blockquote>
+这些3D早就可以做出来了。。。非要说也就Q版做不出来
+
+
+
+
+*****
+
+####  戏言学者  
+##### 2161#       发表于 2021-8-1 21:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196850&amp;ptid=1860328" target="_blank">a2042312 发表于 2021-8-1 20:38</a>
+
+买PS4版不是也送PS5版，买哪版都一样吧。</blockquote>
+问题是，我基本上是一周目党，如果ps4打过一遍等到了ps5肯定就懒得再玩一次了。。
+
+
+*****
+
+####  LT_Harry  
+##### 2162#         楼主| 发表于 2021-8-1 21:43
+
+
+https://youtu.be/ZenwOOHL7uA
+游戏还没发售，先听点音乐解解馋，另外 ChinaJoy 现场是不是不允许拍摄😅
+
+
+                                                

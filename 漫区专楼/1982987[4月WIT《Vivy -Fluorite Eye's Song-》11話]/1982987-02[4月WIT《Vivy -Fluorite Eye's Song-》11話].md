@@ -9101,3 +9101,43 @@ ai失控后完全没有出现人类正规军，就只有平民被乱杀，以及
 
 
                                                  
+
+*****
+
+####  Piano-Forest  
+##### 2191#       发表于 2021-7-31 11:53
+
+
+【Blu-ray＆DVD情報】
+
+「Vivy -Fluorite Eye's Song-」Blu-ray＆DVD vol.3のジャケットイラストを公開いたしました。
+
+8月25日（水）発売です！どうぞお楽しみに！
+
+
+▼商品情報はこちら
+[https://vivy-portal.com/bddvd/](https://vivy-portal.com/bddvd/)
+<img src="https://p.sda1.dev/2/5dbaefd9c7e894ba9edd8007f541673c/20210731_115030.jpg" referrerpolicy="no-referrer">
+
+
+【書籍情報】
+
+原案小説「Vivy prototype 4」いよいよ明日(7/30)発売！
+
+
+＜私＞が愛を謳うなら、＜私＞も愛を歌うから――。
+
+[https://vivy-portal.com/book/](https://vivy-portal.com/book/)
+<img src="https://p.sda1.dev/2/83b3c3312735353d869253866ce7cbd9/20210731_115102.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nixidek  
+##### 2192#       发表于 2021-8-1 22:02
+
+
+话说vivy算不算性转版的D-boy呢？
+
+
+                                                 

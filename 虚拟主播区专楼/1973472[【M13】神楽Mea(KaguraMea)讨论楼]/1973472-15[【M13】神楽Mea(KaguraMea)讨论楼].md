@@ -13677,3 +13677,171 @@ ps：概率大概等于你要抽10个月，然后这个胖次可能会是苔姨�
 
 
                                                 
+
+*****
+
+####  2014720  
+##### 22263#       发表于 2021-8-1 21:33
+
+
+ 本帖最后由 2014720 于 2021-8-1 21:34 编辑 
+
+https://b23.tv/xZefBH
+
+
+【神乐Mea字幕组三周年纪念直播】预告及棉花糖征集
+在成功庆祝神乐Mea出道三周年，bilibili活动三周年后，为了增加和观众的交流提高字幕组工作透明度，经过内部讨论神乐Mea字幕组也决定，于8月21日北京时间20点于房导直播间
+https://live.bilibili.com/1221
+进行字幕组三周年纪念直播。本次直播不会动用官号任何资源，如和Mea冲突将顺延，时间另行通知。
+
+【观众互动棉花糖征集】（示例如图）
+三年来风风雨雨，不知道各位Mea的观众都对字幕组有什么问题，想说些什么呢？大家可以借此机会通过棉花糖畅所欲言，字幕组成员将在直播中直接回答。当然还请避免敏感的问题和不适合出现在直播中的内容，如果数量过多字幕组也会提前进行筛选，还请理解。
+
+比起传统匿名棉花糖，本次可以先简单自我介绍下，然后既可以对字幕组整体提问，也可以参考投稿的staff表指定某位组员回答问题，最后还希望可以留下自己的寄语哦！
+征集时间即日起截止至8月19日北京时间23点59分。征集地址：
+https://peing.net/zh-CN/kgrmea_honyaku
+
+愿意接受指名提问的组员名单如下：
+fafakana、守夜、木子、Rasis、摇星、房导、学渣只能说一句花Q、虚蒔times、無限、雪碧、Sasako、Aut、飞狗、字数布丁、muldrotha、scPointer、新堂、こはく、K、艾窝窝、夏川ゆのん、人生♡、YoiSora、记者、徐inei、白羊、Makahiushio、安公主、潘德拉贡卿、后藤藻、局长、精分卡、Pen盆ぺん.
+
+对其他组员提问的情况可能会由他人代答或直接被筛选掉。
+
+此外直播中还会有组员连麦采访（可弹幕提问）、才艺展示（唱歌等）、名言放送等内容，并会进行天选时刻由字幕组提供的Mea周边的抽奖，还请各位观众踊跃参与互动，届时前来观看直播！
+
+<img src="https://p.sda1.dev/2/6b22a88f17bc5db6d589a70bdf0e0ef8/IMG_CMP_97655377.jpeg" referrerpolicy="no-referrer">
+
+
+冲冲冲，杀戮的欲望正在高涨！
+
+
+*****
+
+####  yywzjsw  
+##### 22264#       发表于 2021-8-1 21:39
+
+
+看都不看，又不是麻
+
+
+*****
+
+####  2014720  
+##### 22265#       发表于 2021-8-1 21:40
+
+
+重在参与嘛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22266#       发表于 2021-8-1 21:43
+
+
+能有对线环节吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 22267#       发表于 2021-8-1 21:45
+
+
+会有大逃杀环节吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clvan_  
+##### 22268#       发表于 2021-8-1 21:48
+
+
+烂透了已经没心思搭理你了来搞这一出是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+无所谓了
+
+
+*****
+
+####  2014720  
+##### 22269#       发表于 2021-8-1 21:50
+
+
+军民团结一家亲嘛<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+希望大家不忘初心，方得始终<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22270#       发表于 2021-8-1 21:51
+
+
+期待楼友精彩发言<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whbstc4545  
+##### 22271#       发表于 2021-8-1 22:08
+
+
+有筛选的，别想了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">现在逆版本，躺平就好了，吊麻她自己都不在意，无所谓了
+
+
+*****
+
+####  路人辰  
+##### 22272#       发表于 2021-8-1 22:09
+
+
+20210801东京22点（1、2）
+
+<img src="https://img.saraba1st.com/forum/202108/01/220949h9xq8agc49jhxjfc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>6C91F250-D69F-4C24-BC55-E7799238C24C.jpeg</strong> (157.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 22:09 上传
+
+
+*****
+
+####  呓亘  
+##### 22273#       发表于 2021-8-1 22:10
+
+
+躺平了都...
+
+
+*****
+
+####  Klience  
+##### 22274#       发表于 2021-8-1 22:12
+
+
+打完游戏就是看电视剧是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22275#       发表于 2021-8-1 22:16
+
+
+躺平不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 22276#       发表于 2021-8-1 22:22
+
+
+躺平好个锤子 躺平=慢性自杀
+
+
+                                                 
