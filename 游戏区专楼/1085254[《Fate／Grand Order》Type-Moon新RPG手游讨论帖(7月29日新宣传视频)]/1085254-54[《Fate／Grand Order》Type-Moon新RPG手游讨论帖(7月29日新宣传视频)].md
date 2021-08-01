@@ -11649,3 +11649,31 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  1a不解释  
+##### 80413#       发表于 2021-8-1 10:46
+
+
+周年庆是今天开始吗
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  bikalu  
+##### 80414#       发表于 2021-8-1 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52190096&amp;ptid=1085254" target="_blank">1a不解释 发表于 2021-8-1 10:46</a>
+
+周年庆是今天开始吗
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+直播是中国时间下午3点40
+
+
+                                                 

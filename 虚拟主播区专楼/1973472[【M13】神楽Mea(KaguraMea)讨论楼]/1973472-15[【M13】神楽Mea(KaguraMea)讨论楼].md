@@ -12900,3 +12900,41 @@ mix不想恶心人换个账号id重来就行了
 
 
                                                  
+
+*****
+
+####  ashero  
+##### 22194#       发表于 2021-8-1 10:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52189997&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-8-1 10:36</a>
+
+细说车万喂的屎</blockquote>
+讲了mikey好兄弟为了给他过生日然后进车行偷摩托 结果事情暴露其中一个把店主给砸死 然而店长是mikey他哥 那摩托也是他哥给他准备的生日礼物<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">   因为这事情引发一连串爱恨情仇的故事 
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅，什么神经病剧情（）.|
+
+
+查看全部评分
+
+
+*****
+
+####  T_Hb  
+##### 22195#       发表于 2021-8-1 11:04
+
+
+她不是漫画都看了吗
+
+
+                                                 

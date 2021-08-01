@@ -11148,3 +11148,24 @@ holoen这个PV是啥呀，信息量太少，二期是神话主题？
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 5445#       发表于 2021-8-1 10:41
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨天已经引退的熊姐好像在今天因为推特有些东西删不掉所以今天还在加班中。
+
+
+*****
+
+####  过不了审  
+##### 5446#       发表于 2021-8-1 11:13
+
+
+[https://twitter.com/Vtuber_Moe/status/1421669537687248899?s=20](https://twitter.com/Vtuber_Moe/status/1421669537687248899?s=20)
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+                                                 
