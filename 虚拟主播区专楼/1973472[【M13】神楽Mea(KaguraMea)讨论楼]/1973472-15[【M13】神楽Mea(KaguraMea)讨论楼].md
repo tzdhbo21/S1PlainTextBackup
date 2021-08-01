@@ -13090,3 +13090,291 @@ mikey症状多久了 有没有2周
 
 
                                                  
+
+*****
+
+####  clvan_  
+##### 22211#       发表于 2021-8-1 15:52
+
+
+不就是之前的男艺人换个名字变成了纸片人，症状持续到她找到下一个发情对象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 22212#       发表于 2021-8-1 16:12
+
+
+她发情对象越来越虚拟了，那下一个发情对象能不能是我<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 22213#       发表于 2021-8-1 16:16
+
+
+ 本帖最后由 路人庚 于 2021-8-1 16:18 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/161641upnimpz061in156l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>5E3C00C9-F1CB-4A69-91A4-4855E01BC0F2.jpeg</strong> (262.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 16:16 上传
+
+
+比较冷门的物语ed曲啊
+
+
+*****
+
+####  雪风utopia  
+##### 22214#       发表于 2021-8-1 16:22
+
+
+好看，是我老婆，我嗯了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clvan_  
+##### 22215#       发表于 2021-8-1 16:23
+
+
+草，不会还是物语三连吧
+
+
+*****
+
+####  Cushaw  
+##### 22216#       发表于 2021-8-1 16:24
+
+
+香菜黑化曲来一首<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yywzjsw  
+##### 22217#       发表于 2021-8-1 16:24
+
+
+这张封绘爱了，好有jk的感觉
+
+
+*****
+
+####  thisisaspider  
+##### 22218#       发表于 2021-8-1 16:26
+
+
+越姨越会装嫩是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 22219#       发表于 2021-8-1 16:26
+
+
+第三首还真有可能是香菜黑化曲
+
+
+*****
+
+####  Klience  
+##### 22220#       发表于 2021-8-1 16:27
+
+
+这曲绘 应该是之前那几个物语pv同一个人画的吧
+
+
+*****
+
+####  2014720  
+##### 22221#       发表于 2021-8-1 16:28
+
+
+看着还真是
+
+
+*****
+
+####  路人庚  
+##### 22222#       发表于 2021-8-1 16:30
+
+
+简介里不是写了
+
+
+*****
+
+####  T_Hb  
+##### 22223#       发表于 2021-8-1 16:40
+
+
+有一说一，衣服前面那两个我还以为是麻花辫
+
+
+*****
+
+####  千木唯  
+##### 22224#       发表于 2021-8-1 16:42
+
+
+第二首应该是894的歌。我猜应该是terminal terminal。终物语下的op
+第三首很明显是もうそう♥えくすぷれす 妄想特快
+
+
+*****
+
+####  Klience  
+##### 22225#       发表于 2021-8-1 16:43
+
+
+那两个麻花辫我怎么感觉像是画师想画出来但是又懒得画完整的样子
+
+
+*****
+
+####  千木唯  
+##### 22226#       发表于 2021-8-1 16:44
+
+
+ 本帖最后由 千木唯 于 2021-8-1 16:46 编辑 
+
+辫子是模仿原曲歌手的衣服
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/164605kx0i86bz68elme6n.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210801164504.png</strong> (81.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 16:46 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|好评加鹅|
+| Cushaw| + 1|好评加鹅|
+| T_Hb| + 1|好评加鹅|
+| Klience| + 1|原来如此|
+
+
+查看全部评分
+
+
+*****
+
+####  T_Hb  
+##### 22227#       发表于 2021-8-1 16:44
+
+
+ 本帖最后由 T_Hb 于 2021-8-1 16:50 编辑 
+
+但是这两个麻花只有线，原来如此
+
+
+*****
+
+####  往世雷书  
+##### 22228#       发表于 2021-8-1 16:46
+
+
+这麻花辫不是衣服上的花纹？故意这样的吧，可能是最近的潮牌
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  雪风utopia  
+##### 22229#       发表于 2021-8-1 16:48
+
+
+太好看了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时雨rain  
+##### 22230#       发表于 2021-8-1 16:52
+
+
+呜呜呜早就不是 jk 了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  Klience  
+##### 22231#       发表于 2021-8-1 16:53
+
+
+8点歌会还有告知<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22232#       发表于 2021-8-1 16:54
+
+
+大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时雨rain  
+##### 22233#       发表于 2021-8-1 16:54
+
+
+goods罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 22234#       发表于 2021-8-1 17:07
+
+
+告知：👴🏻生日，有立牌，速买
+
+
+*****
+
+####  T_Hb  
+##### 22235#       发表于 2021-8-1 17:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 22236#       发表于 2021-8-1 17:20
+
+
+为啥不能搞点其它的，管人周边也不是只有立牌。
+
+
+                                                

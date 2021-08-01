@@ -11338,3 +11338,238 @@ KING的确可以操纵股价的，
 
 
                                                  
+
+*****
+
+####  IDIDIDID  
+##### 5455#       发表于 2021-8-1 15:26
+
+
+全世界mcn都不值钱的
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|UUUM 株価 暴落|
+
+
+查看全部评分
+
+
+*****
+
+####  FCCHua  
+##### 5456#       发表于 2021-8-1 16:01
+
+
+ 本帖最后由 FCCHua 于 2021-8-1 16:17 编辑 
+
+来了惹，龙妈开场，高音好强<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+体力对比也太真实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+叶的新3d原来是无料啊，看出来用心学舞蹈了...
+
+
+*****
+
+####  alcoholic1000  
+##### 5457#       发表于 2021-8-1 16:08
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-1 16:36 编辑 
+
+King的脸是不是又修了，绑骨没调还是他猫背 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+老叶是不是变得更矮了...
+
+第一次披露，据他说是花了新3D机会堵好几次门要来的
+
+
+屑女人好可爱
+
+<img src="https://img.saraba1st.com/forum/202108/01/163551rgp4orllydg1qfp1.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ AR STAGE “LIGHT UP TONES” 【DAY2】-1.png</strong> (123.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 16:35 上传
+
+
+*****
+
+####  percy1234  
+##### 5458#       发表于 2021-8-1 16:15
+
+
+叶终于把新衣服的3d做出来了啊，这是第一次披露？
+
+
+*****
+
+####  qq845629713  
+##### 5459#       发表于 2021-8-1 16:18
+
+
+是第一次展示，但正式的披露回还没有，除了一二期，正式的新3D披露这个殊荣还是留给KING了
+
+
+*****
+
+####  FCCHua  
+##### 5460#       发表于 2021-8-1 16:23
+
+
+ 本帖最后由 FCCHua 于 2021-8-1 16:25 编辑 
+
+b站熟悉的拉胯，还好同时开了油管<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大福的3d明显修了，真不错
+
+
+
+
+*****
+
+####  黑之和  
+##### 5461#       发表于 2021-8-1 16:30
+
+
+有料的刀也和兔头
+
+
+*****
+
+####  FCCHua  
+##### 5462#       发表于 2021-8-1 16:33
+
+
+ 本帖最后由 FCCHua 于 2021-8-1 16:35 编辑 
+
+加上昨天的德龙，什么一家子
+大福体力再评价
+
+
+*****
+
+####  lhawp  
+##### 5463#       发表于 2021-8-1 16:34
+
+
+果然生演奏是好文明
+
+
+*****
+
+####  alcoholic1000  
+##### 5464#       发表于 2021-8-1 16:37
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-1 17:22 编辑 
+
+省电模式
+
+有料的女人，兔兔兔兔<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/01/164325cxjzj0ql2tgz1fgo.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ AR STAGE “LIGHT UP TONES” 【DAY2】-2.png</strong> (97.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 16:43 上传
+
+
+兔兔腿兔兔兔，我的爱抖露，好可爱，舞蹈有认真练过了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+怎么轮到你们黑黑就工贼了呢，还有叶这是不是胖了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 光下一看这模型赶工太明显了
+
+<img src="https://img.saraba1st.com/forum/202108/01/164833d3h516z74gphrzl9.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ AR STAGE “LIGHT UP TONES” 【DAY2】-3.png</strong> (113.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 16:48 上传
+
+
+兔兔兔好色啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">这jk的活力
+
+D2名为质的底裤就由月刀母子来守护
+
+<img src="https://img.saraba1st.com/forum/202108/01/170916uzk4wookttctywt3.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ AR STAGE “LIGHT UP TONES” 【DAY2】-4.png</strong> (131.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 17:09 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/171611e55y957d874l3ew9.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ AR STAGE “LIGHT UP TONES” 【DAY2】-5.png</strong> (98.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 17:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/01/171951bukexhuqxq0qhzne.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ AR STAGE “LIGHT UP TONES” 【DAY2】-6.png</strong> (119.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-1 17:19 上传
+
+
+不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+什么叫虚拟啊，现场爆破还行
+
+みとラジ！月ノ美兎！最高！
+
+
+*****
+
+####  FCCHua  
+##### 5465#       发表于 2021-8-1 16:39
+
+
+ 本帖最后由 FCCHua 于 2021-8-1 17:21 编辑 
+
+兔头笑死我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+索尼艺人努力练习，高音有好好唱上去<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+大福好涩怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+好多术曲居然0ng，看来提前好好谈版权了
+兔头solo好累...但是表演没的说
+
+
+*****
+
+####  percy1234  
+##### 5466#       发表于 2021-8-1 17:01
+
+
+ 本帖最后由 percy1234 于 2021-8-1 17:19 编辑 
+
+3d班什么时候能把刀也的刀桶卸掉啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">原来排练的时候是有机会卸掉的啊
+
+
+syl，兔头的新曲表现力太棒了
+
+
+                                                

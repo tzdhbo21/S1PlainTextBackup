@@ -11677,3 +11677,1208 @@ wdl送个普通5x都叽叽歪歪的
 
 
                                                  
+
+*****
+
+####  AbigailWilliams  
+##### 80415#       发表于 2021-8-1 15:35
+
+
+已经没有追生放送的热情了，到时候吃完晚饭看两眼转图完事<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">感觉可能是夹馍了
+
+
+*****
+
+####  alucardcz  
+##### 80416#       发表于 2021-8-1 15:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该准备看戏了
+
+
+*****
+
+####  khxooo  
+##### 80417#       发表于 2021-8-1 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52192744&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-8-1 15:35</a>
+
+已经没有追生放送的热情了，到时候吃完晚饭看两眼转图完事今年送的礼装对我来说真的是一个比一个没 ...</blockquote>
+嘛，看看那些嘉宾说说话也是不错的。
+
+
+*****
+
+####  rooarr  
+##### 80418#       发表于 2021-8-1 16:04
+
+
+开始了开始了，大的要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xunit  
+##### 80419#       发表于 2021-8-1 16:06
+
+
+这纪念PV不得行啊，都是混剪
+
+
+*****
+
+####  exiaexa  
+##### 80420#       发表于 2021-8-1 16:06
+
+
+ 本帖最后由 exiaexa 于 2021-8-1 16:07 编辑 
+
+今年的PV也太寒碜了，梦回3周年
+
+顺便这信长这脸cos立香也太合适了艹
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80421#       发表于 2021-8-1 16:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要能来钱,就不用怕关服
+
+
+*****
+
+####  smdzh2  
+##### 80422#       发表于 2021-8-1 16:27
+
+
+信长真是缺德，又迫害大碧池<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 80423#       发表于 2021-8-1 16:27
+
+
+信长这太过分了233
+
+
+*****
+
+####  rooarr  
+##### 80424#       发表于 2021-8-1 16:33
+
+
+可以，送102石头了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80425#       发表于 2021-8-1 16:35
+
+
+哇　出５星自选了　
+
+
+（然而是街机
+
+
+*****
+
+####  zore  
+##### 80426#       发表于 2021-8-1 16:36
+
+
+看酸了
+
+
+*****
+
+####  rooarr  
+##### 80427#       发表于 2021-8-1 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193400&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 16:35</a>
+哇　出５星自选了　
+
+
+（然而是街机</blockquote>
+早就预告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80428#       发表于 2021-8-1 16:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193407&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-1 16:36</a>
+
+早就预告了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本体没自选是不是就很不合理了
+
+
+*****
+
+####  zore  
+##### 80429#       发表于 2021-8-1 16:39
+
+
+ 本帖最后由 zore 于 2021-8-1 16:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那没事了
+
+
+*****
+
+####  rooarr  
+##### 80430#       发表于 2021-8-1 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193430&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 16:38</a>
+本体没自选是不是就很不合理了</blockquote>
+很合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  khxooo  
+##### 80431#       发表于 2021-8-1 16:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193450&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-1 16:39</a>
+
+本体的是常驻
+
+街机直接限定</blockquote>
+街机也是只能选常驻
+
+
+*****
+
+####  alucardcz  
+##### 80432#       发表于 2021-8-1 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193451&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-1 16:39</a>
+
+很合理这是街机三周年</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本体６周年应该送２个！
+
+
+*****
+
+####  zore  
+##### 80433#       发表于 2021-8-1 16:50
+
+
+now printing还行
+
+
+*****
+
+####  alucardcz  
+##### 80434#       发表于 2021-8-1 16:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今年这礼装没一张对我胃口。麻了
+
+
+*****
+
+####  黑上シグマ  
+##### 80435#       发表于 2021-8-1 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193565&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 16:51</a>
+
+今年这礼装没一张对我胃口。麻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你不是一个人
+
+
+*****
+
+####  alucardcz  
+##### 80436#       发表于 2021-8-1 16:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要　来　了
+
+
+*****
+
+####  smdzh2  
+##### 80437#       发表于 2021-8-1 16:55
+
+
+甲级战犯登场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80438#       发表于 2021-8-1 16:56
+
+
+10大发表<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 80439#       发表于 2021-8-1 16:56
+
+
+又是10大凑数<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 80440#       发表于 2021-8-1 16:56
+
+
+ 本帖最后由 rooarr 于 2021-8-1 16:58 编辑 
+
+毫无惊喜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80441#       发表于 2021-8-1 16:59
+
+
+这极大浪费概率怎么又开倒车了
+
+不过日常本终于有新本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80442#       发表于 2021-8-1 16:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总算有一个是。。有点用的　追加了一级资源本难度
+
+
+*****
+
+####  zore  
+##### 80443#       发表于 2021-8-1 16:59
+
+
+艹体力减半和大浪费也能当一项
+
+
+*****
+
+####  sosgame67  
+##### 80444#       发表于 2021-8-1 17:00
+
+
+这10大“惊喜”抠抠索索每年都一样，咱们还是快点跳过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80445#       发表于 2021-8-1 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193651&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-1 16:59</a>
+
+艹体力减半和大浪费也能当一项</blockquote>
+每年都这样啊　你怎么还没想通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80446#       发表于 2021-8-1 17:01
+
+
+主线掉落量UP可还行
+
+是不是又要补发了
+
+
+如果补发可以赚一波啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 80447#       发表于 2021-8-1 17:01
+
+
+虽说蚊子腿也是肉，但真就各种蚊子腿啊，就看free本掉率能提多少了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 80448#       发表于 2021-8-1 17:01
+
+
+每次看你游发布会，都会不由自主的感叹:真的好扣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80449#       发表于 2021-8-1 17:02
+
+
+自由本也加掉率
+
+
+*****
+
+####  exiaexa  
+##### 80450#       发表于 2021-8-1 17:02
+
+
+哦草，20e可以的
+
+解决了楼里某人的QP爆仓问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80451#       发表于 2021-8-1 17:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哇　钱上限扩张了。。有点用
+
+
+*****
+
+####  areklose  
+##### 80452#       发表于 2021-8-1 17:02
+
+
+QP上限20亿！
+
+
+*****
+
+####  angelooo  
+##### 80453#       发表于 2021-8-1 17:03
+
+
+qp上限终于加了
+
+
+*****
+
+####  smdzh2  
+##### 80454#       发表于 2021-8-1 17:03
+
+
+qp上限扩充，20亿御主咕哒子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 80455#       发表于 2021-8-1 17:03
+
+
+qp上限从10亿变20亿有什么意义吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给100亿啊
+
+
+*****
+
+####  zore  
+##### 80456#       发表于 2021-8-1 17:03
+
+
+有点感觉会开新等级上限
+
+又是新日常,QP上限的
+
+
+*****
+
+####  xiongxingyu  
+##### 80457#       发表于 2021-8-1 17:03
+
+
+QP上限翻倍了啊，好耶，以后再开300箱不怕QP爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80458#       发表于 2021-8-1 17:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我天天卖狗粮都要提醒我QP超上限
+
+
+*****
+
+####  alucardcz  
+##### 80459#       发表于 2021-8-1 17:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193707&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-1 17:03</a>
+
+qp上限从10亿变20亿有什么意义吗给100亿啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的　我钱爆了
+
+
+*****
+
+####  zore  
+##### 80460#       发表于 2021-8-1 17:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193671&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 17:01</a>
+
+每年都这样啊　你怎么还没想通</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多少有点期待吧
+
+
+
+
+*****
+
+####  exiaexa  
+##### 80461#       发表于 2021-8-1 17:04
+
+
+ 本帖最后由 exiaexa 于 2021-8-1 17:06 编辑 
+
+好的，250个石头GET
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80462#       发表于 2021-8-1 17:05
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 80463#       发表于 2021-8-1 17:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发石头的多来点啊　　
+
+
+*****
+
+####  alucardcz  
+##### 80464#       发表于 2021-8-1 17:06
+
+
+草　　还真是１２０级
+
+
+１２０级居然还追加一个被动技能？
+
+
+*****
+
+####  exiaexa  
+##### 80465#       发表于 2021-8-1 17:06
+
+
+羁绊升级艹
+
+不过总归比傻逼指令卡强多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80466#       发表于 2021-8-1 17:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就120啊,我就说没这么好心
+
+
+*****
+
+####  alucardcz  
+##### 80467#       发表于 2021-8-1 17:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193761&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 17:06</a>
+
+羁绊升级艹
+
+不过总归比傻逼指令卡强多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个１２０级被动技能是什么了
+
+
+*****
+
+####  xiongxingyu  
+##### 80468#       发表于 2021-8-1 17:08
+
+
+120级和上级被动技能，这波有点大啊，搞不好要变天了，节奏榜肯定是又要炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 80469#       发表于 2021-8-1 17:08
+
+
+120狂兰预定<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80470#       发表于 2021-8-1 17:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重铸红卡荣光,LV120义不容辞
+
+
+*****
+
+####  cckuku  
+##### 80471#       发表于 2021-8-1 17:08
+
+
+陈宫:120级！好！
+
+
+*****
+
+####  黑上シグマ  
+##### 80472#       发表于 2021-8-1 17:08
+
+
+等等，我礼物盒爆的啊现在
+
+
+*****
+
+####  exiaexa  
+##### 80473#       发表于 2021-8-1 17:09
+
+
+有句港剧，你游的数据库管理是少数特别靠谱的优点了
+
+对比各种国产手游来说
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80474#       发表于 2021-8-1 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193789&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-1 17:08</a>
+
+等等，我礼物盒爆的啊现在</blockquote>
+草 多谢提醒
+
+
+*****
+
+####  alucardcz  
+##### 80475#       发表于 2021-8-1 17:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一ｃ呆给个什么ｂｕｇ点的技能不是要升１２０了？
+
+
+*****
+
+####  exiaexa  
+##### 80476#       发表于 2021-8-1 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193773&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 17:07</a>
+
+等一个１２０级被动技能是什么了</blockquote>
+希望能来一波大翻牌，指令卡对这游戏的环境真的是屁用没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80477#       发表于 2021-8-1 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193798&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 17:09</a>
+
+希望能来一波大翻牌，指令卡对这游戏的环境真的是屁用没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然都不公布个样板　真的是
+
+
+草　居然有３个技能？？
+
+
+*****
+
+####  zore  
+##### 80478#       发表于 2021-8-1 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193790&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 17:09</a>
+
+有句港剧，你游的数据库管理是少数特别靠谱的优点了
+
+对比各种国产手游来说
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">垃圾dw让我领一次新版的新人奖励我就信
+
+
+*****
+
+####  exiaexa  
+##### 80479#       发表于 2021-8-1 17:11
+
+
+这个羁绊硬币明显不够用啊感觉
+
+技能、升120都要用
+
+不过重氪佬灵基溢出的多随便用
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 80480#       发表于 2021-8-1 17:11
+
+
+新被动有3个，而且要升级，想不到居然还会有还要再肝FGO的一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80481#       发表于 2021-8-1 17:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈哈哈　　我猜对了　每日打折的单抽
+
+
+*****
+
+####  zore  
+##### 80482#       发表于 2021-8-1 17:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 80483#       发表于 2021-8-1 17:15
+
+
+我呸，一天6块？狗都不抽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+顺便yls能不能开个圣杯回收系统啊？我后悔给剑兰喂圣杯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80484#       发表于 2021-8-1 17:15
+
+
+艹，神经病吧
+
+12种福袋模式选一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80485#       发表于 2021-8-1 17:16
+
+
+？？10大福利就这样？
+
+
+*****
+
+####  alucardcz  
+##### 80486#       发表于 2021-8-1 17:16
+
+
+这福袋可真弱智啊。。。。。。。。。。
+
+
+*****
+
+####  zore  
+##### 80487#       发表于 2021-8-1 17:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是不让自选 吐了
+
+
+*****
+
+####  里村紅葉  
+##### 80488#       发表于 2021-8-1 17:17
+
+
+这120级是看着隔壁GBF天人做的吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">抄都要抄一坨屎
+
+
+*****
+
+####  smdzh2  
+##### 80489#       发表于 2021-8-1 17:17
+
+
+yls扣脚趾扣出来的福利
+
+
+*****
+
+####  exiaexa  
+##### 80490#       发表于 2021-8-1 17:18
+
+
+不是，自选都小事情了，强化本呢艹
+
+这么多人等着拐一下诶，真就打完2.6再开是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  zore  
+##### 80491#       发表于 2021-8-1 17:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4星,摆烂是吧
+
+
+*****
+
+####  AbigailWilliams  
+##### 80492#       发表于 2021-8-1 17:18
+
+
+没天井还学一天一抽，笑死个人了，真一天充值6元信仰看看哪天羁绊到了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80493#       发表于 2021-8-1 17:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193887&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 17:18</a>
+
+不是，自选都小事情了，强化本呢艹
+
+这么多人等着拐一下诶，真就打完2.6再开是吧
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说以前强化版算进１０大里的吗　我不记得了
+
+
+*****
+
+####  areklose  
+##### 80494#       发表于 2021-8-1 17:19
+
+
+好歹送个自选限定4星阿，还要塞进福袋
+
+
+*****
+
+####  zore  
+##### 80495#       发表于 2021-8-1 17:19
+
+
+又卡翻页了?
+
+
+*****
+
+####  sosgame67  
+##### 80496#       发表于 2021-8-1 17:20
+
+
+所以这氪金一抽到底是给哪种人准备的，突出一个又贪又坏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80497#       发表于 2021-8-1 17:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193905&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 17:19</a>
+
+话说以前强化版算进１０大里的吗　我不记得了</blockquote>
+不算
+
+
+*****
+
+####  exiaexa  
+##### 80498#       发表于 2021-8-1 17:20
+
+
+艹，农神+宙斯
+
+能不能不选神祖或者给神祖多来几个BUFF啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 80499#       发表于 2021-8-1 17:21
+
+
+ 本帖最后由 zore 于 2021-8-1 17:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这个?奖励还是没出现
+
+艹,垃圾
+
+
+*****
+
+####  alucardcz  
+##### 80500#       发表于 2021-8-1 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193927&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-1 17:21</a>
+
+这个?奖励还是没出现</blockquote>
+３星指令卡哦　开心吗（
+
+
+*****
+
+####  areklose  
+##### 80501#       发表于 2021-8-1 17:21
+
+
+上年因为要强化看板B叔才提前说。这次应该也有吧
+
+
+*****
+
+####  alucardcz  
+##### 80502#       发表于 2021-8-1 17:22
+
+
+来了来了　强化本（
+
+
+*****
+
+####  areklose  
+##### 80503#       发表于 2021-8-1 17:22
+
+
+来了 加强本
+
+
+*****
+
+####  exiaexa  
+##### 80504#       发表于 2021-8-1 17:22
+
+
+来了来了，14个人
+
+4铜2银
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80505#       发表于 2021-8-1 17:23
+
+
+看到有个狂　　给黑狗吧　该强化了（
+
+
+*****
+
+####  zore  
+##### 80506#       发表于 2021-8-1 17:23
+
+
+金卡背面
+
+骑枪仇狂术骑骑剑
+
+
+*****
+
+####  alucardcz  
+##### 80507#       发表于 2021-8-1 17:23
+
+
+麻了　开局２个辣鸡（
+
+
+*****
+
+####  smdzh2  
+##### 80508#       发表于 2021-8-1 17:23
+
+
+剑呆毛自充全家桶安排上了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 80509#       发表于 2021-8-1 17:23
+
+
+真就直感滚出fgo了，最后的直感也离开了我们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80510#       发表于 2021-8-1 17:23
+
+
+全员宝具全面屏实装艹
+
+
+*****
+
+####  zore  
+##### 80511#       发表于 2021-8-1 17:24
+
+
+这不比10大发表有意思?<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80512#       发表于 2021-8-1 17:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好。我有的强化就好，白嫖石头
+
+
+*****
+
+####  alucardcz  
+##### 80513#       发表于 2021-8-1 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193971&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-1 17:23</a>
+
+全员宝具全面屏实装艹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒　６５人（
+
+
+*****
+
+####  唯一指定用户名  
+##### 80514#       发表于 2021-8-1 17:24
+
+
+我服了还不是全员
+
+
+*****
+
+####  cckuku  
+##### 80515#       发表于 2021-8-1 17:24
+
+
+dw真是废物啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 80516#       发表于 2021-8-1 17:24
+
+
+草，只有65个宝具改全屏了，我直接把水吐出来了，这还好意思说<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nowiner  
+##### 80517#       发表于 2021-8-1 17:25
+
+
+送SSR还行
+
+
+*****
+
+####  exiaexa  
+##### 80518#       发表于 2021-8-1 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193977&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-1 17:24</a>
+
+醒醒　６５人（</blockquote>
+我打字的时候他还没显示65
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80519#       发表于 2021-8-1 17:25
+
+
+自选来了！
+
+
+*****
+
+####  清风朗月  
+##### 80520#       发表于 2021-8-1 17:26
+
+
+三年之后又三年了终于抠出来一个自选五星
+
+
+
+
+*****
+
+####  alucardcz  
+##### 80521#       发表于 2021-8-1 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193994&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-1 17:25</a>
+
+自选来了！</blockquote>
+老人有没有　没听清楚
+
+
+*****
+
+####  zore  
+##### 80522#       发表于 2021-8-1 17:26
+
+
+ 本帖最后由 zore 于 2021-8-1 17:27 编辑 
+
+下面写着新人奖励<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 80523#       发表于 2021-8-1 17:27
+
+
+还刑，再选一个妹夫好了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80524#       发表于 2021-8-1 17:27
+
+
+他这个特别召唤有点东西啊艹
+
+有限定有剧情限定
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 80525#       发表于 2021-8-1 17:27
+
+
+哇这32个5星很有诚意啊<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80526#       发表于 2021-8-1 17:27
+
+
+可以换老李啦啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊
+
+
+*****
+
+####  xiongxingyu  
+##### 80527#       发表于 2021-8-1 17:27
+
+
+常驻加故事限定，好吧，给祖师爷补个宝具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80528#       发表于 2021-8-1 17:27
+
+
+满分，我失忆了
+
+不是奥伯龙
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80529#       发表于 2021-8-1 17:28
+
+
+草　杀狐
+
+
+*****
+
+####  zore  
+##### 80530#       发表于 2021-8-1 17:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的杀狐,哈哈哈
+
+
+                                             

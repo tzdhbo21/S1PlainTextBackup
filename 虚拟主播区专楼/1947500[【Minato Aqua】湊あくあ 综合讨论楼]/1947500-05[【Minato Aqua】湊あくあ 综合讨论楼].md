@@ -7526,3 +7526,182 @@ Unite已经在练了，逃不掉的
 
 
                                                  
+
+*****
+
+####  nian1538  
+##### 6615#       发表于 2021-8-1 16:02
+
+
+还要开Twitcast
+
+回归初心是吧
+
+
+*****
+
+####  Maonpuyo  
+##### 6616#       发表于 2021-8-1 16:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lightsuger  
+##### 6617#       发表于 2021-8-1 16:04
+
+
+ 本帖最后由 lightsuger 于 2021-8-1 16:06 编辑 
+
+要在twitcasting直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 6618#       发表于 2021-8-1 16:20
+
+
+tc好像不用魔法就能看了？省流量了啊
+
+
+*****
+
+####  梅斯之围  
+##### 6619#       发表于 2021-8-1 16:23
+
+
+杏社除了马自立还有谁开过tc台么
+
+
+*****
+
+####  雪风utopia  
+##### 6620#       发表于 2021-8-1 16:24
+
+
+aki有
+
+
+*****
+
+####  Scardy  
+##### 6621#       发表于 2021-8-1 16:32
+
+
+为啥突然要整tc台<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 6622#       发表于 2021-8-1 16:37
+
+
+可能意识到再摸下去留不住观众了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+可以利用起空余时间时间播播，水下时长什么的
+不过看杏社其他人在tc播的也不咋勤，先不抱太大期望
+
+
+*****
+
+####  lightsuger  
+##### 6623#       发表于 2021-8-1 16:38
+
+
+说的大概是这么个意思：
+
+很忙，油管播的很麻烦，要准备还要提前通知
+
+t台播起来方便也很自由，想播的时候播个30分钟也行
+
+
+*****
+
+####  面具13  
+##### 6624#       发表于 2021-8-1 16:44
+
+
+结束前提了一句negiu的事情，稍微搜了一下，发现动画贾希大人不气馁已经播了一集了，b站有，在港澳台，然后搞出了ed静音的神奇操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lightsuger  
+##### 6625#       发表于 2021-8-1 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193421&amp;ptid=1947500" target="_blank">梅斯之围 发表于 2021-8-1 16:37</a>
+
+可能意识到再摸下去留不住观众了吧
+
+可以利用起空余时间时间播播，水下时长什么的
+
+不过看杏社其他人 ...</blockquote>
+最不可能的理由就是这个
+
+她一向对观众的态度就是“爱看看，不看滚”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+想涨粉留粉多播油管就是了，没必要搞这个
+
+
+*****
+
+####  梅斯之围  
+##### 6626#       发表于 2021-8-1 16:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193511&amp;ptid=1947500" target="_blank">lightsuger 发表于 2021-8-1 16:44</a>
+最不可能的理由就是这个
+
+她一向对观众的态度就是“爱看看，不看滚”
+
+想涨粉留粉多播油管就是了， ...</blockquote>
+可是也说过 做梦梦到直播间没人来看吓醒了这种话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 6627#       发表于 2021-8-1 16:57
+
+
+tc直播能够比较随意，不用想企划，只要随便扯扯淡卖卖萌，收入也不会太少。
+
+
+*****
+
+####  lightsuger  
+##### 6628#       发表于 2021-8-1 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193553&amp;ptid=1947500" target="_blank">梅斯之围 发表于 2021-8-1 16:49</a>
+
+可是也说过 做梦梦到直播间没人来看吓醒了这种话</blockquote>
+
+现在这种直播频率，她像是怕的人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+新游戏也不去蹭了，企划也不做了，联动也不参加
+
+需要花时间练的游戏一概pass
+
+
+*****
+
+####  面具13  
+##### 6629#       发表于 2021-8-1 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193713&amp;ptid=1947500" target="_blank">lightsuger 发表于 2021-8-1 17:03</a>
+
+现在这种直播频率，她像是怕的人吗
+
+新游戏也不去蹭了，企划也不做了，联动也不参加
+
+需要花时间练 ...</blockquote>
+说过想练宝可梦moba来着，不过没播之前就当放屁好了。
+
+
+                                                 

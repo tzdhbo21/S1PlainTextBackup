@@ -17263,3 +17263,17 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  tyauto  
+##### 55447#       发表于 2021-8-1 15:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52189625&amp;ptid=98922" target="_blank">svmkty 发表于 2021-8-1 09:56</a>
+
+擦？1020还有和谐版？？有没有大图高清的？？</blockquote>
+这是国外贴吧版？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+                                                 
