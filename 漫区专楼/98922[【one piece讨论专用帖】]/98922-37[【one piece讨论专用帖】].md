@@ -17219,3 +17219,16 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  gutzz  
+##### 55443#       发表于 2021-8-1 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52189625&amp;ptid=98922" target="_blank">svmkty 发表于 2021-8-1 09:56</a>
+擦？1020还有和谐版？？有没有大图高清的？？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">就算这是改的图也改得很像模像样啊
+
+
+                                                 
