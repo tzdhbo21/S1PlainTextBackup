@@ -7742,3 +7742,19 @@ TC好耶
 
 
                                                  
+
+*****
+
+####  面具13  
+##### 6633#       发表于 2021-8-2 00:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52193504&amp;ptid=1947500" target="_blank">面具13 发表于 2021-8-1 16:44</a>
+
+结束前提了一句negiu的事情，稍微搜了一下，发现动画贾希大人不气馁已经播了一集了，b站有，在港澳台，然后 ...</blockquote>
+关于NEGIU，直播中提了昨天是最后一次电台。
+
+看到三次电台Troogle都有上传，找个时间补吧。
+
+
+                                                 

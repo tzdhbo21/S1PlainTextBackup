@@ -5453,3 +5453,17 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  pansherry  
+##### 390#       发表于 2021-8-2 00:33
+
+
+<img src="https://p.sda1.dev/2/7fb68dc9d2bacc6fef4a378731671f48/IMG_CMP_236886232.jpeg" referrerpolicy="no-referrer">
+主线因为等级限制，和塔比起来好过多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
