@@ -17701,3 +17701,102 @@ dw这种废物能把8.4之后的活动代码提前放进去？我不信23333强�
 
 
                                                  
+
+*****
+
+####  xiongxingyu  
+##### 80933#       发表于 2021-8-2 20:00
+
+
+毕竟月球还是蘑菇的月球，厨力角色的待遇就是不一般，前年的超人熊铜卡直升冠位，去年水院的卡背夺舍三套衣服二套模组二套宝具也好，今年奥伯龙的真名融解特殊职阶，强度是不是顶尖先不说，整个卡的用心程度就和其他从者拉开差距了。说真的我有种奥伯龙短期内不会落地的预感了，制作这么豪华的强力角色，和6周年强力红拐隔得这么近明显会亏流水啊，等几个月出个活动再骗一波岂不美哉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80934#       发表于 2021-8-2 20:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52211090&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-2 20:00</a>
+
+毕竟月球还是蘑菇的月球，厨力角色的待遇就是不一般，前年的超人熊铜卡直升冠位，去年水院的卡背夺舍三套衣 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">打铁趁热
+
+
+*****
+
+####  alucardcz  
+##### 80935#       发表于 2021-8-2 20:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">dw废物吧 本来直接7月一套结束  结果要拖到现在  我也没看出戴冠还要等那么久有什么意义
+
+
+*****
+
+####  exiaexa  
+##### 80936#       发表于 2021-8-2 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52211090&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-2 20:00</a>
+
+毕竟月球还是蘑菇的月球，厨力角色的待遇就是不一般，前年的超人熊铜卡直升冠位，去年水院的卡背夺舍三套衣 ...</blockquote>
+当然是凑一起，第一个耗光你石头，第二个逼你氪金
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80937#       发表于 2021-8-2 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52211487&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-2 20:25</a>
+
+当然是凑一起，第一个耗光你石头，第二个逼你氪金</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">我就不一样了 500石0宝狐狸 第2个也照样不课
+
+
+*****
+
+####  シャル  
+##### 80938#       发表于 2021-8-2 20:43
+
+
+ 本帖最后由 シャル 于 2021-8-2 20:45 编辑 
+
+刷了半天钱，狐狸三技能10了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+微信图片_20210802204514.jpg
+(399.52 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-2 20:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/204535zggydyg5lzhwdz7e.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 80939#       发表于 2021-8-2 20:49
+
+
+把狐狸拉到80突破，一次大成功极大成功都没出过，果然0的3倍还是0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80940#       发表于 2021-8-2 21:14
+
+
+话说狐狸的一技能cd也太长了吧
+
+
+                                                 

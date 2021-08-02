@@ -15113,3 +15113,884 @@ pv做的可以的，好像人声伴奏打架了<img src="https://static.saraba1s
 
 
                                                 
+
+*****
+
+####  T_Hb  
+##### 22389#       发表于 2021-8-2 19:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">小麻好啊
+
+
+*****
+
+####  时间在我手中  
+##### 22390#       发表于 2021-8-2 19:32
+
+
+我高估自己了，一磅吃了三分之二左右撑了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">八点前吃完就是胜利
+
+
+*****
+
+####  T_Hb  
+##### 22391#       发表于 2021-8-2 19:33
+
+
+我的建议是，放入冰箱
+
+
+*****
+
+####  往世雷书  
+##### 22392#       发表于 2021-8-2 19:35
+
+
+建议全吃了，主播debu粉丝debu，岂不是贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  时间在我手中  
+##### 22393#       发表于 2021-8-2 19:36
+
+
+我没冰箱，租的房子没这东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能努努力变成猪和咩坦同种族了
+
+
+*****
+
+####  掉头学姐  
+##### 22394#       发表于 2021-8-2 19:45
+
+
+好kimo的et
+
+
+*****
+
+####  Mr.shelter  
+##### 22395#       发表于 2021-8-2 19:48
+
+
+拿et当麻麻代餐的楼友是真滴恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22396#       发表于 2021-8-2 19:50
+
+
+早该拿票宝当代餐了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 22397#       发表于 2021-8-2 19:50
+
+
+票宝能不能cos麻麻让楼友代代<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22398#       发表于 2021-8-2 19:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到了揭晓可爱的东西是什么的时候了
+
+
+*****
+
+####  掉头学姐  
+##### 22399#       发表于 2021-8-2 19:57
+
+
+我养了只猪/猫
+
+
+*****
+
+####  时间在我手中  
+##### 22400#       发表于 2021-8-2 19:58
+
+
+养自己是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 22401#       发表于 2021-8-2 20:02
+
+
+直播间什么时候开轮播了？？？
+
+
+*****
+
+####  2014720  
+##### 22402#       发表于 2021-8-2 20:03
+
+
+开了
+
+我麻酱拌饭也没吃完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太尼玛撑了
+
+
+*****
+
+####  T_Hb  
+##### 22403#       发表于 2021-8-2 20:04
+
+
+开幕说啥呢，生日前一天买AO看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 22404#       发表于 2021-8-2 20:05
+
+
+你们一群比一群麻，这次的3d好大
+
+
+*****
+
+####  时间在我手中  
+##### 22405#       发表于 2021-8-2 20:05
+
+
+开幕动物影片，你麻麻的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">今晚下播后就让你比**叫的还大声
+
+
+*****
+
+####  甘栗No.007  
+##### 22406#       发表于 2021-8-2 20:05
+
+
+看到腿抽了可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 22407#       发表于 2021-8-2 20:05
+
+
+脸又修过了？变胖了？和人一样了（
+
+
+*****
+
+####  T_Hb  
+##### 22408#       发表于 2021-8-2 20:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">搞得一点生日氛围都没有了
+
+
+*****
+
+####  rosevalley46  
+##### 22409#       发表于 2021-8-2 20:10
+
+
+生日就搞点自己喜欢的a_ 是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 22410#       发表于 2021-8-2 20:11
+
+
+胖次之日的生日聊这种话题不是挺好的吗（
+
+
+
+
+*****
+
+####  yywzjsw  
+##### 22411#       发表于 2021-8-2 20:11
+
+
+好色，好像在说自己sex的样子<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22412#       发表于 2021-8-2 20:12
+
+
+笑死我了，调整表情之后一说话就会出现BUG形态
+
+
+*****
+
+####  Mikumiku831  
+##### 22413#       发表于 2021-8-2 20:13
+
+
+这动作 豪瑟
+
+
+*****
+
+####  T_Hb  
+##### 22414#       发表于 2021-8-2 20:15
+
+
+“啊？我今天生日啊”
+
+
+*****
+
+####  小良与兔  
+##### 22415#       发表于 2021-8-2 20:15
+
+
+歪头侧脸好可爱
+
+
+*****
+
+####  汇聚群光  
+##### 22416#       发表于 2021-8-2 20:18
+
+
+毕竟是生日嘛，不聊得和“生”有关的怎么叫过生日吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 22417#       发表于 2021-8-2 20:19
+
+
+那什么时候“日”呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22418#       发表于 2021-8-2 20:22
+
+
+什么人会一大早吃Pancake啊
+
+还卖萌<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 22419#       发表于 2021-8-2 20:23
+
+
+今天的声音有些御姐呢
+
+
+*****
+
+####  时间在我手中  
+##### 22420#       发表于 2021-8-2 20:25
+
+
+新歌  藤井风的きらり
+
+
+*****
+
+####  T_Hb  
+##### 22421#       发表于 2021-8-2 20:26
+
+
+拉的彻底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 22422#       发表于 2021-8-2 20:27
+
+
+这个算走调了吧？听到一半才感觉耳熟
+
+
+*****
+
+####  追风小星星  
+##### 22423#       发表于 2021-8-2 20:28
+
+
+这背景太粉了吧 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 22424#       发表于 2021-8-2 20:29
+
+
+只能说悲剧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22425#       发表于 2021-8-2 20:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过生日不能聊点正常的话题吗
+
+
+*****
+
+####  Klience  
+##### 22426#       发表于 2021-8-2 20:33
+
+
+这才是神乐mea啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 22427#       发表于 2021-8-2 20:35
+
+
+噫我中了
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/203529nwi9cp97xowcwwoj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-02-20-31-37-118_tv.danmaku.bili.jpg</strong> (200.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-8-2 20:35 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 雪风utopia| + 1|好评加鹅|
+| 2014720| + 1|吸一口|
+| Mr.shelter| + 1|GB|
+
+
+查看全部评分
+
+
+*****
+
+####  T_Hb  
+##### 22428#       发表于 2021-8-2 20:36
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/203650os6t50vvkvs4v5ks.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (28.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-2 20:36 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">颚关节粉碎
+
+
+*****
+
+####  Klience  
+##### 22429#       发表于 2021-8-2 20:38
+
+
+这就是烂牙yhm吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22430#       发表于 2021-8-2 20:38
+
+
+怎么还有人看转播的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 22431#       发表于 2021-8-2 20:38
+
+
+批站这边有抽奖，你懂个几把<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 22432#       发表于 2021-8-2 20:42
+
+
+这次我是双开的
+
+
+*****
+
+####  呓亘  
+##### 22433#       发表于 2021-8-2 20:45
+
+
+这次会看B站这边的弹幕，基本就是双推流
+
+
+*****
+
+####  离心  
+##### 22434#       发表于 2021-8-2 20:46
+
+
+看转播不行啊，梯子太烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 22435#       发表于 2021-8-2 20:47
+
+
+好好戴着套真了不起（
+
+
+*****
+
+####  时间在我手中  
+##### 22436#       发表于 2021-8-2 20:48
+
+
+我知道有啊，但是我干嘛要看陈睿那边的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  295405468  
+##### 22437#       发表于 2021-8-2 20:49
+
+
+差不多得了 就看就看<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 22438#       发表于 2021-8-2 20:50
+
+
+垃圾梯子只能挂个同接去看转播。
+
+
+*****
+
+####  Klience  
+##### 22439#       发表于 2021-8-2 20:55
+
+
+也没人求你看啊 虽然我是双开 看运气能不能白嫖一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 22440#       发表于 2021-8-2 20:56
+
+
+【安全】
+【会用套子真厉害】
+【原来是这样呢】
+【那个真好呢】
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  2014720  
+##### 22441#       发表于 2021-8-2 20:57
+
+
+三寄加一盾警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这快一小时了也不告知吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22442#       发表于 2021-8-2 20:57
+
+
+我也没说有人求啊，单纯好奇而已<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+我梯子也不贵而且，不太能理解看转播，一万年没看过了说到底。
+
+
+*****
+
+####  T_Hb  
+##### 22443#       发表于 2021-8-2 20:57
+
+
+这歌都能拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22444#       发表于 2021-8-2 20:57
+
+
+小麻也是上了年纪的女人 对这方面有想法也正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22445#       发表于 2021-8-2 20:59
+
+
+又不是所有人都能翻墙 麻烦体谅一下不能翻墙或者梯子不行的人好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 有时候梯子一炸看油管体验真的烦
+
+
+*****
+
+####  T_Hb  
+##### 22446#       发表于 2021-8-2 21:00
+
+
+她竟然才看到魔圆新作消息，失格失格啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22447#       发表于 2021-8-2 21:00
+
+
+炸了就补录播呗，难听点这方面转播没比我梯子稳定多少是真的
+
+
+懒得吵这个。肥婆听到魔圆发春了
+
+
+*****
+
+####  Klience  
+##### 22448#       发表于 2021-8-2 21:01
+
+
+3G网络实在是太快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 22449#       发表于 2021-8-2 21:01
+
+
+虚假的膜原厨<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22450#       发表于 2021-8-2 21:01
+
+
+暴露了自己啥acg都不关注的事实<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22451#       发表于 2021-8-2 21:03
+
+
+唯独mikey这方面特别关注<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gongge666  
+##### 22452#       发表于 2021-8-2 21:05
+
+
+声音怎么这么难听了，感觉像个100kg的胖子<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JY要塞  
+##### 22453#       发表于 2021-8-2 21:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坦克毕竟是坦克
+
+
+*****
+
+####  十九号大侠  
+##### 22454#       发表于 2021-8-2 21:09
+
+
+胖子就声音难听，帕瓦罗蒂有话说。明明就是小麻的声音不行
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  T_Hb  
+##### 22455#       发表于 2021-8-2 21:10
+
+
+ 本帖最后由 T_Hb 于 2021-8-2 21:12 编辑 
+
+9点10分了，我好急
+
+巨婴症状发作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22456#       发表于 2021-8-2 21:12
+
+
+要开始告知了吗 一个小时也差不多该公布了
+
+
+*****
+
+####  时间在我手中  
+##### 22457#       发表于 2021-8-2 21:13
+
+
+叫的跟性瘾犯了一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 22458#       发表于 2021-8-2 21:13
+
+
+这ddd性能比我想的好啊
+
+
+*****
+
+####  pei23333  
+##### 22459#       发表于 2021-8-2 21:14
+
+
+原来发病的时候这么可爱吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，3d真好
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  T_Hb  
+##### 22460#       发表于 2021-8-2 21:15
+
+
+感觉到椅子的存在了
+
+
+*****
+
+####  2014720  
+##### 22461#       发表于 2021-8-2 21:15
+
+
+你麻属实有大病
+
+
+*****
+
+####  雪风utopia  
+##### 22462#       发表于 2021-8-2 21:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mikumiku831  
+##### 22463#       发表于 2021-8-2 21:15
+
+
+这就是小麻吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 22464#       发表于 2021-8-2 21:16
+
+
+可爱想打屁股<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22465#       发表于 2021-8-2 21:16
+
+
+赌瘾犯了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22466#       发表于 2021-8-2 21:16
+
+
+ 本帖最后由 T_Hb 于 2021-8-2 21:22 编辑 
+
+欲望在高涨<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">  
+恶疾发作，呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  czkt615477  
+##### 22467#       发表于 2021-8-2 21:16
+
+
+ybb<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22468#       发表于 2021-8-2 21:23
+
+
+喂？ 医生在吗 对 还是那个病人 对 又开始发作了 这次加大药剂吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  追风小星星  
+##### 22469#       发表于 2021-8-2 21:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 有病吧
+
+
+*****
+
+####  雪风utopia  
+##### 22470#       发表于 2021-8-2 21:24
+
+
+主播有病快治，别伤害到别人了<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  DDWarrior  
+##### 22471#       发表于 2021-8-2 21:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">差不多得了...
+
+
+*****
+
+####  2014720  
+##### 22472#       发表于 2021-8-2 21:24
+
+
+黄赌毒真不能沾
+
+
+*****
+
+####  Mikumiku831  
+##### 22473#       发表于 2021-8-2 21:24
+
+
+这戒断反应真可怕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+可以冲我这样撒娇吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 22474#       发表于 2021-8-2 21:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mikumiku831  
+##### 22475#       发表于 2021-8-2 21:25
+
+
+你咩已经沾两样了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 22476#       发表于 2021-8-2 21:26
+
+
+虚拟刘波本波了属于是
+
+
+*****
+
+####  T_Hb  
+##### 22477#       发表于 2021-8-2 21:29
+
+
+ 本帖最后由 T_Hb 于 2021-8-2 21:30 编辑 
+
+她就打算两张图每次都叠在一起了吗，有点难受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么还在发病，还在蹂躏塑料瓶子
+
+
+                                              

@@ -11879,3 +11879,167 @@ lain要歌回了，听听如何<img src="https://static.saraba1st.com/image/smil
 
 
                                                  
+
+*****
+
+####  Suny08  
+##### 5488#       发表于 2021-8-2 19:26
+
+
+够可爱就行，感觉无敌21组可以学维啊的那个六芒星一样发发歌不是乱杀
+
+
+*****
+
+####  我不是很好  
+##### 5489#       发表于 2021-8-2 19:29
+
+
+眼看着同接往下掉
+
+
+*****
+
+####  OldGlory  
+##### 5490#       发表于 2021-8-2 19:40
+
+
+六芒星你是巴不得彩虹死是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  我不是很好  
+##### 5491#       发表于 2021-8-2 19:56
+
+
+新人蜜月期过了吗？
+
+
+*****
+
+####  帕克桑  
+##### 5492#       发表于 2021-8-2 20:20
+
+
+鲨鱼妹是被看破手脚了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 5493#       发表于 2021-8-2 20:25
+
+
+感觉新人蜜月期过后同接还会比较高的会是红毛枪男和蓝毛整活。
+
+
+红毛估计后劲最强，因为打枪嘛……群众基础大他技术好talk也不错。
+
+
+蓝毛估计就得靠整活了，然而整活这玩意儿无法长期稳定的做下来，很有可能点子用完就流星般的稍纵即逝了，不过至少在整活的期间同接还可以。
+
+
+鲨鱼妹现在势头很不错但说实话我真的看不到她的发展方向。
+
+
+剩下的黑毛和教授都像养Gachi的类型，有女粉至少不会吃不上饭。哦教授还有一手英语可以秀，如果以后EN火起来了说不定可以吃点流量。
+
+
+*****
+
+####  Map-2  
+##### 5494#       发表于 2021-8-2 20:37
+
+
+ 本帖最后由 Map-2 于 2021-8-2 20:40 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/203336dsqlk80uwezod3us.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (107.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-2 20:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/203948qn0mhvl1w70w7mmw.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (43.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-2 20:39 上传
+
+
+怎么感觉新人比狐皇像凪白的女儿多了，是L2D调教的问题吗？
+
+近期凪白画的狐皇是这样的
+<[img src="https://i.loli.net/2021/08/02/fIDyrvG5OjsFz4m.jpg" referrerpolicy="no-referrer">
+
+会不会是腮红的原因？
+
+
+*****
+
+####  霜浪  
+##### 5495#       发表于 2021-8-2 20:41
+
+
+红毛光前世基础就乱杀你虹一众人了，而且人家阳角会巴结人，不比电波man吃得开<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 5496#       发表于 2021-8-2 20:57
+
+
+说的是，反正现在一圈看下来就红毛最有王者气息
+
+
+*****
+
+####  qq845629713  
+##### 5497#       发表于 2021-8-2 20:58
+
+
+我早说了，蓝毛再能整活，等他和KING等等人搭上边就秒杀了
+
+
+*****
+
+####  purdre  
+##### 5498#       发表于 2021-8-2 21:06
+
+
+说起来感觉最近女骑士同接一路左肩啊，她talk很有趣吗？
+
+
+*****
+
+####  霜浪  
+##### 5499#       发表于 2021-8-2 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52212153&amp;ptid=1972669" target="_blank">purdre 发表于 2021-8-2 21:06</a>
+
+说起来感觉最近女骑士同接一路左肩啊，她talk很有趣吗？</blockquote>
+很强，她三架马车里最强的就是杂谈
+
+
+*****
+
+####  我不是很好  
+##### 5500#       发表于 2021-8-2 21:31
+
+
+你虹的mc民全跑ib这里了吧
+
+
+                                                
