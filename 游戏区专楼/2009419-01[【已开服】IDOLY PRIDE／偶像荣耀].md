@@ -5467,3 +5467,71 @@ P技則是30%耐以下 舞力高3人舞力上升(7階)
 
 
                                                  
+
+*****
+
+####  bureaucratic  
+##### 391#       发表于 2021-8-2 22:29
+
+
+这游戏拍照片老是卡死是个什么原理
+
+
+*****
+
+####  DEMOxN  
+##### 392#       发表于 2021-8-2 22:35
+
+
+这游戏有模拟器能用吗
+
+
+*****
+
+####  yuugi  
+##### 393#       发表于 2021-8-2 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52213377&amp;ptid=2009419" target="_blank">bureaucratic 发表于 2021-8-2 22:29</a>
+
+这游戏拍照片老是卡死是个什么原理</blockquote>
+先进去全局下载，看是否卡下载
+
+再游戏的3D内容全是即时演算的
+
+机能不足吧
+
+
+*****
+
+####  bureaucratic  
+##### 394#       发表于 2021-8-2 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52213489&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-8-2 22:35</a>
+
+先进去全局下载，看是否卡下载
+
+再游戏的3D内容全是即时演算的
+
+机能不足吧 ...</blockquote>
+iPad Pro了性能应该没关系，就是拍好了用胶卷实写时经常失败
+
+
+*****
+
+####  yuugi  
+##### 395#       发表于 2021-8-2 22:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52213541&amp;ptid=2009419" target="_blank">bureaucratic 发表于 2021-8-2 22:39</a>
+
+iPad Pro了性能应该没关系，就是拍好了用胶卷实写时经常失败</blockquote>
+网络交互问题吧
+
+这里实际在抽卡
+
+我这没问题
+
+
+                                                 

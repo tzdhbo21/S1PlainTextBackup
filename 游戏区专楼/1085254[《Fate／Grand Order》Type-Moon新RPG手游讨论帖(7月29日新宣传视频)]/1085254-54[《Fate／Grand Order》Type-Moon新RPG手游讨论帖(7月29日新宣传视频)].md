@@ -17910,3 +17910,155 @@ dw这种废物能把8.4之后的活动代码提前放进去？我不信23333强�
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 80951#       发表于 2021-8-2 22:25
+
+
+qp荒漠根本不慌，从来没第一时间拉满过任何人
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80952#       发表于 2021-8-2 22:28
+
+
+ 本帖最后由 zakki 于 2021-8-2 22:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52213143&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-2 22:13</a>
+狐兔是周回和高难速战型
+
+
+双兔梅林，或者双梅林兔+狂娜伤害爆炸啊</blockquote>
+这个双梅林有什么意义么。。。双梅林杀狐配狂娜各种意义上都被双狐狸狂娜完爆，插件就做好插件的本质工作，现在也不会有人用双c狐配c呆吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80953#       发表于 2021-8-2 22:47
+
+
+咋回事，才发现好友里TM只有2个狐狸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，一个还不是3技能10的可恶
+
+
+还是得找些野人加
+
+
+*****
+
+####  rooarr  
+##### 80954#       发表于 2021-8-2 22:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52213661&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-2 22:47</a>
+咋回事，才发现好友里TM只有2个狐狸，一个还不是3技能10的可恶
+
+
+还是得找些野人加 ...</blockquote>
+楼里面这么多海豹，随便加就有了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 80955#       发表于 2021-8-2 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52213110&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-2 22:10</a>
+
+我杀狐、C狐和项羽都卡材料，连突破都不能突破</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡材料就去刷啊 我杀狐一突时发现我银杀棋子只剩1个了 又开始刷棋子
+
+
+*****
+
+####  khxooo  
+##### 80956#       发表于 2021-8-2 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52213156&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-2 22:14</a>
+
+这些都是用不掉的材料，咋会缺啊</blockquote>
+我也不清楚，就是缺<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80957#       发表于 2021-8-2 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52213697&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-2 22:49</a>
+
+楼里面这么多海豹，随便加就有了</blockquote>
+刷新了一会儿，都冒出来了
+
+
+*****
+
+####  シャル  
+##### 80958#       发表于 2021-8-2 23:08
+
+
+ 本帖最后由 シャル 于 2021-8-2 23:20 编辑 
+
+双狐梅真TM爆炸
+
+
+3回合秒杀队长
+
+
+杂鱼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">和盖提亚一样丢脸
+
+
+微信图片_20210802230620.jpg
+(382.81 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-2 23:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/230807s2eom0v20j1ewdmo.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sosgame67  
+##### 80959#       发表于 2021-8-2 23:10
+
+
+杀狐狸的素材..也就火药会缺吧，其他材料都没啥人吃啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80960#       发表于 2021-8-2 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52214006&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-8-2 23:10</a>
+
+杀狐狸的素材..也就火药会缺吧，其他材料都没啥人吃啊</blockquote>
+钉子也缺，我也不知道为什么<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80961#       发表于 2021-8-2 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52214021&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-2 23:11</a>
+
+钉子也缺，我也不知道为什么</blockquote>
+赶紧刷，三技10伤害爆炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+                                                 
