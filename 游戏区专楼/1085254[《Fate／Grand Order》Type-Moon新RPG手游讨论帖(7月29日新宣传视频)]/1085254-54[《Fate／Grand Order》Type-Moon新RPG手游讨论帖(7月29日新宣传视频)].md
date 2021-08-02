@@ -17800,3 +17800,113 @@ dw这种废物能把8.4之后的活动代码提前放进去？我不信23333强�
 
 
                                                  
+
+*****
+
+####  sosgame67  
+##### 80941#       发表于 2021-8-2 21:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52212272&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-2 21:14</a>
+
+话说狐狸的一技能cd也太长了吧</blockquote>
+刻意设置的，防止双狐狸重复刷新
+
+
+*****
+
+####  sosgame67  
+##### 80942#       发表于 2021-8-2 21:38
+
+
+想试试双杀狐阵容结果好友里一个30技能的都没有<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我还是继续蓝卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80943#       发表于 2021-8-2 21:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">9e开始刷的钱 1天过去了 变成6e了
+
+
+*****
+
+####  qixinno2  
+##### 80944#       发表于 2021-8-2 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52212818&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 21:51</a>
+
+9e开始刷的钱 1天过去了 变成6e了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好强啊 我最多刷两管体力就身体不适了
+
+
+*****
+
+####  alucardcz  
+##### 80945#       发表于 2021-8-2 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52212851&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-2 21:52</a>
+
+好强啊 我最多刷两管体力就身体不适了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">说是要刷羁绊 然而一天过去了 20点才有空开始刷 
+
+
+*****
+
+####  qixinno2  
+##### 80946#       发表于 2021-8-2 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52212877&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 21:54</a>
+
+说是要刷羁绊 然而一天过去了 20点才有空开始刷</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我C呆至今还没11绊
+
+
+*****
+
+####  khxooo  
+##### 80947#       发表于 2021-8-2 22:10
+
+
+我杀狐、C狐和项羽都卡材料，连突破都不能突破<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80948#       发表于 2021-8-2 22:13
+
+
+狐兔是周回和高难速战型
+
+
+双兔梅林，或者双梅林兔+狂娜伤害爆炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80949#       发表于 2021-8-2 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52213110&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-2 22:10</a>
+
+我杀狐、C狐和项羽都卡材料，连突破都不能突破</blockquote>
+这些都是用不掉的材料，咋会缺啊
+
+
+*****
+
+####  黑上シグマ  
+##### 80950#       发表于 2021-8-2 22:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀狐什么的，昨天抽到手就直接90级310拉满了
+
+
+                                                 
