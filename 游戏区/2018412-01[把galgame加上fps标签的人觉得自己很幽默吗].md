@@ -873,3 +873,16 @@ steam是高度社区化的购物平台，关联社区的梗文化都会体现在
 
 
                                                  
+
+*****
+
+####  Bruce33  
+##### 76#       发表于 2021-8-2 14:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52201695&amp;ptid=2018412" target="_blank">laputah 发表于 2021-8-2 08:18</a>
+ 老是在自己脑袋里预设别人是什么人然后当真实讲的人才奇怪吧  我用steam十年了一个字评论也没发过  ...</blockquote>
+？你跟我说的有半毛钱联系，我预想啥了我就看到有这种人才说的，你用几年steam又跟我有啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+                                                 

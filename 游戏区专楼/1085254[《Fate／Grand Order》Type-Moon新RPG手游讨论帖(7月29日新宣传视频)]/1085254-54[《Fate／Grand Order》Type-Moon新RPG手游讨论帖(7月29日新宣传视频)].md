@@ -16742,3 +16742,279 @@ qp的效率好了不少但是没扫荡还是不想动，苹果可以上千的吧
 
 
                                                  
+
+*****
+
+####  cckuku  
+##### 80857#       发表于 2021-8-2 13:26
+
+
+隔壁这把奥博龙的料透完了呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80858#       发表于 2021-8-2 13:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">居然已经有人刷到120了 不睡觉的吗
+
+
+*****
+
+####  zakki  
+##### 80859#       发表于 2021-8-2 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52205483&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-2 13:19</a>
+
+我也来找5个好友，没要求，越萌新越好。
+
+
+话说还有真的萌新吗</blockquote>
+申请了，ID是zakki<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Coda  
+##### 80860#       发表于 2021-8-2 13:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52202141&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-2 09:16</a>
+
+好友位空了10个，来楼里抓几个萌（壮）新（丁）吧
+
+别动不动沉个池子就弃坑就行</blockquote>
+申请了 工作有收入之后抗沉船能力大增<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+顺便求好友820304303 
+
+
+*****
+
+####  Jamaisvu  
+##### 80861#       发表于 2021-8-2 13:50
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-2 13:52 编辑 
+<blockquote>シャル 发表于 2021-8-2 08:42
+杀兔这个是俄罗斯童话，兔子和狐狸吧
+
+原典俄罗斯也只有这个了</blockquote>
+怪不得羁绊礼装说自己很尊敬休•海夫纳（playboy创始人，兔女郎文化的推动者）。
+
+
+之前的剧情有说过高杨的能力是操纵有皮毛的动物变成其分身，估计是把俄罗斯传说中的兔子鸠占鹊巢了。
+
+
+搞不好玉藻前的九个分身还真可能是不同的动物？狂阶玉藻前就是只cat？
+
+
+（“光属性”这个概念有提到过吗，魔术属性好像是地水火风空虚无七种吧。
+
+希望以后不会出什么暗之斯卡娅，冰之斯卡娅，火之斯卡娅吧......高杨伊布娅说。
+
+要是把之前那几套服装变成分身的立绘，那就太骗氪了...）
+
+
+*****
+
+####  reekilynn  
+##### 80862#       发表于 2021-8-2 13:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52205427&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 13:15</a>
+
+这次公款追星这么大手笔吗 居然还是全新职阶?</blockquote>
+4chan透露的第三技能是转换职阶为克制当前选择敌人的职阶（比如点的是仇阶敌人就转换为mc）
+
+
+*****
+
+####  Jamaisvu  
+##### 80863#       发表于 2021-8-2 13:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52205870&amp;ptid=1085254" target="_blank">reekilynn 发表于 2021-8-2 13:51</a>
+
+4chan透露的第三技能是转换职阶为克制当前选择敌人的职阶（比如点的是仇阶敌人就转换为mc） ...</blockquote>
+如果对面是丑阶会变成什么呢？狂吗？
+
+
+*****
+
+####  里村紅葉  
+##### 80864#       发表于 2021-8-2 13:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52205886&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-2 13:53</a>
+
+如果对面是丑阶会变成什么呢？狂吗？</blockquote>
+这新职介搞不好本身就是克制丑阶的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80865#       发表于 2021-8-2 13:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52205870&amp;ptid=1085254" target="_blank">reekilynn 发表于 2021-8-2 13:51</a>
+
+4chan透露的第三技能是转换职阶为克制当前选择敌人的职阶（比如点的是仇阶敌人就转换为mc） ...</blockquote>
+如果是这样，那论拐的强度比不过杀狐
+
+
+*****
+
+####  Jamaisvu  
+##### 80866#       发表于 2021-8-2 14:02
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-2 14:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52205906&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-2 13:54</a>
+
+这新职介搞不好本身就是克制丑阶的</blockquote>
+蘑菇这公款追星力度可真大<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我本来都很好奇，周年冲业绩，拿了个美女红拐出来，那之后还有人抽奥伯龙吗。
+
+结果重量级大BOSS的定位，菌味十足的黑暗狂气悲情人设，风格大变的三破立绘，还有特制的克制万物的相性，完全颠覆了之前的塑造，把欲扬先抑发挥到极致。
+
+
+我比较吃这种狂气反派的，希望抽出来的角色能加大黑化的力度。最后现在流出的黑化人设就是二破，三破弄个更帅的龙化模式。
+
+（DW要是真把那套白胖装做成模型就太浪费产能了...）
+
+
+*****
+
+####  Jamaisvu  
+##### 80867#       发表于 2021-8-2 14:04
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-2 14:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52205940&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-2 13:56</a>
+
+如果是这样，那论拐的强度比不过杀狐</blockquote>
+这两张卡的定位貌似都是能拐能打的，一个宝具加攻，一个秩序特攻。
+
+拐方面就是一个代替孔明发电站和强控（二世还是概率控制），一个梅林红爆。可惜都没法长线作战。
+
+
+俗话说得好，样样精通样样稀松......
+
+
+*****
+
+####  无形伏击客  
+##### 80868#       发表于 2021-8-2 14:04
+
+
+470 828 999 同求好友~
+
+
+*****
+
+####  angelooo  
+##### 80869#       发表于 2021-8-2 14:05
+
+
+就，我觉得那个被动三技能，特别的觉醒力量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+伪装者这个克制对面的技能，就特别的BOSS感，不知道实装会不会保留
+
+卡背帅+65535，希望不要是像兽那样的剧情专属职介，以后多出几个
+
+
+*****
+
+####  alucardcz  
+##### 80870#       发表于 2021-8-2 14:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这新职阶怎么翻  伪装者?欺诈者?骗子?
+
+
+*****
+
+####  zakki  
+##### 80871#       发表于 2021-8-2 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206065&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-2 14:04</a>
+
+这两张卡的定位貌似都是能拐能打的，一个宝具加攻，一个秩序特攻。
+
+
+虽然俗话说得好，样样精通样样稀松.. ...</blockquote>
+不是啊，杀狐是实打实的50充红拐对标CBA的，当然比不过C呆，但拔高了红卡队能力不少。奥伯龙就只是对标孔明，莱妮丝的充能拐，而且充能还限制了色卡的使用
+
+
+*****
+
+####  Jamaisvu  
+##### 80872#       发表于 2021-8-2 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206085&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-2 14:05</a>
+
+就，我觉得那个被动三技能，特别的觉醒力量
+
+伪装者这个克制对面的技能，就特别的BOSS感，不知道实装 ...</blockquote>
+下次强化福尔摩斯直接真名溶解然后联动尼尔盖曼绿字的研究古神化怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 80873#       发表于 2021-8-2 14:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206089&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 14:05</a>
+
+这新职阶怎么翻  伪装者?欺诈者?骗子?</blockquote>
+我刚看到伪装者的时候直接出戏到胡歌演的某谍战剧去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80874#       发表于 2021-8-2 14:27
+
+
+狐狸真是虚假的周年从者，真正的周年从者还是奥伯龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80875#       发表于 2021-8-2 14:28
+
+
+那多职介的怎么办，变狂？
+
+
+*****
+
+####  zakki  
+##### 80876#       发表于 2021-8-2 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206365&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-2 14:28</a>
+那多职介的怎么办，变狂？</blockquote>
+应该是变成你现在锁定的那个敌人的克制职阶
+
+
+*****
+
+####  khxooo  
+##### 80877#       发表于 2021-8-2 14:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206362&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-2 14:27</a>
+狐狸真是虚假的周年从者，真正的周年从者还是奥伯龙</blockquote>
+感觉杀狐就是临时凑数的，和2.6.3离的太近，都在认为奥伯龙直接实装，然后和道满一样卡再临卡面。
+
+
+                                                 
