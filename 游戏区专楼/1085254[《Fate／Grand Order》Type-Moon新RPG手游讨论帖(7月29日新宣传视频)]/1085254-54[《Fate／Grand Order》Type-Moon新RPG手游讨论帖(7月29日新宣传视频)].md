@@ -16665,3 +16665,80 @@ qp的效率好了不少但是没扫荡还是不想动，苹果可以上千的吧
 
 
                                                  
+
+*****
+
+####  仰望神的括约肌  
+##### 80851#       发表于 2021-8-2 12:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52202141&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-2 09:16</a>
+
+好友位空了10个，来楼里抓几个萌（壮）新（丁）吧
+
+别动不动沉个池子就弃坑就行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 加了 求个腿毛位 id：アナンスゲ
+
+
+*****
+
+####  bikalu  
+##### 80852#       发表于 2021-8-2 12:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52204480&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-2 12:00</a>
+
+给妖兰开了二技能，理想情况开1凑50，吃拐先开宝具，然后开3第二波宝具，换人拐充满再来一波</blockquote>
+申请了，
+
+我的ID好像是bika<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80853#       发表于 2021-8-2 13:10
+
+
+奥伯龙这个新职阶卡背帅炸啊，估计和剧情里表现的一样，永远是克制对方的职阶
+
+
+*****
+
+####  alucardcz  
+##### 80854#       发表于 2021-8-2 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52202141&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-2 09:16</a>
+
+好友位空了10个，来楼里抓几个萌（壮）新（丁）吧
+
+别动不动沉个池子就弃坑就行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">申请了 Nunnally
+
+
+*****
+
+####  alucardcz  
+##### 80855#       发表于 2021-8-2 13:15
+
+
+这次公款追星这么大手笔吗 居然还是全新职阶?
+
+
+*****
+
+####  rooarr  
+##### 80856#       发表于 2021-8-2 13:19
+
+
+我也来找5个好友，没要求，越萌新越好。
+
+
+话说还有真的萌新吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+296 217 002
+
+
+                                                 
