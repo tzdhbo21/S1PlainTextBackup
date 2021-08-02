@@ -1283,3 +1283,64 @@ syl，不过今天的直播看了repo（不假的话），确实有点让人不�
 
 
                                                  
+
+*****
+
+####  莫洛骑士  
+##### 117#       发表于 2021-8-2 15:48
+
+
+鸟友们，文静偶像梦的直播出处有吗我想去溜一下
+
+
+*****
+
+####  夜潇箫  
+##### 118#       发表于 2021-8-2 15:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52207338&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-8-2 15:48</a>
+鸟友们，文静偶像梦的直播出处有吗我想去溜一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这里人太少，你应该去贴吧问
+
+
+*****
+
+####  魔法少女大头  
+##### 119#       发表于 2021-8-2 15:54
+
+
+看到有说斗鱼电台随便挑个人都有文二姨水平的，未免也有点高看斗鱼主播水平，看不起老阿姨的瞎掰能力了。
+但是二姨这以后的突破口还真不知道往哪突破了，纯靠硬侃还是有点难
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  GAKOTO  
+##### 120#         楼主| 发表于 2021-8-2 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52207338&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-8-2 15:48</a>
+
+鸟友们，文静偶像梦的直播出处有吗我想去溜一下</blockquote>
+【"成为文静之前我也依然是文静"-哔哩哔哩】[https://b23.tv/6sfuLE](https://b23.tv/6sfuLE)
+
+
+
+
+*****
+
+####  小憨1  
+##### 121#       发表于 2021-8-2 16:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52207338&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-8-2 15:48</a>
+鸟友们，文静偶像梦的直播出处有吗我想去溜一下</blockquote>
+【千鸟战队_文静7.10 你有想实现的愿望吗……？和我说说吧-哔哩哔哩】https://b23.tv/O7Lrmi
+
+P1 1：23：30开始
+
+
+                                                

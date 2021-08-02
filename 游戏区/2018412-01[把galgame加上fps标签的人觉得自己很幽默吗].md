@@ -897,3 +897,74 @@ steam是高度社区化的购物平台，关联社区的梗文化都会体现在
 
 
                                                  
+
+*****
+
+####  cxxx  
+##### 78#       发表于 2021-8-2 16:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52189196&amp;ptid=2018412" target="_blank">查小灿 发表于 2021-8-1 08:35</a>
+
+确实很幽默啊</blockquote>
+真是羡慕你们，笑点如此之低，生活中肯定处处充满欢乐吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  泉玲奈  
+##### 79#       发表于 2021-8-2 16:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52192394&amp;ptid=2018412" target="_blank">CswStar 发表于 2021-8-1 14:54</a>
+
+艹猫这个游戏都能硬的起来，说明还是经验太少啊，怎么说也要euphoria这种才能称得上"FPS"吧 ...</blockquote>
+年轻人的波奇能力就像招手踢腿那样简单
+
+想硬就硬,不需要任何材料
+
+这点不得不得服;
+
+
+*****
+
+####  Litccc  
+##### 80#       发表于 2021-8-2 16:22
+
+
+ 本帖最后由 Litccc 于 2021-8-2 16:24 编辑 
+
+从来没打过标签，不过keylol倒是经常有人拿这个水贴，底下的回复基本上是图一乐，泥潭怎么脑补出来这么多的，吓出我一身冷汗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巨灵巴谛魔  
+##### 81#       发表于 2021-8-2 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52207803&amp;ptid=2018412" target="_blank">Litccc 发表于 2021-8-2 16:22</a>
+
+从来没打过标签，不过keylol倒是经常有人拿这个水贴，底下的回复基本上是图一乐，泥潭怎么脑补出来这么多的 ...</blockquote>
+废话，stcn水区那帮死大学生高中生就是玩这个梗的主力
+
+
+*****
+
+####  GT2  
+##### 82#       发表于 2021-8-2 16:46
+
+
+玩gal为什么要上steam<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dumplingpro  
+##### 83#       发表于 2021-8-2 16:53
+
+
+民主化是必然的，玩家给黄油上FPS的TAG，总比让媒体一口一个奇迹好吧？
+
+
+                                                 

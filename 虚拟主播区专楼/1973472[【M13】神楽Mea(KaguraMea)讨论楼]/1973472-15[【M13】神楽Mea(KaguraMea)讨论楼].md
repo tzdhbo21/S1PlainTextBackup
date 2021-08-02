@@ -14568,3 +14568,218 @@ holo内容一来没那么有趣二来我干嘛要给杏奴傻狗干活，你是�
 
 
                                                  
+
+*****
+
+####  呓亘  
+##### 22341#       发表于 2021-8-2 15:26
+
+
+过度的批评和压力只会让人逃避
+
+
+*****
+
+####  T_Hb  
+##### 22342#       发表于 2021-8-2 15:28
+
+
+摆烂就完事儿了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22343#       发表于 2021-8-2 15:30
+
+
+我怀疑你脑子有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是说翻译你这种希望玩什么XXXX几把游戏蹭几把热度的狗屁不通评论过去是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+事业民真的是狗嘴吐不出象牙只能说
+
+
+*****
+
+####  雪风utopia  
+##### 22344#       发表于 2021-8-2 15:43
+
+
+事业民在担心她的事业前还是先担心担心自己会不会疯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 22345#       发表于 2021-8-2 15:47
+
+
+提问箱链接有人发一下吗，动态下面的不知道怎么打不开
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  makourisu-2  
+##### 22346#       发表于 2021-8-2 15:48
+
+
+又开始了，怎么回事，这段时间怎么老是事业民冒头啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">躺平不好嘛。
+建议把她当一普通tc台女主播而不是管人<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+当然了，主播可以不随粉丝心意播，粉丝自然也可以有抱怨的权利。都会发病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一点倒是对双方都是公平的
+
+
+*****
+
+####  yywzjsw  
+##### 22347#       发表于 2021-8-2 15:49
+
+
+那你不如fanbox上直接留言，比字幕组有效多了。只是会不会被当成mix就不好说了
+
+
+*****
+
+####  时间在我手中  
+##### 22348#       发表于 2021-8-2 15:55
+
+
+得了吧，他懂个几把日语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我昨晚扣的字似乎没在这边发出来
+
+
+那我直接点，先滚去学学怎么换头术蹭热点，然后发出来收获不到1000的播放量，或者顶天一万的播放量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+整天脑补great again 自己不滚去试着嗯蹭，指望字幕组这几个比给你筛选一波之后发出去的建议是你的？然后吊人就一定会听你的？
+
+
+魔圆现在的热度好高哦，有【这瓜保熟吗】十分之一多吗，有个屁
+
+
+蹭蹭蹭，不懂装懂叫嚷着蹭你妈批热度，我看你该把你几把蹭你表字ma脑袋里面看看能不能把你那精力过剩的脑补弱智事业民想法给蹭掉的了，你的很大，指弱智程度是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 22349#       发表于 2021-8-2 15:57
+
+
+et和你麻发病时挺像的，代麻！
+
+
+*****
+
+####  时间在我手中  
+##### 22350#       发表于 2021-8-2 15:58
+
+
+看来最后一天是妄想列车没跑了，傻逼混郞混不好我就日他妈的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  yywzjsw  
+##### 22351#       发表于 2021-8-2 16:03
+
+
+日吧，肯定混不好
+
+
+*****
+
+####  2014720  
+##### 22352#       发表于 2021-8-2 16:03
+
+
+ 本帖最后由 2014720 于 2021-8-2 16:14 编辑 
+
+怎么才说是ddd直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+新歌这图挺好的
+<img src="https://p.sda1.dev/2/ed02c0a75cbc42df7a2f89fd6eb9ba26/IMG_CMP_59506943.jpeg" referrerpolicy="no-referrer">
+
+就那一行小字，那我可真是<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22353#       发表于 2021-8-2 16:06
+
+
+预告封面不是写了家用DDD吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cushaw  
+##### 22354#       发表于 2021-8-2 16:07
+
+
+但是小麻不是同，论破<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yywzjsw  
+##### 22355#       发表于 2021-8-2 16:09
+
+
+话说八九寺那大人模式是不是38岁（，你麻还有个meu
+
+
+*****
+
+####  往世雷书  
+##### 22356#       发表于 2021-8-2 16:16
+
+
+我不懂日语，但是我可以机翻个我爱你复制一百次发给她啊，只是没必要罢了。我曾经想过要写信，写够一百封就给她寄过去，后来想想还是作罢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  时间在我手中  
+##### 22357#       发表于 2021-8-2 16:18
+
+
+连我爱你都要机翻的建议remake<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22358#       发表于 2021-8-2 16:19
+
+
+发过去估计要被当成第二个mix了 恭喜你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 22359#       发表于 2021-8-2 16:21
+
+
+我还想知道最近为啥没tc了呢，他妈的昨天白等了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 22360#       发表于 2021-8-2 16:21
+
+
+愛しでる
+
+
+                                                

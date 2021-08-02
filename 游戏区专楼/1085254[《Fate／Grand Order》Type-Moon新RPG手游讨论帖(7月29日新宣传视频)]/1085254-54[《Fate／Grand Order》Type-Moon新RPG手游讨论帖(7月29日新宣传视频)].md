@@ -17211,3 +17211,93 @@ qp的效率好了不少但是没扫荡还是不想动，苹果可以上千的吧
 
 
                                                 
+
+*****
+
+####  angelooo  
+##### 80894#       发表于 2021-8-2 15:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206977&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-2 15:20</a>
+
+老实说我真心没觉得他伪装成功在哪了，虽然剧中角色看起来都挺傻白甜的，但是剧外凡是没skip剧情的玩家应 ...</blockquote>
+伪装者，指卡背伪装成尺子，这大概没人能想到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reekilynn  
+##### 80895#       发表于 2021-8-2 15:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206977&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-2 15:20</a>
+
+老实说我真心没觉得他伪装成功在哪了，虽然剧中角色看起来都挺傻白甜的，但是剧外凡是没skip剧情的玩家应 ...</blockquote>
+所以“觊觎者”这个解释，从剧情角度上来讲似乎更合理一些？
+
+
+*****
+
+####  白金口袋  
+##### 80896#       发表于 2021-8-2 15:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52207124&amp;ptid=1085254" target="_blank">reekilynn 发表于 2021-8-2 01:31</a>
+
+所以“觊觎者”这个解释，从剧情角度上来讲似乎更合理一些？</blockquote>
+不，从剧情上来说伪装者比较合理，我倒不是那个意思
+
+主要是蘑菇这个描写表现得太明显了导致伪装得很失败，毕竟一点线索不给角色莫名反转的悬疑剧是垃圾，但是线索给太多傻子都看得出来要反转的悬疑剧也很垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sk86  
+##### 80897#       发表于 2021-8-2 15:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52207250&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-2 15:40</a>
+
+不，从剧情上来说伪装者比较合理，我倒不是那个意思
+
+主要是蘑菇这个描写表现得太明显了导致伪装得很失败 ...</blockquote>
+这不就是把他当黑幕在描写？
+
+故事里都写的这么明白了
+
+要是能洗白才是反转
+
+
+*****
+
+####  シャル  
+##### 80898#       发表于 2021-8-2 16:15
+
+
+那么外国人和ago的三角关系就能完成了
+
+
+*****
+
+####  khxooo  
+##### 80899#       发表于 2021-8-2 16:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206940&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-2 15:17</a>
+这池子连击太厉害，摩根妖兰杀狐奥伯龙。幸好泳装在9月。。</blockquote>
+8月中期可能还有一个送哈贝喵的新活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80900#       发表于 2021-8-2 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52207813&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-2 16:22</a>
+
+8月中期可能还有一个送哈贝喵的新活动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">万一通关2.6就送呢
+
+
+                                                 
