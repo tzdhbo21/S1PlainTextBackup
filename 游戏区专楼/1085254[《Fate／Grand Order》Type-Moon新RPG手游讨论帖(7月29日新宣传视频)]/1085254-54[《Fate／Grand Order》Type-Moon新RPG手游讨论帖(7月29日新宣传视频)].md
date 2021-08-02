@@ -18105,3 +18105,32 @@ qp荒漠根本不慌，从来没第一时间拉满过任何人
 
 
                                                  
+
+*****
+
+####  الطائر  
+##### 80965#       发表于 2021-8-3 03:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52212621&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-8-2 21:37</a>
+
+刻意设置的，防止双狐狸重复刷新</blockquote>
+杀狐第一技能冷却时间8，自己给自己用就直接变成6了，这程序判断逻辑顺序有BUG吧，还是设计如此？
+
+
+这样的话，双杀狐加阿特拉斯院制服加C狐宝具岂不是叠Buff叠到飞起。实测第一回合就可以连点2次二三技能，如果C狐再放一个宝具，第二回合又可点1次第一技能，如果C狐能再放一个宝具，到第三回合，刚好可以累积四次Buff，八重特攻。
+
+
+*****
+
+####  森兰丸  
+##### 80966#       发表于 2021-8-3 04:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">除了圣诞南丁之外还有谁有解除强化耐性技能的
+
+
+为了3T打遍队长把这个技能给升到了10...我也是太无聊了点
+
+
+                                                 
