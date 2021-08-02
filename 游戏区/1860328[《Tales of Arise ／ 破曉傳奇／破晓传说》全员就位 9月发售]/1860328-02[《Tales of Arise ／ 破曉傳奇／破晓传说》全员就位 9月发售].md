@@ -9016,3 +9016,17 @@ https://youtu.be/ZenwOOHL7uA
 
 
                                                 
+
+*****
+
+####  godless2020  
+##### 2163#       发表于 2021-8-2 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52196864&amp;ptid=1860328" target="_blank">a2042312 发表于 2021-8-1 20:39</a>
+
+那些服装DLC可以单买吧，能的话就买个普通版了。</blockquote>
+DLC种类，传说一直很足<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+                                                 

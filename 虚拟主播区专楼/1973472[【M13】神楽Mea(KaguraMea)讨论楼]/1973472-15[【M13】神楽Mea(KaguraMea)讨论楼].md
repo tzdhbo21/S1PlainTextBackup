@@ -14896,3 +14896,220 @@ tc只能听到这人对mikey的发情 漫画不完结 你麻一时半会这病�
 
 
                                                  
+
+*****
+
+####  GeraltzRivii  
+##### 22371#       发表于 2021-8-2 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52208782&amp;ptid=1973472" target="_blank">雪风utopia 发表于 2021-8-2 17:20</a>
+官号有转</blockquote>
+谢了。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  路人庚  
+##### 22372#       发表于 2021-8-2 18:39
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/183855vfgx4phpisp46bir.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>31BF1ECE-79BE-49E4-BD52-1BE8321017C6.jpeg</strong> (55.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-2 18:38 上传
+
+
+进行一个歌词的修订
+
+
+*****
+
+####  T_Hb  
+##### 22373#       发表于 2021-8-2 18:44
+
+
+这次还没放出来就提前修正了，进步了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22374#       发表于 2021-8-2 18:47
+
+
+手机垃圾画质不好，<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 4战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 神楽mea| + 1|好评加鹅|
+| aisakahammer| + 2|水友厉害啊|
+| T_Hb| + 1|欢乐多|
+| Cushaw| + 1|我tm笑死|
+
+
+查看全部评分
+
+
+*****
+
+####  Klience  
+##### 22375#       发表于 2021-8-2 18:51
+
+
+你就是喜欢塔姆对吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22376#       发表于 2021-8-2 18:54
+
+
+其实是因为想不到什么词了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">店家限制6-8个字
+
+
+*****
+
+####  2014720  
+##### 22377#       发表于 2021-8-2 18:55
+
+
+坦克民真是
+
+
+*****
+
+####  时间在我手中  
+##### 22378#       发表于 2021-8-2 18:57
+
+
+别尬黑，这蛋糕是可爱的小兔子咩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一口一个
+
+
+（其实因为选的蓝莓慕斯底才吃到第二块我已经快被过量奶油溺死了）
+
+
+*****
+
+####  Cushaw  
+##### 22379#       发表于 2021-8-2 19:01
+
+
+这么yhm粉我只能怀疑这是et的个人喜好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  2014720  
+##### 22380#       发表于 2021-8-2 19:02
+
+
+这么大一个蛋糕一个人吃不得腻死
+
+我就吃的是麻酱拌饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  时间在我手中  
+##### 22381#       发表于 2021-8-2 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52210189&amp;ptid=1973472" target="_blank">Cushaw 发表于 2021-8-2 19:01</a>
+
+这么yhm粉我只能怀疑这是et的个人喜好
+
+
+—— 来自 S1Fun</blockquote>
+你麻喜欢啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">要不是赶时间我就用PS加个粉色滤镜了
+
+
+*****
+
+####  T_Hb  
+##### 22382#       发表于 2021-8-2 19:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dualist彩  
+##### 22383#       发表于 2021-8-2 19:04
+
+
+pv做的可以的，好像人声伴奏打架了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22384#       发表于 2021-8-2 19:05
+
+
+感觉鼓点有点大了，不过这图好几把幼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 22385#       发表于 2021-8-2 19:07
+
+
+小小麻可爱捏
+
+
+*****
+
+####  295405468  
+##### 22386#       发表于 2021-8-2 19:08
+
+
+ 本帖最后由 295405468 于 2021-8-2 19:14 编辑 
+
+感觉伴奏有点糊耳朵啊  存在感太强了syl 拿耳机重听了一下 好了点 可能是业障太重
+
+小麻可爱可爱
+
+
+*****
+
+####  aisakahammer  
+##### 22387#       发表于 2021-8-2 19:15
+
+
+  在看言语如苏打般涌现，牙不好的年轻女主播，啧，瞬间想到小麻了。
+
+
+*****
+
+####  往世雷书  
+##### 22388#       发表于 2021-8-2 19:20
+
+
+看啥都想到她，真是一辈子忘不掉这人了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                

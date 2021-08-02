@@ -17618,3 +17618,86 @@ dw这种废物能把8.4之后的活动代码提前放进去？我不信23333强�
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 80927#       发表于 2021-8-2 19:00
+
+
+官网和推特还特意搞了个邀请函，到底是木野子小姐亲自下场，排场是之前的章节都没有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 80928#       发表于 2021-8-2 19:01
+
+
+万一小裁缝真是活动四星，会不会奥伯龙在主线剧情里一路黑到底，然后专门出一次活动再洗白进卡池？限定五星奥卑龙，活动四星哈贝喵<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+（蘑菇：我对厨力从者的爱可是一个主线大章也装不下的）
+
+
+*****
+
+####  alucardcz  
+##### 80929#       发表于 2021-8-2 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52210184&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-2 19:01</a>
+
+万一小裁缝真是活动四星，会不会奥伯龙在主线剧情里一路黑到底，然后专门出一次活动再洗白进卡池？限定五星 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你游进卡池还需要洗白？
+
+
+*****
+
+####  Jamaisvu  
+##### 80930#       发表于 2021-8-2 19:04
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-2 19:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206785&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-2 15:03</a>
+
+是短笛和天神吧</blockquote>
+懂了，可能是为了不被冠位追杀而舍弃的具有兽资质的邪恶面。（有点像布袋戏里的一步莲华和袭灭天来）
+
+
+那玉藻前的几个分身应该不是是狐狸外的动物了。
+
+现在貌似是高扬斯卡娅被剥离后在重新收集不同神话体系的异兽，以便塑造属于自己的九尾？
+
+
+现在这个羁绊档案挺突破次元壁的，看不出和主线的关系。感觉这个角色还有深入塑造的地方。
+
+不知道接下来的剧情里打不打她，感觉适合当个CCC那样的外传章节的BOSS...到时候正好实装虫BB。
+
+
+*****
+
+####  Jamaisvu  
+##### 80931#       发表于 2021-8-2 19:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52210207&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 19:03</a>
+
+你游进卡池还需要洗白？</blockquote>
+也对，恶役角色有杀生院和道满珠玉在前了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我就是想看看蘑菇写够奥伯龙了没有，是2.6结束后竹帚日记里发发情就行，还是再给他安排些个人剧情......
+
+
+*****
+
+####  白金口袋  
+##### 80932#       发表于 2021-8-2 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206785&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-2 01:03</a>
+
+是短笛和天神吧</blockquote>
+那合体之后应该有名台词：
+
+我既不是玉藻前，也不是高扬斯卡娅，只是个连名字都忘了的beast<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
