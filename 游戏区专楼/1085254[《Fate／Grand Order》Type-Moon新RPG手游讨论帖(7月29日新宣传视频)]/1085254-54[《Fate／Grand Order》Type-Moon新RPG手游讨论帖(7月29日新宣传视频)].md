@@ -17301,3 +17301,107 @@ qp的效率好了不少但是没扫荡还是不想动，苹果可以上千的吧
 
 
                                                  
+
+*****
+
+####  angelooo  
+##### 80901#       发表于 2021-8-2 16:35
+
+
+<blockquote>khxooo 发表于 2021-8-2 16:22
+8月中期可能还有一个送哈贝喵的新活动</blockquote>
+dw这种废物能把8.4之后的活动代码提前放进去？我不信23333强烈要求8.4那段打完点击就送哈贝喵
+
+
+*****
+
+####  yukiness  
+##### 80902#       发表于 2021-8-2 16:36
+
+
+也顺便求波好友834253209
+
+
+*****
+
+####  qixinno2  
+##### 80903#       发表于 2021-8-2 16:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206787&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 15:03</a>
+
+还有10连护符+120石羁绊奖励!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好强啊 这就是肝佬么
+
+
+*****
+
+####  khxooo  
+##### 80904#       发表于 2021-8-2 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52207877&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 16:27</a>
+万一通关2.6就送呢</blockquote>
+那不是更好？那么估计就是复刻了
+
+
+*****
+
+####  alucardcz  
+##### 80905#       发表于 2021-8-2 17:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">拉师傅强化了
+
+
+*****
+
+####  rooarr  
+##### 80906#       发表于 2021-8-2 17:05
+
+
+拉二这个宝具本很可以啊
+
+
+*****
+
+####  不垃圾屌丝  
+##### 80907#       发表于 2021-8-2 17:09
+
+
+拉二不容易啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  白夜羽  
+##### 80908#       发表于 2021-8-2 17:13
+
+
+宝具后给阳光<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 80909#       发表于 2021-8-2 17:14
+
+
+想看看还有哪些职介有强化 上官网看看 艹 咋还整了个8.4倒计时的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80910#       发表于 2021-8-2 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52208510&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-2 17:05</a>
+
+拉二这个宝具本很可以啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">对了 水武藏那20np 我刷羁绊的时候尝试了下 不能不开c呆2技能 只能少开一个1技能 再用礼装加10np启动。。如果不开2技能是反效果
+
+
+                                                 
