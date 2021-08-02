@@ -18062,3 +18062,46 @@ qp荒漠根本不慌，从来没第一时间拉满过任何人
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 80962#       发表于 2021-8-2 23:32
+
+
+ 本帖最后由 khxooo 于 2021-8-2 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52214103&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-2 23:17</a>
+
+赶紧刷，三技10伤害爆炸啊</blockquote>
+我连再临的火药都不够，你认为我够火药点技能吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+而且10把才有1个火药掉落，都不想刷了，说好的提高材料掉率呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  承尘  
+##### 80963#       发表于 2021-8-2 23:46
+
+
+一管体力俩火药，yls这材料掉率提高了个寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  eyeego  
+##### 80964#       发表于 2021-8-2 23:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52213983&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-2 23:08</a>
+双狐梅真TM爆炸
+
+
+3回合秒杀队长</blockquote>
+队长被2技能特攻克得死死的 随便来个红卡都能吊打他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -12205,3 +12205,56 @@ sakuyui 8月中旬3Dlive，
 
 
                                                  
+
+*****
+
+####  SuntoryNomu  
+##### 5511#       发表于 2021-8-2 23:36
+
+
+ 本帖最后由 SuntoryNomu 于 2021-8-2 23:39 编辑 
+
+弱智P图大赏。
+[https://twitter.com/ui_shig/status/1422211342807691270](https://twitter.com/ui_shig/status/1422211342807691270)
+ <blockquote>みんなの思う夏衣装を着せてくれ……</blockquote>
+（配信が終わり次第この素材は消えます）
+
+<img src="https://img.saraba1st.com/forum/202108/02/233516zmg5mrogz75fi5rm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E7y1iIvVkAAK-53.jpg</strong> (253.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-2 23:35 上传
+
+
+*****
+
+####  渡鸦骑士  
+##### 5512#       发表于 2021-8-2 23:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52214175&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-8-2 23:24</a>
+黑眼圈是不是重了。</blockquote>
+Lam老师特色就是这种超重的眼影。
+一些画的不好的角度就会很奇怪。
+不过给卡普空画的颜色都还算鲜艳了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hulaoda007| + 1|我说看着好像没睡好...|
+
+
+查看全部评分
+
+
+                                                 
