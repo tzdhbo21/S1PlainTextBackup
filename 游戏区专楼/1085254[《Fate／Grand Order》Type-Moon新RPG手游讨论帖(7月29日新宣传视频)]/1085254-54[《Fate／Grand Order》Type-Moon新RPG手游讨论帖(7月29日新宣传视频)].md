@@ -16217,3 +16217,298 @@ https://bbs.nga.cn/read.php?tid=27874948</blockquote>
 
 
                                                  
+
+*****
+
+####  シャル  
+##### 80818#       发表于 2021-8-2 07:40
+
+
+自选要了志度内，农神好弱啊
+
+志度内连发一路就过去了
+
+
+D7F173B2-8E1C-4DB8-A0C2-517546AB909C.png
+(738.28 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-2 07:39 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/073916r439zy997sey99uy.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80819#       发表于 2021-8-2 07:45
+
+
+我先来，送的石头狐狸两宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 80820#       发表于 2021-8-2 07:54
+
+
+昨天抽了三个十连没出，今天送的石头一个十连解决<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  rooarr  
+##### 80821#       发表于 2021-8-2 08:16
+
+
+我也豹了狐狸<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eyeego  
+##### 80822#       发表于 2021-8-2 08:21
+
+
+这波算是把50充的红炮都给盘活了
+虽然要带宝石按键还多
+真正的赢家依然还是宇宙凛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+毒奶一口最后一天白枪跟船长
+
+
+*****
+
+####  黑上シグマ  
+##### 80823#       发表于 2021-8-2 08:28
+
+
+发现那些个活动四星似乎完全没法开被动技能，硬币太少了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  rooarr  
+##### 80824#       发表于 2021-8-2 08:42
+
+
+额外技能的开放是英灵共有的，但是技能等级居然是每张卡各自独立的，yls有一手啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80825#       发表于 2021-8-2 08:42
+
+
+ 本帖最后由 シャル 于 2021-8-2 08:45 编辑 
+
+杀兔这个是俄罗斯童话，兔子和狐狸吧
+
+原典俄罗斯也只有这个了
+
+
+18329188-7175-429E-A27E-747291F56FE7.jpeg
+(69.24 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-2 08:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/084500s0zlu0jcr9jjaz6g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+C60AA67E-3FDD-4478-8B89-6C93B4D31A69.jpeg
+(153.02 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-2 08:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/084500xezgilq51nyei5ee.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  在海岸  
+##### 80826#       发表于 2021-8-2 08:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都晒是吧，昨天就30发出了，今天追了10符2宝，感觉后面要无了
+
+
+*****
+
+####  シャル  
+##### 80827#       发表于 2021-8-2 09:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52201887&amp;ptid=1085254" target="_blank">在海岸 发表于 2021-8-2 08:48</a>
+
+都晒是吧，昨天就30发出了，今天追了10符2宝，感觉后面要无了</blockquote>
+魔道元帅出了没
+
+
+*****
+
+####  areklose  
+##### 80828#       发表于 2021-8-2 09:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52201751&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-2 08:28</a>
+
+发现那些个活动四星似乎完全没法开被动技能，硬币太少了
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+是的。十绊也就100币。除非开发11绊
+
+
+*****
+
+####  eyeego  
+##### 80829#       发表于 2021-8-2 09:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52202048&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-2 09:06</a>
+魔道元帅出了没</blockquote>
+魔道元帅这种就是用来污染卡池的玩意也真亏他们想得出来草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 80830#       发表于 2021-8-2 09:16
+
+
+ 本帖最后由 exiaexa 于 2021-8-2 09:19 编辑 
+
+好友位空了10个，来楼里抓几个萌（壮）新（丁）吧
+别动不动沉个池子就弃坑就行
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/0a875dfd63567babc178256618c7719b/IMG_CMP_114409689.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80831#       发表于 2021-8-2 09:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52202116&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-2 09:14</a>
+
+魔道元帅这种就是用来污染卡池的玩意也真亏他们想得出来草</blockquote>
+有一说一。这玩意除了HP以外。不完爆池子里面的其他垃圾五星礼装吗。真有人觉得其他没NP攻击礼装能比得上80NP吗
+
+
+*****
+
+####  eyeego  
+##### 80832#       发表于 2021-8-2 09:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52202146&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-2 09:16</a>
+有一说一。这玩意除了HP以外。不完爆池子里面的其他垃圾五星礼装吗。真有人觉得其他没NP攻击礼装能比得上 ...</blockquote>
+稀释了真宝石翁的出率<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80833#       发表于 2021-8-2 09:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52202158&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-2 09:17</a>
+
+稀释了真宝石翁的出率</blockquote>
+想多了。不出这个也会出其他垃圾。你要灵活思考。增加了出80NP礼装的出率
+
+
+*****
+
+####  johnkamsar  
+##### 80834#       发表于 2021-8-2 09:22
+
+
+抽了一圈，歪了个屁屁枪和一堆四星<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">跟当年抽c师匠一个尿性.......日服这次就这样完了....
+
+
+*****
+
+####  zakki  
+##### 80835#       发表于 2021-8-2 09:45
+
+
+ 本帖最后由 zakki 于 2021-8-2 09:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52202141&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-2 09:16</a>
+
+好友位空了10个，来楼里抓几个萌（壮）新（丁）吧
+
+别动不动沉个池子就弃坑就行</blockquote>
+丑旧申请了，id就是zakki，希望大佬不要嫌弃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 80836#       发表于 2021-8-2 10:11
+
+
+某绿茶竟然死得这么轻松，吐了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80837#       发表于 2021-8-2 10:16
+
+
+吐了，怎么这边一大堆图透。。。dw能不能不这么废物
+
+
+*****
+
+####  qixinno2  
+##### 80838#       发表于 2021-8-2 10:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52202141&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-2 09:16</a>
+
+好友位空了10个，来楼里抓几个萌（壮）新（丁）吧
+
+别动不动沉个池子就弃坑就行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">石不过三的弱鸡申请了 IDyerenb
+
+
+*****
+
+####  yzj134100  
+##### 80839#       发表于 2021-8-2 10:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52202141&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-2 09:16</a>
+好友位空了10个，来楼里抓几个萌（壮）新（丁）吧
+别动不动沉个池子就弃坑就行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">申请了
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                

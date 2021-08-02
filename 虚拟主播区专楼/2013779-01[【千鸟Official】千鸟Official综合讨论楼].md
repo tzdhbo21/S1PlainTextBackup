@@ -1173,3 +1173,67 @@ syl，不过今天的直播看了repo（不假的话），确实有点让人不�
 
 
                                                  
+
+*****
+
+####  tn_teana  
+##### 107#       发表于 2021-8-2 08:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52200664&amp;ptid=2013779" target="_blank">斯大林的拖拉机 发表于 2021-8-2 00:51</a>
+说起来有没有人来辣评一下，文大将军的杂谈力比起隔壁雪风的万子姐如何</blockquote>
+文大将军属于刀尖上跳舞，而且本人没有明显的开团欲望，都是被迫为主
+万子姐混沌邪恶，但基本上走下三路开发自己，不去沾圈子里的破事
+
+
+*****
+
+####  莫洛骑士  
+##### 108#       发表于 2021-8-2 10:16
+
+
+静将军😭😭😭她真的😭😭😭我哭死😭😭😭
+我要创造一个没有人受伤的世界，a符号给👴死吧
+
+
+*****
+
+####  魔法少女大头  
+##### 109#       发表于 2021-8-2 10:34
+
+
+文二姨处变不惊，和直播间的节奏狗以下略
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  袜子  
+##### 110#       发表于 2021-8-2 10:45
+
+
+我突然想知道文静之前到底干嘛的了，这节奏控制水平，tx真是抽到ssr然后扔仓库了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  caupollen  
+##### 111#       发表于 2021-8-2 10:53
+
+
+点进去就在星瞳就在我们隔壁，太会造效果了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小憨1  
+##### 112#       发表于 2021-8-2 10:56
+
+
+这就是姨的掌控力吗，节奏直接平下来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

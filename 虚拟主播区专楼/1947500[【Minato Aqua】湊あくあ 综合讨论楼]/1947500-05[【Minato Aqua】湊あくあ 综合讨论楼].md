@@ -7758,3 +7758,52 @@ TC好耶
 
 
                                                  
+
+*****
+
+####  fightonion  
+##### 6634#       发表于 2021-8-2 10:12
+
+
+日清这是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 甩锅给泥哥？
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+*****
+
+####  lightsuger  
+##### 6635#       发表于 2021-8-2 10:27
+
+
+冲夸老哥赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fightonion  
+##### 6636#       发表于 2021-8-2 10:32
+
+
+ 真正在冲夸的除了几个8U和阴湿太君之外基本都是湾友吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 6637#       发表于 2021-8-2 10:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">练了这么久的努力全部木大
+
+
+*****
+
+####  ylssb10438  
+##### 6638#       发表于 2021-8-2 10:34
+
+
+tc直播的版权限制和油管有什么区别？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">tc直播应该可以搞搞lol单排了吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -5810,3 +5810,79 @@ win11还分什么家庭版专业版吗？家庭中文版上去是什么版本?
 
 
                                                 
+
+*****
+
+####  0WHan0  
+##### 482#       发表于 2021-7-31 05:25
+
+
+等beta有了Android模拟器功能再切回去，不知道这个功能还能不能活下来
+
+
+*****
+
+####  navarra  
+##### 483#       发表于 2021-8-1 16:05
+
+
+beta终于开始推了……
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  navarra  
+##### 484#       发表于 2021-8-1 16:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52174326&amp;ptid=2011727" target="_blank">ikariam_hk 发表于 2021-7-30 23:08</a>
+win11还分什么家庭版专业版吗？家庭中文版上去是什么版本?</blockquote>
+分的，家庭版升级还是家庭版
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Hibino  
+##### 485#       发表于 2021-8-1 18:53
+
+
+beta推了用了半个小时实在受不了这个新开始菜单（我需要可以新建工具栏只需要一个点击就能打开常用的程序/文件）回滚到10然后退出beta了。。。。。。
+
+
+*****
+
+####  noneoneone  
+##### 486#       发表于 2021-8-1 18:57
+
+
+我的sp5开了预览计划一直提示不满足win11最低硬件要求，结果还是推送了beta。
+
+
+*****
+
+####  楚轩  
+##### 487#       发表于 2021-8-1 22:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52195267&amp;ptid=2011727" target="_blank">Hibino 发表于 2021-8-1 18:53</a>
+ beta推了用了半个小时实在受不了这个新开始菜单（我需要可以新建工具栏只需要一个点击就能打开常用的程序/ ...</blockquote>
+还是尽早适应吧
+win7党当时也是这么看win10的
+
+
+*****
+
+####  ftdtyzst  
+##### 488#       发表于 2021-8-2 02:40
+
+
+升级后发现网速很慢 后来查了下很多人说是驱动问题 找了个日期比较新的驱动果然没事了（有线网卡有问题 无线网卡反而没问题）
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

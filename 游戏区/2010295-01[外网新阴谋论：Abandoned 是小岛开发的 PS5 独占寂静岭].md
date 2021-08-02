@@ -7179,3 +7179,66 @@ Abandoned Realtime Experience App除了日本和中国外都出了。里面目�
 
 
                                                  
+
+*****
+
+####  黑夜守望者  
+##### 553#       发表于 2021-7-31 04:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52165390&amp;ptid=2010295" target="_blank">鱼雷鲨 发表于 2021-7-30 15:23</a>
+不是说索尼因为DS大暴死已经不许小岛再上PS独占了吗</blockquote>
+卖了500w了不暴死了又请回来了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  415452356  
+##### 554#       发表于 2021-7-31 09:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52165390&amp;ptid=2010295" target="_blank">鱼雷鲨 发表于 2021-7-30 15:23</a>
+
+不是说索尼因为DS大暴死已经不许小岛再上PS独占了吗</blockquote>
+  这种游民3dm用户才会信的话你怎么就信了
+
+
+*****
+
+####  喵喵叫的猫  
+##### 555#       发表于 2021-7-31 09:50
+
+
+这玩意居然还有更新补丁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小泉花陽  
+##### 556#       发表于 2021-7-31 10:18
+
+
+这demo日服到现在都还没上线
+
+
+*****
+
+####  luoyianwu  
+##### 557#       发表于 2021-7-31 10:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52177166&amp;ptid=2010295" target="_blank">小泉花陽 发表于 2021-7-31 10:18</a>
+这demo日服到现在都还没上线</blockquote>
+8/10当天上
+
+
+*****
+
+####  765PRO  
+##### 558#       发表于 2021-7-31 10:50
+
+
+从一个好活逐渐变成一个烂活
+
+
+                                                 
