@@ -17405,3 +17405,216 @@ dw这种废物能把8.4之后的活动代码提前放进去？我不信23333强�
 
 
                                                  
+
+*****
+
+####  rooarr  
+##### 80911#       发表于 2021-8-2 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52208695&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 17:15</a>
+
+对了 水武藏那20np 我刷羁绊的时候尝试了下 不能不开c呆2技能 只能少开一个1技能 再用礼装加10np启 ...</blockquote>
+没啊，我昨天实验了几次，都是2面回90多np，你是刷哪个图不行？
+
+
+*****
+
+####  alucardcz  
+##### 80912#       发表于 2021-8-2 17:18
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 80913#       发表于 2021-8-2 17:18
+
+
+再翻页
+
+
+*****
+
+####  khxooo  
+##### 80914#       发表于 2021-8-2 17:18
+
+
+舞娘终于加强了哈哈哈
+
+
+*****
+
+####  exiaexa  
+##### 80915#       发表于 2021-8-2 17:19
+
+
+拉二这个强化有点意思的，拉狐狐进去，第一t技能全开，第二轮又转好了
+就是只有两发
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80916#       发表于 2021-8-2 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52208736&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-2 17:18</a>
+
+没啊，我昨天实验了几次，都是2面回90多np，你是刷哪个图不行？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">你这样不是等于什么白给吗 你2技能直接丢了 2面也满np 没意义啊  能刷的本和没20np没区别 不能刷的本还是不能刷
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">我这样可以刷一些32x
+
+
+*****
+
+####  xunit  
+##### 80917#       发表于 2021-8-2 17:21
+
+
+官推头像和背景图都改成加冕仪式相关的东西了，公告也是邀请函，想要搞大事情，结果被dw这头猪透了个底朝天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  rooarr  
+##### 80918#       发表于 2021-8-2 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52208793&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 17:21</a>
+
+你这样不是等于什么白给吗 你2技能直接丢了 2面也满np 没意义啊  能刷的本和没20np没区别 不能刷 ...</blockquote>
+我的意思是打完2面回90多...3面接C呆2技能满np啊，你来一个图我试试，不过我打的都是33x<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80919#       发表于 2021-8-2 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52208832&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-2 17:23</a>
+
+我的意思是打完2面回90多...3面接C呆2技能满np啊，你来一个图我试试，不过我打的都是33x ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不是 我意思是你这样 开局直接交满技能不也一样能回满？  难道你开局丢了2技能是回不满的？  
+
+你打的啥图  你武藏是几宝的？
+
+
+*****
+
+####  zore  
+##### 80920#       发表于 2021-8-2 17:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新职阶啊,没钱了
+
+还要留着抽超级印度人
+
+
+*****
+
+####  yukiness  
+##### 80921#       发表于 2021-8-2 17:56
+
+
+ 本帖最后由 yukiness 于 2021-8-2 17:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52208019&amp;ptid=1085254" target="_blank">yukiness 发表于 2021-8-2 16:36</a>
+
+也顺便求波好友834253209</blockquote>
+834253209搞了半天图终于发出来了<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+<img src="https://wx1.sinaimg.cn/mw2000/3d4ddd8bly1gt2l1pgjn7j21sz0u07ll.jpg" referrerpolicy="no-referrer">
+<img src="https://wx1.sinaimg.cn/mw2000/3d4ddd8bly1gt2l1pgjn7j21sz0u07ll.jpg" referrerpolicy="no-referrer">
+
+
+3d4ddd8bly1gt2l1pgjn7j21sz0u07ll.jpg
+(396.43 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-2 17:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/175748mdlq1h0f1qf0jgf6.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 80922#       发表于 2021-8-2 18:09
+
+
+ 本帖最后由 rooarr 于 2021-8-2 18:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52208845&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 17:24</a>
+
+不是 我意思是你这样 开局直接交满技能不也一样能回满？  难道你开局丢了2技能是回不满的？  
+
+你 ...</blockquote>
+你是对的，用工具模拟了很多次，少开一个c呆的2技能，打1个怪少5%np以上，确实划不来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+1宝打杀和狂的时候两个C呆2技能也回不满，每回合都差一点，但是我刚才模拟了好多次，发现不开2技能都回不到80np，还是要开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80923#       发表于 2021-8-2 18:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52209529&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-2 18:09</a>
+
+你是对的，用工具模拟了很多次，少开一个c呆的2技能，打1个怪少5%np以上，确实划不来
+
+
+1宝打杀和狂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">总结就是没啥用  杀狂不能刷的还是不能刷   倒是32x可以靠np衣服救一把
+
+
+*****
+
+####  alucardcz  
+##### 80924#       发表于 2021-8-2 18:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52209329&amp;ptid=1085254" target="_blank">yukiness 发表于 2021-8-2 17:56</a>
+
+834253209搞了半天图终于发出来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">申请了 nunnally
+
+
+*****
+
+####  rooarr  
+##### 80925#       发表于 2021-8-2 18:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52209600&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 18:14</a>
+
+总结就是没啥用  杀狂不能刷的还是不能刷   倒是32x可以靠np衣服救一把 ...</blockquote>
+2宝可以了，赶紧去抽福袋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80926#       发表于 2021-8-2 18:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52209751&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-2 18:26</a>
+
+2宝可以了，赶紧去抽福袋</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">我前面说了啊 福代村正 麻中麻
+
+
+而且我默认是100级满金副副+满级黑杯的  不就等于2宝了（
+
+
+                                                 
