@@ -17018,3 +17018,196 @@ qp的效率好了不少但是没扫荡还是不想动，苹果可以上千的吧
 
 
                                                  
+
+*****
+
+####  reekilynn  
+##### 80878#       发表于 2021-8-2 14:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206089&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 14:05</a>
+
+这新职阶怎么翻  伪装者?欺诈者?骗子?</blockquote>
+貌似是一词多义。
+
+伪装者&amp;（王位）觊觎者。
+
+
+后一个意思可以参见英国历史，詹姆斯二世（斯图亚特王朝）的儿子詹姆斯·弗朗西斯·爱德华·斯图亚特在英语中也被称为The Old Pretender。
+
+
+*****
+
+####  zakki  
+##### 80879#       发表于 2021-8-2 14:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206407&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-2 14:31</a>
+感觉杀狐就是临时凑数的，和2.6.3离的太近，都在认为奥伯龙直接实装，然后和道满一样卡再临卡面。 ...</blockquote>
+但杀狐够强啊，我不认为奥伯龙还能比杀狐强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 80880#       发表于 2021-8-2 14:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">70他充 完美的炮弹
+
+
+
+
+*****
+
+####  Jamaisvu  
+##### 80881#       发表于 2021-8-2 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206462&amp;ptid=1085254" target="_blank">reekilynn 发表于 2021-8-2 14:36</a>
+
+貌似是一词多义。
+
+伪装者&amp;（王位）觊觎者。</blockquote>
+卡背是个带着面具的黑衣人，感觉翻译成伪装者够用了
+
+
+（这个造型很像我心中的开膛手杰克，如果FSF的杰克落地后也是这个职业就好了）
+
+
+*****
+
+####  khxooo  
+##### 80882#       发表于 2021-8-2 14:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206480&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-2 14:37</a>
+但杀狐够强啊，我不认为奥伯龙还能比杀狐强</blockquote>
+70充，别人还是万物克制，估计有两套宝具，哪个不比你狐狸厉害？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80883#       发表于 2021-8-2 14:56
+
+
+草泥马 150石出了个白贞 萌新这次凉透了<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 80884#       发表于 2021-8-2 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206720&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-2 14:56</a>
+
+草泥马 150石出了个白贞 萌新这次凉透了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新竟然吃瘪了 你还可以氪金啊
+
+
+*****
+
+####  jacatay  
+##### 80885#       发表于 2021-8-2 15:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">清了一波退坑的 也求好友
+
+982 411 791
+
+
+*****
+
+####  zakki  
+##### 80886#       发表于 2021-8-2 15:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206666&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-2 14:52</a>
+
+70充，别人还是万物克制，估计有两套宝具，哪个不比你狐狸厉害？</blockquote>
+当70自充打手，杀狐拐奥伯龙会很强，作为拐不认为比狐狸强，还有别忘了奥伯龙的宝具会给对面无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80887#       发表于 2021-8-2 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52205855&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-2 13:50</a>
+
+怪不得羁绊礼装说自己很尊敬休•海夫纳（playboy创始人，兔女郎文化的推动者）。
+
+
+之前的剧情有说过高杨的 ...</blockquote>
+是短笛和天神吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 80888#       发表于 2021-8-2 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206742&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-2 14:58</a>
+
+萌新竟然吃瘪了 你还可以氪金啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">还有10连护符+120石羁绊奖励!
+
+
+*****
+
+####  areklose  
+##### 80889#       发表于 2021-8-2 15:17
+
+
+这池子连击太厉害，摩根妖兰杀狐奥伯龙。幸好泳装在9月。。
+
+
+*****
+
+####  areklose  
+##### 80890#       发表于 2021-8-2 15:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然有本事4号别落地
+
+
+*****
+
+####  KOBI  
+##### 80891#       发表于 2021-8-2 15:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">搞不好4号真的不会落地而是等再过两周作为异闻带王落地呢
+
+总不能之后还有个异闻带王吧。。。
+
+
+*****
+
+####  zakki  
+##### 80892#       发表于 2021-8-2 15:20
+
+
+看了下奥伯龙技能CD，配双杀狐的话，70自充3回合可以放两次，增伤只有双狐狸的100魔放和自己的30宝威，但好在永远是2倍克制，好像真的挺强的，脑测比摩根强
+
+
+*****
+
+####  白金口袋  
+##### 80893#       发表于 2021-8-2 15:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206643&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-2 00:49</a>
+
+卡背是个带着面具的黑衣人，感觉翻译成伪装者够用了
+
+
+（这个造型很像我心中的开膛手杰克，如果FSF的杰克 ...</blockquote>
+老实说我真心没觉得他伪装成功在哪了，虽然剧中角色看起来都挺傻白甜的，但是剧外凡是没skip剧情的玩家应该没有一个不怀疑他的，这有猫腻都写脸上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

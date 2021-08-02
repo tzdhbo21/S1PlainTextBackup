@@ -14418,3 +14418,153 @@ NGA居然换你咩版头了
 
 
                                                  
+
+*****
+
+####  往世雷书  
+##### 22328#       发表于 2021-8-2 14:36
+
+
+正因为没落了才应该定规矩啊，一流企业抓业绩，三流企业抓纪律没听过吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  时间在我手中  
+##### 22329#       发表于 2021-8-2 14:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206276&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-8-2 14:21</a>
+
+说得好像你桃铁切片全搬完了还是杏男内容发过几回了,大伙不都一样</blockquote>
+老子能同传（？）能翻译能打轴能剪辑能整ae甚至还能玩玩EQ迫真调音，你是哪个比我强了？
+
+上次学校军训作业来问我aeg自动化字幕特效怎么弄的小废物是哪条啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">给你教程一年多一次都没看过还有脸跟我叫了？
+
+桃铁国内是不是你找你专业同学给老子贡献播放量还是你们众筹资金给我当免费苦工啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+holo内容一来没那么有趣二来我干嘛要给杏奴傻狗干活，你是不是有**病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22330#       发表于 2021-8-2 14:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52206468&amp;ptid=1973472" target="_blank">往世雷书 发表于 2021-8-2 14:36</a>
+
+正因为没落了才应该定规矩啊，一流企业抓业绩，三流企业抓纪律没听过吗
+
+
+—— 来自 S1Fun ...</blockquote>
+定什么规矩？
+
+
+反正昨天看到那个三周年提问我看到就绷不住了，2-3个月前就有人和我说了有这事，实际一看只能说一句
+
+
+【建议字幕组加油努力建设神乐mea在批站的tag的热度，让我们这些废物小海盗能喝点粥嗷】
+
+
+当然，他们不会，也做不到
+
+
+*****
+
+####  T_Hb  
+##### 22331#       发表于 2021-8-2 14:57
+
+
+ 本帖最后由 T_Hb 于 2021-8-2 14:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">兔妈妈日程表也太满了，明明自己还经常贫血
+
+
+*****
+
+####  时间在我手中  
+##### 22332#       发表于 2021-8-2 15:01
+
+
+希望是打游戏，纯杂谈就摸了
+
+
+话说今晚就唱歌吗，哎
+
+
+*****
+
+####  T_Hb  
+##### 22333#       发表于 2021-8-2 15:02
+
+
+家用3D歌回，泳装大水袋梦碎<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 22334#       发表于 2021-8-2 15:03
+
+
+肯定是歌会+zqsg+重大告知啊 还想这人整什么嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 22335#       发表于 2021-8-2 15:05
+
+
+凹待感搞吗
+
+
+*****
+
+####  雪风utopia  
+##### 22336#       发表于 2021-8-2 15:13
+
+
+重大告知会是什么立牌呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 22337#       发表于 2021-8-2 15:15
+
+
+是曲绘的三套吧唧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 22338#       发表于 2021-8-2 15:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那说个毛可爱的东西，吊胃口
+
+
+*****
+
+####  Klience  
+##### 22339#       发表于 2021-8-2 15:22
+
+
+八成是momo老师的作品<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 22340#       发表于 2021-8-2 15:23
+
+
+我对官组的期望是最好能定期把这边的评论翻译一部分过去...上次八分音符 国内论坛和Q群里反响都不错 她那边看不到正反馈 挺伤的 直播间里同接就一千出头...
+
+
+                                                 
