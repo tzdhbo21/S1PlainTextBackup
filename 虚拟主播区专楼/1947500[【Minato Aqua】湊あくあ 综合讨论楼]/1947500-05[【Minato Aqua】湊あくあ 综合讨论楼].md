@@ -7807,3 +7807,30 @@ tc直播的版权限制和油管有什么区别？<img src="https://static.sarab
 
 
                                                  
+
+*****
+
+####  lightsuger  
+##### 6639#       发表于 2021-8-2 10:47
+
+
+过去一个多星期才找到原因
+
+然后推文下面还一堆回复“辛苦了”，太君也太搞笑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nian1538  
+##### 6640#       发表于 2021-8-2 10:59
+
+
+ 本帖最后由 nian1538 于 2021-8-2 11:02 编辑 
+
+TC印象里播动态画面要人投钱吧
+而且lol本来就能在YouTube播，你杏没人愿意播而已
+
+日清感觉是被DDoS了，不过这种独狼DDoS都处理不了做啥平台啊
+
+
+                                                 

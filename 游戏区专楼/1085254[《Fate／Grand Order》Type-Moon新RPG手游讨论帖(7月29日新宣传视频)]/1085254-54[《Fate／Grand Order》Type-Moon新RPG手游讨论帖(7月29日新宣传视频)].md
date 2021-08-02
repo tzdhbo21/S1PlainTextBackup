@@ -16512,3 +16512,84 @@ C60AA67E-3FDD-4478-8B89-6C93B4D31A69.jpeg
 
 
                                                 
+
+*****
+
+####  シャル  
+##### 80840#       发表于 2021-8-2 10:48
+
+
+我也清了一批一个月到1年没上的
+
+
+空了一批好友，有空位的就加吧
+
+
+314DD503-CE25-478C-ADAA-5A1AD1047B73.png
+(508.06 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-2 10:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/104841mmlhmz7cjmml61cl.png" referrerpolicy="no-referrer">
+
+
+B6366D3A-FD3D-41D7-A95A-CB63BEB8D2DB.png
+(998.06 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-2 10:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/104842ag2z3ve3373d4q9r.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  当光停止  
+##### 80841#       发表于 2021-8-2 10:54
+
+
+我去。一觉醒来怎么这么多剧透。
+
+
+*****
+
+####  zakki  
+##### 80842#       发表于 2021-8-2 10:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52203420&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-8-2 10:54</a>
+
+我去。一觉醒来怎么这么多剧透。</blockquote>
+dw纯废物，不小心把戴冠式的剧情给更新进去了，今早紧急更新又给删了
+
+
+*****
+
+####  yzj134100  
+##### 80843#       发表于 2021-8-2 11:17
+
+
+qp的效率好了不少但是没扫荡还是不想动，苹果可以上千的吧不然要浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  khxooo  
+##### 80844#       发表于 2021-8-2 11:29
+
+
+还有2.6.5<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+                                                 
