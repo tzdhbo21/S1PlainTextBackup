@@ -10631,3 +10631,35 @@ Xperia 1 III 系统更新
 
 
                                                  
+
+*****
+
+####  leystage  
+##### 746#         楼主| 发表于 2021-8-2 12:11
+
+
+收到了。先用一周再写感想 XD
+
+
+<img src="https://img.saraba1st.com/forum/202108/02/121051zgmqs2jysue5qjii.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210802_115238.JPG</strong> (406.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-2 12:10 上传
+
+
+*****
+
+####  1408  
+##### 747#       发表于 2021-8-2 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52132135&amp;ptid=1985265" target="_blank">みこ 发表于 2021-7-28 15:16</a>
+ 1 iii你们b站看hdr视频正常吗？怎么我选hdr颜色反倒暗了？？</blockquote>
+我是1ii一放本地HDR片源屏幕就会锁30亮度，播放器是VLC和nPlayer，其他的色彩显示都不正确；切换应用时一瞬间亮度是正常的，下一秒又暗得一比<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，去外网搜了一圈也没啥收获，这手机用的人太少了
+
+
+                                                 

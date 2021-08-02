@@ -1257,3 +1257,29 @@ syl，不过今天的直播看了repo（不假的话），确实有点让人不�
 
 
                                                  
+
+*****
+
+####  tn_teana  
+##### 115#       发表于 2021-8-2 12:11
+
+
+老阿姨唱跳RAP样样不行，带节奏唠嗑却是V圈顶级
+
+就这样还怀揣一颗偶像梦，太励志了
+
+
+*****
+
+####  tankai  
+##### 116#       发表于 2021-8-2 12:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52203284&amp;ptid=2013779" target="_blank">袜子 发表于 2021-8-2 10:45</a>
+我突然想知道文静之前到底干嘛的了，这节奏控制水平，tx真是抽到ssr然后扔仓库了
+
+—— 来自 S1Fun ...</blockquote>
+我前面回复也觉得怪，外面传斗鱼直播出来的也不知真假。
+
+
+                                                 

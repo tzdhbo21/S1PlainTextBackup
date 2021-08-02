@@ -16593,3 +16593,75 @@ qp的效率好了不少但是没扫荡还是不想动，苹果可以上千的吧
 
 
                                                  
+
+*****
+
+####  シャル  
+##### 80845#       发表于 2021-8-2 11:41
+
+
+水着院对兔子有语音<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+夹馍咋没有
+
+
+*****
+
+####  jackyhuang  
+##### 80846#       发表于 2021-8-2 11:48
+
+
+看来接下来断章就是去车秘书狐吧
+
+要明年见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80847#       发表于 2021-8-2 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52204293&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2021-8-2 11:48</a>
+
+看来接下来断章就是去车秘书狐吧
+
+要明年见了</blockquote>
+去打暗之柯扬斯卡娅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过今年应该有
+
+
+*****
+
+####  exiaexa  
+##### 80848#       发表于 2021-8-2 12:00
+
+
+ 本帖最后由 exiaexa 于 2021-8-2 12:09 编辑 
+
+给妖兰开了二技能，理想情况开1凑50，吃拐先开宝具，然后开3第二波宝具，换人拐充满再来一波
+
+
+顺便md你们加人好歹带个id
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 80849#       发表于 2021-8-2 12:01
+
+
+然后光暗合体，是究极黄金龙还是无名那美克星人啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 80850#       发表于 2021-8-2 12:22
+
+
+贝屑退场没
+
+
+                                                 
