@@ -5948,3 +5948,27 @@ windows hello不能用了，绝了</blockquote>
 
 
                                                  
+
+*****
+
+####  mcq_2  
+##### 495#       发表于 2021-8-3 12:21
+
+
+<blockquote>Litccc 发表于 2021-8-3 09:06
+据说Android要等正式版发布以后才上dev版</blockquote>
+win8开始，没代新系统都说要兼容安卓，最后都不了了之。我看win11最后都不会兼容安卓。
+
+
+*****
+
+####  BallanceHZ  
+##### 496#       发表于 2021-8-3 12:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52216703&amp;ptid=2011727" target="_blank">猫溺泉君 发表于 2021-8-3 09:06</a>
+windows hello不能用了，绝了</blockquote>
+设备管理器卸载win hello设备再重启就好了
+
+
+                                                 

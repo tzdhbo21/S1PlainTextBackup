@@ -18249,3 +18249,23 @@ ID：926425467
 
 
                                                 
+
+*****
+
+####  xiongxingyu  
+##### 80976#       发表于 2021-8-3 12:41
+
+
+这回的农神和队长都是拿机娘锤过去的，打手自带强解耐性就是省心，农神战锁了助战也不怕，带个杀狐还能一转攻势打红暴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sosgame67  
+##### 80977#       发表于 2021-8-3 12:51
+
+
+高难全是卑梅呆过的..叠oc实在爽的不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

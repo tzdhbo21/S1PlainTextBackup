@@ -12381,3 +12381,88 @@ https://youtu.be/3gtiOlhMAmc
 
 
                                                 
+
+*****
+
+####  我不是很好  
+##### 5523#       发表于 2021-8-3 12:03
+
+
+ 本帖最后由 我不是很好 于 2021-8-3 12:20 编辑 
+
+杏半年了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+syl，唯一的活路大概就是被pewdiepie认知了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 5524#       发表于 2021-8-3 12:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小白被pewdipie认知效果也就那样啊
+
+
+*****
+
+####  winda  
+##### 5525#       发表于 2021-8-3 12:31
+
+
+<blockquote>winda 发表于 2021-8-3 12:28
+小白被pewdipie认知效果也就那样啊</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202108/03/123144rmq3bq0m4r4vvobt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_0803_123100.jpg</strong> (75.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-8-3 12:31 上传
+
+
+bsyl 加个配图
+
+
+*****
+
+####  FCCHua  
+##### 5526#       发表于 2021-8-3 12:36
+
+
+这次合作也就只有葛叶涨粉速度会加快吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 5527#       发表于 2021-8-3 12:48
+
+
+  全日本没人不认识hikakin基本。所以当然是hikakin的粉丝回流King那里啦。
+
+
+*****
+
+####  我不是很好  
+##### 5528#       发表于 2021-8-3 13:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52219726&amp;ptid=1972669" target="_blank">winda 发表于 2021-8-3 12:28</a>
+小白被pewdipie认知效果也就那样啊</blockquote>
+我相信calli<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  虹河ラキ  
+##### 5529#       发表于 2021-8-3 13:24
+
+
+<img src="https://i.loli.net/2021/08/03/wbdhAZM4U6alsyk.png" referrerpolicy="no-referrer">
+
+
+                                                 
