@@ -6003,3 +6003,19 @@ win8开始，没代新系统都说要兼容安卓，最后都不了了之。我�
 
 
                                                  
+
+*****
+
+####  hein  
+##### 499#       发表于 2021-8-4 00:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52199278&amp;ptid=2011727" target="_blank">楚轩 发表于 2021-8-1 22:51</a>
+
+还是尽早适应吧
+
+win7党当时也是这么看win10的</blockquote>
+我觉得是win7党看win8的状态
+
+
+                                                 
