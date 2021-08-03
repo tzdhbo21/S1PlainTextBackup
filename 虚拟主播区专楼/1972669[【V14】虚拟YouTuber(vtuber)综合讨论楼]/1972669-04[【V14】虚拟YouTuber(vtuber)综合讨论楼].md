@@ -12278,3 +12278,106 @@ Lam老师特色就是这种超重的眼影。
 
 
                                                  
+
+*****
+
+####  poipanchao  
+##### 5515#       发表于 2021-8-3 09:29
+
+
+bora继前天8小时排位之后
+昨天又是4小时带哈弟上大师，2小时带白雪，完了又开了2个半小时的t台
+复归以后直接播爆啊
+
+
+*****
+
+####  リスカ  
+##### 5516#       发表于 2021-8-3 10:29
+
+
+ 本帖最后由 リスカ 于 2021-8-3 10:31 编辑 
+
+https://youtu.be/3gtiOlhMAmc
+
+<img src="https://img.saraba1st.com/forum/202108/03/102942lvf3i0o640f0w4hi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210803_102845.jpg</strong> (373.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-3 10:29 上传
+
+
+这评论栏
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qq845629713  
+##### 5517#       发表于 2021-8-3 10:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不愧是KING，这下格局和其他人拉开一个大阶级了
+
+
+*****
+
+####  Suny08  
+##### 5518#       发表于 2021-8-3 10:49
+
+
+不过我记得hikakin第一个fo 的虹人是葵皇来着的
+
+
+*****
+
+####  西瓜爆裂  
+##### 5519#       发表于 2021-8-3 10:54
+
+
+快进到黑黑带佐藤健打apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  越动天下  
+##### 5520#       发表于 2021-8-3 10:55
+
+
+已经有档次了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  free  
+##### 5521#       发表于 2021-8-3 10:59
+
+
+虹河laki居然要复活了
+
+
+<img src="https://img.saraba1st.com/forum/202108/03/105910dl8kgo867ggzz468.png" referrerpolicy="no-referrer">
+
+
+<strong>11.png</strong> (62.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-3 10:59 上传
+
+
+*****
+
+####  hulaoda007  
+##### 5522#       发表于 2021-8-3 11:27
+
+
+  ヒカキン你在干什么啊？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                

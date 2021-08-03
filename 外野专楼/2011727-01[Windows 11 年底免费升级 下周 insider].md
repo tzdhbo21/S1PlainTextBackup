@@ -5935,3 +5935,16 @@ windows hello不能用了，绝了
 
 
                                                  
+
+*****
+
+####  凶手  
+##### 494#         楼主| 发表于 2021-8-3 09:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52216703&amp;ptid=2011727" target="_blank">猫溺泉君 发表于 2021-8-3 09:06</a>
+windows hello不能用了，绝了</blockquote>
+今年10的某个更新让surface的坏了好几个月 不知道11正式出来能不能好
+
+
+                                                 

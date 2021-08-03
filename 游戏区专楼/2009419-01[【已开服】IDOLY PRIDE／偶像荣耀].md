@@ -5535,3 +5535,38 @@ iPad Pro了性能应该没关系，就是拍好了用胶卷实写时经常失败
 
 
                                                  
+
+*****
+
+####  Aureth  
+##### 396#       发表于 2021-8-3 10:43
+
+
+最近在靠泳装瑠依加葵双暴击推塔，暴击队拼上限恐怖如斯
+
+
+*****
+
+####  马桶3  
+##### 397#       发表于 2021-8-3 10:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52218061&amp;ptid=2009419" target="_blank">Aureth 发表于 2021-8-3 10:43</a>
+
+最近在靠泳装瑠依加葵双暴击推塔，暴击队拼上限恐怖如斯</blockquote>
+羡慕泳装瑠依，我现在爆击BUFF只有一个葵，不够劲……
+
+
+*****
+
+####  Aureth  
+##### 398#       发表于 2021-8-3 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52218332&amp;ptid=2009419" target="_blank">马桶3 发表于 2021-8-3 10:59</a>
+
+羡慕泳装瑠依，我现在爆击BUFF只有一个葵，不够劲……</blockquote>
+冲动抽卡把这次限定的本全冲进去了，这次限定直接躺平贤者时间了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

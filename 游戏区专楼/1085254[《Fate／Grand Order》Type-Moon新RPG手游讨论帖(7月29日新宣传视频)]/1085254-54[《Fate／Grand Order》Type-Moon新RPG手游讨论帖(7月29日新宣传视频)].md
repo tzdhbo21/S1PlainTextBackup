@@ -18179,3 +18179,73 @@ ID：926425467
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 80970#       发表于 2021-8-3 09:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52216729&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-8-3 09:09</a>
+
+其实都不用红卡 绿卡的金枪虞就能稳3t了 连牌都不用刷</blockquote>
+所以说C呆真的无敌啊，当时队长和盖提亚的难点就是第一回合的人理装填<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  仰望神的括约肌  
+##### 80971#       发表于 2021-8-3 10:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52217085&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-3 09:38</a>
+
+所以说C呆真的无敌啊，当时队长和盖提亚的难点就是第一回合的人理装填 ...</blockquote>
+虽说这次打队长没用C呆 不过确实 大部分高难我都无脑上卑X呆了 包括这次盖总 还有 盖总的充电宝是真的好使<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80972#       发表于 2021-8-3 10:22
+
+
+翻页
+
+
+*****
+
+####  zakki  
+##### 80973#       发表于 2021-8-3 10:22
+
+
+再翻
+
+
+*****
+
+####  zakki  
+##### 80974#       发表于 2021-8-3 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52217661&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-8-3 10:19</a>
+
+虽说这次打队长没用C呆 不过确实 大部分高难我都无脑上卑X呆了 包括这次盖总 还有 盖总的充电宝是真的好 ...</blockquote>
+之前没打，这次是全用杀狐加狂娜打的，极其无脑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 80975#       发表于 2021-8-3 10:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52217661&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-8-3 10:19</a>
+
+虽说这次打队长没用C呆 不过确实 大部分高难我都无脑上卑X呆了 包括这次盖总 还有 盖总的充电宝是真的好 ...</blockquote>
+我家的盖总智商太高，群体充电基本不用，就单点暴击，搞的我3个人的对肃正防御次数都对不拢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                
