@@ -18269,3 +18269,17 @@ ID：926425467
 
 
                                                  
+
+*****
+
+####  森兰丸  
+##### 80978#       发表于 2021-8-3 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52216823&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-3 09:16</a>
+
+小麻雀和紫式部，这两个是全体的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">都没有.....看来我这南丁的技能升的还不亏
+
+
+                                                 
