@@ -460,3 +460,59 @@ NGA色卡厨是没办法的
 
 
                                                  
+
+*****
+
+####  rooarr  
+##### 81029#       发表于 2021-8-3 22:55
+
+
+结晶只剩下3个，收手不升技能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 81030#       发表于 2021-8-3 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52228092&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-3 08:55</a>
+
+结晶只剩下3个，收手不升技能了</blockquote>
+你这是升了多少用不到的技能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  khxooo  
+##### 81031#       发表于 2021-8-3 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52228092&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-3 22:55</a>
+结晶只剩下3个，收手不升技能了</blockquote>
+结晶0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81032#       发表于 2021-8-3 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52228159&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-3 23:02</a>
+你这是升了多少用不到的技能</blockquote>
+62满技能的，大概40个是仓管，其他好用的技能升了10的也不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 81033#       发表于 2021-8-3 23:21
+
+
+隔壁吃相也太难看了，村正都变厨力卡了，落地时候你们可不是这么说的，建议以后什么卡都别抽就不会贬值了23333
+
+
+                                                

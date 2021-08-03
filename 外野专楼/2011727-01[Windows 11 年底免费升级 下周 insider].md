@@ -5988,3 +5988,18 @@ windows hello不能用了，绝了</blockquote>
 
 
                                                  
+
+*****
+
+####  navarra  
+##### 498#       发表于 2021-8-3 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52219630&amp;ptid=2011727" target="_blank">mcq_2 发表于 2021-8-3 12:21</a>
+win8开始，没代新系统都说要兼容安卓，最后都不了了之。我看win11最后都不会兼容安卓。 ...</blockquote>
+11之前那些都是传闻，11是官方宣布的特性，不一样的，肯定会上
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

@@ -17277,3 +17277,27 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  教皇  
+##### 55448#       发表于 2021-8-3 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52148067&amp;ptid=98922" target="_blank">Freemasons 发表于 2021-7-29 15:14</a>
+
+这种在战场上制造敌人亲人幻象的伎俩真的是无语
+
+前脚是一堆敌人，后脚冒出死去的亲🐎来，能上当的人 ...</blockquote>
+当面干掉5小强中的三个，战绩无人能比。
+
+
+要不是因为他不看原著不知道 “一辉心里最重要的人不是弟弟”，
+
+
+真就连载终结了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
