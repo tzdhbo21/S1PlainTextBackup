@@ -425,3 +425,38 @@ NGA色卡厨是没办法的
 
 
                                                  
+
+*****
+
+####  rooarr  
+##### 81026#       发表于 2021-8-3 21:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52227019&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-3 21:16</a>
+这时候该推荐陈宫了不是吗</blockquote>
+现在开始推荐c狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81027#       发表于 2021-8-3 21:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">陈宫还吃宝贵的圣杯呢
+
+
+*****
+
+####  zakki  
+##### 81028#       发表于 2021-8-3 21:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52226913&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-3 21:09</a>
+这个问题你要这么看，如果你是一个图鉴党，全员1宝比什么都强，那多抽一个高宝仇凛还挺费钱的
+
+但是如果你 ...</blockquote>
+我是个随缘一宝党，现在越来越感觉艰难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
