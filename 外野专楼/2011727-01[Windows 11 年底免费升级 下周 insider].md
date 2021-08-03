@@ -5972,3 +5972,19 @@ windows hello不能用了，绝了</blockquote>
 
 
                                                  
+
+*****
+
+####  猫溺泉君  
+##### 497#       发表于 2021-8-3 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52219712&amp;ptid=2011727" target="_blank">BallanceHZ 发表于 2021-8-3 12:26</a>
+
+设备管理器卸载win hello设备再重启就好了</blockquote>
+试过了还是不行，设置里一点windows hello设置就整个程序崩掉闪退
+
+等阿三啥时候再来上厕所吧，反正笔记本还有指纹可以凑合用。。。
+
+
+                                                 
