@@ -516,3 +516,105 @@ NGA色卡厨是没办法的
 
 
                                                 
+
+*****
+
+####  森兰丸  
+##### 81034#       发表于 2021-8-3 23:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">随便别人怎么说...反正我满破宝石摩根+双杀狐+CD衣服已经杀疯了
+
+
+*****
+
+####  alucardcz  
+##### 81035#       发表于 2021-8-3 23:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">萌新已麻 500石没有狐狸  还有最后150石要等13号了
+
+
+*****
+
+####  zore  
+##### 81036#       发表于 2021-8-4 00:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天可能还会出新卡池,楼友自求多福
+
+
+*****
+
+####  exiaexa  
+##### 81037#       发表于 2021-8-4 00:26
+
+
+吹来吹去最后还不是哪个按键少效率高无视发牌选哪个
+
+要吹百级宝石5加成那别人还带百级黑杯呢，有屁用
+
+
+想这么多有的没的不如搬砖我全都要
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81038#       发表于 2021-8-4 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52228902&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-4 00:19</a>
+今天可能还会出新卡池,楼友自求多福</blockquote>
+一个对我毫无吸引力的池子为什么要担心？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81039#       发表于 2021-8-4 00:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到头来还是发现买色色公仔香啊
+
+
+*****
+
+####  alucardcz  
+##### 81040#       发表于 2021-8-4 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52228902&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-4 00:19</a>
+
+今天可能还会出新卡池,楼友自求多福</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">奥某人透的差不多了 毫无兴趣 一点都不慌
+
+
+*****
+
+####  rooarr  
+##### 81041#       发表于 2021-8-4 00:44
+
+
+如果只有1个70充的话，价值确实不高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81042#       发表于 2021-8-4 00:51
+
+
+MD看着你们我就感觉，全世界是不是只有我故意没去看剧透了
+
+
+啥玩意儿啊.JPG
+
+咋回事儿啊.JPG
+
+你们不要过来啊.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

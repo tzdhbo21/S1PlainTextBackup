@@ -9064,3 +9064,16 @@ DLC种类，传说一直很足<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2167#         楼主| 发表于 2021-8-4 00:02
+
+
+[http://www.abyssalchronicles.com ... rs-edition-and-more](http://www.abyssalchronicles.com/contests/abyssal-chronicles-hootle-hunt-tales-of-arise-contest-win-a-tales-of-arise-collectors-edition-and-more)
+
+来这里，一起找伏露露，赚大奖（恼<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+                                                 
