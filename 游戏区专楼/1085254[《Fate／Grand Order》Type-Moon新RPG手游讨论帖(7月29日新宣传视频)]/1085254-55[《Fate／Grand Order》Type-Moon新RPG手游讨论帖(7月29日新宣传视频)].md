@@ -289,3 +289,39 @@ NGA色卡厨是没办法的
 
 
                                                  
+
+*****
+
+####  風卷豹  
+##### 81015#       发表于 2021-8-3 19:24
+
+
+仇凛省钱个毛线，那么多年第一次让我见识到十单一宝的女人<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SKR-A0, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  zore  
+##### 81016#       发表于 2021-8-3 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52225260&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-3 19:04</a>
+
+省钱吗，我的一宝仇凛根本不好用啊仇凛是真的要3宝起步</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么说吧,如果让我从几个克制职阶的光炮和5宝仇凛中挑一个,我会挑仇凛
+
+先解决打手问题剩下的可以真爱拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 81017#       发表于 2021-8-3 20:01
+
+
+哈桑这可以哦了。回50NP和即死不挂钩。找天玩下杂技
+
+
+                                                 
