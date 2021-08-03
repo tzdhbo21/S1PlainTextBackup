@@ -12506,3 +12506,72 @@ bsyl 加个配图
 
 
                                                  
+
+*****
+
+####  free  
+##### 5532#       发表于 2021-8-3 18:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202108/03/181823y4wwi4ijs3h4mqnm.png" referrerpolicy="no-referrer">
+
+
+<strong>打打打打枪.png</strong> (95.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-3 18:18 上传
+
+
+*****
+
+####  shpdw  
+##### 5533#       发表于 2021-8-3 18:20
+
+
+カントリー  ロード
+
+この道 ずっとゆけば<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 5534#       发表于 2021-8-3 18:23
+
+
+king之前不是还和hiroyuki一起玩么，贵圈容不下king了真的。
+
+
+*****
+
+####  alcoholic1000  
+##### 5535#       发表于 2021-8-3 18:30
+
+
+<img src="https://img.saraba1st.com/forum/202108/03/182733nedtd800htfn6zry.png" referrerpolicy="no-referrer">
+
+
+<strong>ヒカキン、今後はVTuberとして活動して行きます。.png</strong> (130.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-3 18:27 上传
+
+
+更喜欢这一张截图，King兄弟的准入门槛...?<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CielChloe  
+##### 5536#       发表于 2021-8-3 18:33
+
+
+大福第一抽就开门红了只能说是真的狗
+
+
+                                                 
