@@ -18283,3 +18283,44 @@ ID：926425467
 
 
                                                  
+
+*****
+
+####  シャル  
+##### 80979#       发表于 2021-8-3 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52221401&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-3 14:48</a>
+
+都没有.....看来我这南丁的技能升的还不亏</blockquote>
+实际到5级就好了
+
+
+*****
+
+####  xiongxingyu  
+##### 80980#       发表于 2021-8-3 15:53
+
+
+又仔细想了想，自选五星还是选了呆毛，不知道为啥，明明是开服五星，我迦呆毛却只有2宝（逆子都已经7宝了），这波杀狐落地，大家关注点都被狂娜吸引去了，其实呆毛才是最大的赢家啊，呆毛3个技能都是cd5的，宝石启动，2t技能全交，3t直接转好，等于后两回合都能吃到符合魔放和3t还有双倍领导力，而且不绑衣服不换人，伤害的话3宝打白字木桩（不算衣服）也有差不多20w这样了。再看看只有1宝的特总和原地飞升的弓凛，我毫不犹豫的又领了一只呆毛回家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 80981#       发表于 2021-8-3 15:58
+
+
+自选五星不用急着选吧，看了看是无时间限制的，我是准备等啥时候缺了再选
+
+
+*****
+
+####  areklose  
+##### 80982#       发表于 2021-8-3 15:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等个无限池前夕才决定
+
+
+                                                 
