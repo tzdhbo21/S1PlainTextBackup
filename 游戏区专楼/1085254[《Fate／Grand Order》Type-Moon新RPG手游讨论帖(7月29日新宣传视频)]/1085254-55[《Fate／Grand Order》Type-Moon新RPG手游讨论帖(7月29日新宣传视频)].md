@@ -325,3 +325,103 @@ NGA色卡厨是没办法的
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 81018#       发表于 2021-8-3 20:49
+
+
+哈桑这个宝具本给式姐该多好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81019#       发表于 2021-8-3 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52225895&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-3 20:01</a>
+
+哈桑这可以哦了。回50NP和即死不挂钩。找天玩下杂技</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">试了下 和即死挂钩啊 
+
+
+*****
+
+####  areklose  
+##### 81020#       发表于 2021-8-3 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52226657&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-3 20:53</a>
+
+试了下 和即死挂钩啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就再见了
+
+
+*****
+
+####  exiaexa  
+##### 81021#       发表于 2021-8-3 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52225260&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-3 19:04</a>
+
+省钱吗，我的一宝仇凛根本不好用啊仇凛是真的要3宝起步</blockquote>
+这个问题你要这么看，如果你是一个图鉴党，全员1宝比什么都强，那多抽一个高宝仇凛还挺费钱的
+
+但是如果你是那种，只要过图啥都行，只推真爱的，那抽一个五宝万能打手怎么也比抽一堆一宝仓管省钱
+
+
+如果你是个啥打手都2宝往上的中氪甚至重氪，其实这个仇凛有没有无所谓，办法多得是
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81022#       发表于 2021-8-3 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52226913&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-3 21:09</a>
+
+这个问题你要这么看，如果你是一个图鉴党，全员1宝比什么都强，那多抽一个高宝仇凛还挺费钱的
+
+但是如果你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这时候该推荐陈宫了不是吗
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81023#       发表于 2021-8-3 21:19
+
+
+我这里仇凛倒确实挺省钱的 白嫖的十几石单抽出货 复刻时石头都砸给村正了 然后签到呼符出货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81024#       发表于 2021-8-3 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52227019&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-3 21:16</a>
+
+这时候该推荐陈宫了不是吗</blockquote>
+你怎么能让我用铜卡呢
+
+摆出去多丢人啊，我可还要去加高宝大佬的好友爆破高难呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81025#       发表于 2021-8-3 21:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">明天该给菌哥哥做最后的审判了
+
+
+                                                 
