@@ -18324,3 +18324,115 @@ ID：926425467
 
 
                                                  
+
+*****
+
+####  eyeego  
+##### 80983#       发表于 2021-8-3 16:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52222035&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-3 15:42</a>
+实际到5级就好了</blockquote>
+不加满不是100 有几率翻车的 而且是高几率 别问我为什么知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80984#       发表于 2021-8-3 16:49
+
+
+<blockquote>引用第80979楼xiongxingyu于2021-08-03 15:53发表的  :
+
+又仔细想了想，自选五星还是选了呆毛，不知道为啥，明明是开服五星，我迦呆毛却只有2宝（逆子都已经7宝了......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像我就不一样了，我呆毛到现在只有1宝
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  sosgame67  
+##### 80985#       发表于 2021-8-3 16:49
+
+
+自选没急需大家基本可以先放置..孔明和狐狸这年头也没那么迫切了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 80986#       发表于 2021-8-3 17:01
+
+
+自选我是迫不及待选了老李，彻底填掉了我剧限人物的最后一个空
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  alucardcz  
+##### 80987#       发表于 2021-8-3 17:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">今天的强化没意思啊（ 
+
+
+*****
+
+####  alucardcz  
+##### 80988#       发表于 2021-8-3 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52223202&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-3 17:01</a>
+
+自选我是迫不及待选了老李，彻底填掉了我剧限人物的最后一个空
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">萌新毫不犹豫的选了白枪
+
+
+*****
+
+####  khxooo  
+##### 80989#       发表于 2021-8-3 17:08
+
+
+只有我傻逼选了狐狸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 80990#       发表于 2021-8-3 17:10
+
+
+这强化 行吧 石头+4 强化任务进度+2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不垃圾屌丝  
+##### 80991#       发表于 2021-8-3 17:11
+
+
+双子海盗这个还挺有针对性的，虽然还是没机会上场<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+哈桑这个强化是搞笑吗
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  zore  
+##### 80992#       发表于 2021-8-3 17:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金枪虞出来后可怜的枪狐早已不见踪影
+
+
+                                                 
