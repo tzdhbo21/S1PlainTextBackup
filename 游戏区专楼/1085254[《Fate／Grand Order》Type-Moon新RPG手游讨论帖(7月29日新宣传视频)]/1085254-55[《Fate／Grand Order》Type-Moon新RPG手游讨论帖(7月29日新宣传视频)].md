@@ -192,3 +192,100 @@ NGA色卡厨是没办法的
 
 
                                                 
+
+*****
+
+####  シャル  
+##### 81007#       发表于 2021-8-3 18:36
+
+
+试了下水阿比也能宝具三连了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+仓库队员又能出狱了
+
+
+*****
+
+####  exiaexa  
+##### 81008#       发表于 2021-8-3 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52224543&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-3 18:17</a>
+
+现在那边zzzq是神化仇凛</blockquote>
+仇凛的世代早就开始了啊，比如经典的豆爸C狐孔明
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 81009#       发表于 2021-8-3 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52224865&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-3 18:37</a>
+仇凛的世代早就开始了啊，比如经典的豆爸C狐孔明</blockquote>
+是神化，万能打手，处理一切阴间本，神之通用解，蓝绿红样样精通，无论环境怎么变，永远屹立不倒，他们吹的差不多这个意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eyeego  
+##### 81010#       发表于 2021-8-3 18:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52224856&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-3 18:36</a>
+试了下水阿比也能宝具三连了
+
+
+仓库队员又能出狱了</blockquote>
+阿比的伤害全靠debuff 跟杀狐体系不是很搭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81011#       发表于 2021-8-3 18:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇凛不就突出一个省钱不亏吗
+
+
+*****
+
+####  zakki  
+##### 81012#       发表于 2021-8-3 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52225186&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-3 18:59</a>
+仇凛不就突出一个省钱不亏吗</blockquote>
+省钱吗，我的一宝仇凛根本不好用啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仇凛是真的要3宝起步
+
+
+*****
+
+####  qixinno2  
+##### 81013#       发表于 2021-8-3 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52225260&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-3 19:04</a>
+
+省钱吗，我的一宝仇凛根本不好用啊仇凛是真的要3宝起步</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实百级二宝满金芙芙就挺好用的 今年补到二宝后是真的舒服
+
+
+*****
+
+####  exiaexa  
+##### 81014#       发表于 2021-8-3 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52225047&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-3 18:49</a>
+
+是神化，万能打手，处理一切阴间本，神之通用解，蓝绿红样样精通，无论环境怎么变，永远屹立不倒，他们吹 ...</blockquote>
+艹，还是他们会吹
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

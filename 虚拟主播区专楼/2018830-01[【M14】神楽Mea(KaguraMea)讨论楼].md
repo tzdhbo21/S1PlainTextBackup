@@ -767,3 +767,132 @@ vr最后一楼梗吧？
 
 
                                                  
+
+*****
+
+####  T_Hb  
+##### 69#       发表于 2021-8-3 19:03
+
+
+小声怪笑suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黒長直姫  
+##### 70#       发表于 2021-8-3 19:07
+
+
+这首歌的亮点全在和声了，小麻可爱
+
+
+*****
+
+####  时间在我手中  
+##### 71#       发表于 2021-8-3 19:08
+
+
+这滤镜拉的好鸡儿满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 72#       发表于 2021-8-3 19:11
+
+
+奶声奶气的病娇曲（你咩姐的声线离病娇还是差了一些距离
+
+
+*****
+
+####  clvan_  
+##### 73#       发表于 2021-8-3 19:12
+
+
+病气不够，不带感。
+
+你麻抒情发泄的歌唱得不少但是病气狂气的都没怎么唱过啊
+
+
+*****
+
+####  T_Hb  
+##### 74#       发表于 2021-8-3 19:12
+
+
+就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cushaw  
+##### 75#       发表于 2021-8-3 19:13
+
+
+ 本帖最后由 Cushaw 于 2021-8-3 19:17 编辑 
+
+病气不够，捏个萌音奶味太浓<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+是因为意识到这个女人太笨所以没有威胁感吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Klience  
+##### 76#       发表于 2021-8-3 19:17
+
+
+要是眼神再空洞一点就好了 像是被我玩坏一样<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 77#       发表于 2021-8-3 19:18
+
+
+带感！
+
+
+*****
+
+####  Klience  
+##### 78#       发表于 2021-8-3 19:21
+
+
+吃完饭 听完歌 是时候看比赛了 希望今晚不播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 79#       发表于 2021-8-3 19:30
+
+
+相比于一些直球抒发情感的曲子，唱这曲子的要点是要把平常唱甜曲的“甜感”再提升一个等级，突出一个不正常的甜，再加上中间突然沉下去的片段，这样有足够大的起伏才能让人听了心里发毛
+
+
+不过你咩姐大概没想这么多，虽然该沉下去的地方沉了但该抬起来的地方没抬得足够高，于是起伏不太够病味就差了点
+
+
+*****
+
+####  Klience  
+##### 80#       发表于 2021-8-3 19:34
+
+
+说不定把物语换成魔圆就有病味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 81#       发表于 2021-8-3 19:34
+
+
+这人声线病娇起来又是另一种味道了
+
+
+                                                 
