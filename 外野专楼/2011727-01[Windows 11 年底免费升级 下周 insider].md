@@ -5897,3 +5897,41 @@ win7党当时也是这么看win10的
 
 
                                                  
+
+*****
+
+####  费雷拉  
+##### 490#       发表于 2021-8-3 08:28
+
+
+更新了beta，还是没有Android？
+
+
+*****
+
+####  Fuero  
+##### 491#       发表于 2021-8-3 09:04
+
+
+更新以后有种macOS的即视感…体验还不错
+
+
+*****
+
+####  Litccc  
+##### 492#       发表于 2021-8-3 09:06
+
+
+据说Android要等正式版发布以后才上dev版<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫溺泉君  
+##### 493#       发表于 2021-8-3 09:06
+
+
+windows hello不能用了，绝了
+
+
+                                                 

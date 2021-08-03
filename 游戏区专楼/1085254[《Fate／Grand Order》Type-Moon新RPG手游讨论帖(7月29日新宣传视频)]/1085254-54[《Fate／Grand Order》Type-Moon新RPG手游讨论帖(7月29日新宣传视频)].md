@@ -18134,3 +18134,48 @@ qp荒漠根本不慌，从来没第一时间拉满过任何人
 
 
                                                  
+
+*****
+
+####  閻魔愛  
+##### 80967#       发表于 2021-8-3 08:00
+
+
+之前一段时间有点咸鱼掉了一波好友<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+在这里重新求一波大腿<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+ID：926425467
+
+
+*****
+
+####  仰望神的括约肌  
+##### 80968#       发表于 2021-8-3 09:09
+
+
+其实都不用红卡 绿卡的金枪虞就能稳3t了 连牌都不用刷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/03/090812uiiqschtkwqvqwok.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-02-22-34-21-49.jpg</strong> (62.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-3 09:08 上传
+
+
+*****
+
+####  khxooo  
+##### 80969#       发表于 2021-8-3 09:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52215700&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-3 04:19</a>
+除了圣诞南丁之外还有谁有解除强化耐性技能的
+
+
+为了3T打遍队长把这个技能给升到了10...我也是太无聊 ...</blockquote>
+小麻雀和紫式部，这两个是全体的。
+
+
+                                                 
