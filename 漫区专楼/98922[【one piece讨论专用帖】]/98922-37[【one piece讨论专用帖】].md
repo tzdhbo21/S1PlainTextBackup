@@ -17312,3 +17312,17 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  klzxs  
+##### 55450#       发表于 2021-8-4 09:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52229949&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2021-8-4 07:21</a>
+
+又重新看了第一部，有个疑问，除了艾尼路的方舟意外，海贼世界没有出现过飞机阿… ...</blockquote>
+有热气球
+
+
+                                                 

@@ -640,3 +640,53 @@ MD看着你们我就感觉，全世界是不是只有我故意没去看剧透了
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 81045#       发表于 2021-8-4 08:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52229906&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-4 07:06</a>
+说实话我对他的卡背的兴趣远远超过他本人......这能不能实装啊，话说兽是不是没出过卡背 ...</blockquote>
+我个人认为大概率会实装，毕竟奥伯龙基本上是预定实装的，给个卡背太简单了。而且这次实装新职业，代表后续肯定有新的伪装者出来。
+
+
+*****
+
+####  zakki  
+##### 81046#       发表于 2021-8-4 08:46
+
+
+ 本帖最后由 zakki 于 2021-8-4 08:48 编辑 
+
+奥伯龙肯定实装，都做好了没理由不实装，只不过可能为了防剧透不是这周出，同职阶另一个人。。估计就是老福了。奥伯龙3技能靠谱点儿就是个70自冲狂光炮，能六加成打三连，强度肯定不会低的
+
+
+*****
+
+####  黑上シグマ  
+##### 81047#       发表于 2021-8-4 08:57
+
+
+<blockquote>引用第81043楼ryusei于2021-08-04 07:22发表的  :
+
+啊啊啊啊……抽到杀狐但是被卡金饼干了……妈蛋你上线个素材交换系统不行嘛？卡人很好玩是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可刚开完无限池，这还能缺饼干也太菜了吧
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  areklose  
+##### 81048#       发表于 2021-8-4 09:12
+
+
+ 本帖最后由 areklose 于 2021-8-4 09:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">杀狐落地，收益最大当然是妖兰。可以单体宝具接2个全体宝具，而且6加成毫无问题。红卡枪当之无愧的王者。我2宝100级准备好了！
+
+
+                                                 
