@@ -8019,3 +8019,50 @@ syl: https://youtu.be/khUoXynXrvc
 
 
                                                  
+
+*****
+
+####  Kanchiki  
+##### 6652#       发表于 2021-8-4 20:55
+
+
+反正需要的是声质的治愈效果，走调忘词问题不大的
+
+
+*****
+
+####  面具13  
+##### 6653#       发表于 2021-8-4 21:41
+
+
+八月是宝可梦unite强化月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Scardy  
+##### 6654#       发表于 2021-8-4 21:48
+
+
+所以啥时候玩，感觉热度都快过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  乌鸦绅士  
+##### 6655#       发表于 2021-8-4 21:53
+
+
+三周年有直笔
+
+
+*****
+
+####  面具13  
+##### 6656#       发表于 2021-8-4 21:55
+
+
+又要搞直笔明信片了？手要写断吧
+
+
+                                                 

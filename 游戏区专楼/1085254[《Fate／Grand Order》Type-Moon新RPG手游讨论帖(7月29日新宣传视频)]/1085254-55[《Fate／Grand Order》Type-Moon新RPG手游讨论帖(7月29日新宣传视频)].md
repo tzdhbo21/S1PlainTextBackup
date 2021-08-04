@@ -1696,3 +1696,105 @@ CBC26088-C1DA-4465-B840-AE030A175EC6.png
 
 
                                                  
+
+*****
+
+####  rooarr  
+##### 81131#       发表于 2021-8-4 20:59
+
+
+主线多少节啊，一管体力都刷完了还没结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这1/3也太长了吧
+
+
+*****
+
+####  alucardcz  
+##### 81132#       发表于 2021-8-4 21:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52240687&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-4 20:59</a>
+
+主线多少节啊，一管体力都刷完了还没结束这1/3也太长了吧</blockquote>
+好像３１
+
+
+*****
+
+####  rooarr  
+##### 81133#       发表于 2021-8-4 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52240802&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 21:07</a>
+
+好像３１</blockquote>
+那看来再吃1个苹果就够了，今晚刷完吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81134#       发表于 2021-8-4 21:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各种瞎JB打 反正灵脉石不用做废了 无脑打真的舒服 
+
+
+*****
+
+####  alucardcz  
+##### 81135#       发表于 2021-8-4 21:18
+
+
+这欧若拉我麻了。。是个天然傻啊。什么心机什么思想统统没有就个巨婴啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81136#       发表于 2021-8-4 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52240975&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 21:18</a>
+
+这欧若拉我麻了。。是个天然傻啊。什么心机什么思想统统没有就个巨婴啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">然后摩根和整个不列颠岛就因为这个巨婴被弄死了....就问你服不服
+
+
+*****
+
+####  angelooo  
+##### 81137#       发表于 2021-8-4 21:43
+
+
+妖兰真亲女儿，三套简易灵衣，而且都不是敷衍人的（不要和我提215的兔耳，什么玩意）
+
+三破的红黑我舌头都要舔断了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81138#       发表于 2021-8-4 21:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">快打完了　我居然觉得２。６还不错？　　先不说剧本　光系统上就有好多新机制
+
+
+不过分成上中下实在太**了。ｄｗ去死吧
+
+
+*****
+
+####  exiaexa  
+##### 81139#       发表于 2021-8-4 22:13
+
+
+打完笑死我了
+
+菌鸽鸽你憋了这么久就憋出这么个玩意儿
+
+等我整理一下笔记
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

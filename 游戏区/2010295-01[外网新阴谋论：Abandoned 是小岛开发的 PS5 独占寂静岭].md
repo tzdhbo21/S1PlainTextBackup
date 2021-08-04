@@ -7242,3 +7242,23 @@ Abandoned Realtime Experience App除了日本和中国外都出了。里面目�
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 559#       发表于 2021-8-4 22:16
+
+
+ 本帖最后由 luoyianwu 于 2021-8-4 22:17 编辑 
+
+8/2 岛哥哥发自拍（[https://twitter.com/Kojima_Hideo/status/1422399945454227457](https://twitter.com/Kojima_Hideo/status/1422399945454227457)）
+<img src="https://p.sda1.dev/2/0c111a40924f6db299562377a822a78b/E71i5klXsBY9iPP.jpg" referrerpolicy="no-referrer">
+
+8/3 采访Hasan的媒体宣布访谈延期公布（[https://twitter.com/TheHubKW/status/1422545021002203175](https://twitter.com/TheHubKW/status/1422545021002203175)）
+<img src="https://p.sda1.dev/2/708fbb748614096edb62e5351fa7f245/hub.png" referrerpolicy="no-referrer">
+
+8/4 Konami推出寂静岭帽衫（[https://twitter.com/KonamiShop/status/1422752362062565376](https://twitter.com/KonamiShop/status/1422752362062565376)）
+<img src="https://p.sda1.dev/2/c1455e83ffec7479e08dcce4296baa66/a7x5ko517bf71.jpg" referrerpolicy="no-referrer">
+
+
+                                                 
