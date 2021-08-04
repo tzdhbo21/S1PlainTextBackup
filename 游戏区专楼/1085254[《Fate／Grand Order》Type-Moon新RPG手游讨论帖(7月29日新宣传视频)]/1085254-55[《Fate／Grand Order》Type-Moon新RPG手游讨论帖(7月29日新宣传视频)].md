@@ -885,3 +885,67 @@ MD看着你们我就感觉，全世界是不是只有我故意没去看剧透了
 
 
                                                  
+
+*****
+
+####  白夜羽  
+##### 81060#       发表于 2021-8-4 12:37
+
+
+都上s伊斯塔了，我有什么理由不用术傻辅助非得用狐狸，就因为狐狸比术傻色？什么你说特攻，那就像上面说的我为什么不直接摩根淦爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  rooarr  
+##### 81061#       发表于 2021-8-4 12:50
+
+
+今天居然有维护，我都没看到通知<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81062#       发表于 2021-8-4 12:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52233153&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 12:27</a>
+
+仇凛最大的问题不是伤害不够吗 现在你用狐狸还少了领导力那伤害更不够了（5宝金狗圣杯拉满的当我没说）[f:0 ...</blockquote>
+你说的这个狐狸，我第一眼还以为是C狐，还在想C狐伤害怎么都比C呆高啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81063#       发表于 2021-8-4 13:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">翻页
+
+
+*****
+
+####  alucardcz  
+##### 81064#       发表于 2021-8-4 13:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52233488&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-4 12:50</a>
+
+今天居然有维护，我都没看到通知</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">今天可是审判菌哥哥的日子 怎么能不维护呢（
+
+
+*****
+
+####  sosgame67  
+##### 81065#       发表于 2021-8-4 13:14
+
+
+公审是下午5点开始？各路云玩家已经迫不及待了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
