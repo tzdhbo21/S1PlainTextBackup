@@ -949,3 +949,20 @@ MD看着你们我就感觉，全世界是不是只有我故意没去看剧透了
 
 
                                                 
+
+*****
+
+####  eyeego  
+##### 81066#       发表于 2021-8-4 13:34
+
+
+ 本帖最后由 eyeego 于 2021-8-4 13:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52233153&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 12:27</a>
+仇凛最大的问题不是伤害不够吗 现在你用狐狸还少了领导力那伤害更不够了（5宝金狗圣杯拉满的当我没说）[f:0 ...</blockquote>
+以qp本为例的话
+90级0淫 兽宝5王姐最后一面14w左右
+100级满淫 兽宝5宇宙凛在20w左右
+去掉宇宙凛2000的白值加成伤害其实差不多 宇宙凛胜在叠叠乐的buff多一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

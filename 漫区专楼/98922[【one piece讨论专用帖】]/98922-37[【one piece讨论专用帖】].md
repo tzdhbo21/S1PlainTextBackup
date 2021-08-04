@@ -17326,3 +17326,31 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  saturnus  
+##### 55451#       发表于 2021-8-4 13:22
+
+
+新情报桃子叫阿忍用她的熟熟之术把他变成大人
+
+如果是年轻的阿忍那还是🉑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flyzzhj  
+##### 55452#       发表于 2021-8-4 13:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52227857&amp;ptid=98922" target="_blank">教皇 发表于 2021-8-3 22:32</a>
+
+当面干掉5小强中的三个，战绩无人能比。
+
+
+要不是因为他不看原著不知道 “一辉心里最重要的人不是弟弟”， ...</blockquote>
+这还得多亏一辉的师傅吧，如果当时让他女儿和一辉跑路了，妥妥团灭的节奏啊
+
+
+                                                 
