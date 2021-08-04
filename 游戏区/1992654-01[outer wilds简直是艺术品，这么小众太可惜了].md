@@ -3597,3 +3597,17 @@ dlc实机片段[【星际拓荒】DLC：眼之回响 已放出片段_单机游�
 
 
                                                  
+
+*****
+
+####  whzfjk  
+##### 264#       发表于 2021-8-4 14:38
+
+
+[@Rebirth_DAN](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=534231) [@Dgnic_](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=533762) 感谢二位解惑
+
+
+我一开始也是从逃生舱找到下去的路的，不过后来发现可以不走楼梯直接往平台上跳，也因此风险大了一些（
+
+
+                                                 
