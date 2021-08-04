@@ -1798,3 +1798,317 @@ CBC26088-C1DA-4465-B840-AE030A175EC6.png
 
 
                                                  
+
+*****
+
+####  sosgame67  
+##### 81140#       发表于 2021-8-4 22:27
+
+
+总之因为dw废物加上前面暗示太多（已经是明示的地步了）基本没有反转的感觉，最后的几个演出不错，但是我的体感加起来还不如2.4酣畅淋漓<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81141#       发表于 2021-8-4 22:28
+
+
+ 本帖最后由 exiaexa 于 2021-8-4 22:37 编辑 
+
+还记得前面一群人在哪儿猜什么心机婊啊巨大阴谋啊摩根就是巨婴连手下都镇不住
+
+结果你菌鸽鸽告诉你啥·都·没·有，不列颠这群逼人没了摩根真的分分钟暴毙了艹
+
+菌鸽鸽是不是觉得反正都是罪人后裔全写成傻逼也没关系
+
+都是铺垫.JPG
+
+都是伏笔.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+从中间开始欧罗拉妖高帕西瓦尔阿尔比昂排着队的送，这是赶着投胎吗
+
+然后打炎之灾厄和兽之灾厄的时候，C呆和C狗突然就给你掉线了
+
+打兽灾的时候真就临时呼唤俩打手打完就跑看呆了，上次这么标准的工具人是不是2.1的武藏
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+最草的还要数贝利尔的唐突告白，梦回机战X安玛莉线大哥唐突告白，突出一个你说你妈呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+最后奥伯龙跳反也喜感得很，虽然大家都知道你要跳反
+
+但是菌鸽鸽你好歹，给铺垫一下，从姆莉安被背刺开始到后面真就一路打打打，打完了突然冒出来一个人告诉你
+
+嗨虽然我一直没说但是还有我没打哦，喜感得飞起
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81142#       发表于 2021-8-4 22:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是我漏看了什么剧情么....还是没看懂帕西瓦尔第一次用圣枪救妖兰是什么情况
+
+
+*****
+
+####  rooarr  
+##### 81143#       发表于 2021-8-4 22:32
+
+
+ 本帖最后由 rooarr 于 2021-8-4 22:33 编辑 
+
+我只想问什么时候出友情池100连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+试试1200w抽到什么时候能满<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81144#       发表于 2021-8-4 22:33
+
+
+ 本帖最后由 exiaexa 于 2021-8-4 22:36 编辑 
+
+演出就帕西瓦尔那一段太傻逼，你哪怕整个2.55砍道满那一段的动态CG
+
+表现力都没这么蠢，特别是CV是松风雅也我他妈当场梦回铁血
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+别的能夸的
+
+阿尔比昂的开战、宝具演出
+
+奥伯龙的音乐、演出都能戳到爽点
+
+几个灾厄的入场我更喜欢2.5机神那个风格
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+最后的最后，我打心里觉得，TypeMoon这群人可能真的觉得黑枪这个沙雕玩意儿贼JB酷炫
+
+这都能给你强行开一枪我是没想到的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  banglian  
+##### 81145#       发表于 2021-8-4 22:37
+
+
+结果A组就卡多克有在认真和迦皇玩心计？指又有合作又有背后捅刀而且有反转。除他之外的A组要么是无交集独角戏要么就是纯友军<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81146#       发表于 2021-8-4 22:39
+
+
+累计10w友情0只<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81147#       发表于 2021-8-4 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52241921&amp;ptid=1085254" target="_blank">banglian 发表于 2021-8-4 22:37</a>
+
+结果A组就卡多克有在认真和迦皇玩心计？指又有合作又有背后捅刀而且有反转。除他之外的A组要么是无交集独角 ...</blockquote>
+一开始大家以为卡多克是下限，现在发现卡多克简直反派之光
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 81148#       发表于 2021-8-4 22:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没打，我觉得你们说的挺符合妖精这个定位的啊。前中看下来妖精这种东西好起来心都掏出来给你，傻逼起来简直是傻逼中的战斗机。
+
+前面早不止于一次给背景故事里面的傻逼气的想咕哒赶紧毁灭妖精国走人了。
+
+
+*****
+
+####  exiaexa  
+##### 81149#       发表于 2021-8-4 22:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52241956&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-4 22:40</a>
+
+还没打，我觉得你们说的挺符合妖精这个定位的啊。前中看下来妖精这种东西好起来心都掏出来给你，傻 ...</blockquote>
+怎么说呢，遇到这种什么祖先是大罪人的脉络
+
+一般都是啥立志雪耻啊，主动承担责任啊之类的吧
+
+
+到菌鸽鸽这直接给你躺平了，没错傻逼就是傻逼
+
+仿佛某些爽文的，你爹傻逼你个儿子肯定也是傻逼我干死你一点愧疚感都没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  banglian  
+##### 81150#       发表于 2021-8-4 22:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52241950&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-4 22:40</a>
+
+一开始大家以为卡多克是下限，现在发现卡多克简直反派之光</blockquote>
+卡多克实力下限，但是真的在玩策略<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+后面几位A组说难听点身份和行为和结局换成从者或异闻带从者也没太大区别啊，本来还期待狈先生有什么新玩法，结果只是普通玛修厨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  rooarr  
+##### 81151#       发表于 2021-8-4 22:46
+
+
+13w第一只<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 81152#       发表于 2021-8-4 22:56
+
+
+其他先不提，贝屑是真的low比，无语了，一想到队长和佩佩死在这种low比手里，吐了
+
+卡多克真的是最认真做事的，结果躺到现在还没起来
+
+
+*****
+
+####  angelooo  
+##### 81153#       发表于 2021-8-4 22:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52241882&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-4 22:33</a>
+
+演出就帕西瓦尔那一段太傻逼，你哪怕整个2.55砍道满那一段的动态CG
+
+表现力都没这么蠢，特别是CV是松风雅也 ...</blockquote>
+黑枪游戏里第一次出场真的是炸裂
+
+然后给你连着放了三次就
+
+哈哈哈
+
+
+*****
+
+####  dts5770  
+##### 81154#       发表于 2021-8-4 22:59
+
+
+最后一个一个灾厄打过去，挺有奥丁领域的感觉的，可惜没法选顺序
+
+
+*****
+
+####  rooarr  
+##### 81155#       发表于 2021-8-4 23:01
+
+
+累计40w出了第二只<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81156#       发表于 2021-8-4 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52242145&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-4 22:58</a>
+
+黑枪游戏里第一次出场真的是炸裂
+
+然后给你连着放了三次就
+
+哈哈哈</blockquote>
+当初2.5七重连英灵炮拿去清杂，黑枪拿来抢人头你还以为是个多了不得的东西
+
+结果完全就是个FGO版钢钉
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81157#       发表于 2021-8-4 23:05
+
+
+MD刚才清free不小心点到调查笔记
+
+想了想这居然是这章故事逻辑最顺的部分
+
+蘑菇怕不是想了个大背景然后随手填的现代部分
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81158#       发表于 2021-8-4 23:16
+
+
+20W第一只，继续抽<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81159#       发表于 2021-8-4 23:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不搓丸子的人友情点都挺多的吧
+
+我反正是真搓不动了
+
+
+*****
+
+####  里村紅葉  
+##### 81160#       发表于 2021-8-4 23:24
+
+
+所以这一章就是一大群人前前后后忙了千把年替6个懒狗擦屁股的故事？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 81161#       发表于 2021-8-4 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52242412&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-4 23:22</a>
+
+不搓丸子的人友情点都挺多的吧
+
+我反正是真搓不动了</blockquote>
+咕朗台每次都在N倍大失败的时候才搓丸子，当然，多数时候0XN还是等于0
+
+
+                                                

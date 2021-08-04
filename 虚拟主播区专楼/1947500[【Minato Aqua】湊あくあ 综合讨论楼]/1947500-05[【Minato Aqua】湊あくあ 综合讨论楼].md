@@ -8066,3 +8066,55 @@ syl: https://youtu.be/khUoXynXrvc
 
 
                                                  
+
+*****
+
+####  lightsuger  
+##### 6657#       发表于 2021-8-4 22:25
+
+
+ 本帖最后由 lightsuger 于 2021-8-4 22:32 编辑 
+
+明天回的早就油管+t台唱歌
+
+不然就只t台 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 6658#       发表于 2021-8-4 22:31
+
+
+油管是说可能，按过去经验基本上当放屁就好了。
+
+晚上确定会搞一次tc
+
+
+*****
+
+####  面具13  
+##### 6659#       发表于 2021-8-4 22:47
+
+
+tc可能是唱歌
+
+
+*****
+
+####  面具13  
+##### 6660#       发表于 2021-8-4 23:07
+
+
+ 本帖最后由 面具13 于 2021-8-4 23:08 编辑 
+
+直球sc的apex民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+纠结了半天后，来了句いつかやるかも<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再见了apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟可能=不会发生
+
+直播上分压力大，所以不想播，除非被人邀请去大赛
+
+
+                                                 
