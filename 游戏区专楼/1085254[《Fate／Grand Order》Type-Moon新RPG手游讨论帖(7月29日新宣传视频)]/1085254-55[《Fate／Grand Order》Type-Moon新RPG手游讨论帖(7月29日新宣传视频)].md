@@ -2243,3 +2243,59 @@ MD刚才清free不小心点到调查笔记
 
 
                                                  
+
+*****
+
+####  skives  
+##### 81174#       发表于 2021-8-5 02:06
+
+
+除了奥伯龙 全员工具人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81175#       发表于 2021-8-5 02:08
+
+
+ 本帖最后由 森兰丸 于 2021-8-5 02:24 编辑 
+
+通了.....所以妖崔的3破还真没在主线里出现过啊....还有杀死马头的是谁也没说.....冒充梅林教C呆魔术的又是谁
+
+
+帕西瓦尔为什么要第一次用圣枪救妖兰这段是真没看懂....是欧罗拉让妖兰把镜之氏族都给杀光的....最后又听到欧罗拉这样说自己最多就是内心黑泥被破防了....有什么必要用圣枪来拯救么
+
+
+最后C呆来助战的那段剧情也没有看懂....那颗在暴风雪中闪耀的星星到底是啥.....和C呆把自己的名字给第一个莫斯化的妖精又有什么关系
+
+
+*****
+
+####  alucardcz  
+##### 81176#       发表于 2021-8-5 02:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243314&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-5 02:08</a>
+
+通了.....所以妖崔的3破还真没在主线里出现过啊....还有杀死马头的是谁也没说.....冒充梅林教C呆魔术的又是 ...</blockquote>
+妖崔惨啊 彻底被忘记了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+杀马头的应该是奥伯龙
+
+
+*****
+
+####  森兰丸  
+##### 81177#       发表于 2021-8-5 02:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243362&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 02:29</a>
+
+妖崔惨啊 彻底被忘记了
+
+杀马头的应该是奥伯龙</blockquote>
+我一开始也想到是奥伯龙.....可奥伯龙不是说要鹿角死掉后他才能出场么
+
+
+                                                 

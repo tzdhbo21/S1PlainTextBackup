@@ -7273,3 +7273,38 @@ Abandoned Realtime Experience App除了日本和中国外都出了。里面目�
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 561#       发表于 2021-8-5 01:51
+
+
+Hasan：unreal store卖的树不错，所以我们用了
+[https://twitter.com/HasanEKahram ... 60782187409411?s=20](https://twitter.com/HasanEKahraman/status/1422960782187409411?s=20)
+
+Hasan：正式游戏不会有森林
+[https://twitter.com/HasanEKahram ... 66254319583234?s=20](https://twitter.com/HasanEKahraman/status/1422966254319583234?s=20)
+
+？？？
+
+
+*****
+
+####  2659646573  
+##### 562#       发表于 2021-8-5 02:00
+
+
+这耍猴营销也是够了，最后到底是不是小岛感觉都无所谓，我现在只好奇猴群的反应<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  920619lqy  
+##### 563#       发表于 2021-8-5 02:36
+
+
+看他们整活的群众都累了
+
+
+                                                 
