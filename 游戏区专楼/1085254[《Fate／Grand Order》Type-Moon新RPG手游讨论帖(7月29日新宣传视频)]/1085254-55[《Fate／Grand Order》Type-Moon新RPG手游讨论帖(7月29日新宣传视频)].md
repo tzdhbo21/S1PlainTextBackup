@@ -1077,3 +1077,257 @@ MD看着你们我就感觉，全世界是不是只有我故意没去看剧透了
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 81076#       发表于 2021-8-4 16:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52236619&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-4 16:30</a>
+
+看样子估计就是靠各种活动吊着，等差不多赚够了就关服了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">钱是会有赚够这概念的东西吗!
+
+
+*****
+
+####  khxooo  
+##### 81077#       发表于 2021-8-4 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52236659&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 16:32</a>
+钱是会有赚够这概念的东西吗!</blockquote>
+可能是我表达的不够清楚吧，我的意思是等主线完结，氪金量估计会一直降低，等跌倒一定程度估计就会彻底关服了。
+
+
+*****
+
+####  alucardcz  
+##### 81078#       发表于 2021-8-4 16:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52236700&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-4 16:34</a>
+
+可能是我表达的不够清楚吧，我的意思是等主线完结，氪金量估计会一直降低，等跌倒一定程度估计就会彻底关 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">可就这能躺何站的形式 我感觉挺难的 药丸药丸开个池又前几了  不然yls哪会有这种底气至今无天井
+
+
+*****
+
+####  khxooo  
+##### 81079#       发表于 2021-8-4 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52236751&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 16:37</a>
+可就这能躺何站的形式 我感觉挺难的 药丸药丸开个池又前几了  不然yls哪会有这种底气至今无天井
+
+ ...</blockquote>
+好像都是2.6主线的池子才高？但是没了主线支撑估计就开始流失了。
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 81080#       发表于 2021-8-4 16:44
+
+
+主线完结和氪金量降低应该影响不大吧，感觉能开多久就能玩多久的人还挺多的
+
+真完结之后靠社内联动和季节活动应该都能拖挺久了，不过我还是希望快点完结关服<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 81081#       发表于 2021-8-4 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52236578&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 16:27</a>
+
+这不是标准的官腔吗 等于啥都没说
+
+
+6.5是不是可以直接宣判菌哥哥辣鸡了</blockquote>
+6.5不就是和平安京一个性质，都不是蘑菇写的为啥要宣判他
+
+
+*****
+
+####  alucardcz  
+##### 81082#       发表于 2021-8-4 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237034&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-4 16:56</a>
+
+6.5不就是和平安京一个性质，都不是蘑菇写的为啥要宣判他</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">没看过265的消息 是不是一个性质马上就知道了
+
+
+*****
+
+####  alucardcz  
+##### 81083#       发表于 2021-8-4 17:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">强化本姑姑和炎头 无新卡池
+
+
+*****
+
+####  rooarr  
+##### 81084#       发表于 2021-8-4 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237144&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 17:02</a>
+
+强化本姑姑和炎头 无新卡池</blockquote>
+居然没新卡，看来是凉了
+
+
+*****
+
+####  zakki  
+##### 81085#       发表于 2021-8-4 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237083&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 16:59</a>
+
+没看过265的消息 是不是一个性质马上就知道了</blockquote>
+肯定是啊，戴冠式结束后给通关礼装，显示2.7，估计中间又有个黑点
+
+
+*****
+
+####  白金口袋  
+##### 81086#       发表于 2021-8-4 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237152&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-4 03:03</a>
+
+居然没新卡，看来是凉了</blockquote>
+周年这边还开着呢，要再开一池也未免吃香太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 81087#       发表于 2021-8-4 17:04
+
+
+果然无奥伯龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81088#       发表于 2021-8-4 17:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237164&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-4 17:03</a>
+
+周年这边还开着呢，要再开一池也未免吃香太难看了</blockquote>
+这种事干得少吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81089#       发表于 2021-8-4 17:05
+
+
+新卡池估计是要等狐狸池结束了
+
+
+*****
+
+####  alucardcz  
+##### 81090#       发表于 2021-8-4 17:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">哈贝喵80自充蓝卡光炮？
+
+
+
+
+*****
+
+####  alucardcz  
+##### 81091#       发表于 2021-8-4 17:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">喷了  一面5个怪  这样以后是不是再也不用担心什么np回收率了
+
+
+*****
+
+####  zakki  
+##### 81092#       发表于 2021-8-4 17:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237325&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 17:12</a>
+
+哈贝喵80自充蓝卡光炮？</blockquote>
+反正是送的，无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81093#       发表于 2021-8-4 17:19
+
+
+翻页
+
+
+*****
+
+####  angelooo  
+##### 81094#       发表于 2021-8-4 17:23
+
+
+哈贝喵她还能自爆……卧槽
+
+
+*****
+
+####  qixinno2  
+##### 81095#       发表于 2021-8-4 17:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新从者最少没有50充能的都建议自觉退群吧
+
+
+*****
+
+####  angelooo  
+##### 81096#       发表于 2021-8-4 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237362&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 17:15</a>
+
+喷了  一面5个怪  这样以后是不是再也不用担心什么np回收率了</blockquote>
+还有一面6个的笑死
+
+
+*****
+
+####  zore  
+##### 81097#       发表于 2021-8-4 17:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非你菌哥哥不想再玩了,不然看不出有啥关服的必要
+
+就那个垃圾光炮池都能氪爆的,有啥好说的
+
+
+*****
+
+####  cckuku  
+##### 81098#       发表于 2021-8-4 17:26
+
+
+80自充蓝卡光炮，回合结束自爆。这tm也太实用了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                

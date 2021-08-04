@@ -1485,3 +1485,43 @@ syl  摸鱼的确爽，但是这人一播就容易强迫症发作也是种病�
 
 
                                                 
+
+*****
+
+####  Cushaw  
+##### 133#       发表于 2021-8-4 17:05
+
+
+我攻城坦克架起来你就知道错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Klience  
+##### 134#       发表于 2021-8-4 17:13
+
+
+生产坦克TTTTTT 你麻以后代号叫T算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 135#       发表于 2021-8-4 17:14
+
+
+生产工程，多么shehui主义的坦克<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 136#       发表于 2021-8-4 17:46
+
+
+桀桀，坦克民太多了
+
+
+                                                 
