@@ -2299,3 +2299,53 @@ MD刚才清free不小心点到调查笔记
 
 
                                                  
+
+*****
+
+####  久井路路  
+##### 81178#       发表于 2021-8-5 06:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243367&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-5 02:33</a>
+
+我一开始也想到是奥伯龙.....可奥伯龙不是说要鹿角死掉后他才能出场么</blockquote>
+多半指的是那条虫子，也就是本体出不来吧，杀个马头用不着上本体也能做到
+
+
+*****
+
+####  exiaexa  
+##### 81179#       发表于 2021-8-5 07:03
+
+
+ 本帖最后由 exiaexa 于 2021-8-5 07:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243314&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-5 02:08</a>
+
+通了.....所以妖崔的3破还真没在主线里出现过啊....还有杀死马头的是谁也没说.....冒充梅林教C呆魔术的又是 ...</blockquote>
+你说的马头是指哪个
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+暴风雨闪耀的星星就是个寓意，是让C呆坚持下去的，狗屎世界里闪耀的人类的光辉，或者叫希望也行
+
+把名字送出去我自己的理解是，本来C呆自己都要放弃了，但是在无名之森意外的发现自己送出去的名字居然成为了拯救一个妖精的希望，让她自己难以忘记这个事儿
+
+C呆来助战是发生圣枪和转换圣剑的大魔术挂掉以后，英灵化跑过来助战的，时候奥伯龙背后一直在闪的那颗星星大概就是强行呼应上面那段故事，但是跟高文长江一样是个一次性的实在太艹
+
+
+单纯就是菌鸽鸽逼话太多不讲人话把你绕晕了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81180#       发表于 2021-8-5 07:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243314&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-5 02:08</a>
+通了.....所以妖崔的3破还真没在主线里出现过啊....还有杀死马头的是谁也没说.....冒充梅林教C呆魔术的又是 ...</blockquote>
+应该是奥伯龙，别人对照了一下，和伏提康的名字对上的
+
+
+                                                 
