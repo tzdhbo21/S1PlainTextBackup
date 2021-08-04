@@ -3866,3 +3866,16 @@ GAMERS有个用封面的B2挂画限定版
 
 
                                                  
+
+*****
+
+####  oyss  
+##### 314#       发表于 2021-8-5 01:20
+
+
+[https://twitter.com/oyss/status/1422940893640753156](https://twitter.com/oyss/status/1422940893640753156)
+
+一刀翻盘
+
+
+                                                 
