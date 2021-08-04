@@ -1482,3 +1482,25 @@ https://b23.tv/2Pg2U7
 
 
                                                  
+
+*****
+
+####  rinphon  
+##### 134#       发表于 2021-8-4 16:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节目效果总是在最意想不到的时段爆炸
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  KarlsenIn1877  
+##### 135#       发表于 2021-8-4 16:49
+
+
+艾白进小清华咯 happy
+
+
+                                                 

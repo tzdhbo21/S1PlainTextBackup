@@ -12813,3 +12813,44 @@ QQ图片20210803202554.jpg
 
 
                                                  
+
+*****
+
+####  FCCHua  
+##### 5557#       发表于 2021-8-4 15:31
+
+
+ 本帖最后由 FCCHua 于 2021-8-4 16:21 编辑 
+
+圭利又在谜语人，希望是有趣的企划<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+打扰了，待机窗显示是apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 5558#       发表于 2021-8-4 15:46
+
+
+上次谜语就是虹apex，这次我猜还是apex
+
+
+*****
+
+####  十四洲  
+##### 5559#       发表于 2021-8-4 15:57
+
+
+vr编外岁子哥能不能参加啊
+
+
+*****
+
+####  qq845629713  
+##### 5560#       发表于 2021-8-4 16:04
+
+
+补了下录像，椎名这个小山转生感觉U18机会不大，到不了500能力点就很难，
+
+
+                                                 

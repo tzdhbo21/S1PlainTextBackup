@@ -977,3 +977,103 @@ MD看着你们我就感觉，全世界是不是只有我故意没去看剧透了
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 81068#       发表于 2021-8-4 15:35
+
+
+ 本帖最后由 zakki 于 2021-8-4 15:36 编辑 
+
+你菌皇放话了，看来明年2.0就能完结了，蘑菇现在也彻底从fgo上抽身了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81069#       发表于 2021-8-4 15:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">话说隔壁有没有120的陈宫？ 验证信仰的时刻来了
+
+
+*****
+
+####  zakki  
+##### 81070#       发表于 2021-8-4 15:43
+
+
+隔壁nga还是和之前一样，提关服，主线完结这种词，一点就炸<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 81071#       发表于 2021-8-4 16:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天四星术和二星枪。术没啥好说。至于2星枪估计是嘲讽那个。嘲讽都是时代的眼泪了。
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 81072#       发表于 2021-8-4 16:25
+
+
+<img src="https://img.saraba1st.com/forum/202108/04/162039u6u8183zzvuru5vn.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210804162030.png</strong> (10.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-4 16:20 上传
+
+
+这说法怎么感觉要八周年了，九周年说不定都有机会
+
+躺着赚钱舍不得关服是吧
+
+
+*****
+
+####  alucardcz  
+##### 81073#       发表于 2021-8-4 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52236548&amp;ptid=1085254" target="_blank">RiesbyfeAtlasia 发表于 2021-8-4 16:25</a>
+
+这说法怎么感觉要八周年了，九周年说不定都有机会
+
+躺着赚钱舍不得关服是吧 ...</blockquote>
+这不是标准的官腔吗 等于啥都没说
+
+
+6.5是不是可以直接宣判菌哥哥辣鸡了
+
+
+*****
+
+####  khxooo  
+##### 81074#       发表于 2021-8-4 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52236548&amp;ptid=1085254" target="_blank">RiesbyfeAtlasia 发表于 2021-8-4 16:25</a>
+这说法怎么感觉要八周年了，九周年说不定都有机会
+
+躺着赚钱舍不得关服是吧 ...</blockquote>
+看样子估计就是靠各种活动吊着，等差不多赚够了就关服了
+
+
+*****
+
+####  qixinno2  
+##### 81075#       发表于 2021-8-4 16:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">离爆炸还有半小时
+
+
+                                                 
