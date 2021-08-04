@@ -7965,3 +7965,57 @@ syl: https://youtu.be/khUoXynXrvc
 
 
                                                  
+
+*****
+
+####  梅斯之围  
+##### 6648#       发表于 2021-8-4 20:18
+
+
+今晚是磕了药吗
+
+
+*****
+
+####  绿色子龙  
+##### 6649#       发表于 2021-8-4 20:26
+
+
+ 本帖最后由 绿色子龙 于 2021-8-4 20:31 编辑 
+
+没想到还有人记得夸的szb，居然还是rank第一
+
+其实我开始看也是因为当时szb十胜耐久，然后无法到达的10连胜
+
+
+真是秃子
+
+<img src="https://img.saraba1st.com/forum/202108/04/203022x1bh4yzv48qq3868.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210804202955.png</strong> (138.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-4 20:30 上传
+
+
+*****
+
+####  Scardy  
+##### 6650#       发表于 2021-8-4 20:32
+
+
+这首也太拉胯了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lightsuger  
+##### 6651#       发表于 2021-8-4 20:35
+
+
+萤火虫都唱不来了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+                                                 

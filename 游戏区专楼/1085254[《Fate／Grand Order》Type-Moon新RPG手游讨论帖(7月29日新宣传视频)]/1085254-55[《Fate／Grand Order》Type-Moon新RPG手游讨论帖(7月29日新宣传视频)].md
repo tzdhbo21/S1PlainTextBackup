@@ -1587,3 +1587,112 @@ CBC26088-C1DA-4465-B840-AE030A175EC6.png
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 81121#       发表于 2021-8-4 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52238951&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-4 19:13</a>
+
+没啊，说的是能让大家一起看结局（指8月4号才开结尾）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">看来真相就是dw纯废物 来不及做  狗屁的大家一起看
+
+
+*****
+
+####  alucardcz  
+##### 81122#       发表于 2021-8-4 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52238905&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-4 19:10</a>
+
+剧情限定四星吧
+
+常驻的话那可厉害了</blockquote>
+确认了  后面4宝友情池出 
+
+
+*****
+
+####  alucardcz  
+##### 81123#       发表于 2021-8-4 19:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不知道剧情长不长今天能不能干掉  抽友情池好麻烦啊（
+
+
+*****
+
+####  qixinno2  
+##### 81124#       发表于 2021-8-4 19:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无敌的卑梅呆被奥伯龙制裁了 这强化解除太恶心了
+
+
+*****
+
+####  angelooo  
+##### 81125#       发表于 2021-8-4 20:24
+
+
+友情池，那慢慢抽好了，我是有良心的骂死他，我只要哈贝喵在我身边就好呜呜呜
+
+
+*****
+
+####  qixinno2  
+##### 81126#       发表于 2021-8-4 20:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">40多W友情点只抽到了一个 算了 等活动池抽三星礼装是看看会不会出了
+
+
+*****
+
+####  alucardcz  
+##### 81127#       发表于 2021-8-4 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52240122&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-4 20:25</a>
+
+40多W友情点只抽到了一个 算了 等活动池抽三星礼装是看看会不会出了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">40多万一个？那不是麻中麻
+
+
+*****
+
+####  qixinno2  
+##### 81128#       发表于 2021-8-4 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52240219&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 20:30</a>
+
+40多万一个？那不是麻中麻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非洲人是这样的 有时候活动三星礼装30W才出一个直接不想抽了
+
+
+*****
+
+####  angelooo  
+##### 81129#       发表于 2021-8-4 20:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52240219&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 20:30</a>
+
+40多万一个？那不是麻中麻</blockquote>
+不要方，我有次友情池抽活动三星礼装，lily出了三个的时候，这破礼装还没满破
+
+
+*****
+
+####  areklose  
+##### 81130#       发表于 2021-8-4 20:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一堆无限池刷来的友情点已经就位
+
+
+                                                 
