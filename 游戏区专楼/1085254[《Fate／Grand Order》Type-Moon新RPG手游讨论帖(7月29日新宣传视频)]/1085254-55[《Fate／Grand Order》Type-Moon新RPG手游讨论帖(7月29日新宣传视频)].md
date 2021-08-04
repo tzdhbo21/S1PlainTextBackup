@@ -1331,3 +1331,259 @@ MD看着你们我就感觉，全世界是不是只有我故意没去看剧透了
 
 
                                                 
+
+*****
+
+####  angelooo  
+##### 81099#       发表于 2021-8-4 17:29
+
+
+伪装者的职介克制已出，目前就增加了一个从者图鉴格子，基本就是哈贝喵，奥伯龙没有落地的话那么伪装者也不像兽那样是剧情职介（不然会多一个像兽那样的图鉴）
+
+可以打AE2倍的职介终于有了（夹馍不算）
+
+
+*****
+
+####  zore  
+##### 81100#       发表于 2021-8-4 17:34
+
+
+艹怎么一面几个怪的?<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">光炮狂喜
+
+
+*****
+
+####  白夜羽  
+##### 81101#       发表于 2021-8-4 17:38
+
+
+哇，煤老板跑过来了，能顺道跟剧情一起给个强化吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+一面四五六怪真是好文明，蓝绿光炮狂喜，建议下次无限池也改成一面六怪，希望dw不要不知好歹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81102#       发表于 2021-8-4 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237697&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-8-4 17:38</a>
+
+哇，煤老板跑过来了，能顺道跟剧情一起给个强化吗
+
+一面四五六怪真是好文明，蓝绿光炮狂喜，建议下次 ...</blockquote>
+有点奇怪，np好像回收还是算3个怪的，我用村正打下去都没回满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 81103#       发表于 2021-8-4 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237697&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-8-4 17:38</a>
+哇，煤老板跑过来了，能顺道跟剧情一起给个强化吗
+一面四五六怪真是好文明，蓝绿光炮狂喜，建议下次 ...</blockquote>
+DW：可以，单只怪掉落砍半<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  白夜羽  
+##### 81104#       发表于 2021-8-4 17:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237723&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-4 17:40</a>
+有点奇怪，np好像回收还是算3个怪的，我用村正打下去都没回满</blockquote>
+这么骚的吗？打六个怪只按打三个回np，我觉得dw这帮废物可能妹这技术力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白夜羽  
+##### 81105#       发表于 2021-8-4 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52237766&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-4 17:43</a>
+DW：可以，单只怪掉落砍半
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+好活，建议你明天就去dw应聘叶2的接班人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81106#       发表于 2021-8-4 17:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">保卫迦勒底了
+
+战斗中船的耐久无了直接gg
+
+
+*****
+
+####  不垃圾屌丝  
+##### 81107#       发表于 2021-8-4 18:00
+
+
+FLAG回收好快啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  angelooo  
+##### 81108#       发表于 2021-8-4 18:13
+
+
+奥伯龙落地的话建议也学水杀来个真名融解抽卡特效，尺子一转伪装者太刺激了
+
+
+*****
+
+####  シャル  
+##### 81109#       发表于 2021-8-4 18:30
+
+
+ 本帖最后由 シャル 于 2021-8-4 18:31 编辑 
+
+一面六个咋搞啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+CBC26088-C1DA-4465-B840-AE030A175EC6.png
+(1.24 MB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-4 18:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/04/183146xz7erer330jaej0g.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81110#       发表于 2021-8-4 18:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光炮就完事了
+
+估计就让你玩玩,后续不一定实装
+
+
+*****
+
+####  シャル  
+##### 81111#       发表于 2021-8-4 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52238371&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-4 18:31</a>
+
+光炮就完事了
+
+估计就让你玩玩,后续不一定实装</blockquote>
+以后高难TM上6个敌方从者<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 81112#       发表于 2021-8-4 18:40
+
+
+2021年的怪味士剑糖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81113#       发表于 2021-8-4 18:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">还真是一群工具人......终章一开一个个都迫不及待的领便当
+
+
+*****
+
+####  zore  
+##### 81114#       发表于 2021-8-4 18:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">临死都不忘一手恶心 吗的
+
+
+*****
+
+####  alucardcz  
+##### 81115#       发表于 2021-8-4 19:02
+
+
+看到有人通关了。。送哈呗喵 但是就一包？
+
+
+话说不是说有什么全服一起打的东西吗。。咋回事<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 81116#       发表于 2021-8-4 19:03
+
+
+蘑菇你老实告诉我当初做村正人设的时候是不是就想到这一出了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shinjiwy  
+##### 81117#       发表于 2021-8-4 19:07
+
+
+80自充光炮 70他充 从者要开始换代了？
+
+
+*****
+
+####  zore  
+##### 81118#       发表于 2021-8-4 19:10
+
+
+剧情限定四星吧
+
+常驻的话那可厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81119#       发表于 2021-8-4 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52238761&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-4 19:02</a>
+
+看到有人通关了。。送哈呗喵 但是就一包？
+
+
+话说不是说有什么全服一起打的东西吗。。咋回事 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没啊，说的是能让大家一起看结局（指8月4号才开结尾）
+
+
+*****
+
+####  areklose  
+##### 81120#       发表于 2021-8-4 19:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">希望这个月就出一个奥伯龙。
+
+
+                                                 
