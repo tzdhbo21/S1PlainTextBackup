@@ -2112,3 +2112,105 @@ MD刚才清free不小心点到调查笔记
 
 
                                                 
+
+*****
+
+####  zore  
+##### 81162#       发表于 2021-8-4 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52242449&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-4 23:27</a>
+
+咕朗台每次都在N倍大失败的时候才搓丸子，当然，多数时候0XN还是等于0</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我只是觉得吃来吃去好麻烦,至今只有一张百级和无数20级左右的
+
+
+*****
+
+####  rooarr  
+##### 81163#       发表于 2021-8-4 23:36
+
+
+ 本帖最后由 rooarr 于 2021-8-4 23:38 编辑 
+
+累计90w第3只<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+92w的时候突然抽到第4只<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81164#       发表于 2021-8-4 23:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">去看了一眼隔壁被骂的最厉害的果然是纯爱战士贝先生.....这群人最关注的点永远在这里
+
+
+*****
+
+####  exiaexa  
+##### 81165#       发表于 2021-8-4 23:49
+
+
+我好酸啊
+
+50w一只没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 81166#       发表于 2021-8-4 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52242607&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-4 23:46</a>
+
+去看了一眼隔壁被骂的最厉害的果然是纯爱战士贝先生.....这群人最关注的点永远在这里 ...</blockquote>
+我喷他是觉得这人的塑造就这？这种扭曲爱在这破游戏里一抓一大把我还以为会有什么了不起的新玩意
+
+
+*****
+
+####  khxooo  
+##### 81167#       发表于 2021-8-5 00:00
+
+
+不过咕哒也算是厉害了，肉身进阿亚隆也是没几个了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81168#       发表于 2021-8-5 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52242668&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-4 23:54</a>
+
+我喷他是觉得这人的塑造就这？这种扭曲爱在这破游戏里一抓一大把我还以为会有什么了不起的新玩意 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">LOW是一方面....可你应该知道这群人的喷点不在这
+
+
+*****
+
+####  rooarr  
+##### 81169#       发表于 2021-8-5 00:23
+
+
+哈贝猫6加成刷qp极本有点困难，满破黑杯5加成简直闭着眼睛过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81170#       发表于 2021-8-5 00:29
+
+
+吐了，更新记录，100w一只没有，疯狂出Lily
+
+告辞
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
