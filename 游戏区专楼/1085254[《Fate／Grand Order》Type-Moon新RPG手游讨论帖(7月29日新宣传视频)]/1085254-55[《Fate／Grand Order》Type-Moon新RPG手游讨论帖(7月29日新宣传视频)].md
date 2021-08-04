@@ -812,3 +812,76 @@ MD看着你们我就感觉，全世界是不是只有我故意没去看剧透了
 
 
                                                  
+
+*****
+
+####  snakeling  
+##### 81055#       发表于 2021-8-4 11:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说究极完美体的仇凛是不是你游永不贬值的最完美打手了？唯一缺的只是补刀能力而已。
+
+
+*****
+
+####  exiaexa  
+##### 81056#       发表于 2021-8-4 12:03
+
+
+ 本帖最后由 exiaexa 于 2021-8-4 12:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52231423&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-8-4 10:31</a>
+
+仇凛和杀狐的契合度很高吗？（我没仇凛，脑测是觉得不太行）</blockquote>
+脑测一下就知道了啊，和蓝卡比
+
+双狐狸带满破宝石翁，双Caber带50np啥玩意儿都行
+
+
+不触发特攻的话：双狐狸比双Caber
+
+关底少了一个幻想强化、两个呆毛的加攻、50np礼装的特效
+
+关底多了一个自己的领导力、自己的宝具威力UP
+
+相当于少了一个幻想强化，一个领导力
+
+
+触发特攻能反超，但是最大的问题是，如果能触发特攻，你为什么不用摩根干爆
+
+都不算人类特攻，单是人属性摩根就能触发100%的技能特攻和150%-200%倍率的宝具特攻
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81057#       发表于 2021-8-4 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52232642&amp;ptid=1085254" target="_blank">snakeling 发表于 2021-8-4 11:53</a>
+
+话说究极完美体的仇凛是不是你游永不贬值的最完美打手了？唯一缺的只是补刀能力而已。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说足够泛用而已吧 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81058#       发表于 2021-8-4 12:11
+
+
+仇凛这个还是得看下次无限池得表现吧 反正我2宝百级仇凛平时free本和各种开荒好用 但90+本基本就没上过场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81059#       发表于 2021-8-4 12:27
+
+
+仇凛最大的问题不是伤害不够吗 现在你用狐狸还少了领导力那伤害更不够了（5宝金狗圣杯拉满的当我没说）<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+现在除非打外星人不是被王姐碾压吗
+
+
+                                                 

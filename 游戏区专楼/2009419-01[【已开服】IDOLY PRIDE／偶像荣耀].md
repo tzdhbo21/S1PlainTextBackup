@@ -5594,3 +5594,17 @@ iPad Pro了性能应该没关系，就是拍好了用胶卷实写时经常失败
 
 
                                                  
+
+*****
+
+####  澜沫  
+##### 401#       发表于 2021-8-4 11:39
+
+
+啊跟活跃有关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
+难怪这些天只有四个相片
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

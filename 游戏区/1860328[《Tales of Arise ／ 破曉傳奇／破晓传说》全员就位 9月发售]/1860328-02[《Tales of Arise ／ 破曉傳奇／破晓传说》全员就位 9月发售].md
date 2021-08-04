@@ -9092,3 +9092,91 @@ DLC种类，传说一直很足<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+*****
+
+####  qiyu1234  
+##### 2169#       发表于 2021-8-4 11:37
+
+
+农场这边也有相关的特殊服装
+
+也许跟料理那边的厨师服一样，一定流程后应该是都可以日常换装的
+
+
+<img src="https://img.saraba1st.com/forum/202108/04/113449h6r06fz1r60y771g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (542.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-4 11:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/04/113449arrczxejxjr3xg4r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (241.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-4 11:34 上传
+
+
+希侬控制火元素的力量似乎是游戏开始后偶然习得？
+
+
+<img src="https://img.saraba1st.com/forum/202108/04/113450b9yqdqqxs0ncccqq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (261.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-4 11:34 上传
+
+
+*****
+
+####  qiyu1234  
+##### 2170#       发表于 2021-8-4 11:51
+
+
+另外这盾姐的人气真的是惊人的高，可能6人组里最高的了
+
+欧美那边喜欢的很多，不少是看到人设就喜欢上了
+
+加上上周生放送等系统宣传基本都是核心人物
+
+可能要成为本作人气王
+
+
+*****
+
+####  zero12  
+##### 2171#       发表于 2021-8-4 11:57
+
+
+<blockquote>qiyu1234 发表于 2021-8-4 11:37
+农场这边也有相关的特殊服装
+
+也许跟料理那边的厨师服一样，一定流程后应该是都可以日常换装的
+
+</blockquote>
+下面是又有新动画片段了吗？
+
+
+*****
+
+####  qiyu1234  
+##### 2172#       发表于 2021-8-4 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52232695&amp;ptid=1860328" target="_blank">zero12 发表于 2021-8-4 11:57</a>
+
+下面是又有新动画片段了吗？</blockquote>
+英文官推的一张截图而已
+
+
+                                                 
