@@ -1828,3 +1828,55 @@ yysy麻的猫叫我听着像羊叫
 
 
                                                  
+
+*****
+
+####  路人庚  
+##### 162#       发表于 2021-8-5 12:00
+
+
+实不相瞒，我也想到了熊里藏人，不过我没有说出来
+
+
+另外由于棒棒糖也算是〇暗示的一种，所以我还想到了…
+
+
+*****
+
+####  T_Hb  
+##### 163#       发表于 2021-8-5 12:01
+
+
+太邪恶了，这么可爱的插画
+
+
+*****
+
+####  clvan_  
+##### 164#       发表于 2021-8-5 12:20
+
+
+这熊大小，藏人也只能藏个正太吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 165#       发表于 2021-8-5 12:32
+
+
+或者是找不到野男人，只能在小熊上装道具的可怜小麻
+
+
+*****
+
+####  Mr.shelter  
+##### 166#       发表于 2021-8-5 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246957&amp;ptid=2018830" target="_blank">clvan_ 发表于 2021-8-5 12:20</a>
+这熊大小，藏人也只能藏个正太吧</blockquote>
+当然是藏女粉啦<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+                                                 

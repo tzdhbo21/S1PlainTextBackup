@@ -3025,3 +3025,404 @@ nga那边按着zzzq走就能高赞，所以一般不用去看，因为用膝盖�
 
 
                                                  
+
+*****
+
+####  AbigailWilliams  
+##### 81228#       发表于 2021-8-5 11:31
+
+
+顺便爆论一下，吹字数的我可以推荐几本国内网文奇书，千万字未完结管饱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  当光停止  
+##### 81229#       发表于 2021-8-5 11:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245986&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-8-5 11:15</a>
+
+某种意义上来说……角神可能挺惦记她的（
+
+
+你看人家角神拒绝妖精拒绝到尸体都堆不到它身上，却会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个想法，不一定对。跟平景清类似。
+
+你恨源氏/精灵，我也恨源氏/精灵，那咱么就有了成为“同一个概念”的基础。
+
+
+*****
+
+####  alucardcz  
+##### 81230#       发表于 2021-8-5 11:35
+
+
+我看到一贴说什么　才过去２４小时不到　这么大的文本量你真的认真读完了什么云云的
+
+
+太弱智了...这下算上战斗几小时顶天了..这云玩家是不是连分上中下都不知道<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81231#       发表于 2021-8-5 11:37
+
+
+MD你们黑这么狠，到时候屎黄色又出来一贴视奸的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81232#       发表于 2021-8-5 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246259&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-8-5 11:31</a>
+
+顺便爆论一下，吹字数的我可以推荐几本国内网文奇书，千万字未完结管饱 ...</blockquote>
+1.9M的文本量大家都看完了吗
+
+还是日语
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这弱智评论居然能有１００多赞　笑爆了..　云玩家连分上中下都不知道这也不太合理啊
+
+
+*****
+
+####  exiaexa  
+##### 81233#       发表于 2021-8-5 11:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246344&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 11:35</a>
+
+我看到一贴说什么　才过去２４小时不到　这么大的文本量你真的认真读完了什么云云的
+
+
+太弱智了...这下算上 ...</blockquote>
+这就是我聊日服不去屎黄色的原因了
+
+
+我看了一下昨晚的发帖，我十点零几分就打完了，中间还因为黑狗莫名其妙的机制卡了一会儿
+
+哪怕一点没跳撑死了再加一小时
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81234#       发表于 2021-8-5 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246365&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 11:37</a>
+
+MD你们黑这么狠，到时候屎黄色又出来一贴视奸的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">上次那贴我都没看到就没了　错过了一个亿　气死了
+
+
+*****
+
+####  sosgame67  
+##### 81235#       发表于 2021-8-5 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246398&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 11:39</a>
+
+这就是我聊日服不去屎黄色的原因了
+
+
+我看了一下昨晚的发帖，我十点零几分就打完了，中间还因为黑狗莫名其 ...</blockquote>
+放心肯定有nga细作潜伏本楼高强度视奸的，至于什么时候开anti来清算屎黄色论坛就看他们什么时候能统一口风了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 81236#       发表于 2021-8-5 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245827&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-5 11:03</a>
+
+我当时也觉得放任贝屑接近妖崔特别离奇，现在想想如果要让剧情合理只能认为摩根其实早就已经自暴自弃了， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">她要是最后不提那句“为了你，我愿意献上自己的梦（不列颠）”那还能这么解释，都这么写了还这样摆烂那不就是纯自相矛盾？反正我是感觉贝屑这结局的草率，直接连带王姐人设崩了
+
+
+*****
+
+####  里村紅葉  
+##### 81237#       发表于 2021-8-5 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245986&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-8-5 11:15</a>
+
+某种意义上来说……角神可能挺惦记她的（
+
+
+你看人家角神拒绝妖精拒绝到尸体都堆不到它身上，却会 ...</blockquote>
+角神当年不是也被妖精坑死的吗，怕是一读妖崔的记忆后彻底憋不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81238#       发表于 2021-8-5 11:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246442&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 11:42</a>
+
+上次那贴我都没看到就没了　错过了一个亿　气死了</blockquote>
+早起的鸟儿有……
+
+算了有个锤子，我也只是刚扫完连回帖都没发出去就隐藏了，亏炸
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 81239#       发表于 2021-8-5 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246517&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-5 11:46</a>
+
+角神当年不是也被妖精坑死的吗，怕是一读妖崔的记忆后彻底憋不住了 ...</blockquote>
+兽神早被毒死1万四千年了，魂飞魄散
+
+
+打得不过就是一具行走的尸体
+
+
+*****
+
+####  alucardcz  
+##### 81240#       发表于 2021-8-5 11:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">去隔壁翻了几贴　还真有堆人只要看到说剧情不好的就扣上云玩家的帽子　　还什么时间那么短　真的能自己通关的人没几个
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这泥马　自己是个文盲不懂日语　所以全世界都不懂日语吗　
+
+
+
+
+*****
+
+####  khxooo  
+##### 81241#       发表于 2021-8-5 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246365&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 11:37</a>
+MD你们黑这么狠，到时候屎黄色又出来一贴视奸的</blockquote>
+不怕，那里只要提及这里分分钟就锁帖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我们这里可以毫无顾忌的批评
+
+
+*****
+
+####  黑上シグマ  
+##### 81242#       发表于 2021-8-5 11:56
+
+
+<blockquote>引用第81239楼alucardcz于2021-08-05 11:54发表的  :
+
+去隔壁翻了几贴　还真有堆人只要看到说剧情不好的就扣上云玩家的帽子　　还什么时间那么短　真的能自己通关......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快去把前几天蘑菇博客里那句“戴冠式几个小时就能通”的话贴过去打他们脸
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  cckuku  
+##### 81243#       发表于 2021-8-5 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246613&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 11:54</a>
+ 去隔壁翻了几贴　还真有堆人只要看到说剧情不好的就扣上云玩家的帽子　　还什么时间那么短　真的能 ...</blockquote>
+但是只要你夸剧情好那你就是日语n1速通剧情的大神<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81244#       发表于 2021-8-5 11:57
+
+
+翻页
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  alucardcz  
+##### 81245#       发表于 2021-8-5 11:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246639&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-5 11:56</a>
+
+快去把前几天蘑菇博客里那句“戴冠式几个小时就能通”的话贴过去打他们脸
+
+
+----发送自 STAGE1 App  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">萌新只看戏不参战
+
+
+*****
+
+####  シャル  
+##### 81246#       发表于 2021-8-5 11:57
+
+
+福尔摩斯太可疑了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+不会也职介溶解变成其他玩意吧
+
+
+*****
+
+####  黑上シグマ  
+##### 81247#       发表于 2021-8-5 11:59
+
+
+<blockquote>引用第81242楼cckuku于2021-08-05 11:56发表的  :
+
+引用:alucardcz 发表于 2021-8-5 11:54 去隔壁翻了几贴　还真有堆人只要看到说......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我能甩出一张N1满分证书来，是不是就可以喷了？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  khxooo  
+##### 81248#       发表于 2021-8-5 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246683&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-5 11:59</a>
+那我能甩出一张N1满分证书来，是不是就可以喷了？
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+你有n1证书，你仔细看完了吗，你完全理解了吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81249#       发表于 2021-8-5 12:06
+
+
+扣帽子其实都是小问题，主要是现在这个吹就吹得很迷惑
+
+我们一般评价一个故事无非就角色丰满、逻辑清晰、高潮迭起、起承转合优秀
+
+
+但是现在到底要怎么吹
+
+大部分角色都拉了；
+
+逻辑从菌类把妖精定性成没救以后就蒸发了；
+
+高潮演出倒是爽到，但是流程跟开火车一样；
+
+起承转合……我就想知道前面疯狂说什么铺垫什么描写仔细的人现在是什么心情；
+
+
+吹爆的帖子都让你看得云里雾里，反正就是个吹
+
+再问就是不方便剧透，你哪怕说吹爆奥伯龙/C呆都站得住脚啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81250#       发表于 2021-8-5 12:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246683&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-5 11:59</a>
+
+那我能甩出一张N1满分证书来，是不是就可以喷了？
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不太行　　萌新已经看到下面有人喷你懂日语怎么了?　后面这几段对阅读理解能力要求极高　
+
+
+*****
+
+####  rollingusagi  
+##### 81251#       发表于 2021-8-5 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246787&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 12:06</a>
+
+扣帽子其实都是小问题，主要是现在这个吹就吹得很迷惑
+
+我们一般评价一个故事无非就角色丰满、逻辑清晰、高 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2.6能吹的塑造也就奥伯龙和c呆了，然后演出很不错，这么看怎么感觉就一252加强版呢，252能吹的也是演出，能吹的塑造就队长和凯尼斯
+
+
+*****
+
+####  otsu  
+##### 81252#       发表于 2021-8-5 12:14
+
+
+我就在45ch吐槽了一句已经20来个点赞了
+所以nga微博的菌孝子在那里吹太君都喜欢2.6什么的我就想笑
+
+
+*****
+
+####  里村紅葉  
+##### 81253#       发表于 2021-8-5 12:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246660&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-5 11:57</a>
+福尔摩斯太可疑了
+
+不会也职介溶解变成其他玩意吧</blockquote>
+不是很早就说他着装跟外星人卡背很像吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  静静的古墓  
+##### 81254#       发表于 2021-8-5 12:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245696&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-5 10:55</a>
+
+妖崔属实惨，贝屑最后连提都没提她，真就是把她当工具人，然后妖兰纯被屑若拉当工具人。三妖精骑 ...</blockquote>
+异闻带摩根就是我拳头大我有理的莽妇啊，
+
+放任贝追求妖崔也好，放任迦勒底和c呆满地图乱窜也好，
+
+就是单纯以为自己在这个异闻带无敌，
+
+什么局面都兜得住而大意，
+
+看她拉胯到底的情报工作就可以知道这人的工作作风。
+
+
+*****
+
+####  alucardcz  
+##### 81255#       发表于 2021-8-5 12:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我去隔壁回了贴说３－４小时就打完了　然后有个人回了我一句"然而B站烤肉的剧情视频，截止到29节3/4已经有六个半小时了，是我看错了还是？"　　
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这蠢的我都不想回了.云玩家真的是没救了
+
+
+                                                
