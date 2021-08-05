@@ -18357,3 +18357,46 @@ violet<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" refe
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1186#       发表于 2021-8-5 09:38
+
+
+<img src="https://img.saraba1st.com/forum/202108/05/093740g54e0vv2ow6ap10s.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (47.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-5 09:37 上传
+
+
+520是生日
+
+913是出道
+
+
+*****
+
+####  wiig  
+##### 1187#       发表于 2021-8-5 09:43
+
+
+403 Proverbs 10: 12
+
+520 Job 23:10
+
+913 Matthew 11: 28
+
+1016 1 Corinthians 13: 13
+
+1129 1 Timothy 6: 7
+[https://www.biblegateway.com/passage/?search=1%20Timothy%206%3A7&amp;version=NIV](https://www.biblegateway.com/passage/?search=1%20Timothy%206%3A7&amp;version=NIV)
+
+出处都是圣经 那前面的数字又有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+                                                 

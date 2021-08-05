@@ -2624,3 +2624,210 @@ c呆前头卖一波士剑后头给你来一手和喜欢的人在街上逛街<img
 
 
                                                  
+
+*****
+
+####  areklose  
+##### 81199#       发表于 2021-8-5 09:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">这free本材料掉率真的上升了吗。快点来活动。要缺结晶了。那要命的被动技能竟然也要吃结晶。
+
+
+*****
+
+####  cckuku  
+##### 81200#       发表于 2021-8-5 09:23
+
+
+所以说妖兰这ml卖的一点都不走心，前脚妖兰对欧若拉告白我爱你，后脚欧若拉临死时独白，祝福妖兰一直高飞，这剧情给百合豚看都磕拉了。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+然后中间就没了，直接抽出来就是ml了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你最起码中间给妖兰咕哒写点铺垫呢？真就全靠玩家自己脑补？
+
+
+*****
+
+####  angelooo  
+##### 81201#       发表于 2021-8-5 09:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52244402&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-5 09:14</a>
+
+个人感觉奥若拉和妖兰这对写得还是不错的，很久没见奥若拉这么屑的反妖兰无下限舔奥若拉也不是不能理解啦 ...</blockquote>
+是你，林仙儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 81202#       发表于 2021-8-5 09:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总体感觉不怎么样，属于九折水平，不过要恰饭的嘛
+
+
+*****
+
+####  exiaexa  
+##### 81203#       发表于 2021-8-5 09:58
+
+
+我突然想起来，这奥伯龙明明写的很好，但是对整个2.6是不是……屁用没有
+
+感觉就跟临时塞进来的一样？
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+前期当了个引路人，然后开始掉线之旅，最后啥都打完了他出来说不行你还得打我
+
+因为你不打掉兽神我出不来，就感觉好像把他拿掉这2.6故事也没变化，单独拿出去做个活动也不是不可以
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 81204#       发表于 2021-8-5 10:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52244870&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 09:58</a>
+
+我突然想起来，这奥伯龙明明写的很好，但是对整个2.6是不是……屁用没有
+
+感觉就跟临时塞进来的一样？
+
+[f:11 ...</blockquote>
+公款追星的事……那能叫事吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  久井路路  
+##### 81205#       发表于 2021-8-5 10:06
+
+
+说来，别人都好说，通关礼装要是咕哒画的“理想中的异闻带”的话，他把妖崔也画上去是怎么个意思（
+
+
+他既不知道妖崔有啥过去，也没看见她被贝利尔折磨得手脚腐烂动弹不得的样子，更没看见摩根在她眼前被群殴、她自己跳坑的样子，咕哒视角的妖崔就是个自大愉悦杀人狂，偷摩根的宝贝被骂结果被软禁，然后这个人的存在就直接消失了（
+
+
+妖崔？真不熟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 81206#       发表于 2021-8-5 10:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243314&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-5 02:08</a>
+
+通了.....所以妖崔的3破还真没在主线里出现过啊....还有杀死马头的是谁也没说.....冒充梅林教C呆魔术的又是 ...</blockquote>
+教术呆魔术的是奥伯龙啊
+
+
+术呆就是奥伯龙心里的泰坦尼娅呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 81207#       发表于 2021-8-5 10:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正妖兰这ml卖的属实不行，主线里和咕哒基本没交集不说，羁绊礼装还惦记着那屑若拉，然后语音一转直球谄媚就想让我磕？当玩家是傻子吗？还不如妖高妖崔呢，一个愿意给你做饭一个把最重要的鞋子送你，这不比妖兰这两头跳的强
+
+
+*****
+
+####  miro112233  
+##### 81208#       发表于 2021-8-5 10:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52244870&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 09:58</a>
+我突然想起来，这奥伯龙明明写的很好，但是对整个2.6是不是……屁用没有
+
+感觉就跟临时塞进来的一样？
+
+[f:11 ...</blockquote>
+建议看菌类最新的fami通的访谈，19年的大纲是打倒摩根为止，奥伯龙确实是约到羽海野老师之后后加的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  シャル  
+##### 81209#       发表于 2021-8-5 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243962&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-8-5 08:24</a>
+
+帕西瓦尔：我希望你可以不要讨厌这个世界，这个世界还是美丽的
+
+
+看在帕西瓦尔本人还挺高洁的份上我给他个 ...</blockquote>
+马克，我的马克啊，那么好的妖精和异闻带一起没了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+真的，妖精里最有人情味的妖精了
+
+
+*****
+
+####  qixinno2  
+##### 81210#       发表于 2021-8-5 10:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不懂日文剧情全跳的我根本不懂你们的痛苦
+
+
+
+
+*****
+
+####  exiaexa  
+##### 81211#       发表于 2021-8-5 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245105&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-8-5 10:17</a>
+
+建议看菌类最新的fami通的访谈，19年的大纲是打倒摩根为止，奥伯龙确实是约到羽海野老师之后后加的[f:067 ...</blockquote>
+艹，我这就去看
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81212#       发表于 2021-8-5 10:25
+
+
+翻页
+
+
+*****
+
+####  angelooo  
+##### 81213#       发表于 2021-8-5 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245081&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-5 10:15</a>
+
+反正妖兰这ml卖的属实不行，主线里和咕哒基本没交集不说，羁绊礼装还惦记着那屑若拉，然后语音一转 ...</blockquote>
+所以我只馋她身子，真是白瞎那么优秀的卡面
+
+
+*****
+
+####  alucardcz  
+##### 81214#       发表于 2021-8-5 10:35
+
+
+话说摩根还真就这样凉了。。没有任何后手。。。
+
+
+最惨的异闻带王了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

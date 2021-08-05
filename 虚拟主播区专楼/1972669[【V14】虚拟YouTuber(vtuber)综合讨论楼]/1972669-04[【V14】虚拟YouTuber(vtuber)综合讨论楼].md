@@ -13008,3 +13008,34 @@ Life Like a live!2（えるすりー２）！
 
 
                                                  
+
+*****
+
+####  Suny08  
+##### 5571#       发表于 2021-8-5 09:19
+
+
+<img src="https://img.saraba1st.com/forum/202108/05/091649w4m3ms6mzv34yry3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E87E568E-C534-4549-875C-942566AAC530.jpeg</strong> (50.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-5 09:16 上传
+
+
+还有一年，我看西西棒球的唯一看点就是想看看这个怪物最终能变成什么样了，另外我自己的三年档的投手
+
+
+<img src="https://img.saraba1st.com/forum/202108/05/091833el4rptc4tttpuuhy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1978748B-42AA-46D5-959E-DCDE2116BEBB.jpeg</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2021-8-5 09:18 上传
+
+
+                                                 
