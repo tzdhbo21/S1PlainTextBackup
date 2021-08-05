@@ -4019,3 +4019,206 @@ appmedia直接写了以灵脉石前提作战，攻略班根本集体放弃治疗
 
 
                                                  
+
+*****
+
+####  areklose  
+##### 81301#       发表于 2021-8-5 15:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过真6月，7月，8月。三个月除了2.6就一个复刻无限池子的话。说明DW是多么废物
+
+
+*****
+
+####  alucardcz  
+##### 81302#       发表于 2021-8-5 15:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52249281&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-5 15:16</a>
+
+这破片还要出平行世界电影版，惊不惊喜意不意外？
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不意外　因为这事我知道
+
+
+*****
+
+####  黑上シグマ  
+##### 81303#       发表于 2021-8-5 15:26
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 81304#       发表于 2021-8-5 15:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">３宝哈被喵冲钱本居然回不满ｎｐ
+
+
+*****
+
+####  sk86  
+##### 81305#       发表于 2021-8-5 15:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248960&amp;ptid=1085254" target="_blank">areklose 发表于 2021-08-05 14:54:57</a>
+我们明显是从7月开始算2个月。我倒是想知道为啥你会从8月开始算起。。</blockquote>我一直觉得剧情是主体，活动是添头。所以我算2.6.3是八月的一个活动。看来是只有我这么响了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  eyeego  
+##### 81306#       发表于 2021-8-5 15:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52249481&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 15:31</a>
+３宝哈被喵冲钱本居然回不满ｎｐ</blockquote>
+事到如今只能自爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81307#       发表于 2021-8-5 15:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52249481&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 15:31</a>
+
+３宝哈被喵冲钱本居然回不满ｎｐ</blockquote>
+这时候我就要给你推荐昨天NGA看到的，快乐无良套路了
+
+冲钱本就原地自爆，冲其他本你可以两个哈呗喵一起自爆，瞬间换两个人
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81308#       发表于 2021-8-5 15:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52249716&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 15:51</a>
+
+这时候我就要给你推荐昨天NGA看到的，快乐无良套路了
+
+冲钱本就原地自爆，冲其他本你可以两个哈呗喵一起自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这时间太长了　不如我直接宝具３连啊
+
+
+*****
+
+####  森兰丸  
+##### 81309#       发表于 2021-8-5 15:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">其实我觉得2.6最大的败笔还真就是奥罗拉这个无脑母猪....典型的一个人拉底了整个作品的观感
+
+
+那群妖精虽然愚蠢无可救药但又不是什么真的弱智.....几千年下来除了妖兰和奥伯龙之外没人发现奥罗拉的本性就离谱.....妖兰都说了奥罗拉如果在泛人类的世界那是分分钟钟被识破本性....哪会这样惯着她
+
+
+说到这又要把摩根拉出来鞭尸一次突显摩根的无能了....你救世主时代自己一手创建的圆桌是怎么死的自己心里没点逼数么....不是还有能看穿妖精内心的妖精眼么....也就这样放任奥罗拉胡作非为了2000年吗
+
+
+好吧就算奥罗拉真对妖精有什么天生降智DEBUFF的话......那个冒充妖精的人类怎么说.....这位的人设总是擅于玩弄权谋心计的人类了吧....结果都和奥罗拉合谋把摩根干掉了...直到梅芙死了后才想到奥罗拉是个大脑一片空白的母猪....这是要打妖兰的脸么
+
+
+这样就突出了被这样的奥罗拉弄死的乌瑟.....摩根....梅芙都死的很蠢....而且是被同一种手法弄死了3次....简直蠢的可笑....就用这种手法来推动剧情那观感能好才怪了
+
+
+*****
+
+####  alucardcz  
+##### 81310#       发表于 2021-8-5 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52249818&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-5 15:57</a>
+
+其实我觉得2.6最大的败笔还真就是奥罗拉这个无脑母猪....典型的一个人拉底了整个作品的观感
+
+
+那群妖 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个人类在最后的最后识破了欧若拉很不错了（
+
+
+*****
+
+####  alucardcz  
+##### 81311#       发表于 2021-8-5 16:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ｆｒｅｅ又打完了　　我一点都没感觉到掉率上升　是我太黑吗
+
+
+*****
+
+####  exiaexa  
+##### 81312#       发表于 2021-8-5 16:09
+
+
+ 本帖最后由 exiaexa 于 2021-8-5 16:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52249818&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-5 15:57</a>
+
+其实我觉得2.6最大的败笔还真就是奥罗拉这个无脑母猪....典型的一个人拉底了整个作品的观感
+
+
+那群妖 ...</blockquote>
+欧罗拉这个怎么说呢，我觉得更多的是故事基调的问题导致她出现的，而不是她导致故事走歪了
+
+
+因为菌鸽鸽这个基调一开始就歪了
+
+
+第一个基调是，妖精乡不列颠是一定药丸的。这点梅林也说了，摩根只是延迟了终末的到来，而且她自己不去炼剑也没有别的招，呆毛最后圣枪戳角神也没辙，最后是圣枪魔法转圣剑魔法才破防露出神核的
+
+
+第二个基调是第三部分揭露的，这群妖精就是罪人，而且在文本里没怎么展现过它们跟赎罪有关的内容，说真的不看第三部分谁知道这群逼整出过这么大的事儿。我个人对游戏角色的态度是，不给社会做贡献的傻逼就该拉去做肥皂，但是菌鸽鸽你这直接给别人一个种族全面定性是不是太那啥了点
+
+
+结果就是他在整死这群妖精的事情上根本想到哪儿走到哪儿，反正最后都是要全家齐齐整整，欧罗拉无非就是达成这个目的最快的工具人
+
+
+菌鸽鸽但凡想认真的写妖精乡破局的故事，都整不出这么个角色出来
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81313#       发表于 2021-8-5 16:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248968&amp;ptid=1085254" target="_blank">枪聆弹语 发表于 2021-8-5 14:55</a>
+
+也是，菌菌亲自执笔，还是回到菌菌故土作战，不绝对的忠诚就是否定了FGO的根基，但是某个地方行动也 ...</blockquote>
+:看到有些人说2.6不如1.6和1.7,y1s1,你们是不是对这两章过度美化了,毕竟2.6的文本量远超1.6和1.7,
+
+
+我看到个新贴　文本量无敌论　来了来了他来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81314#       发表于 2021-8-5 16:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250047&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 16:10</a>
+
+:看到有些人说2.6不如1.6和1.7,y1s1,你们是不是对这两章过度美化了,毕竟2.6的文本量远超1.6和1.7,
+
+
+我看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文本量真多就是好的话我推荐去看从零开始
+
+
+                                                 
