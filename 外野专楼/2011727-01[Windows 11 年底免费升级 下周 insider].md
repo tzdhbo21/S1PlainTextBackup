@@ -6019,3 +6019,16 @@ win7党当时也是这么看win10的</blockquote>
 
 
                                                  
+
+*****
+
+####  御坂MKII  
+##### 500#       发表于 2021-8-5 19:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 哪个国产软件和 win 11 犯冲啊
+
+beta channel 是升了之后桌面直接崩，现在在安全模式一个一个删软件
+
+
+                                                 

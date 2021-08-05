@@ -13119,3 +13119,17 @@ ssk这职业哥有点微妙，有机会进夏甲还能再来一轮合宿吧
 
 
                                                  
+
+*****
+
+####  Aureth  
+##### 5578#       发表于 2021-8-5 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250451&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-8-5 16:38</a>
+
+月之一砖试听出了，目前最喜欢部屋とジャングル，就很潮，citypop（大概是吧）味很赞 ...</blockquote>
+作词作曲是著名citypop乐队kirinji兄弟俩的弟弟（13年退出了以后现在哥哥重组了乐队）
+
+
+                                                 

@@ -4980,3 +4980,90 @@ D800AA4D-5AFC-4CB1-A023-26821654B88C.png
 
 
                                                
+
+*****
+
+####  シャル  
+##### 81373#       发表于 2021-8-5 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251881&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-5 18:23</a>
+
+艹 至今没用过 这么夸张么</blockquote>
+赶紧的五宝，推特上最少60万，最大300万就能五宝了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 81374#       发表于 2021-8-5 18:32
+
+
+打完了，别的暂且不提，就感慨一下妖崔真的是爹不亲光娘爱
+
+妖兰待遇最好，剧情上三人中花了最大篇章描写的百合舔狗，战斗上唯一一个引出了新系统的BOSS，通关后还有新灵衣，根本运营亲女儿
+
+妖高次之，剧情上最后意识到不能放这群狗崽种去泛人类史还是让人肃然起敬的，不管怎么说这觉悟确实到位了，战斗上唤出了圆桌里两大看板，有够排面
+
+相比之下，妖崔如果不是祭神突然使出一招吸血，我估计都没人记得她了，而且人家俩都是自身化为灾祸，这位就当了个尸体的挂件，实在太拉了，我本来还期待把毛皮打开后能看到妖崔嵌在正中央，那心里好歹还有点触动，结果真就啥都没有直接一枪崩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81375#       发表于 2021-8-5 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251978&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-5 18:31</a>
+
+赶紧的五宝，推特上最少60万，最大300万就能五宝了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">50多W友情点只抽到了1个 放弃了 随缘
+
+
+*****
+
+####  khxooo  
+##### 81376#       发表于 2021-8-5 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251813&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-5 18:17</a>
+
+巴贝喵这种宝具没问题吧
+
+
+纺织的妖精？？？</blockquote>
+本来的宝具应该是我们剧情用的，但是哈贝喵拿过黑枪，估计就被英灵座给强行改成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 81377#       发表于 2021-8-5 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52252046&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-5 18:39</a>
+
+本来的宝具应该是我们剧情用的，但是哈贝喵拿过黑枪，估计就被英灵座给强行改成这样了，摩根都发 ...</blockquote>
+黑枪连发<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+正常圣杯战争叫出巴贝喵简直无敌啊
+
+
+*****
+
+####  الطائر  
+##### 81378#       发表于 2021-8-5 19:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246660&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-5 11:57</a>
+
+福尔摩斯太可疑了
+
+不会也职介溶解变成其他玩意吧</blockquote>
+           谜 语 人
+
+新职介 Riddler
+
+
+                                                 
