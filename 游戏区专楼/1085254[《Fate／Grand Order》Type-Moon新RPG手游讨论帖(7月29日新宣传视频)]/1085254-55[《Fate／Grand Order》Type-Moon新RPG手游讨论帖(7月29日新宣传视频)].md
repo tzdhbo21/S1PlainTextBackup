@@ -5229,3 +5229,185 @@ dw，我的铁废物，你几时能出个100连的按钮啊<img src="https://sta
 
 
                                                 
+
+*****
+
+####  alucardcz  
+##### 81394#       发表于 2021-8-5 23:43
+
+
+麻了 4宝裁缝 最后一宝抽了100万还没出
+
+
+*****
+
+####  不垃圾屌丝  
+##### 81395#       发表于 2021-8-5 23:45
+
+
+通了，感觉戏里戏外都是被欧若拉这货给毁了，都最后了还要看这货的CG和废话<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+兽神上卑梅呆30回合过了，打完以后觉得耐久到最后一条血时送掉前排让后排上来爆破更好
+最后希翁收到的乱码消息有人有头绪了没，是不是代表到2.7前除了秘书狐还有别的支线？
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 81396#       发表于 2021-8-5 23:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">lily出了快10宝了 这泥马什么出率
+
+
+*****
+
+####  不垃圾屌丝  
+##### 81397#       发表于 2021-8-5 23:46
+
+
+越想越气，欧若拉这种渣两个CG，村正C呆只有五毛幻灯片演出
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  黑上シグマ  
+##### 81398#       发表于 2021-8-5 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52256169&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-8-5 23:45</a>
+
+通了，感觉戏里戏外都是被欧若拉这货给毁了，都最后了还要看这货的CG和废话
+
+兽神上卑梅呆30回合过了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不知道回特异点F的事会安排在哪儿，我看之前打掉摩根的时候，摩根也在那儿说让回归原点啥的，怕不是就是说的特异点F……
+
+
+*****
+
+####  zore  
+##### 81399#       发表于 2021-8-5 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52256184&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-8-5 23:46</a>
+
+越想越气，欧若拉这种渣两个CG，村正C呆只有五毛幻灯片演出
+
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Ne ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">村正那个直接拿立绘改的cg出现的时候不知道为什么莫名想笑
+
+
+*****
+
+####  cckuku  
+##### 81400#       发表于 2021-8-6 00:08
+
+
+我看微博说哈贝喵有咕哒子专属语音？<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 81401#       发表于 2021-8-6 00:09
+
+
+友情从465w抽到180w，出了10个lily，2个小安，1个裁缝，抽的心态爆炸，整理箱子的时候裁缝还他妈让我顺手给卖了，祝叶狗早点死
+
+
+*****
+
+####  久井路路  
+##### 81402#       发表于 2021-8-6 00:16
+
+
+ 本帖最后由 久井路路 于 2021-8-6 00:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52256382&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-6 00:08</a>
+
+我看微博说哈贝喵有咕哒子专属语音？</blockquote>
+羁绊语音和会话3的内容分男女，咕哒夫的话哈贝喵就是当丘比特给咕哒夫找姻缘（绊2时会问咕哒夫你和玛修什么关系，绊5则是对咕哒夫说在时候到来之前她会作为AIBO辅佐咕哒），咕哒子的话哈贝喵就是把咕哒子当新娘给她做婚纱
+
+基本上没有明显的ML要素
+
+
+*****
+
+####  alucardcz  
+##### 81403#       发表于 2021-8-6 00:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52256388&amp;ptid=1085254" target="_blank">quanlix 发表于 2021-8-6 00:09</a>
+
+友情从465w抽到180w，出了10个lily，2个小安，1个裁缝，抽的心态爆炸，整理箱子的时候裁缝还他妈让我顺手给 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">你就这太惨了  我看到出裁缝都是直接退出去喂的 就怕不小心卖了
+
+
+*****
+
+####  zore  
+##### 81404#       发表于 2021-8-6 00:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把芙尔摩斯百级了,还有什么其他好用的礼装吗
+
+
+*****
+
+####  stefanie张  
+##### 81405#       发表于 2021-8-6 00:33
+
+
+哈贝喵百级五宝了，结果卡结晶了
+
+
+*****
+
+####  シャル  
+##### 81406#       发表于 2021-8-6 00:38
+
+
+都说兽神是モリゾーオルタ
+
+
+果然像啊
+
+
+捕获1.JPG
+(149.25 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-6 00:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/06/003809ieg1jjthe1dhe4u9.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81407#       发表于 2021-8-6 01:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">150万就1张巴贝喵.....4张莉莉.....本来想进来骂街的....看了LS的我感觉还是闭嘴吧....等下次3倍后再搓丸子了
+
+
+*****
+
+####  exiaexa  
+##### 81408#       发表于 2021-8-6 01:23
+
+
+今天再次100w一张没有
+
+阿叶你可以的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -10685,3 +10685,17 @@ m3 就明显发热了。拍照之类的时候，顶部发热很大。虽然不�
 
 
                                                  
+
+*****
+
+####  allenz3  
+##### 750#       发表于 2021-8-5 23:53
+
+
+[https://www.youtube.com/watch?v=STo69lOnQII](https://www.youtube.com/watch?v=STo69lOnQII)
+
+
+Xperia 5III先行测评
+
+
+                                                 
