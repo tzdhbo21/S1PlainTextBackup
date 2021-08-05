@@ -3629,3 +3629,190 @@ MD你们黑这么狠，到时候屎黄色又出来一贴视奸的</blockquote>
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 81271#       发表于 2021-8-5 13:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247669&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-5 13:15</a>
+
+252最草生的几段（莫名其妙跟狐狸打起来了、莫名其妙武藏砍了Chaos然后捐了、凯妮斯等队长凉透以后飞上去 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">252只感觉所有人和剧情都很傻逼 浪费了整个251的铺垫
+
+
+*****
+
+####  sk86  
+##### 81272#       发表于 2021-8-5 13:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247714&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-5 13:20</a>
+
+但我觉得他们能干的出来这种事</blockquote>
+还有夏活啊，怎么都无脑黑的？
+
+
+*****
+
+####  qixinno2  
+##### 81273#       发表于 2021-8-5 13:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏活不是九月么
+
+
+*****
+
+####  AbigailWilliams  
+##### 81274#       发表于 2021-8-5 13:42
+
+
+泳装九月，无脑的是谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 81275#       发表于 2021-8-5 13:44
+
+
+话说我觉得祭神的造型真的挺可爱的，毛茸茸的大球，完全没有灾祸的压迫感
+
+也可能是我审美有问题<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 81276#       发表于 2021-8-5 13:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247755&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-5 13:23</a>
+
+252只感觉所有人和剧情都很傻逼 浪费了整个251的铺垫</blockquote>
+251其实比起21来说也有问题，要论东出巅峰我个人投给21
+
+
+结果打完26我觉得我对251有点吹毛求疵了……东出笔下虽然有工具人，但是不至于全员工具人
+
+
+*****
+
+####  angelooo  
+##### 81277#       发表于 2021-8-5 14:00
+
+
+<blockquote>白金口袋 发表于 2021-8-5 13:44
+话说我觉得祭神的造型真的挺可爱的，毛茸茸的大球，完全没有灾祸的压迫感
+
+也可能是我审美有问题 ...</blockquote>
+是很可爱，建议出周边，但官方之前出的那个杜木兹的毛绒看官图质量太垃圾了，你一个毛绒玩具完全没有毛绒的感觉卖给谁呢
+
+
+*****
+
+####  枪聆弹语  
+##### 81278#       发表于 2021-8-5 14:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81279#       发表于 2021-8-5 14:17
+
+
+这次有点让我想起了某个日剧(轮到你了)前期不错悬疑感拉满　结果最后你为什么要杀人?　没为什么我就是想杀人
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话我不太喜欢这种样子的幕后黑手　顺便上面这个日剧最后评分大跌　直接从神作变成辣鸡了
+
+
+*****
+
+####  alucardcz  
+##### 81280#       发表于 2021-8-5 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248270&amp;ptid=1085254" target="_blank">枪聆弹语 发表于 2021-8-5 14:03</a>
+
+这么看来的确有点像VIVY那种感觉。就为两个角色包了碟饺子。平稳落地，平稳落地 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">vv也能叫平稳落地吗　翻麻了啊　　当然ｂ站那变好像评价挺好
+
+
+*****
+
+####  quanlix  
+##### 81281#       发表于 2021-8-5 14:21
+
+
+这戴冠式的剧情跟坐飞机似的，排着队的领盒饭，另外毛茸茸这场战斗的设计人应该拖出去打死
+
+
+*****
+
+####  alucardcz  
+##### 81282#       发表于 2021-8-5 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248505&amp;ptid=1085254" target="_blank">quanlix 发表于 2021-8-5 14:21</a>
+
+这戴冠式的剧情跟坐飞机似的，排着队的领盒饭，另外毛茸茸这场战斗的设计人应该拖出去打死 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这场战斗不用复活的话我都不知道怎么打　要ｓｌ多久（
+
+
+*****
+
+####  angelooo  
+##### 81283#       发表于 2021-8-5 14:27
+
+
+<blockquote>alucardcz 发表于 2021-8-5 14:17
+这次有点让我想起了某个日剧(轮到你了)前期不错悬疑感拉满　结果最后你为什么要杀人?　没为什么我就是想杀 ...</blockquote>
+这个前段时间我刚在影视区了解了一下，好像是一开始造假药猜的人太多结果结局崩了导致一群人得了ptsd
+
+
+*****
+
+####  exiaexa  
+##### 81284#       发表于 2021-8-5 14:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248472&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 14:20</a>
+vv也能叫平稳落地吗　翻麻了啊　　当然ｂ站那变好像评价挺好</blockquote>
+按照上次漫区的说法，平稳落地约等于哥哥很努力了
+喜欢的没翻，其他人就不好说了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81285#       发表于 2021-8-5 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248505&amp;ptid=1085254" target="_blank">quanlix 发表于 2021-8-5 14:21</a>
+这戴冠式的剧情跟坐飞机似的，排着队的领盒饭，另外毛茸茸这场战斗的设计人应该拖出去打死 ...</blockquote>
+那个攻击时中概率回复层数，我这儿最后一管血几乎全程在回，灵脉石都砸吐了
+
+
+*****
+
+####  alucardcz  
+##### 81286#       发表于 2021-8-5 14:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248613&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 14:29</a>
+
+那个攻击时中概率回复层数，我这儿最后一管血几乎全程在回，灵脉石都砸吐了 ...</blockquote>
+我当时急着通关也是直接用了复活打法
+
+现在想想这关狗也狗不住　速杀也杀不掉　
+
+设计这关的不会以复活为前提的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
