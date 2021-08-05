@@ -3816,3 +3816,206 @@ vv也能叫平稳落地吗　翻麻了啊　　当然ｂ站那变好像评价挺
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 81287#       发表于 2021-8-5 14:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248529&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 00:23</a>
+
+这场战斗不用复活的话我都不知道怎么打　要ｓｌ多久（</blockquote>
+appmedia直接写了以灵脉石前提作战，攻略班根本集体放弃治疗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/05/003520rgt69lmtb26tcblt.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210805013406.png</strong> (13.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-5 14:35 上传
+
+
+*****
+
+####  sk86  
+##### 81288#       发表于 2021-8-5 14:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248013&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-08-05 13:42:50</a>
+泳装九月，无脑的是谁啊</blockquote>2.6两个月都10月了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  exiaexa  
+##### 81289#       发表于 2021-8-5 14:46
+
+
+我去翻了翻第一部分时候的回复，当时觉得和ff14思路比较像，现在更像了艹
+
+这奥伯龙跟爱梅拿的几乎是一个剧本，但是其他人的剧本一个赛一个的迷惑，ff14好歹撑到5.2、5.3才翻，蘑菇这本篇就翻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81290#       发表于 2021-8-5 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248843&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 14:46</a>
+
+我去翻了翻第一部分时候的回复，当时觉得和ff14思路比较像，现在更像了艹
+
+
+这奥伯龙跟爱梅拿的几乎是一个剧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这乳爱梅了　　这是一个级别的吗
+
+
+*****
+
+####  exiaexa  
+##### 81291#       发表于 2021-8-5 14:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248875&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 14:48</a>
+你这乳爱梅了　　这是一个级别的吗</blockquote>
+主要是刚才看贴吧吹奥伯龙塑造，我想了下我真的一点感觉都没有，然后我反推为啥没感觉
+
+结果结论就是被ff14提前来了个全方位上位版，所以这边看着就感觉没突破
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 81292#       发表于 2021-8-5 14:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248730&amp;ptid=1085254" target="_blank">sk86 发表于 2021-8-5 14:37</a>
+
+2.6两个月都10月了
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+我们明显是从7月开始算2个月。我倒是想知道为啥你会从8月开始算起。。
+
+
+*****
+
+####  枪聆弹语  
+##### 81293#       发表于 2021-8-5 14:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">也是，菌菌亲自执笔，还是回到菌菌故土作战，不绝对的忠诚就是否定了FGO的根基，但是某个地方行动也过于肃清了
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">我已经快有几秒钟没在各大BBS上听到2M字数的含金量，已经全身发痒了。
+
+
+*****
+
+####  alucardcz  
+##### 81294#       发表于 2021-8-5 14:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248958&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 14:54</a>
+
+主要是刚才看贴吧吹奥伯龙塑造，我想了下我真的一点感觉都没有，然后我反推为啥没感觉
+
+
+结果结论就是被ff ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动机思想背负的东西　这些玩意可能有人会觉得很俗　但是我认为还是挺重要的
+
+
+*****
+
+####  alucardcz  
+##### 81295#       发表于 2021-8-5 14:59
+
+
+５０万友情一张哈贝猫一张小黑。。。这出率。算了不抽了继续刷我的羁绊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81296#       发表于 2021-8-5 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248997&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 14:57</a>
+动机思想背负的东西　这些玩意可能有人会觉得很俗　但是我认为还是挺重要的 ...</blockquote>
+第二部分结束的时候，我说这章跟252一样一点浪漫都没有就是这个原因了，全是想法但是骨架撑不起来，角色内生逻辑大概根本没认真考虑过……
+
+没对比没感觉，一拉出去高下立判
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+顺便我100w一张没出
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81297#       发表于 2021-8-5 15:15
+
+
+<blockquote>引用第81291楼areklose于2021-08-05 14:54发表的  :
+
+引用:sk86 发表于 2021-8-5 14:372.6两个月都10月了  -- 来自 能看大图的......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有句讲句2.6是6月开始的
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  黑上シグマ  
+##### 81298#       发表于 2021-8-5 15:16
+
+
+<blockquote>引用第81278楼alucardcz于2021-08-05 14:17发表的  :
+
+这次有点让我想起了某个日剧(轮到你了)前期不错悬疑感拉满　结果最后你为什么要杀人?　没为什么我就是想......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这破片还要出平行世界电影版，惊不惊喜意不意外？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  areklose  
+##### 81299#       发表于 2021-8-5 15:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52249249&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-5 15:15</a>
+
+有句讲句2.6是6月开始的
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">塞了个无限池子，我姑且空档期从7月开始
+
+
+*****
+
+####  angelooo  
+##### 81300#       发表于 2021-8-5 15:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52249281&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-5 15:16</a>
+
+这破片还要出平行世界电影版，惊不惊喜意不意外？
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+哈哈我就是因为要出电影版了看到一群人在哭爹喊娘才去了解了一下，真是有毒
+
+
+                                                 
