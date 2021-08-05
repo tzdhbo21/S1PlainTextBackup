@@ -3426,3 +3426,206 @@ MD你们黑这么狠，到时候屎黄色又出来一贴视奸的</blockquote>
 
 
                                                 
+
+*****
+
+####  angelooo  
+##### 81256#       发表于 2021-8-5 12:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52246848&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-5 12:12</a>
+
+2.6能吹的塑造也就奥伯龙和c呆了，然后演出很不错，这么看怎么感觉就一252加强版呢，252能吹的也 ...</blockquote>
+252可是公认最拉胯的樱井主笔，2.6是你蘑菇亲生的，用来比的应该是2.1和251这种超常发挥的，拿去和252比的那一瞬间，不就说明<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81257#       发表于 2021-8-5 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247116&amp;ptid=1085254" target="_blank">静静的古墓 发表于 2021-8-5 12:32</a>
+
+异闻带摩根就是我拳头大我有理的莽妇啊，
+
+放任贝追求妖崔也好，放任迦勒底和c呆满地图乱窜也好，
+
+就是单 ...</blockquote>
+所以跟呆毛流石亲姐妹啊
+
+
+我难我苦但我就是不说
+
+但我扛得住，只要我在不列颠就不会亡
+
+然后就嗝屁了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81258#       发表于 2021-8-5 12:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247175&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-5 12:36</a>
+
+252可是公认最拉胯的樱井主笔，2.6是你蘑菇亲生的，用来比的应该是2.1和251这种超常发挥的，拿去和252比 ...</blockquote>
+贴吧都有人回题材难写蘑菇平稳落地不容易，按泥潭上次漫区某个平稳落地投票帖，不就是拉了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81259#       发表于 2021-8-5 12:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只关心这墨迹的2.6终于完了 今天刚8月5号 之后只能疯狂长草到九月新泳装活动么
+
+
+*****
+
+####  rooarr  
+##### 81260#       发表于 2021-8-5 12:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247130&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 12:32</a>
+
+我去隔壁回了贴说３－４小时就打完了　然后有个人回了我一句"然而B站烤肉的剧情视频，截止到29节3/4 ...</blockquote>
+我跳过全部剧情，大概用了2小时就打完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81261#       发表于 2021-8-5 13:01
+
+
+ 本帖最后由 alucardcz 于 2021-8-5 13:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247470&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-5 12:59</a>
+
+我跳过全部剧情，大概用了2小时就打完了云玩家大概是每一点剧情都认真看完仔细分析的吧 ...</blockquote>
+什么全跳剧情战斗还能２小时?　<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你卡关过吗　
+
+
+*****
+
+####  rooarr  
+##### 81262#       发表于 2021-8-5 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247502&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 13:01</a>
+
+什么全跳剧情战斗还能２小时?　
+
+你卡关过吗</blockquote>
+当然卡了，羁绊不好蹭啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81263#       发表于 2021-8-5 13:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247520&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-5 13:03</a>
+
+当然卡了，羁绊不好蹭啊灵脉石都用了4个</blockquote>
+我是看着配置打的　兽神直接复活接复活盲过去的　感觉应该不到１小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81264#       发表于 2021-8-5 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247525&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 13:04</a>
+
+我是看着配置打的　兽神直接复活接复活盲过去的　感觉应该不到１小时 ...</blockquote>
+全主力应该可以，我没看攻略，又想蹭羁绊，好多场战斗都打到10多t<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81265#       发表于 2021-8-5 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247552&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-5 13:06</a>
+
+全主力应该可以，我没看攻略，又想蹭羁绊，好多场战斗都打到10多t</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉每关前重新组队浪费时间最多
+
+
+*****
+
+####  sk86  
+##### 81266#       发表于 2021-8-5 13:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52244870&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 09:58</a>
+
+我突然想起来，这奥伯龙明明写的很好，但是对整个2.6是不是……屁用没有
+
+感觉就跟临时塞进来的一样？
+
+[f:11 ...</blockquote>
+因为的确是追加进去的
+
+
+*****
+
+####  areklose  
+##### 81267#       发表于 2021-8-5 13:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247357&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-5 12:51</a>
+
+我只关心这墨迹的2.6终于完了 今天刚8月5号 之后只能疯狂长草到九月新泳装活动么 ...</blockquote>
+肯定塞复刻啊。难道2.6就占2个月吗
+
+
+*****
+
+####  UNISONIA  
+##### 81268#       发表于 2021-8-5 13:15
+
+
+ 本帖最后由 UNISONIA 于 2021-8-5 13:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247175&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-5 12:36</a>
+
+252可是公认最拉胯的樱井主笔，2.6是你蘑菇亲生的，用来比的应该是2.1和251这种超常发挥的，拿去和252比 ...</blockquote>
+252最草生的几段（莫名其妙跟狐狸打起来了、莫名其妙武藏砍了Chaos然后捐了、凯妮斯等队长凉透以后飞上去找迦勒底干架）都是菌皇自己加的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要赖樱井大概只能赖异闻带双子、欧罗巴缝合、莫名其妙跑出来个罗马人这些地方，还有设定抄袭了
+
+
+*****
+
+####  sk86  
+##### 81269#       发表于 2021-8-5 13:16
+
+
+ 本帖最后由 sk86 于 2021-8-5 13:17 编辑 
+
+1
+
+
+*****
+
+####  qixinno2  
+##### 81270#       发表于 2021-8-5 13:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52247656&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-5 13:15</a>
+
+肯定塞复刻啊。难道2.6就占2个月吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但我觉得他们能干的出来这种事
+
+
+                                                 
