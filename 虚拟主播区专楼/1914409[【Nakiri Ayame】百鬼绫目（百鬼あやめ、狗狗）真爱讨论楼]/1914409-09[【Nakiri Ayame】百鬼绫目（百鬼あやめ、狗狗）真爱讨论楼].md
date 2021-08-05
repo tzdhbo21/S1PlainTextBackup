@@ -9597,3 +9597,32 @@ syl 我佛了 这次怎么连贴图都不上了
 
 
                                                  
+
+*****
+
+####  因为你不会  
+##### 12832#       发表于 2021-8-5 16:33
+
+
+电子宠物绷不住了
+
+
+*****
+
+####  Fami水  
+##### 12833#       发表于 2021-8-5 16:34
+
+
+《从主播配电脑用了两个月看出全球电子芯片短缺》<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stedckk  
+##### 12834#       发表于 2021-8-5 17:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虚拟萌宠
+
+
+                                                 

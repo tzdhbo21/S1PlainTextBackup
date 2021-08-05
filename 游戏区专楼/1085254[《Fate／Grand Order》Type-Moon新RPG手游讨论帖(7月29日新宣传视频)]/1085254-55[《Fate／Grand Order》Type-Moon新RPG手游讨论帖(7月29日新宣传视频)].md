@@ -4222,3 +4222,761 @@ appmedia直接写了以灵脉石前提作战，攻略班根本集体放弃治疗
 
 
                                                  
+
+*****
+
+####  森兰丸  
+##### 81315#       发表于 2021-8-5 16:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250025&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 16:09</a>
+
+欧罗拉这个怎么说呢，我觉得更多的是故事基调的问题导致她出现的，而不是她导致故事走歪了
+
+
+因为菌鸽鸽这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">C呆最后圣枪戳不穿毛茸茸是因为这整个一套体系都是以摩根为基础的吧....强行把一个适性SSS的换成适性C的当然不行了.....最后把圣枪转换成圣剑也就是把摩根的这套体系转换成自己的了
+
+
+这群妖精也是根本就不知道自己的祖先犯了这么大罪....自己是罪人的子孙吧.....姆里安也是查阅了好久的文献才在最后知道了真相....说真的这点要怪罪在现在这群妖精上有点太冤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+硬要说的话每个角色都是为作品服务的工具人....用来推动剧情的发展.....无非就是看作者的笔力能不能写出合理又精彩的剧情展开让读者能够接受.....但欧罗拉实在是太拉跨.....这蘑菇既然都不想写了那就早点退休把机会让给别人啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81316#       发表于 2021-8-5 16:35
+
+
+还有一个贴，他说他看完视频然后就开始评价了，我心想，这不就是云玩家吗？怎么就不骂了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81317#       发表于 2021-8-5 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52249884&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 16:00</a>
+
+那个人类在最后的最后识破了欧若拉很不错了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">鸟用.....2小时后整个妖精岛都没了....最后抱着他的收藏品死在一起也算是死得其所了
+
+
+*****
+
+####  v22325  
+##### 81318#       发表于 2021-8-5 16:38
+
+
+ 本帖最后由 v22325 于 2021-8-5 16:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250025&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 16:09</a>
+
+欧罗拉这个怎么说呢，我觉得更多的是故事基调的问题导致她出现的，而不是她导致故事走歪了
+
+
+因为菌鸽鸽这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我觉得没什么问题啊，异闻带这群妖精从出现开始就是坏的，你不要从人类角度讲什么赎罪，就是比所谓纯正无垢还要恶毒的那种状态。说了半天什么请原谅啊罪人啊什么的其实就是求饶，谁对他们狠他们就乖，稍微露点弱点吹点风就要反杀你。妈的越说越火大 妖精全都该死！
+
+妖精国不列颠从一开始就要完也不算歪吧，毕竟异闻带就是这个调调啊，肯定会毁灭的世界。第一回不列颠已经给妖精自己毁了，这还是延续异闻带的整体思路的，不管妖精国女王历，要是不列颠作为异闻带出现来攻略的话，还是这群傻逼妖精祸祸的要完的呗，只不过咕哒还没来就给摩根续了一命。
+
+
+*****
+
+####  シャル  
+##### 81319#       发表于 2021-8-5 16:40
+
+
+ 本帖最后由 シャル 于 2021-8-5 16:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248703&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-5 14:35</a>
+
+appmedia直接写了以灵脉石前提作战，攻略班根本集体放弃治疗了</blockquote>
+超过6个诅咒就算用蓝buff玉玉燃烧特攻都只能打10万
+
+
+最后一管血用了3个灵脉石，最后清空诅咒玉玉一发宝具才清空血条
+
+
+*****
+
+####  khxooo  
+##### 81320#       发表于 2021-8-5 16:44
+
+
+高文那里也吃了个灵脉石，还是那句，dw你加个相性有利BUFF会死吗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81321#       发表于 2021-8-5 16:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">是不是还有１５分钟黑狗就要强化了
+
+
+*****
+
+####  シャル  
+##### 81322#       发表于 2021-8-5 16:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250544&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-5 16:44</a>
+
+高文那里也吃了个灵脉石，还是那句，dw你加个相性有利BUFF会死吗</blockquote>
+灾厄之兽反而简单，用圆桌清掉1条半，后排超人上来清空剩余血条
+
+
+*****
+
+####  khxooo  
+##### 81323#       发表于 2021-8-5 16:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250584&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-5 16:47</a>
+灾厄之兽反而简单，用圆桌清掉1条半，后排超人上来清空剩余血条</blockquote>
+我没有超人熊，国服倒是有两宝<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 81324#       发表于 2021-8-5 16:48
+
+
+奶光天鼓30自充拉<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白夜羽  
+##### 81325#       发表于 2021-8-5 16:48
+
+
+可算一边偷偷摸鱼一边打完了，个人评价嘛，一言以蔽之，是真的老太太的裹脚布<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+本来一直觉得dw这次没在战斗里强行把某张吊用没有的铁five卡锁前排值得好评，结果最后一战还真就给锁了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">还好boss实际战斗表现也是个five，没造成什么实质影响，打完了还开等级和绊上限，可拉几把倒吧，喂到80已经是我玩这游戏以来最后悔的事了，再喂一张狗粮或者不是强迫上场的情况下带她上场一次我不如直接删游戏
+另外，毛茸茸的祭神还真有点可爱，打起来也挺舒适的，无需思考，等灭团复活就完事了哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+好了不多说了，开抽哈贝喵去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 81326#       发表于 2021-8-5 16:49
+
+
+其实也不难理解，因为妖精和人类不同，妖精的繁殖有点类似有丝分裂，所以整体来说不列颠那群妖精就和那六个祖先一样都是屑，不过毕竟经历了这么长的时间，历史中也不乏初代救世小队，糖果蔓藤，狗狗这种脑袋还算拎得清也有点良心的妖精，只不过如剧情中所见这种少数派一但让多数屑们感到危险了就会被迫害。而奥若拉作为不列颠的屑中之屑，在这个可能超过90%人口都是屑的妖精国度混得风生水起也很正常啊。至于某个11区人，只能说他惯性思维了，以为高位者一定都是有两把刷子的，真就是我以为你在第五层，其实你压根儿懒得上楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 81327#       发表于 2021-8-5 16:49
+
+
+ 本帖最后由 シャル 于 2021-8-5 16:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250450&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-5 16:38</a>
+
+其实我觉得没什么问题啊，异闻带这群妖精从出现开始就是坏的，你不要从人类角度讲什么赎罪，就是比 ...</blockquote>
+好妖精还是有的，比如马克和开始的无名妖精
+
+
+虽然大部分都是坏妖精，但圆桌军那些是好妖精啊
+
+
+可惜了马克顿悟了妖精的本质不愿一起走，希望旅馆地下室能挺过去<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81328#       发表于 2021-8-5 16:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250602&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-5 16:47</a>
+
+我没有超人熊，国服倒是有两宝</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202108/05/164959uocbcc3k49b8403w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2222.jpg</strong> (435.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-5 16:49 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弓呆脚打（
+
+
+*****
+
+####  exiaexa  
+##### 81329#       发表于 2021-8-5 16:53
+
+
+ 本帖最后由 exiaexa 于 2021-8-5 16:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250450&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-5 16:38</a>
+
+其实我觉得没什么问题啊，异闻带这群妖精从出现开始就是坏的，你不要从人类角度讲什么赎罪，就是比 ...</blockquote>
+倒不是说我要去理解妖精
+
+而是作为一个创作者，你创作出一个不知悔改、天生就是罪孽的种族
+
+然后去想尽一切办法把他们打爆
+
+
+倒退个四五十年，在魔神Z还活跃的时代或许是个好点子
+
+但是这都1202年了诶，我都不说土不土，就菌类这么个天天在没必要的地方给你塞人类恶的恶趣味作家
+
+整这么一出他不觉得丢人吗
+
+
+或者说但凡他整个王道征途，我们就是来打爆他们这堆牛鬼蛇神的也没问题
+
+问题是他非要在中间给你塞一些看起来高大上的东西糊起来，最后风太大糊不住了就开始摆烂了
+
+让你一言难尽
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81330#       发表于 2021-8-5 16:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250646&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 16:50</a>
+弓呆脚打（</blockquote>
+各位大佬行行好，麻烦给个我有的从者的攻略<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  zore  
+##### 81331#       发表于 2021-8-5 16:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">出来吧 奶光天鼓
+
+
+*****
+
+####  シャル  
+##### 81332#       发表于 2021-8-5 16:55
+
+
+ 本帖最后由 シャル 于 2021-8-5 16:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250713&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-5 16:53</a>
+
+各位大佬行行好，麻烦给个我有的从者的攻略</blockquote>
+后排罗宾汉上毒特攻
+
+还有小黑有吧
+
+
+*****
+
+####  rollingusagi  
+##### 81333#       发表于 2021-8-5 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250713&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-5 16:53</a>
+
+各位大佬行行好，麻烦给个我有的从者的攻略</blockquote>
+妖崔+cba，随便爆破后两条血
+
+
+*****
+
+####  zore  
+##### 81334#       发表于 2021-8-5 16:56
+
+
+翻页翻页
+
+
+*****
+
+####  alucardcz  
+##### 81335#       发表于 2021-8-5 16:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250713&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-5 16:53</a>
+
+各位大佬行行好，麻烦给个我有的从者的攻略</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灵脉石！
+
+
+*****
+
+####  alucardcz  
+##### 81336#       发表于 2021-8-5 16:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">离黑狗强化还有３分钟（
+
+
+*****
+
+####  khxooo  
+##### 81337#       发表于 2021-8-5 16:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250754&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-5 16:56</a>
+妖崔+cba，随便爆破后两条血</blockquote>
+没有<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 81338#       发表于 2021-8-5 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250701&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 16:53</a>
+
+倒不是说我要去理解妖精
+
+而是作为一个创作者，你创作出一个不知悔改、天生就是罪孽的种族
+
+然后去想尽一切 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妖精不是全都生来为恶不知悔改啊，是好妖精都死光了，你看雨之氏族这种良心直接被灭族了，其他的像狮子头，伍德沃斯，克拉尔，这几个死的有多惨你也看到了，黑骑士这种我就默默无闻待村子里的也被迫害死了，就因为袒护了下c呆，这就是个好人永远下场悲惨，屑能活的下来的世界
+
+
+*****
+
+####  白夜羽  
+##### 81339#       发表于 2021-8-5 17:01
+
+
+黑狗宝具本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81340#       发表于 2021-8-5 17:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是黑狗　
+
+
+*****
+
+####  exiaexa  
+##### 81341#       发表于 2021-8-5 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250815&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-5 17:00</a>
+
+妖精不是全都生来为恶不知悔改啊，是好妖精都死光了，你看雨之氏族这种良心直接被灭族了，其他的 ...</blockquote>
+结果是一样的啊……
+
+①创造一个只有傻逼的种族
+
+②创造一个本来啥都有，但是淘汰到最后只有傻逼的种族
+
+为啥你会在这种地方杠起来……
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81342#       发表于 2021-8-5 17:03
+
+
+突然看到有人看版不是３破形象。。这原来能改的？怎么改？
+
+
+*****
+
+####  zore  
+##### 81343#       发表于 2021-8-5 17:05
+
+
+防御强化解除,还行<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 81344#       发表于 2021-8-5 17:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250866&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 17:03</a>
+
+突然看到有人看版不是３破形象。。这原来能改的？怎么改？</blockquote>
+可能人家压根没有养到三破呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81345#       发表于 2021-8-5 17:06
+
+
+ 本帖最后由 rooarr 于 2021-8-5 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250866&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 17:03</a>
+
+突然看到有人看版不是３破形象。。这原来能改的？怎么改？</blockquote>
+英灵详情界面的形象那里左右滑动选择？我挂出来的215也是用了2个不同的形象啊
+
+
+*****
+
+####  exiaexa  
+##### 81346#       发表于 2021-8-5 17:06
+
+
+黑狗……
+
+突然就失去了兴趣
+
+还以为能有点新套路，难受
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gugu153  
+##### 81347#       发表于 2021-8-5 17:06
+
+
+别要求太高啦，我觉得这次比奥林匹斯有意思，除了大段的扭曲百合我实在欣赏不来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 81348#       发表于 2021-8-5 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250858&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 17:03</a>
+
+结果是一样的啊……
+
+①创造一个只有傻逼的种族
+
+②创造一个本来啥都有，但是淘汰到最后只有傻逼的种族</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我意思就是说蘑菇可能根本没想的多复杂，他可能觉得把一个种族全写成傻逼的想法很low，所以改成一个淘汰到最后只剩傻逼的种族就不low了
+
+
+*****
+
+####  alucardcz  
+##### 81349#       发表于 2021-8-5 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250893&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-5 17:06</a>
+
+英灵详情界面的形象那里左右滑动选择？我挂出来的215也是用了2个不同的形象啊 ...</blockquote>
+可以是可以了 但是我喜欢满破的卡面啊 不能兼得的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81350#       发表于 2021-8-5 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52250947&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 17:09</a>
+
+可以是可以了 但是我喜欢满破的卡面啊 不能兼得的吗</blockquote>
+你居然想同时选两个卡面？那只能跟我一样喂2个一样的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81351#       发表于 2021-8-5 17:19
+
+
+黑狗这个强化是不是=宝具自带无敌贯通？ 能这么理解吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当然带框的可能直接木大
+
+
+*****
+
+####  exiaexa  
+##### 81352#       发表于 2021-8-5 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251080&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 17:19</a>
+
+黑狗这个强化是不是=宝具自带无敌贯通？ 能这么理解吗
+
+
+当然带框的可能直接木大</blockquote>
+好处是连对肃正防御都能解除
+
+问题是对面有对肃正防御的可能性感人
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81353#       发表于 2021-8-5 17:23
+
+
+ 本帖最后由 zore 于 2021-8-5 17:26 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单挑情况下也不一定能打出宝具吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">懂了,9月泳装活动黑狗高难
+
+
+*****
+
+####  シャル  
+##### 81354#       发表于 2021-8-5 17:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251133&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-5 17:23</a>
+
+单挑情况下也不一定能打出宝具吧
+
+懂了,9月泳装活动黑狗高难</blockquote>
+挂个全体解除耐性，黑狗这强化没屁用啊
+
+
+*****
+
+####  シャル  
+##### 81355#       发表于 2021-8-5 17:38
+
+
+这次异闻带的物品能带出来不消失的，可惜只带了瓶酒<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 81356#       发表于 2021-8-5 17:43
+
+
+话说狐狸兔要搞事了吧
+
+又个特异点
+
+
+D800AA4D-5AFC-4CB1-A023-26821654B88C.png
+(867.75 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-5 17:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/05/174234a3j37z7o1ylg3y74.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81357#       发表于 2021-8-5 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251312&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-5 17:36</a>
+
+挂个全体解除耐性，黑狗这强化没屁用啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">那肯定不止只有黑狗这么简单
+
+
+*****
+
+####  alucardcz  
+##### 81358#       发表于 2021-8-5 17:48
+
+
+挂全体解除耐性干什么 直接全部带框不好吗  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81359#       发表于 2021-8-5 17:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比起强化解除耐性我更怕强化解除
+
+
+*****
+
+####  alucardcz  
+##### 81360#       发表于 2021-8-5 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251505&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-5 17:50</a>
+
+比起强化解除耐性我更怕强化解除</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了 黑狗这波强化是为了对面 听说你c呆很勇？
+
+
+
+
+*****
+
+####  exiaexa  
+##### 81361#       发表于 2021-8-5 17:54
+
+
+这摩根真就横走妖精乡
+
+2.6free全程伤害溢出
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81362#       发表于 2021-8-5 17:55
+
+
+翻页
+
+
+*****
+
+####  qixinno2  
+##### 81363#       发表于 2021-8-5 17:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251546&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 17:54</a>
+
+懂了 黑狗这波强化是为了对面 听说你c呆很勇？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑狗哥不要啊
+
+
+*****
+
+####  alucardcz  
+##### 81364#       发表于 2021-8-5 17:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一口明天黑贞
+
+
+*****
+
+####  qixinno2  
+##### 81365#       发表于 2021-8-5 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251602&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 17:59</a>
+
+奶一口明天黑贞</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑贞这种时泪不如给仇凛个宝具本
+
+
+*****
+
+####  alucardcz  
+##### 81366#       发表于 2021-8-5 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251631&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-5 18:01</a>
+
+黑贞这种时泪不如给仇凛个宝具本</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还不如奶信长
+
+
+*****
+
+####  白夜羽  
+##### 81367#       发表于 2021-8-5 18:02
+
+
+矮油，万众期待的新活动来啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81368#       发表于 2021-8-5 18:03
+
+
+ 本帖最后由 khxooo 于 2021-8-5 18:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251602&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 17:59</a>
+
+奶一口明天黑贞</blockquote>
+本来很大机会是黑贞，不过这次不是刷子是真的意外，估计真的剩下他和黑贞还有其他几人没有强化过了。
+
+
+草，查了查刷子原来是有宝具本的，那么真的是剩下黑贞几个了。
+
+
+*****
+
+####  zore  
+##### 81369#       发表于 2021-8-5 18:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇凛不太可能有强化
+
+奶黑贞
+
+
+*****
+
+####  angelooo  
+##### 81370#       发表于 2021-8-5 18:15
+
+
+这次感觉都挺好猜的，一堆老从者......多半是黑贞吧
+
+
+*****
+
+####  シャル  
+##### 81371#       发表于 2021-8-5 18:17
+
+
+ 本帖最后由 シャル 于 2021-8-5 18:19 编辑 
+
+巴贝喵这种宝具没问题吧
+
+
+纺织的妖精？？？<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+4F9DB35C-FEE4-4042-860E-1B7C17EE1AE6.png
+(477.4 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-5 18:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/05/181706a3nrjtz32d6t2tjy.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81372#       发表于 2021-8-5 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251813&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-5 18:17</a>
+
+巴贝喵这种宝具没问题吧
+
+
+纺织的妖精？？？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 至今没用过 这么夸张么
+
+
+                                               
