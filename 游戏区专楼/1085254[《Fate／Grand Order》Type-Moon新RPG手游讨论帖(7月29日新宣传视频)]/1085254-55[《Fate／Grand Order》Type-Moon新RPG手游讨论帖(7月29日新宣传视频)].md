@@ -2831,3 +2831,197 @@ c呆前头卖一波士剑后头给你来一手和喜欢的人在街上逛街<img
 
 
                                                 
+
+*****
+
+####  exiaexa  
+##### 81215#       发表于 2021-8-5 10:36
+
+
+ 本帖最后由 exiaexa 于 2021-8-5 10:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245344&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 10:35</a>
+
+话说摩根还真就这样凉了。。没有任何后手。。。
+
+
+最惨的异闻带王了吧 ...</blockquote>
+硬要说的话还是有的，王之氏族就是摩根当自己暴毙的时候，也能启动圣枪的备选
+
+所以梅芙才会对王座那么执着
+结果第三部分开场就送掉了（反色）
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 81216#       发表于 2021-8-5 10:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245344&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 10:35</a>
+
+话说摩根还真就这样凉了。。没有任何后手。。。
+
+
+最惨的异闻带王了吧 ...</blockquote>
+有后手啊
+妖精梅芙还有圣枪什么的，但并没有什么用
+
+管你谁上台，吃我冠位毒杀啦
+
+
+*****
+
+####  cckuku  
+##### 81217#       发表于 2021-8-5 10:44
+
+
+NGA已经彻底成了菌皇殖民地了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+一堆彩虹屁夸2.6写得好的就是高赞；敢说2.6写的不好的都是没看剧情人云亦云的云玩家或者是CP上脑的士厨。
+
+关键是论点都自相矛盾的，既然觉得2.63刚发布别人看不完剧情断章取义，所以黑的都是云玩家，那么无脑夸的就人人都是看完了剧情的日语大神么？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 81218#       发表于 2021-8-5 10:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245378&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-5 10:37</a>
+
+有后手啊
+
+妖精梅芙还有圣枪什么的，但并没有什么用
+
+管你谁上台，吃我冠位毒杀啦 ...</blockquote>
+都没用，三灾没一个能防住的
+
+
+*****
+
+####  rollingusagi  
+##### 81219#       发表于 2021-8-5 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52244959&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-8-5 10:06</a>
+
+说来，别人都好说，通关礼装要是咕哒画的“理想中的异闻带”的话，他把妖崔也画上去是怎么个意思（
+
+
+他既不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">妖崔属实惨，贝屑最后连提都没提她，真就是把她当工具人，然后妖兰纯被屑若拉当工具人。三妖精骑士本性都挺好的，算妖精里的良心，结果就妖高待遇好一点，因为她站在了主角这边。所以摩根当初为啥信任贝屑这坑也没填，摩根妖精眼一眼就看穿了贝屑的本质结果还放任他接近妖崔也是怪
+
+
+*****
+
+####  sosgame67  
+##### 81220#       发表于 2021-8-5 10:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245502&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-5 10:44</a>
+
+NGA已经彻底成了菌皇殖民地了
+
+一堆彩虹屁夸2.6写得好的就是高赞；敢说2.6写的不好的都是没看剧情人 ...</blockquote>
+nga无脑吹蘑菇一直是政治正确啊，更别提一堆人对着微博翻译段落就能发情排卵了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">每次看他们嚎”刀刀刀糖糖糖“啥的只能说.."就这？”
+
+
+*****
+
+####  angelooo  
+##### 81221#       发表于 2021-8-5 11:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245696&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-5 10:55</a>
+
+妖崔属实惨，贝屑最后连提都没提她，真就是把她当工具人，然后妖兰纯被屑若拉当工具人。三妖精骑 ...</blockquote>
+我当时也觉得放任贝屑接近妖崔特别离奇，现在想想如果要让剧情合理只能认为摩根其实早就已经自暴自弃了，自己会怎么样妖崔会怎么样只能放任自流，唯一能为妖崔做的就是让她这一世在被被人虐杀前先去虐杀别人
+
+
+*****
+
+####  exiaexa  
+##### 81222#       发表于 2021-8-5 11:09
+
+
+说到妖催，真就世上只有妈妈好
+
+除了你妈这不列颠谁都不惦记你
+
+
+高文莫德雷德阿格规文表示馋哭了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  久井路路  
+##### 81223#       发表于 2021-8-5 11:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245908&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 11:09</a>
+
+说到妖催，真就世上只有妈妈好
+
+除了你妈这不列颠谁都不惦记你</blockquote>
+某种意义上来说……角神可能挺惦记她的（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+你看人家角神拒绝妖精拒绝到尸体都堆不到它身上，却会把妖崔吞进去当自己的一部分（角神战里角神会使用“妖精吸血”）
+
+妖崔本人也不是和角神有啥特殊的关系，不晓得角神是看上她哪里了才给的这种优待（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81224#       发表于 2021-8-5 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245378&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-5 10:37</a>
+
+有后手啊
+
+妖精梅芙还有圣枪什么的，但并没有什么用
+
+管你谁上台，吃我冠位毒杀啦 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这也能叫后手吗 
+
+
+*****
+
+####  シャル  
+##### 81225#       发表于 2021-8-5 11:29
+
+
+福尔摩斯是咋认识奥布隆这个未知职介的
+
+
+连Fake都知道…废狗世界根本没有出现过这两者
+
+
+*****
+
+####  枪聆弹语  
+##### 81226#       发表于 2021-8-5 11:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NGA不是看着2M容量这个数字都可以了吗，提纯太恐怖了
+
+
+*****
+
+####  AbigailWilliams  
+##### 81227#       发表于 2021-8-5 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245502&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-5 10:44</a>
+NGA已经彻底成了菌皇殖民地了
+
+一堆彩虹屁夸2.6写得好的就是高赞；敢说2.6写的不好的都是没看剧情人 ...</blockquote>
+nga那边按着zzzq走就能高赞，所以一般不用去看，因为用膝盖想就知道里面什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
