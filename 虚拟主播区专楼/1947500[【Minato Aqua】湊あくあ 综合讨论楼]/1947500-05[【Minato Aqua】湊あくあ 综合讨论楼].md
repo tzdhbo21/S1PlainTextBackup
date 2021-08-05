@@ -8160,3 +8160,62 @@ welcome back りんこ
 
 
                                                  
+
+*****
+
+####  梅斯之围  
+##### 6665#       发表于 2021-8-5 21:51
+
+
+弹幕都在刷初见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lightsuger  
+##### 6666#       发表于 2021-8-5 21:59
+
+
+上次唱fuwafuwa都什么时候了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离魂仙  
+##### 6667#       发表于 2021-8-5 22:35
+
+
+ 本帖最后由 离魂仙 于 2021-8-5 23:06 编辑 
+
+这吊tc台必须开全局，真烦人卡死了，我又不会写规则
+
+搞毛线，别anti没躲开把我又洗掉了，啊洗掉一个厄介拆腻子也算好事<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
+
+
+找了个屏蔽评论栏的脚本（至少网页本身不卡了...
+[https://greasyfork.org/zh-CN/scr ... ng-collapse-comment](https://greasyfork.org/zh-CN/scripts/16460-twitcasting-collapse-comment)
+
+
+*****
+
+####  梅斯之围  
+##### 6668#       发表于 2021-8-5 22:39
+
+
+ 本帖最后由 梅斯之围 于 2021-8-5 22:40 编辑 
+
+居然唱这歌，这一天终究还是来了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nian1538  
+##### 6669#       发表于 2021-8-5 22:55
+
+
+可能是最后一次
+
+所以说今天是来三周年纪念的？
+
+
+                                                 

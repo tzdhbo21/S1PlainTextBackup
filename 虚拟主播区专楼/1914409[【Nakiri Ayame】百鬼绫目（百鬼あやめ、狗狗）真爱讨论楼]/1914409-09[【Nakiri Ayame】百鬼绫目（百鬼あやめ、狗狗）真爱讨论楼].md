@@ -9626,3 +9626,16 @@ syl 我佛了 这次怎么连贴图都不上了
 
 
                                                  
+
+*****
+
+####  cctvyt1  
+##### 12835#       发表于 2021-8-5 22:10
+
+
+阿绫有没有打算学夸宝回TC播啊
+
+反正也不摆live2D<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

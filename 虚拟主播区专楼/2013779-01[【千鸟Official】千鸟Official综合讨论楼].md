@@ -1596,3 +1596,16 @@ https://b23.tv/2Pg2U7
 
 
                                                  
+
+*****
+
+####  gawain039  
+##### 144#       发表于 2021-8-5 22:31
+
+
+艾白真的好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

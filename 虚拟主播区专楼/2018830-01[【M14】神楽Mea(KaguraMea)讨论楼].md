@@ -2126,3 +2126,407 @@ c呆，献祭今天的麻，给我出吧
 
 
                                                  
+
+*****
+
+####  T_Hb  
+##### 191#       发表于 2021-8-5 22:03
+
+
+上来就贴小广告
+
+
+*****
+
+####  yywzjsw  
+##### 192#       发表于 2021-8-5 22:09
+
+
+这歌好久没唱的感觉
+
+
+*****
+
+####  T_Hb  
+##### 193#       发表于 2021-8-5 22:11
+
+
+喵喵喵<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 194#       发表于 2021-8-5 22:12
+
+
+听着肥婆猪叫出了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">一边打本一边听了
+
+
+*****
+
+####  2014720  
+##### 195#       发表于 2021-8-5 22:13
+
+
+转播又去看某人了捏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 196#       发表于 2021-8-5 22:14
+
+
+tc好看吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 197#       发表于 2021-8-5 22:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这里有人看吗
+
+
+*****
+
+####  yywzjsw  
+##### 198#       发表于 2021-8-5 22:15
+
+
+啥tc？刚刚播tc了？
+
+
+*****
+
+####  2014720  
+##### 199#       发表于 2021-8-5 22:15
+
+
+官组还是那个官组，要一起十年捏，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 200#       发表于 2021-8-5 22:16
+
+
+所以我都说了，【怎么还有人看转播的】，你猜猜究竟是为什么捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 201#       发表于 2021-8-5 22:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 202#       发表于 2021-8-5 22:26
+
+
+ 本帖最后由 T_Hb 于 2021-8-5 22:31 编辑 
+
+我现在竟然会觉得这圆脸傻笑可爱了，习惯的力量真可怕
+
+
+*****
+
+####  yywzjsw  
+##### 203#       发表于 2021-8-5 22:27
+
+
+不，你只是觉得麻可爱
+
+
+*****
+
+####  2014720  
+##### 204#       发表于 2021-8-5 22:28
+
+
+怎么还有人才觉得新皮好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+大家都很恋旧捏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JY要塞  
+##### 205#       发表于 2021-8-5 22:28
+
+
+你只是想到屏幕背后的那台坦克了
+
+
+*****
+
+####  T_Hb  
+##### 206#       发表于 2021-8-5 22:29
+
+
+ 本帖最后由 T_Hb 于 2021-8-5 22:31 编辑 
+
+不啊，之前就觉得除了脸以外都很可爱，现在甚至习惯了圆脸
+
+听她报硬件名怎么这么痛苦
+
+
+*****
+
+####  Mr.shelter  
+##### 207#       发表于 2021-8-5 22:40
+
+
+你好，不是井孝子，但我确实割舍不下旧皮<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 208#       发表于 2021-8-5 22:41
+
+
+想吸咩的二手烟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 209#       发表于 2021-8-5 22:42
+
+
+想戳咩宝的口内炎
+
+
+*****
+
+####  时间在我手中  
+##### 210#       发表于 2021-8-5 22:43
+
+
+吸烟是吧，坏孩子马上腹击交处刑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  呓亘  
+##### 211#       发表于 2021-8-5 22:43
+
+
+长腿阿咩 嘿嘿 【1  啊哈~】 【好痛】 【小腿呢 不知道什么时候好了】 【脚太长了 撞墙壁了】【对不起啊】 【啊呼~】 【对不起呢 我和大家不一样 腿很长】 【pc版 好奇怪】
+
+
+*****
+
+####  呓亘  
+##### 212#       发表于 2021-8-5 22:44
+
+
+【不要说得我好像抽过一样】 【我可没抽过】 【呼~】 【OO君抽的很淡呢】
+
+
+*****
+
+####  呓亘  
+##### 213#       发表于 2021-8-5 22:44
+
+
+风怒
+
+
+*****
+
+####  yywzjsw  
+##### 214#       发表于 2021-8-5 22:44
+
+
+又装了，明明之前说过讨厌烟，一股**处女感觉
+
+
+*****
+
+####  Klience  
+##### 215#       发表于 2021-8-5 22:45
+
+
+说不定已经吸过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 216#       发表于 2021-8-5 22:46
+
+
+说不定吸得不是烟，只能说玩的很大<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 217#       发表于 2021-8-5 22:47
+
+
+就是吸不了才会这样恶搞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JY要塞  
+##### 218#       发表于 2021-8-5 22:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">烫烟头吗
+
+
+*****
+
+####  T_Hb  
+##### 219#       发表于 2021-8-5 22:52
+
+
+那不得找个专用烟灰缸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 220#       发表于 2021-8-5 22:56
+
+
+麻麻烟灰缸，好色
+
+
+*****
+
+####  Cushaw  
+##### 221#       发表于 2021-8-5 23:05
+
+
+还是要线下才能让这个女人活过来，有精神的小麻真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JY要塞  
+##### 222#       发表于 2021-8-5 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坦克民又赢了，这么能吃
+
+
+*****
+
+####  时间在我手中  
+##### 223#       发表于 2021-8-5 23:05
+
+
+坦克民，今晚彻底胜利！debu 碳！<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ashero  
+##### 224#       发表于 2021-8-5 23:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肥肥
+
+
+*****
+
+####  专业划水人员  
+##### 225#       发表于 2021-8-5 23:08
+
+
+本人承认了。赢麻了
+
+
+*****
+
+####  Klience  
+##### 226#       发表于 2021-8-5 23:10
+
+
+线下？现在一日4000+ 怕是不要命哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 227#       发表于 2021-8-5 23:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 228#       发表于 2021-8-5 23:13
+
+
+【真是太害羞了】 【回家的时候很害羞】 【因为犬山是很漂亮的男孩子】 【然后感觉自己就很害羞】这什么RP……
+
+
+*****
+
+####  clvan_  
+##### 229#       发表于 2021-8-5 23:14
+
+
+这不是你麻常有的yygq式rp嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 230#       发表于 2021-8-5 23:14
+
+
+ 本帖最后由 T_Hb 于 2021-8-5 23:23 编辑 
+
+她打广告这个语调好像在哪听过
+
+魔法绒毯真好听<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 231#       发表于 2021-8-5 23:59
+
+
+又在装，听着想干死这幕刃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 232#       发表于 2021-8-6 00:01
+
+
+这女人被我逮住了能干三天姿势不带重样的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 233#       发表于 2021-8-6 00:07
+
+
+三天，我瞧不起你，就这吗，要是我至少一周<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+                                                

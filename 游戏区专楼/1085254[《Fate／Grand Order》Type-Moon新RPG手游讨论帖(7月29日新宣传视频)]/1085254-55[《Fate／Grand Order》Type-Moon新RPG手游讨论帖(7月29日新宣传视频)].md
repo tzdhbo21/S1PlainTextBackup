@@ -5150,3 +5150,82 @@ D800AA4D-5AFC-4CB1-A023-26821654B88C.png
 
 
                                                  
+
+*****
+
+####  quanlix  
+##### 81386#       发表于 2021-8-5 22:28
+
+
+100w没见着裁缝
+
+
+*****
+
+####  alucardcz  
+##### 81387#       发表于 2021-8-5 22:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合理吗？出了3个利利 1个小黑 就是没有裁缝
+
+
+*****
+
+####  在海岸  
+##### 81388#       发表于 2021-8-5 22:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打累了 才29节 不打通能抽到的嘛
+
+
+*****
+
+####  qixinno2  
+##### 81389#       发表于 2021-8-5 22:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52255340&amp;ptid=1085254" target="_blank">在海岸 发表于 2021-8-5 22:36</a>
+
+打累了 才29节 不打通能抽到的嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能 死心吧
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 81390#       发表于 2021-8-5 22:51
+
+
+剧情不说，2.6的音乐可以争一下今年最佳配乐。
+
+
+
+
+*****
+
+####  白夜羽  
+##### 81391#       发表于 2021-8-5 22:52
+
+
+麻了，抽了一个小时了一张妹有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白夜羽  
+##### 81392#       发表于 2021-8-5 22:53
+
+
+dw，我的铁废物，你几时能出个100连的按钮啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81393#       发表于 2021-8-5 23:35
+
+
+隔壁潭国服选手真能憋啊,护符都能憋住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
