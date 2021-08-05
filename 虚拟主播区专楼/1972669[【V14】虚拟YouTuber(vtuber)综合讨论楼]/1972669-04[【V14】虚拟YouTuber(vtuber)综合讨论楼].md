@@ -13147,3 +13147,16 @@ kirinji不就是那个エイリアンズ…
 
 
                                                  
+
+*****
+
+####  GT2  
+##### 5580#       发表于 2021-8-5 21:30
+
+
+西西这抽卡
+
+直接把甲子园的传说投手桑田真澄抽出来了？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+                                                 

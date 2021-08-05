@@ -5104,3 +5104,49 @@ D800AA4D-5AFC-4CB1-A023-26821654B88C.png
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 81382#       发表于 2021-8-5 20:47
+
+
+哪里有看10羁绊以上要多少羁绊点？
+
+
+*****
+
+####  rooarr  
+##### 81383#       发表于 2021-8-5 21:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52253969&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-5 20:47</a>
+哪里有看10羁绊以上要多少羁绊点？</blockquote>
+茹西有大概数据
+
+
+*****
+
+####  alucardcz  
+##### 81384#       发表于 2021-8-5 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52254232&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-5 21:04</a>
+
+茹西有大概数据</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了 升11要100多万了  算了算了 最后的210石不出拉倒了
+
+
+*****
+
+####  selfcest  
+##### 81385#       发表于 2021-8-5 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52245081&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-5 10:15</a>
+
+反正妖兰这ml卖的属实不行，主线里和咕哒基本没交集不说，羁绊礼装还惦记着那屑若拉，然后语音一转 ...</blockquote>
+我只能说，蘑菇真不愧是最大的ML党；亏我曾经还以为摩根的直球语音后面会有相关剧情，合着他就是自己想这么做⋯⋯
+
+
+                                                 
