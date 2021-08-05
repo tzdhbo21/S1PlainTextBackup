@@ -13133,3 +13133,17 @@ ssk这职业哥有点微妙，有机会进夏甲还能再来一轮合宿吧
 
 
                                                  
+
+*****
+
+####  rzrbtk  
+##### 5579#       发表于 2021-8-5 20:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52252563&amp;ptid=1972669" target="_blank">Aureth 发表于 2021-8-5 19:18</a>
+作词作曲是著名citypop乐队kirinji兄弟俩的弟弟（13年退出了以后现在哥哥重组了乐队） ...</blockquote>
+kirinji不就是那个エイリアンズ…
+谢谢索尼，谢谢索尼<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+
+                                                 

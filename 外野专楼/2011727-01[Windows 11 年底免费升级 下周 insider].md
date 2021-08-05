@@ -6032,3 +6032,28 @@ beta channel 是升了之后桌面直接崩，现在在安全模式一个一个�
 
 
                                                  
+
+*****
+
+####  V5Style  
+##### 501#       发表于 2021-8-5 19:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52252545&amp;ptid=2011727" target="_blank">御坂MKII 发表于 2021-8-5 19:17</a>
+
+哪个国产软件和 win 11 犯冲啊
+
+beta channel 是升了之后桌面直接崩，现在在安全模式一个一个删软件 ...</blockquote>
+可以在 控制面板&gt;安全和维护&gt;查看存档的消息 或者 事件管理器 看日志分析。
+
+
+*****
+
+####  sougetsu  
+##### 502#       发表于 2021-8-5 19:44
+
+
+beta渠道更新，下载完成重启开始安装win11，装着装着就绿屏然后滚回win10是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+                                                 

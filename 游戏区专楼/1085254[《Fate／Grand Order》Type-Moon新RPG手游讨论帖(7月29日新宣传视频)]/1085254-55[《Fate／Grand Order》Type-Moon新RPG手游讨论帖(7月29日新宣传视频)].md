@@ -5067,3 +5067,40 @@ D800AA4D-5AFC-4CB1-A023-26821654B88C.png
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 81379#       发表于 2021-8-5 19:49
+
+
+顺带一提，通关后不止文本，2.6的角色们语音都新增了不少，有兴趣的话可以去油管或nico看看剪辑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 81380#       发表于 2021-8-5 20:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52251985&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-5 18:32</a>
+
+打完了，别的暂且不提，就感慨一下妖崔真的是爹不亲光娘爱
+
+妖兰待遇最好，剧情上三人中花了最大篇章描写的 ...</blockquote>
+甚至吊了两个月胃口的三破造型压根没解释<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81381#       发表于 2021-8-5 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52253054&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-5 19:49</a>
+
+顺带一提，通关后不止文本，2.6的角色们语音都新增了不少，有兴趣的话可以去油管或nico看看剪辑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">油管上看了下角色列表，哦，全都有，自家就能看
+
+
+                                                 
