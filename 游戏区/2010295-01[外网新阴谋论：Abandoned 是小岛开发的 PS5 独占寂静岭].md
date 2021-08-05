@@ -7308,3 +7308,34 @@ Hasan：正式游戏不会有森林
 
 
                                                  
+
+*****
+
+####  cloudian  
+##### 564#       发表于 2021-8-5 08:08
+
+
+活跃一下业界气氛蛮好的，主机市场有点儿沉闷
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  后藤P  
+##### 565#       发表于 2021-8-5 08:19
+
+
+距离hasan社死还有多久
+
+
+*****
+
+####  acropolis  
+##### 566#       发表于 2021-8-5 08:39
+
+
+hasan说话风格像第一次用unreal做游戏的大学生<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+                                                 

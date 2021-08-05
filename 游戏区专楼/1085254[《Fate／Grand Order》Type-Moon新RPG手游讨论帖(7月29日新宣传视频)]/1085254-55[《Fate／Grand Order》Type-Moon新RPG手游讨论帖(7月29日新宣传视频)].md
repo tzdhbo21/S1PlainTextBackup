@@ -2349,3 +2349,278 @@ C呆来助战是发生圣枪和转换圣剑的大魔术挂掉以后，英灵化�
 
 
                                                  
+
+*****
+
+####  久井路路  
+##### 81181#       发表于 2021-8-5 07:38
+
+
+ 本帖最后由 久井路路 于 2021-8-5 08:12 编辑 
+
+姑且剧透反白
+该怎么说呢，C呆感情牌我是吃了，看屑妖精全灭也挺爽的，可是老实说前两段大量伏线细致描写出来的角色全都没有被很好地利用起来，死得一个比一个草率。
+
+
+诺克娜蕾雅（梅芙），后篇决战成功打下圣都，结果戴冠式篇一上来喝个毒酒+被欧罗拉设计陷害就秒凉，除了回忆杀里和C呆的友情写得挺好以外几乎0高光就直接退场
+
+科拉尔，花了不少笔墨写她比欧罗拉更体谅人类，也有很多对欧罗拉的做法表示怀疑的描写，结果直接被欧罗拉变成虫子踩烂，妖兰杀欧罗拉的理由都和她毫无关系，写这个角色就是为了告诉你欧罗拉有多坏是吗（
+
+穆莉安，我看完都想不明白奥伯龙去杀穆莉安是为了啥，捅就捅了还留口气给人家托付遗言，这家伙是事先看穿穆莉安临死前会拜托杀狐去帮迦勒底，才特地搞了出这么绕远的操作吗
+
+妖崔，刚实装的时候三破到底发生了什么不管是B站还是N站都在猜，结果直到最后三破都未登场，跳进洞里就再没人想起她过，有了这个先例，以后不管多成谜的三破形态都无法确信会有剧情了
+
+加雷斯，严格来说，草率的不是她，是她被杀这件事本身。戴冠式篇不管是欧罗拉还是妖兰，没一个人提及搞死加雷斯并顺便杀光驻扎的圆桌军的事情，妖兰回忆杀里也只有六年前杀光镜之氏族的事情，C呆说“知道加雷斯为何会被杀”，结果直到最后她都没能直接和欧罗拉对峙一次，真是遗憾无比。
+
+中村，如果把后篇和戴冠式篇连起来的话，这家伙就是刚完美计划通搞完摩根，下一脚秒被欧罗拉跳反，立刻傻眼，实属13格尽失，你住了一百年还看不出欧罗拉是个什么德行的话，我看欧罗拉真要去泛人类史那边，好像也不一定就会被戳穿啊（
+
+欧罗拉，侧面描写统筹一切、玩弄排热大公于鼓掌之上，直接描写就是个脑子里什么都没想的巨婴，连带着把妖兰的人设带成了舔dog，玛丽苏程度远在纱条爱歌和杀生院之上，毫无魅力可言不说，占得篇幅还不少，打完奥伯龙还要看那家伙的大段独白，真让人受不了。
+
+贝利尔，我基本上和楼上angelooo桑的意见一样，人设毫无出彩的地方，剧情也完全不重要，删了对2.6几乎没有影响，除了佩佩便当这一点以外。
+
+
+妖兰，真亏你们能拿这样的角色卖Master Love啊，被欧罗拉无下限PUA，为了她灭了守护自己遗体的氏族毫不手软，亲眼看着她把不列颠搞成一片地狱火海也不发表什么意见，杀了欧罗拉的理由还是“不想看她去泛人类史遭罪”，羁绊礼装直接实锤“永远的爱”，然后丛卡池里出来，“喜欢的东西？就在我眼前啊（指咕哒）”，这妖兰可是毫无疑问的异闻带个体，蘑菇你要不要自己数一数整个2.6里妖兰搭理过咕哒几句话啊。
+
+
+到头来整体写得最好的不列颠妖精居然是妖高，其余真是走得一个比一个草率，不知道的还以为这章是樱井写的剧本咧
+
+
+*****
+
+####  zore  
+##### 81182#       发表于 2021-8-5 07:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来看老福能搞什么新花样了
+
+
+*****
+
+####  zore  
+##### 81183#       发表于 2021-8-5 07:42
+
+
+翻页翻页
+
+
+*****
+
+####  久井路路  
+##### 81184#       发表于 2021-8-5 07:42
+
+
+编辑
+
+
+*****
+
+####  cckuku  
+##### 81185#       发表于 2021-8-5 07:49
+
+
+这2.6的ml卖的好勉强。
+c呆前头卖一波士剑后头给你来一手和喜欢的人在街上逛街<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+妖兰全程没和咕哒说过几句话，甚至剧情和羁绊礼装都爱欧若拉爱的不行，结果一召唤出来对咕哒疯狂表白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就算fgo是个手游也不用这么舔咕哒吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81186#       发表于 2021-8-5 07:50
+
+
+ 本帖最后由 exiaexa 于 2021-8-5 07:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243720&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-8-5 07:38</a>
+
+该怎么说呢，C呆感情牌我是吃了，看屑妖精全灭也挺爽的，可是老实说前两段大量伏线细致描写出来的角色全都 ...</blockquote>
+伏笔，都是伏笔你懂吗.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+最草的是我以为撑死了让摩根复刻阿瓦隆之庭，没想到菌类让整个不列颠全员都一起复刻阿瓦隆之庭
+
+甚至还在里面加料艹，泛人类史不列颠是一群白眼狼，这妖精历干脆就全员傻逼
+
+不列颠到底跟菌类有什么深仇大恨
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81187#       发表于 2021-8-5 08:13
+
+
+是啊，三骑士的3破都没有出现，这个是最难理解的。那么这里胡乱脑洞一下，2.6.5里其实摩根没死，3骑士在某个地方各自割据为王乱斗，摩根将咕哒召唤过去将3个骑士解决（攻略），然后摩根自己也陷进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81188#       发表于 2021-8-5 08:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243889&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-5 08:13</a>
+
+是啊，三骑士的3破都没有出现，这个是最难理解的。那么这里胡乱脑洞一下，2.6.5里其实摩根没死，3骑士在某 ...</blockquote>
+只有妖催没出啊，三骑士的3破都是失去摩根束缚的暴走形态
+
+妖高是黑犬的诅咒暴走，变成兽之灾厄，之前还抵抗了一段但是最终失败了
+
+妖兰直接就一言不合崩溃背刺暴走一条龙，只是剧情里打的是暴走的红色形态
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  久井路路  
+##### 81189#       发表于 2021-8-5 08:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243786&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 07:50</a>
+
+伏笔，都是伏笔你懂吗.jpg</blockquote>
+帕西瓦尔：我希望你可以不要讨厌这个世界，这个世界还是美丽的
+
+
+看在帕西瓦尔本人还挺高洁的份上我给他个面子，可老实说这条异闻带被毁我一点心疼的感觉都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81190#       发表于 2021-8-5 08:29
+
+
+ 本帖最后由 exiaexa 于 2021-8-5 08:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243962&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-8-5 08:24</a>
+
+帕西瓦尔：我希望你可以不要讨厌这个世界，这个世界还是美丽的
+
+
+看在帕西瓦尔本人还挺高洁的份上我给他个 ...</blockquote>
+别提了，我本来想着，帕西瓦尔和梅璐辛这师父妈妈姐姐绕在一起的关系，怎么也得来一段251那种师徒相杀再给个CG吧
+
+结果一个暴走一个硬抗，放个宝具两个人直接原地升天
+
+我他妈人都傻了
+
+
+最草的是后面还要给你塞一段欧罗拉和梅璐辛双箭头贴贴，我就觉得帕西瓦尔你不值啊艹
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  当光停止  
+##### 81191#       发表于 2021-8-5 08:30
+
+
+ 本帖最后由 当光停止 于 2021-8-5 08:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243889&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-5 08:13</a>
+
+是啊，三骑士的3破都没有出现，这个是最难理解的。那么这里胡乱脑洞一下，2.6.5里其实摩根没死，3骑士在某 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妖高三破还是出现过。灾厄出现后，第一次遭遇兽灾时，妖高还有人形，样子就是三破。进阿瓦隆前，有个阿尔比昂得意志，模型是红色妖兰三破，这个算吗？
+有些我先反白了。
+
+
+*****
+
+####  khxooo  
+##### 81192#       发表于 2021-8-5 08:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52243948&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-5 08:21</a>
+只有妖催没出啊，三骑士的3破都是失去摩根束缚的暴走形态
+
+妖高是黑犬的诅咒暴走，变成兽之灾厄，之前还抵 ...</blockquote>
+妖兰不是直接就和咕哒在船上打保卫战吗？
+
+
+*****
+
+####  久井路路  
+##### 81193#       发表于 2021-8-5 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52244031&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-5 08:34</a>
+
+妖兰不是直接就和咕哒在船上打保卫战吗？</blockquote>
+之前在沼泽遇到狐狸的时候妖兰小解放过三破造型（确切来说是游戏系统不用助战妖兰的三破宝具就打不死对手）
+
+
+然后戴冠式篇带着C呆去乐园的路上会遇到阿尔比昂的亡灵，以红色的妖兰三破姿态出现当做对C呆的考验
+
+
+只有妖崔的三破连影子都没有
+
+
+*****
+
+####  exiaexa  
+##### 81194#       发表于 2021-8-5 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52244031&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-5 08:34</a>
+
+妖兰不是直接就和咕哒在船上打保卫战吗？</blockquote>
+其实下星之内海的时候打过一次红色的3破妖兰
+
+但是只是作为阿尔比昂的意象出现的，估计你忘了
+
+
+我也是因为被西哥一炮就送走了都没反应过来这是要干啥
+
+我才记得的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81195#       发表于 2021-8-5 08:46
+
+
+哦，那么真的只有妖崔没有3破形象了，姚崔太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 81196#       发表于 2021-8-5 09:00
+
+
+这里的2.6和隔壁论坛画风完全不同啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81197#       发表于 2021-8-5 09:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52244272&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-8-5 09:00</a>
+
+这里的2.6和隔壁论坛画风完全不同啊</blockquote>
+屎黄色都开始把fate吧开除厨籍了
+
+那画风肯定不一样啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 81198#       发表于 2021-8-5 09:14
+
+
+ 本帖最后由 xiongxingyu 于 2021-8-5 09:17 编辑 
+
+
+个人感觉奥若拉和妖兰这对写得还是不错的，很久没见奥若拉这么屑的反妖兰无下限舔奥若拉也不是不能理解啦，毕竟没有屑若拉当年一拉，妖兰还是一滩烂泥在沼泽里泡着呢，虽然对屑若拉本人这只是无心之举，但对妖兰来说屑若拉就是这世界上唯一的光了。而且妖兰也不是真的完全没有下限，不然也不会在最后对屑若拉彻底幻灭一刀把她捅翻了，只能说妖兰太傻太痴情了。科拉尔也不算死得毫无意义，屑若拉毫无感觉地虐杀了对她忠心耿耿的科拉尔以及打算抛下跟随她的妖精们自己逃走两件事算是压垮妖兰的最后一根稻草，妖兰并不是不明白屑若拉的本质，只是自欺欺人地希望她对部下和追随者还是有那么丁点儿的情义想过来和她殉情，结果屑若拉一句带上我逃到外面去直接让她破防了。
+
+其实妖兰的情况在武侠小说里挺常见的啊，反派头号打手因为年少时被大反派所救，哪怕心知恩人是个道貌岸然的人渣，对自己只是当工具看，也只能一边纠结一边给他卖命，最后对恩人彻底幻灭以后选择一换一“报答最后的恩情”。奥若拉也算今年少见的一屑到底毫无洗白余地的纯派了，能让所有读者都恨得牙痒巴不得扒皮生吞也算是成功了，要选不列颠妖精代表，奥若拉当第二没人能当第一了，简直是集所有妖精缺点于一身的存在。至于迦里的妖兰为啥是ML？异闻带的都是活人，那进卡池的肯定是2.6以后的妖兰了，简单两个字“爱过”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
