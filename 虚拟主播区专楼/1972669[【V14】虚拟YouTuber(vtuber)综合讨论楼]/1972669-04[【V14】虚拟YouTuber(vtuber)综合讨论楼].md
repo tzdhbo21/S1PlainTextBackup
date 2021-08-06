@@ -13627,3 +13627,43 @@ syl vr这个所谓的国际联动也太搞笑<img src="https://static.saraba1st.
 
 
                                                 
+
+*****
+
+####  winda  
+##### 5619#       发表于 2021-8-6 20:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">king吸完uuum吸杰尼斯，这金盾是真的很想要啊
+
+
+*****
+
+####  IDIDIDID  
+##### 5620#       发表于 2021-8-6 20:58
+
+
+不过说实话混箱男v确实方便联动
+
+
+*****
+
+####  我不是很好  
+##### 5621#       发表于 2021-8-6 21:07
+
+
+一个金盾都没有，确实说不过去
+
+
+*****
+
+####  真飞鸟i  
+##### 5622#       发表于 2021-8-6 21:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主流和资本的力量。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+                                                 

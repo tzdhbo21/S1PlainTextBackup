@@ -6854,3 +6854,89 @@ nga的魔怔操作总让我觉得自己和他们玩的不是一个废狗，哦�
 
 
                                                 
+
+*****
+
+####  rooarr  
+##### 81519#       发表于 2021-8-6 21:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52267405&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-6 20:41</a>
+版权贴被删了？可惜啊，不能温习版权了</blockquote>
+居然是那个著名的版权论吗，我以为是什么新乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81520#       发表于 2021-8-6 21:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然发现今天其实也是狐狸单up 然后我把263的石头丢了下去 无事发生    沉船累计数已达390石
+
+
+*****
+
+####  gugu153  
+##### 81521#       发表于 2021-8-6 21:10
+
+
+奥博龙来迦勒底应该还需要点什么，不然池子就已经开了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kzf  
+##### 81522#       发表于 2021-8-6 21:15
+
+
+本来指望着官服小号攒的石头抽不出caber就正好弃坑的，结果三宝了，之前cba也是，也是想着不出正好断舍离，结果二宝。这零氪小号看来是舍不得我，那正好继续白嫖下去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  khxooo  
+##### 81523#       发表于 2021-8-6 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52268032&amp;ptid=1085254" target="_blank">kzf 发表于 2021-8-6 21:15</a>
+
+本来指望着官服小号攒的石头抽不出caber就正好弃坑的，结果三宝了，之前cba也是，也是想着不出正好断舍离， ...</blockquote>
+兄弟你穿越了，这里C呆已经是一年前的版本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81524#       发表于 2021-8-6 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52267851&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 21:07</a>
+突然发现今天其实也是狐狸单up 然后我把263的石头丢了下去 无事发生    沉船累计数已达390石 ...</blockquote>
+恩？不是说了500石沉了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 81525#       发表于 2021-8-6 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52267928&amp;ptid=1085254" target="_blank">gugu153 发表于 2021-8-6 21:10</a>
+
+奥博龙来迦勒底应该还需要点什么，不然池子就已经开了</blockquote>
+比如开个活动？
+
+
+*****
+
+####  zore  
+##### 81526#       发表于 2021-8-6 21:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这2.6.5说不定是写咕哒之前的故事呢
+
+
+                                                 
