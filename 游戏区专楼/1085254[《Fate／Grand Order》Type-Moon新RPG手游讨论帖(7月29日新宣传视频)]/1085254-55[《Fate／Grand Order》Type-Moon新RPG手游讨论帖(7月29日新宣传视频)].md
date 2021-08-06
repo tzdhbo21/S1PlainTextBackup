@@ -5761,3 +5761,108 @@ appmedia直接写了以灵脉石前提作战，攻略班根本集体放弃治疗
 
 
                                                  
+
+*****
+
+####  sosgame67  
+##### 81432#       发表于 2021-8-6 14:35
+
+
+老崔在名无之森被妖精吓得瑟瑟发抖也是真的啊..只能说妖精的个体素质确实高，至于妖精骑士除了丢人的妖崔另外两个都是套皮cos玩呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  静静的古墓  
+##### 81433#       发表于 2021-8-6 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52259190&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-6 10:36</a>
+
+蘑菇压根就不会写百合，而且也不想写百合，他写的两个女性间怎么都看不出一点百合的感情。反正我看菌皇这 ...</blockquote>
+怎么看妖兰和欧若拉。
+
+
+*****
+
+####  zakki  
+##### 81434#       发表于 2021-8-6 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52262288&amp;ptid=1085254" target="_blank">静静的古墓 发表于 2021-8-6 14:38</a>
+
+怎么看妖兰和欧若拉。</blockquote>
+我的评价是完全品不出百合味，虽然我也不是百合厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 81435#       发表于 2021-8-6 14:59
+
+
+帮朋友发个吐槽
+
+看了2.6的人都知道基尔什塔利亚这句是在评价谁呢
+
+
+——是奥伯龙，原来奥伯龙才是A组的成员
+
+
+screenshot20210806120136.png
+(32.94 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-6 14:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/06/145730baujuguvudmppg1w.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 81436#       发表于 2021-8-6 15:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52262288&amp;ptid=1085254" target="_blank">静静的古墓 发表于 2021-8-6 14:38</a>
+
+怎么看妖兰和欧若拉。</blockquote>
+高度劣化版的高老大和叶翔
+
+
+*****
+
+####  khxooo  
+##### 81437#       发表于 2021-8-6 15:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52262104&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-6 14:26</a>
+那些个不能跳过的选项对之后的展开没有任何一点点影响
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+我还以为那些红字选项是因为你之前选了不信任奥伯龙的选项才会出现呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81438#       发表于 2021-8-6 15:08
+
+
+ 本帖最后由 黑上シグマ 于 2021-8-6 15:12 编辑 
+<blockquote>引用第81436楼khxooo于2021-08-06 15:02发表的  :
+
+引用:黑上シグマ 发表于 2021-8-6 14:26那些个不能跳过的选项对之后的展开没有任何一点点......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那些红字选项的确是受之前你的选择决定出不出现，但还是对剧情展开没有毛影响啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺带一提我没出红字选项
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+                                                 
