@@ -13280,3 +13280,27 @@ ssk或许还有机会，其他高校直接寄了
 
 
                                                  
+
+*****
+
+####  暴走的包子  
+##### 5590#       发表于 2021-8-6 13:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v圈都是抄出来的你跟我讲抄袭是黑点
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  空集  
+##### 5591#       发表于 2021-8-6 13:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所谓在日形象被黑都是陈年烂谷子现在还会一直提的只有一种叫尼哥的生物或者说感知树那种 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

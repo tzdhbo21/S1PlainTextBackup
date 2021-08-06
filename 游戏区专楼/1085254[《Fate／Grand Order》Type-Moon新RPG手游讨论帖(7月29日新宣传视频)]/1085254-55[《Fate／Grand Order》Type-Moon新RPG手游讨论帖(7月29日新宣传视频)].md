@@ -5687,3 +5687,77 @@ appmedia直接写了以灵脉石前提作战，攻略班根本集体放弃治疗
 
 
                                                  
+
+*****
+
+####  被子十三  
+##### 81427#       发表于 2021-8-6 14:11
+
+
+这剧情到底有多长？上周开始打2.6，每天固定打两个小时，到现在才到第十节去卡美洛见完摩根
+
+看了一下攻略居然有三十节？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">我能在灵脉石过期之前打完么
+
+现在剧情有那么几个疑点：
+1. 泛人类史的老崔这么容易就没了？感觉就是纯工具人，本来还以为和妖精崔有啥互动的
+2. 说到老崔，这个世界里的妖精是普遍比人类和从者强一大截么？我看老崔使出浑身解数也基本没动妖高一根毫毛，但是看后面妖高自述自己比不过正史高文。如果她不是谦虚的话，是泛人类史从者在这个世界里自带debuff还是妖精骑士实际上就那么强？（其实不只是妖精骑士，头两节看老崔的反应好像哪怕是一般妖精的实力也堪比从者）
+3. 第八节大家被诱惑拖下河的剧情之前，C呆专门问了主角对泛人类史的看法。那个选项是不能跳过的（我选了还是有些不安），但是对那一节的战斗好像看不出什么影响，是有什么长线伏笔么？说实话那一节的氛围是有些奇怪的
+
+（如果涉嫌比较关键的剧透就不要解答了<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  ddr  
+##### 81428#       发表于 2021-8-6 14:20
+
+
+很迷，5周年以来不那么重要的卑弥呼鹤小姐打死不出，但c呆村正摩根杀狐这几个关键的全tm护肤出了
+
+
+*****
+
+####  黑上シグマ  
+##### 81429#       发表于 2021-8-6 14:26
+
+
+<blockquote>引用第81426楼被子十三于2021-08-06 14:11发表的  :
+
+这剧情到底有多长？上周开始打2.6，每天固定打两个小时，到现在才到第十节去卡美洛见完摩根看了一下攻略......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那些个不能跳过的选项对之后的展开没有任何一点点影响
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  exiaexa  
+##### 81430#       发表于 2021-8-6 14:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52261892&amp;ptid=1085254" target="_blank">被子十三 发表于 2021-8-6 14:11</a>
+这剧情到底有多长？上周开始打2.6，每天固定打两个小时，到现在才到第十节去卡美洛见完摩根
+
+看了一下攻略 ...</blockquote>
+老崔已经是泛人类史在本章最高光了，剩下的全是光速下播
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+战斗力的话，这几个妖精骑士都是有问题的，后面会揭晓
+
+然后就是这章真重要的对话会标红，但是也是对主要流程没啥影响，只影响对话
+
+
+*****
+
+####  alucardcz  
+##### 81431#       发表于 2021-8-6 14:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52261338&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-6 13:23</a>
+
+直接卖啊，除了宝石黑杯，其他礼装的等级我觉得真的意义不大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好 隔壁最新言论  现在有20np了满破宝石不就多了1200攻 有什么用 没价值
+
+
+                                                 

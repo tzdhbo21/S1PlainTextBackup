@@ -9659,3 +9659,25 @@ syl 我佛了 这次怎么连贴图都不上了
 
 
                                                  
+
+*****
+
+####  因为你不会  
+##### 12838#       发表于 2021-8-6 14:00
+
+
+ 本帖最后由 因为你不会 于 2021-8-6 14:02 编辑 
+
+绫总甚至可以找著名t主エンマたそ代播，声音听起来居然一毛一样，可以的话建议联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fami水  
+##### 12839#       发表于 2021-8-6 14:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">这位也不播啊 怎么代播
+
+
+                                                 
