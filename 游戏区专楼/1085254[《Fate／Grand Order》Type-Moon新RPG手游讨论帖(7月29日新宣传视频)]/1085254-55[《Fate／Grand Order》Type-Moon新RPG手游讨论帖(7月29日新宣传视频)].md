@@ -5612,3 +5612,43 @@ appmedia直接写了以灵脉石前提作战，攻略班根本集体放弃治疗
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 81421#       发表于 2021-8-6 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52259332&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-6 10:49</a>
+我直接设置的所有礼装直接卖，搓个球的丸子
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+3星礼装还是可以保留的，这样可以省格子，经验又不少。
+
+
+*****
+
+####  alucardcz  
+##### 81422#       发表于 2021-8-6 12:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52259332&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-6 10:49</a>
+
+我直接设置的所有礼装直接卖，搓个球的丸子
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">开始我还是有点耐心的 想着搓点放着  后面越抽越火 逐渐暴躁 
+
+
+*****
+
+####  alucardcz  
+##### 81423#       发表于 2021-8-6 12:15
+
+
+翻页
+
+
+                                                 
