@@ -3094,3 +3094,36 @@ lkd🤤，lkd🤤
 
 
                                                  
+
+*****
+
+####  路人庚  
+##### 287#       发表于 2021-8-6 19:25
+
+
+你咩姐的本音还是那么好听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中间明明都发现了是整人企划结果还是被忽悠过去了可还行
+
+
+*****
+
+####  T_Hb  
+##### 288#       发表于 2021-8-6 19:29
+
+
+啊  有本音吗，我怎么没听到<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 289#       发表于 2021-8-6 19:32
+
+
+ 本帖最后由 路人庚 于 2021-8-6 19:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开头在她觉得是整人企划之前的都可以当作本音来凑合用（
+
+
+                                                 

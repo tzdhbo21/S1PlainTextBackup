@@ -13379,3 +13379,91 @@ syl，已改正
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 5598#       发表于 2021-8-6 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264772&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-8-6 17:27</a>
+
+你别说，“我是狐狸不是猫”这个梗，白姨用法是“狐狸 jai”（手机打不出日文）
+
+我记得还真是化用了爱丽 ...</blockquote>
+  Jai还好...很多人都会爱用这个的。一般是老头子会用（好像是很早的日本男性用语），后来泛化了。
+
+  
+
+  以及当时想这个只是想嘲讽国内一些日V观众没品，喜欢一些哆啦A梦就开始用的烂梗。
+
+
+*****
+
+####  真飞鸟i  
+##### 5599#       发表于 2021-8-6 18:44
+
+
+ 本帖最后由 真飞鸟i 于 2021-8-6 18:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52260507&amp;ptid=1972669" target="_blank">妹控使徒 发表于 2021-8-6 12:20</a>
+求个老垃圾   
+
+
+谁还记得白狐狸抄梗狂魔的详细? 我只记得那个玉米梗最初是阿委的, 其他记得也有不少抄来的 ...</blockquote>
+你找你头上的free啊，v综最早我就是看见他发的那一长串。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  alcoholic1000  
+##### 5600#       发表于 2021-8-6 19:08
+
+
+<img src="https://img.saraba1st.com/forum/202108/06/190752vqbllsl7bsspkbzl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>クラッカー赤羽葉子3Dお披露目配信決定！！】.jpeg</strong> (505.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-6 19:07 上传
+
+
+【🎉赤羽葉子3Dお披露目配信決定！！】
+
+
+赤羽葉子(@Youko_Akabane)の、3Dお披露目配信日が決定いたしました！
+
+
+≪ 8/13(金) 21:00 ≫ 配信開始！！
+
+
+💀待機場所はこちら▽
+[https://youtu.be/zr0YCWq8uTc](https://youtu.be/zr0YCWq8uTc)
+
+お見逃しなく！
+
+
+*****
+
+####  我不是很好  
+##### 5601#       发表于 2021-8-6 19:17
+
+
+ 本帖最后由 我不是很好 于 2021-8-6 19:18 编辑 
+
+奶一口20万<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lhawp  
+##### 5602#       发表于 2021-8-6 19:17
+
+
+联动完HIKAKIN联动山田涼介，葛叶现在是真正意义上的虹头牌了
+
+
+                                                 

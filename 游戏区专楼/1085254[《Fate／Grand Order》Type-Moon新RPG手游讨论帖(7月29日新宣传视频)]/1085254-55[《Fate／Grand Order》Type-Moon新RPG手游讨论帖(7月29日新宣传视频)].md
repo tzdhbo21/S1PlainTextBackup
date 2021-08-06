@@ -6433,3 +6433,306 @@ screenshot20210806120136.png
 
 
                                                 
+
+*****
+
+####  alucardcz  
+##### 81487#       发表于 2021-8-6 18:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁看到一个帖子说武藏黑杯一炮24万单体好低啊  有没有人帮忙回忆下满配伯爵和狂兰一波能打多少伤害的  。 
+
+
+*****
+
+####  zakki  
+##### 81488#       发表于 2021-8-6 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264841&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-8-6 17:32</a>
+布妹都被人遗忘了，我觉得可以强化下了</blockquote>
+布姐无敌的啊，我一宝布姐随便3t队长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  alucardcz  
+##### 81489#       发表于 2021-8-6 18:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265681&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-6 18:35</a>
+
+布姐无敌的啊，我一宝布姐随便3t队长</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们说的绿光炮的那个
+
+
+*****
+
+####  zakki  
+##### 81490#       发表于 2021-8-6 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265666&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 18:34</a>
+隔壁看到一个帖子说武藏黑杯一炮24万单体好低啊  有没有人帮忙回忆下满配伯爵和狂兰一波能打多少伤 ...</blockquote>
+他操作有问题吧，底下人发的伤害都不止24w。好羡慕有武藏的啊，福袋就是抽不到，也不复刻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81491#       发表于 2021-8-6 18:37
+
+
+<blockquote>引用第81487楼zakki于2021-08-06 18:35发表的  :
+
+引用:yangun22 发表于 2021-8-6 17:32布妹都被人遗忘了，我觉得可以强化下了布姐......</blockquote>
+朋友，布妹，不是布姐
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  zakki  
+##### 81492#       发表于 2021-8-6 18:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265718&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-6 18:37</a>
+朋友，布妹，不是布姐
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+都忘了有这号人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aunn  
+##### 81493#       发表于 2021-8-6 18:39
+
+
+黑贞宝具本挺实用的，虽然周回还是上不了场，竞速也和我一宝图鉴党也没什么关系
+
+
+*****
+
+####  alucardcz  
+##### 81494#       发表于 2021-8-6 18:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265716&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-6 18:37</a>
+
+他操作有问题吧，底下人发的伤害都不止24w。好羡慕有武藏的啊，福袋就是抽不到，也不复刻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">底下的有些留了3技能还开了衣服技能也不能算数 顺便1宝百级其他全部满配 不开衣服技能没有3技能减防 3面是22万  差不多
+
+
+*****
+
+####  zore  
+##### 81495#       发表于 2021-8-6 18:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">明天的强化当然是从剧情限定里挑了
+
+我还没选呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81496#       发表于 2021-8-6 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265753&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 18:40</a>
+
+底下的有些留了3技能还开了衣服技能也不能算数 顺便1宝百级其他全部满配 不开衣服技能没有3技能减 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我没有满破宝石 百级满金芙芙二宝伯爵好像最后18W的怪都打着费劲的样子
+
+
+*****
+
+####  alucardcz  
+##### 81497#       发表于 2021-8-6 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265779&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-6 18:43</a>
+
+我没有满破宝石 百级满金芙芙二宝伯爵好像最后18W的怪都打着费劲的样子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有证据怀疑隔壁可能跨时空先开了a狐再开c呆池
+
+
+*****
+
+####  qixinno2  
+##### 81498#       发表于 2021-8-6 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265793&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 18:44</a>
+
+我有证据怀疑隔壁可能跨时空先开了a狐再开c呆池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉隔壁的人就很神奇
+
+
+*****
+
+####  保罗赫伯特  
+##### 81499#       发表于 2021-8-6 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264920&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-6 17:37</a>
+
+别说了，这会议里提到的点几乎都吃书了
+
+当初贝尔利说什么自己遇到个深闺大小姐疯狂地迷恋她，不谙世事到 ...</blockquote>
+好像是因为后来加了奥伯龙，剧本整个改了，很多前面的细节也对不上，本来是以摩根为最终boss。
+
+
+*****
+
+####  保罗赫伯特  
+##### 81500#       发表于 2021-8-6 18:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264979&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-6 17:41</a>
+
+其实怎么看戏份都是被奥伯龙抢了
+
+毕竟奥伯龙的缇坦妮雅是C呆</blockquote>
+缇坦妮雅是奥伯龙的老婆吧，剧情里有提到奥伯龙喜欢c呆吗？
+
+
+*****
+
+####  zakki  
+##### 81501#       发表于 2021-8-6 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265753&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 18:40</a>
+底下的有些留了3技能还开了衣服技能也不能算数 顺便1宝百级其他全部满配 不开衣服技能没有3技能减 ...</blockquote>
+我一宝满配仇凛都有22w，不过开了极地服的技能
+
+
+*****
+
+####  alucardcz  
+##### 81502#       发表于 2021-8-6 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265962&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-6 18:58</a>
+
+我一宝满配仇凛都有22w，不过开了极地服的技能</blockquote>
+3技能减防+极地服全部算上 1宝是33万
+
+
+不过没什么意义 我从来不按衣服技能 3技能一直第1波直接开了
+
+
+*****
+
+####  khxooo  
+##### 81503#       发表于 2021-8-6 19:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265938&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2021-8-6 18:55</a>
+
+缇坦妮雅是奥伯龙的老婆吧，剧情里有提到奥伯龙喜欢c呆吗？</blockquote>
+有啊，里面咕哒对奥伯龙说，对于现在的他来说，C呆就是他的缇坦妮雅。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|谢谢解惑|
+
+
+查看全部评分
+
+
+*****
+
+####  zakki  
+##### 81504#       发表于 2021-8-6 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265975&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 18:59</a>
+3技能减防+极地服全部算上 1宝是33万
+
+
+不过没什么意义 我从来不按衣服技能 3技能一直第1波直接开了 ...</blockquote>
+所以说一宝仇凛太难受了，福袋抽的仇凛和武藏的那个，结果杨贵妃+1<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81505#       发表于 2021-8-6 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52266030&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-6 19:03</a>
+
+所以说一宝仇凛太难受了，福袋抽的仇凛和武藏的那个，结果杨贵妃+1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比我出了个村正好
+
+
+*****
+
+####  森兰丸  
+##### 81506#       发表于 2021-8-6 19:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">所以说明明平时都天天在摸了....又不肯撤底退休还非要时不时出来刷存在感的元老真的是老害啊
+
+
+原本的大纲都定好了.....结果临时想出个点子后砍了重做....把整个计划都打乱掉.....周围的人也跟着遭罪....赶工写出来的东西又是什么狗屁不通的东西....除了蘑菇自己自HIGH外到底谁得
+
+
+*****
+
+####  alucardcz  
+##### 81507#       发表于 2021-8-6 19:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52266036&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-6 19:04</a>
+
+所以说明明平时都天天在摸了....又不肯撤底退休还非要时不时出来刷存在感的元老真的是老害啊
+
+
+原本 ...</blockquote>
+nga得了 吹爆了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81508#       发表于 2021-8-6 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52266049&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 19:05</a>
+
+nga得了 吹爆了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">所以NGA才一直是这里的快乐源泉啊
+
+
+                                                 
