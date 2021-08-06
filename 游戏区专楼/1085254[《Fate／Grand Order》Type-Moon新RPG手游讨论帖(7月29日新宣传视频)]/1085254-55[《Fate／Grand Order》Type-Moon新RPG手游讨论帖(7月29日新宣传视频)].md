@@ -7568,3 +7568,170 @@ https://bbs.nga.cn/read.php?tid=27952630
 
 
                                                 
+
+*****
+
+####  zore  
+##### 81576#       发表于 2021-8-6 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269879&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 23:31</a>
+
+那差的挺多的 他是90级+20级的宝石</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不特攻是这样的,还是白字
+
+不然怎么说超级印度人不说超级英国人
+
+
+*****
+
+####  alucardcz  
+##### 81577#       发表于 2021-8-6 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269891&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-6 23:32</a>
+
+不特攻是这样的,还是白字
+
+不然怎么说超级印度人不说超级英国人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥白字 肯定是红字啊    满破宝石 vs 20级宝石  19w vs 11w也差太多了 不科学 
+
+其实你是触发了特攻？ 
+
+
+*****
+
+####  zore  
+##### 81578#       发表于 2021-8-6 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269906&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 23:35</a>
+
+啥白字 肯定是红字啊    满破宝石 vs 20级宝石  19w vs 11w也差太多了 不科学 
+
+其实你是触发了特 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">他这下面写的就是白字伤害啊
+
+
+*****
+
+####  alucardcz  
+##### 81579#       发表于 2021-8-6 23:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269979&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-6 23:43</a>
+
+他这下面写的就是白字伤害啊</blockquote>
+醒醒 王姐怎么打白字 你看他这表格上数字颜色是不一样的 王姐是红色的   白字说的是其他人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81580#       发表于 2021-8-6 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269993&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 23:45</a>
+
+醒醒 王姐怎么打白字 你看他这表格上数字颜色是不一样的 王姐是红色的   白字说的是其他人 ...</blockquote>
+[https://www.bilibili.com/video/BV1oy4y157W2](https://www.bilibili.com/video/BV1oy4y157W2)
+
+这是我能找到跟我最像的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81581#       发表于 2021-8-6 23:56
+
+
+ 本帖最后由 alucardcz 于 2021-8-6 23:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270043&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-6 23:53</a>
+[https://www.bilibili.com/video/BV1oy4y157W2](https://www.bilibili.com/video/BV1oy4y157W2)
+
+这是我能找到跟我最像的了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等等 这2宝才10万  符合上面那个表格啊 你说你19万 差的太远了
+
+
+*****
+
+####  zore  
+##### 81582#       发表于 2021-8-7 00:01
+
+
+ 本帖最后由 zore 于 2021-8-7 00:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270069&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 23:56</a>
+
+等等 这2宝才10万  符合上面那个表格啊 你说你19万 差的太远了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">懂了,原来你是要比单体啊.摩根无特攻单体能强到哪去
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81583#       发表于 2021-8-7 00:01
+
+
+打完了 这剧情我怎么说其他的前面都吐槽过了 就随便拣点吧
+
+ 我预想中的2.6.3 后篇中的各方势力暗潮涌动 茉莉安叨叨好久的一盘大棋  北之女王王权正统 还有斯普利根和欧罗拉两只老狐狸 摩根搞不好也是诈死  在戴冠式里一触即发的群雄混战
+
+实际上的2.6.3 梅芙开场寄了 然后几大族领头光速扑街 剧情一转回到简洁明了的过关斩将推boss模式<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+咋感觉就是蘑菇嫌角色太多到终篇不好写就直接掀桌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">留几个主角团跟npc得了
+
+然后就是无比熟悉的打不过就找装备\npc前来助拳\放烟花<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+最后就是贝屑 A组介绍时被特地跳过的谜之贝屑 
+
+一直在会议上跳脸刷存在感的贝屑
+
+执着于马修的贝屑
+
+被队长评价善于完成自己讨厌的工作的贝屑
+
+被蘑菇评价为最愿意打交道的A组贝屑
+
+被佐佐木评价迫不及待想要跟大家分享其真相的贝屑
+
+2.5.2跟狐狸采购了一大堆商品的贝屑
+
+集结了以上buff如此复杂 刷满了神秘感的贝屑
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无语凝噎
+
+
+*****
+
+####  rooarr  
+##### 81584#       发表于 2021-8-7 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270109&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-7 00:01</a>
+懂了,原来你是要比单体啊.摩根无特攻单体能强到哪去</blockquote>
+说伤害当然是只看对单体多少伤害，还有看总伤害数字的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 81585#       发表于 2021-8-7 00:08
+
+
+我去看了那个艾蕾解包贴，只能说如果是真的这个副效果垃圾的一逼<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+有病吧你好歹把宝具后加功前置啊！而且艾蕾一技能不是有即死无效吗？为什么宝具本还要再来一个群体即死无效啊？<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81586#       发表于 2021-8-7 00:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270140&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 00:04</a>
+
+说伤害当然是只看对单体多少伤害，还有看总伤害数字的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没反应过来
+
+
+                                                 
