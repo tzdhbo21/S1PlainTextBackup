@@ -6736,3 +6736,121 @@ nga得了 吹爆了</blockquote>
 
 
                                                  
+
+*****
+
+####  cckuku  
+##### 81509#       发表于 2021-8-6 19:23
+
+
+别问，问就是公款追星。为自己的偶像改大纲能叫乱来吗？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81510#       发表于 2021-8-6 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265938&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2021-8-6 18:55</a>
+缇坦妮雅是奥伯龙的老婆吧，剧情里有提到奥伯龙喜欢c呆吗？</blockquote>
+只要你认真看剧情就问不出这种问题啊
+
+比较明显的就是剧情里一直在渲染c呆和明亮之星，最后单挑奥伯龙的时候有一个选项，那缇坦妮娅（标注是闪亮之星）呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  v22325  
+##### 81511#       发表于 2021-8-6 19:39
+
+
+奥伯龙其实真要单独拉出来写个活动剧情也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81512#       发表于 2021-8-6 19:50
+
+
+手动翻页
+
+
+*****
+
+####  alucardcz  
+##### 81513#       发表于 2021-8-6 19:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁那24万的贴居然被删了 这也删？
+
+
+*****
+
+####  KOBI  
+##### 81514#       发表于 2021-8-6 19:55
+
+
+ 本帖最后由 KOBI 于 2021-8-6 19:58 编辑 
+
+真要说奥博龙可能真会有独立活动吧
+
+他不是一般的死掉而是在奈落之虫里无限下落，虽然说FGO卡池向来不讲理但这真的能上座？
+
+总不能最后那瓦砾一样声音是他被妖兰轰开的身体砸死吧。。
+
+
+*****
+
+####  任天索尼子  
+##### 81515#       发表于 2021-8-6 20:00
+
+
+用送的石头出了二宝杀狐，最近太欧白嫖太多我都有点害怕了，日服一分钱没花白嫖一宝摩根二宝妖兰二宝杀狐  国服白嫖莉莉丝 然后昨天用送的100石二宝C呆<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  久井路路  
+##### 81516#       发表于 2021-8-6 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52266649&amp;ptid=1085254" target="_blank">KOBI 发表于 2021-8-6 19:55</a>
+
+真要说奥博龙可能真会有独立活动吧
+
+他不是一般的死掉而是在奈落之虫里无限下落，虽然说FGO卡池向来不讲理但 ...</blockquote>
+说奈落之虫里会无限下落的是他自己，然后奥伯龙是个大骗子
+
+
+有没有可能其实是有底的，然后最后那瓦砾声就是他掉到底的声音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sosgame67  
+##### 81517#       发表于 2021-8-6 20:13
+
+
+nga的魔怔操作总让我觉得自己和他们玩的不是一个废狗，哦，大多是国服云玩家啊，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺带2.6这段操作下来感觉就是打了个大型活动本，我觉得完全不扯主线人物可能会体感更好
+
+
+*****
+
+####  khxooo  
+##### 81518#       发表于 2021-8-6 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52266599&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 19:51</a>
+
+隔壁那24万的贴居然被删了 这也删？</blockquote>
+版权贴被删了？可惜啊，不能温习版权了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                

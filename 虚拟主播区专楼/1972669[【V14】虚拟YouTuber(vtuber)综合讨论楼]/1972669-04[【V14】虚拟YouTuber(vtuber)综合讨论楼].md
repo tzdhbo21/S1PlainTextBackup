@@ -13467,3 +13467,163 @@ syl，已改正
 
 
                                                  
+
+*****
+
+####  心垂万刃  
+##### 5603#       发表于 2021-8-6 19:32
+
+
+14万了，不知道能🌿上多少同接<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 5604#       发表于 2021-8-6 19:35
+
+
+头牌大半年了
+
+
+*****
+
+####  ygysh0505  
+##### 5605#       发表于 2021-8-6 19:37
+
+
+但我记得上次黑黑周年的repo里葛叶自己说enkr今年才认识到黑黑是摇钱树<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCAT00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  dybang  
+##### 5606#       发表于 2021-8-6 19:43
+
+
+各种大型企划总得延后几个月的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霜浪  
+##### 5607#       发表于 2021-8-6 19:46
+
+
+薅黑黑的钱养底边是吧
+
+
+*****
+
+####  IDIDIDID  
+##### 5608#       发表于 2021-8-6 19:50
+
+
+king老大家庭了，你去king频道发一条别养叶子这个底边了看他会不会封了你🤗
+
+
+*****
+
+####  集合酱  
+##### 5609#       发表于 2021-8-6 19:50
+
+
+ 本帖最后由 集合酱 于 2021-8-6 19:52 编辑 
+
+大胆点，下周就金盾
+
+葛皇停下来等等你的同事们吧
+
+
+*****
+
+####  dybang  
+##### 5610#       发表于 2021-8-6 19:54
+
+
+<img src="https://p.sda1.dev/2/83c46d8eff04479351260ba504a48b24/IMG_CMP_248516184.png" referrerpolicy="no-referrer">
+这新全家福值好多篇小作文<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  我不是很好  
+##### 5611#       发表于 2021-8-6 19:56
+
+
+nijisanji真温暖啊
+
+
+*****
+
+####  IDIDIDID  
+##### 5612#       发表于 2021-8-6 19:59
+
+
+倒是king的相好得想办法追上king的孤独了。
+
+
+*****
+
+####  asdhai  
+##### 5613#       发表于 2021-8-6 20:07
+
+
+king是真正的king
+
+
+*****
+
+####  opersuper  
+##### 5614#       发表于 2021-8-6 20:15
+
+
+狐皇抄月之抄白下抄なんJ，v圈的创新力0
+
+
+*****
+
+####  Suny08  
+##### 5615#       发表于 2021-8-6 20:16
+
+
+舞元我鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 5616#       发表于 2021-8-6 20:25
+
+
+可怜的大小姐
+
+
+*****
+
+####  FCCHua  
+##### 5617#       发表于 2021-8-6 20:28
+
+
+3d跳了走姐啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+歌势...我的歌势...
+syl vr这个所谓的国际联动也太搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 5618#       发表于 2021-8-6 20:33
+
+
+就事论事King在带同事这点上还挺有担当的，彩虹很多liver冲银盾时都被他喂过
+
+
+算king的大气吗...虽然感觉也是近一年才开始的
+
+
+                                                
