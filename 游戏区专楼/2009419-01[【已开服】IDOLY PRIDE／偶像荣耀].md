@@ -5654,3 +5654,16 @@ iPad Pro了性能应该没关系，就是拍好了用胶卷实写时经常失败
 
 
                                                  
+
+*****
+
+####  Aureth  
+##### 405#       发表于 2021-8-6 08:53
+
+
+攒够了升105级的经验没想到卡账号等级了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

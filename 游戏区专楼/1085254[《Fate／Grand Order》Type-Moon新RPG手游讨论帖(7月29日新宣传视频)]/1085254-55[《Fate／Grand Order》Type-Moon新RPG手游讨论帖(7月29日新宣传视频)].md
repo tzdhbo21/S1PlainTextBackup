@@ -5461,3 +5461,38 @@ dw，我的铁废物，你几时能出个100连的按钮啊<img src="https://sta
 
 
                                                  
+
+*****
+
+####  angelooo  
+##### 81410#       发表于 2021-8-6 07:32
+
+
+<blockquote>久井路路 发表于 2021-8-6 00:16
+羁绊语音和会话3的内容分男女，咕哒夫的话哈贝喵就是当丘比特给咕哒夫找姻缘（绊2时会问咕哒夫你和玛修什 ...</blockquote>
+这不挺好的，真可爱
+
+
+*****
+
+####  6x6z6w  
+##### 81411#       发表于 2021-8-6 07:34
+
+
+ 本帖最后由 6x6z6w 于 2021-8-6 07:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52248703&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-5 14:35</a>
+
+appmedia直接写了以灵脉石前提作战，攻略班根本集体放弃治疗了</blockquote>
+今天看油管上某个up不用石头的攻略，第一管血直接用100级黑杯大英雄炸完，然后梅呆卑龟壳大法苟到最后一管血，最后3宝小王子丝血单挑打完，太惊险刺激了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 81412#       发表于 2021-8-6 09:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">还没打完所以还没抽。看到楼里的人我这400W友情有点慌
+
+
+                                                 

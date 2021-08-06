@@ -6083,3 +6083,39 @@ beta推了用了半个小时实在受不了这个新开始菜单（我需要可�
 
 
                                                  
+
+*****
+
+####  Litccc  
+##### 505#       发表于 2021-8-6 06:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52216703&amp;ptid=2011727" target="_blank">猫溺泉君 发表于 2021-8-3 09:06</a>
+windows hello不能用了，绝了</blockquote>
+今天的dev更新说修复了
+
+
+*****
+
+####  404489039  
+##### 506#       发表于 2021-8-6 08:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52252545&amp;ptid=2011727" target="_blank">御坂MKII 发表于 2021-8-5 19:17</a>
+哪个国产软件和 win 11 犯冲啊
+
+beta channel 是升了之后桌面直接崩，现在在安全模式一个一个删软件 ...</blockquote>
+用户profile删了重建，或者新建个账号
+dev的时候就有这个毛病好像
+
+
+*****
+
+####  baiducaonima  
+##### 507#       发表于 2021-8-6 08:32
+
+
+文件拖动到任务栏程序打开还是没回来
+
+
+                                                 

@@ -9233,3 +9233,23 @@ DLC种类，传说一直很足<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+*****
+
+####  AkariHayasaka  
+##### 2177#       发表于 2021-8-6 08:35
+
+
+看到女主的第一眼我就想买了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  布里兰特  
+##### 2178#       发表于 2021-8-6 08:43
+
+
+不看好日本人能写好这种反抗压迫者的剧情，不过买还是会买
+
+
+                                                 
