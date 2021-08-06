@@ -7746,3 +7746,45 @@ https://bbs.nga.cn/read.php?tid=27952630
 
 
                                                  
+
+*****
+
+####  久井路路  
+##### 81588#       发表于 2021-8-7 01:50
+
+
+ 本帖最后由 久井路路 于 2021-8-7 01:55 编辑 
+
+妖崔的追加语音，突出一个薛定谔的眼光（
+
+
+这家伙身为局外人能看穿妖兰x欧罗拉的扭曲关系，能看出欧罗拉是个超级烂人，这眼光比一大票不列颠居民都来得好了，却还是因为“每次都被妖精骗”而死，也对贝利尔所说的一切坚信不疑
+
+
+你到底是会看人还是不会看人（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+等下，说到妖崔我想起来了，2.63里有哪里回收了那个和贝屑通信、差点被妖崔撞到的神秘人的伏笔吗，还是我推的时候看漏了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 81589#       发表于 2021-8-7 01:55
+
+
+ 本帖最后由 v22325 于 2021-8-7 01:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270749&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-8-7 01:50</a>
+
+妖崔的追加语音，突出一个薛定谔的眼光（
+
+
+这家伙身为局外人能看穿妖兰x欧罗拉的扭曲关系，能看出欧罗拉是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能说就是这么个傻白甜 这次特别凶残一方面是贝利尔的影响 另外我记得好像有一段摩根找到她说啥来着 就算这次残暴也好什么的也希望他好好活下去？
+
+摩根也不遑多让啊 当个救世主被迫害那么多次还搞了几千年 女王历还看在仅有的几个好妖精的面子上对妖精国也不算对妖精特别特别苛刻
+
+妈的想想摩根最后被乱刀分尸就没了也太惨了 搞的跟烂尾一样 追星把奥伯龙加进去好歹摩根再写写啊
+
+
+                                                 
