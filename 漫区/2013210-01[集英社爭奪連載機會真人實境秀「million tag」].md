@@ -2453,3 +2453,18 @@ j+熱門漫畫裡最考慮手機作為閱讀媒介而去創作的漫畫應該是
 
 
                                                  
+
+*****
+
+####  碳酸锂缓释片  
+##### 166#       发表于 2021-8-6 17:15
+
+
+第六集已更新
+[https://www.youtube.com/watch?v=JoBPljR9PiU](https://www.youtube.com/watch?v=JoBPljR9PiU)
+<img src="http://tvax3.sinaimg.cn/large/006ajUXPly1gt76om44fhj30pe0ea13i.jpg" referrerpolicy="no-referrer">
+
+各组作品：[https://sp.shonenjump.com/p/sp/million-tag/#ep6](https://sp.shonenjump.com/p/sp/million-tag/#ep6)
+
+
+                                                 

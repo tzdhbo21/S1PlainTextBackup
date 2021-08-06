@@ -5866,3 +5866,207 @@ screenshot20210806120136.png
 
 
                                                  
+
+*****
+
+####  yangun22  
+##### 81439#       发表于 2021-8-6 15:40
+
+
+最后全选红色的话在和他开干前能多一段奥伯龙的自白，因为从者性质上他说的话都是谎言，所以不停拆穿他其实才算是他的理解者
+
+
+*****
+
+####  rollingusagi  
+##### 81440#       发表于 2021-8-6 15:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">磕欧若拉和妖兰百合的和磕双王的是不是一类人啊，反正就是只要有爱不管爱的形式如何都ok是吧，那贝屑和玛修岂不是也能嗑
+
+
+*****
+
+####  alucardcz  
+##### 81441#       发表于 2021-8-6 16:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有1小时不到黑贞就要强化了（
+
+
+*****
+
+####  zakki  
+##### 81442#       发表于 2021-8-6 16:30
+
+
+看了隔壁nga，原来攒石党这么恐怖的么，随随便便拿出1000个石头，石不过三随缘抽池永远没有这种体验
+
+
+*****
+
+####  alucardcz  
+##### 81443#       发表于 2021-8-6 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52263837&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-6 16:30</a>
+
+看了隔壁nga，原来攒石党这么恐怖的么，随随便便拿出1000个石头，石不过三随缘抽池永远没有这种体验 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后没抽到的酸爽感也加倍
+
+
+说话说这种没保底机制的游戏肯定是随缘抽卡比较舒适
+
+
+*****
+
+####  zakki  
+##### 81444#       发表于 2021-8-6 16:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52263896&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 16:34</a>
+
+然后没抽到的酸爽感也加倍
+
+
+说话说这种没保底机制的游戏肯定是随缘抽卡比较舒适 ...</blockquote>
+是啊，石不过三随缘抽很爽，不抱期待没准就碰上惊喜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sosgame67  
+##### 81445#       发表于 2021-8-6 16:46
+
+
+我日服也是攒石党啊，现在都2600石头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81446#       发表于 2021-8-6 16:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52262212&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 14:32</a>
+
+你好 隔壁最新言论  现在有20np了满破宝石不就多了1200攻 有什么用 没价值 ...</blockquote>
+除了狗粮本，谁还带宝石啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁也是脑子转不过来
+
+
+*****
+
+####  alucardcz  
+##### 81447#       发表于 2021-8-6 16:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264078&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-6 16:47</a>
+
+除了狗粮本，谁还带宝石啊隔壁也是脑子转不过来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁这不是绿卡时代吗  才刚刚出c呆啊
+
+
+*****
+
+####  alucardcz  
+##### 81448#       发表于 2021-8-6 16:51
+
+
+话说我钱已经19亿了  刷爆之后在去哪刷羁绊  最高级狗粮本基础羁绊多少？
+
+
+*****
+
+####  黑上シグマ  
+##### 81449#       发表于 2021-8-6 16:57
+
+
+<blockquote>引用第81447楼alucardcz于2021-08-06 16:51发表的  :
+
+话说我钱已经19亿了  刷爆之后在去哪刷羁绊  最高级狗粮本基础羁绊多少？</blockquote>
+自然是新素材刷起来呗
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  alucardcz  
+##### 81450#       发表于 2021-8-6 17:01
+
+
+真的是黑贞（
+
+
+
+
+*****
+
+####  angelooo  
+##### 81451#       发表于 2021-8-6 17:03
+
+
+果然是黑贞，感觉这次的四五星强化猜中的都挺多，都是之前呼声很大的那些
+
+
+*****
+
+####  alucardcz  
+##### 81452#       发表于 2021-8-6 17:04
+
+
+翻页
+
+
+*****
+
+####  zakki  
+##### 81453#       发表于 2021-8-6 17:05
+
+
+副效果是给星星吗，用处不大，杀狐星星多。什么时候给个50自充
+
+
+*****
+
+####  zakki  
+##### 81454#       发表于 2021-8-6 17:05
+
+
+风怒
+
+
+*****
+
+####  zakki  
+##### 81455#       发表于 2021-8-6 17:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264064&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-8-6 16:46</a>
+
+我日服也是攒石党啊，现在都2600石头了</blockquote>
+怎么攒这么多的，那你要是一单没充我不敢相信能攒这么多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不垃圾屌丝  
+##### 81456#       发表于 2021-8-6 17:08
+
+
+终于轮到黑贞了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">虽然这个强化也没啥用
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 81457#       发表于 2021-8-6 17:08
+
+
+明天目标太多奶不动了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                

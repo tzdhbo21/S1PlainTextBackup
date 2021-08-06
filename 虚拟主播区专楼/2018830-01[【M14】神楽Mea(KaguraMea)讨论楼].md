@@ -2991,3 +2991,81 @@ lkd🤤，lkd🤤
 
 
                                                  
+
+*****
+
+####  草牛  
+##### 277#       发表于 2021-8-6 15:57
+
+
+我的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">雷达响了
+
+
+*****
+
+####  T_Hb  
+##### 278#       发表于 2021-8-6 16:06
+
+
+ 本帖最后由 T_Hb 于 2021-8-6 16:13 编辑 
+
+我是真的服，对东卍契而不舍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还可以，就是你麻被吓到的反应不太真实
+
+
+*****
+
+####  ashero  
+##### 279#       发表于 2021-8-6 16:16
+
+
+这个录的时间是那个恐怖游戏四人联动的前一天录的来着  绿熊 我的超人
+
+
+*****
+
+####  呓亘  
+##### 280#       发表于 2021-8-6 16:22
+
+
+ 绿熊 绿熊 我爱你！！！！
+
+
+*****
+
+####  Klience  
+##### 281#       发表于 2021-8-6 16:54
+
+
+动画企划？ 那估计要用上3D了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 282#       发表于 2021-8-6 16:56
+
+
+没啊，这个小短片就是的，不过绿熊说最近忙着收录活动什么的，说不定可能有。
+
+
+*****
+
+####  azccc52  
+##### 283#       发表于 2021-8-6 17:03
+
+
+得<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 284#       发表于 2021-8-6 17:24
+
+
+这人是真的因为漫画哭了？？？一开始我还以为是整活装的....
+
+
+                                                 
