@@ -7788,3 +7788,90 @@ https://bbs.nga.cn/read.php?tid=27952630
 
 
                                                  
+
+*****
+
+####  森兰丸  
+##### 81590#       发表于 2021-8-7 02:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270749&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-8-7 01:50</a>
+
+妖崔的追加语音，突出一个薛定谔的眼光（
+
+
+这家伙身为局外人能看穿妖兰x欧罗拉的扭曲关系，能看出欧罗拉是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">描写的不合理矛盾的地方多了去了....别多问....问就是蘑菇是真不行
+
+
+这2.6打完我现在就指望出个什么东西能让蘑菇沉迷到这游戏关服.....别出来趟浑水了
+
+
+*****
+
+####  森兰丸  
+##### 81591#       发表于 2021-8-7 02:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270767&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-7 01:55</a>
+
+只能说就是这么个傻白甜 这次特别凶残一方面是贝利尔的影响 另外我记得好像有一段摩根找到她说啥来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">泛人类史的摩根原来的性格设定就是个擅于玩弄谋略和奸计.....妒忌心非常严重的恶毒魔女.....结果你告诉我就这么个傻白甜？
+
+
+也是到现在为止唯一一个被盖提亚正面称赞的异闻带王.....最后落得这么个下场简直是天大的笑话
+
+
+*****
+
+####  v22325  
+##### 81592#       发表于 2021-8-7 02:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270891&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-7 02:44</a>
+
+泛人类史的摩根原来的性格设定就是个擅于玩弄谋略和奸计.....妒忌心非常严重的恶毒魔女.....结果 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我唯一能给他找个理由的话就是这个摩根只是有英灵情报的异闻带傻白甜妖精，看到个不列颠没有其他亚瑟王啊什么的竞争对手就春心荡漾少女情怀发作了，那段想介绍妖精国不列颠是个美丽的国家给咕哒他们看实在是太少女了，某日本人说的没错啊，做什么少女梦该醒醒了。
+
+贝利尔召唤出来然后一夜之间干了那么个大事写的还是有点逼格的，但王座那里就算是被沃德沃斯咬了一口受伤也太重了吧，然后被几个杂鱼砍了一刀就不行了。
+
+这烂尾太烂了
+
+
+*****
+
+####  森兰丸  
+##### 81593#       发表于 2021-8-7 03:13
+
+
+ 本帖最后由 森兰丸 于 2021-8-7 03:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270925&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-7 02:56</a>
+
+我唯一能给他找个理由的话就是这个摩根只是有英灵情报的异闻带傻白甜妖精，看到个不列颠没有其他亚 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更可笑的是蘑菇在竹箒日記里还特别补充了白狗的那一下摩根其实是有足够的实力能够躲开的....我看了后就满脸的问号.....这到底是在吹摩根还是在黑
+
+
+于是大姐你是选择硬食不躲是么？要装逼也请你看看场合啊
+
+外面一堆人还在打仗.....周围那些天天围在你身边的妖精是群什么屑你又不是不知道.....一个能信任的人都没有....这时露出破绽你这不是自己作死吗.....或者一开始就在身边留几个分身也不至于这么惨....本体一点防备也没....就真的是no zuo no die
+
+
+*****
+
+####  久井路路  
+##### 81594#       发表于 2021-8-7 04:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270767&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-7 01:55</a>
+
+只能说就是这么个傻白甜 这次特别凶残一方面是贝利尔的影响 另外我记得好像有一段摩根找到她说啥来 ...</blockquote>
+我说的不是这个意思，是指妖崔这人到底是装傻还是真傻（<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+妖精国里只有妖兰中村那么几个人看出欧罗拉烂透的本性，再排除摩根C呆奥伯龙这些有妖精眼能一眼看出来的，基本上得是欧罗拉的侧近或者合作对象才看得出来，妖崔既没有妖精眼也没和欧罗拉就近打过交道，却连妖兰在被欧罗拉PUA都看得出来，也知道欧罗拉是个烂人。
+
+
+有这等眼光却对贝屑啥都看不穿，每次转生都被人利用被人欺骗，这家伙的傻白甜太薛定谔了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
