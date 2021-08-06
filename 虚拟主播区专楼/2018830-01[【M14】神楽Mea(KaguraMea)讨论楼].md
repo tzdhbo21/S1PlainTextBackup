@@ -3069,3 +3069,28 @@ lkd🤤，lkd🤤
 
 
                                                  
+
+*****
+
+####  ashero  
+##### 285#       发表于 2021-8-6 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264719&amp;ptid=2018830" target="_blank">呓亘 发表于 2021-8-6 17:24</a>
+
+这人是真的因为漫画哭了？？？一开始我还以为是整活装的....</blockquote>
+东万前期那几段是真的挺有催泪感的 到后面就是刚好那个情节很符合你麻的bl脑
+
+
+*****
+
+####  十九号大侠  
+##### 286#       发表于 2021-8-6 18:40
+
+
+小麻我们玩弹幕东方好不好
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

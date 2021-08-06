@@ -6070,3 +6070,366 @@ screenshot20210806120136.png
 
 
                                                 
+
+*****
+
+####  eyeego  
+##### 81458#       发表于 2021-8-6 17:16
+
+
+船长跟白枪两个废产50冲红炮啊 正好配合狐狸<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81459#       发表于 2021-8-6 17:20
+
+
+<blockquote>引用第81456楼alucardcz于2021-08-06 17:08发表的  :
+
+本帖最后由 alucardcz 于 2021-8-6 17:13 编辑 明天目标太多了。。。话说哪个......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水狐狸
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  黑上シグマ  
+##### 81460#       发表于 2021-8-6 17:22
+
+
+鉴于这次五星都是宝具本，我要奶一下艾蕾和大姐姐
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  rollingusagi  
+##### 81461#       发表于 2021-8-6 17:22
+
+
+白枪不都强化过了吗，枪阶估计是泳装小玉吧，这几天全是上古红卡单体强化，然后骑阶库库尔
+
+
+*****
+
+####  sosgame67  
+##### 81462#       发表于 2021-8-6 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264466&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-6 17:07</a>
+
+怎么攒这么多的，那你要是一单没充我不敢相信能攒这么多</blockquote>
+上次充值是19年情人节冲了3单..后续基本只抽拐而且都白嫖出了货，现在拐都比国服齐了，就是没宝石百层塔恶心<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81463#       发表于 2021-8-6 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264484&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 17:08</a>
+
+明天目标太多了。。。
+
+
+话说哪个5星枪是单体红宝具的？   有就奶他  骑奶大姐姐算了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恩齐都
+
+
+*****
+
+####  xiongxingyu  
+##### 81464#       发表于 2021-8-6 17:30
+
+
+但看强化本身算是相当优秀了，出星正好配合黑贞红暴的定位，宝具一管血，暴击又一管，有蓝卡打满np下回合再一发。只可惜黑贞本身已经不适应这个版本了（超人熊、向日葵精：什么？自buff叠不满暴伤还好意思打暴击？）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81465#       发表于 2021-8-6 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264735&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-6 17:25</a>
+
+恩齐都</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚刚去插了下 有3个 我奶水狐吧
+
+
+*****
+
+####  yangun22  
+##### 81466#       发表于 2021-8-6 17:32
+
+
+布妹都被人遗忘了，我觉得可以强化下了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 81467#       发表于 2021-8-6 17:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52262542&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-6 00:59</a>
+
+帮朋友发个吐槽
+
+看了2.6的人都知道基尔什塔利亚这句是在评价谁呢</blockquote>
+别说了，这会议里提到的点几乎都吃书了
+
+当初贝尔利说什么自己遇到个深闺大小姐疯狂地迷恋她，不谙世事到想跟他一起搞烂妖精国也不在乎
+
+但是2.6现在打完了，他说的到底是谁根本对不上号
+
+说是妖崔，妖崔从来没说过要毁灭妖精国，虽然她是个精神病P孩，但是一直是坚定站她娘亲摩根的，虽然在竞技场屠杀妖精，但是完全没表现出要颠覆妖精国
+
+说是奥若拉，奥若拉跟贝尔利根本没有接触，而且她的爱情戏也全在妖兰那边
+
+摩根就更不可能了，可能性0%
+
+回过头看，这会议里贝尔利根本就是在口嗨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81468#       发表于 2021-8-6 17:40
+
+
+<blockquote>引用第81466楼白金口袋于2021-08-06 17:37发表的  :
+
+引用:UNISONIA 发表于 2021-8-6 00:59帮朋友发个吐槽看了2.6的人都知道基尔什......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就对了吗，连自己都骗
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  exiaexa  
+##### 81469#       发表于 2021-8-6 17:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264920&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-6 17:37</a>
+
+别说了，这会议里提到的点几乎都吃书了
+
+当初贝尔利说什么自己遇到个深闺大小姐疯狂地迷恋她，不谙世事到 ...</blockquote>
+其实怎么看戏份都是被奥伯龙抢了
+
+毕竟奥伯龙的缇坦妮雅是C呆
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81470#       发表于 2021-8-6 17:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264819&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 17:31</a>
+
+我刚刚去插了下 有3个 我奶水狐吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡水狐不如强化白枪呆 起码还能自选
+
+
+*****
+
+####  alucardcz  
+##### 81471#       发表于 2021-8-6 17:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264985&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-6 17:41</a>
+
+辣鸡水狐不如强化白枪呆 起码还能</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不要不要 我要奶红卡单体宝具
+
+
+*****
+
+####  qixinno2  
+##### 81472#       发表于 2021-8-6 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52264994&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 17:42</a>
+
+不要不要 我要奶红卡单体宝具</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恩齐都技能强化本来一个
+
+
+*****
+
+####  exiaexa  
+##### 81473#       发表于 2021-8-6 17:45
+
+
+有句港剧黑贞这个30星真的挺实在的，金钻头和弓凛的大量暴击星就只有20
+
+希望wys下次也能这么慷慨
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+五星枪还是救救布妹吧，别人再怎么样强行混个出场还是可以的
+
+她强上都难受啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81474#       发表于 2021-8-6 17:46
+
+
+ 本帖最后由 alucardcz 于 2021-8-6 17:48 编辑 
+
+你们说的是绿的那个？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81475#       发表于 2021-8-6 17:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265059&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 17:46</a>
+
+布妹不是强化过了 还开了宝具本（记错了？）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是布姐吧 话说蓝绿卡的五星枪光炮都是被四星值班也是挺神奇的
+
+
+*****
+
+####  alucardcz  
+##### 81476#       发表于 2021-8-6 17:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265079&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-6 17:48</a>
+
+那是布姐吧 话说蓝绿卡的五星枪光炮都是被四星值班也是挺神奇的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿的2个我还歪了2宝 气炸了
+
+
+*****
+
+####  khxooo  
+##### 81477#       发表于 2021-8-6 17:50
+
+
+才发现黑贞宝具本，打的从者全是喜欢咕哒的，这是趁着宝具本报复吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81478#       发表于 2021-8-6 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265087&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 17:48</a>
+
+绿的2个我还歪了2宝 气炸了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">布妹起码屁股大啊
+
+
+*****
+
+####  alucardcz  
+##### 81479#       发表于 2021-8-6 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265105&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-6 17:50</a>
+
+布妹起码屁股大啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强化本直接绿变蓝那还有机会用一用
+
+
+*****
+
+####  黑上シグマ  
+##### 81480#       发表于 2021-8-6 17:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">布妹强度换屁股了，不用念了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+*****
+
+####  qixinno2  
+##### 81481#       发表于 2021-8-6 17:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265127&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 17:52</a>
+
+强化本直接绿变蓝那还有机会用一用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想屁吃 1T屁用没有 3T弗栗多不要面子的么
+
+
+*****
+
+####  angelooo  
+##### 81482#       发表于 2021-8-6 18:09
+
+
+谁来救救我的阿清，这个绝对是厨力从者了吧，人之力特攻直接被杀狐技能爆了，这太惨了
+
+
+*****
+
+####  angelooo  
+##### 81483#       发表于 2021-8-6 18:10
+
+
+<blockquote>khxooo 发表于 2021-8-6 17:50
+才发现黑贞宝具本，打的从者全是喜欢咕哒的，这是趁着宝具本报复吗？ ...</blockquote>
+这才是合格的设计关卡，角神那种就是深井冰搞出来的
+
+
+*****
+
+####  森兰丸  
+##### 81484#       发表于 2021-8-6 18:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">既然是呼声最高的5星枪........那当然是新鲜出炉的ML妖兰啊
+
+
+*****
+
+####  qixinno2  
+##### 81485#       发表于 2021-8-6 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265357&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-6 18:10</a>
+
+既然是呼声最高的5星枪........那当然是新鲜出炉的ML妖兰啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三技能强化三破也能100充 直接无敌
+
+
+*****
+
+####  angelooo  
+##### 81486#       发表于 2021-8-6 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52265357&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-6 18:10</a>
+
+既然是呼声最高的5星枪........那当然是新鲜出炉的ML妖兰啊</blockquote>
+怎么可能<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                
