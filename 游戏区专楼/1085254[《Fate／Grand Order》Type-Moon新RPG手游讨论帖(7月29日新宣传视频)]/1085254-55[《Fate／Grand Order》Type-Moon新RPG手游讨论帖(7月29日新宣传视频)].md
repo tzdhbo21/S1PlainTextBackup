@@ -5652,3 +5652,38 @@ appmedia直接写了以灵脉石前提作战，攻略班根本集体放弃治疗
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 81424#       发表于 2021-8-6 12:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">80W还是只有一个哈贝喵
+
+
+*****
+
+####  黑上シグマ  
+##### 81425#       发表于 2021-8-6 12:49
+
+
+<blockquote>引用第81420楼khxooo于2021-08-06 11:45发表的  :
+
+引用:黑上シグマ 发表于 2021-8-6 10:49我直接设置的所有礼装直接卖，搓个球的丸子---......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在根本就不强礼装，要来干嘛
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  rooarr  
+##### 81426#       发表于 2021-8-6 13:23
+
+
+直接卖啊，除了宝石黑杯，其他礼装的等级我觉得真的意义不大
+
+
+                                                 
