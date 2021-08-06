@@ -7122,3 +7122,449 @@ DW快招我进去当策划<img src="https://static.saraba1st.com/image/smiley/fa
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 81541#       发表于 2021-8-6 22:18
+
+
+[https://bbs.nga.cn/read.php?tid=27952270](https://bbs.nga.cn/read.php?tid=27952270)
+
+
+这个舅舅好像蛮准的。
+
+
+*****
+
+####  gugu153  
+##### 81542#       发表于 2021-8-6 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52268797&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 21:55</a>
+
+万一惯例的一星期后出了263卡池你们这不是脸都要被打肿</blockquote>
+公款追星就这点儿货吗？我赌还有大的在后面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81543#       发表于 2021-8-6 22:26
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 81544#       发表于 2021-8-6 22:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么就一个枪 骑呢 
+
+
+*****
+
+####  真红眼教授  
+##### 81545#       发表于 2021-8-6 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269113&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-6 22:18</a>
+
+https://bbs.nga.cn/read.php?tid=27952270</blockquote>
+基本可信，atlas是国外专门做破解和英化脚本的，专业性有保证
+
+
+*****
+
+####  alucardcz  
+##### 81546#       发表于 2021-8-6 22:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也好 至少有2石 我反正也没什么枪狐
+
+
+*****
+
+####  真红眼教授  
+##### 81547#       发表于 2021-8-6 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52268454&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-6 21:37</a>
+
+啊？还有人认为这辣鸡游戏出卡池需要什么逻辑？
+
+
+最早是C呆提前来了1年....现在杀狐也玩这路子..... ...</blockquote>
+弓凛莫名其妙就在圣诞节丢进池子了，剧情1.7那是多后面的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81548#       发表于 2021-8-6 22:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">武藏9羁绊了 3石丢了下去  金！！！圈！！！   然后枪。。。。凯泥斯 麻了 全麻了
+
+
+*****
+
+####  zore  
+##### 81549#       发表于 2021-8-6 22:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想到我一年前清free本挖矿差不多一整天才抽出的cab
+
+任重道远啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 81550#       发表于 2021-8-6 22:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269300&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-8-6 22:35</a>
+
+弓凛莫名其妙就在圣诞节丢进池子了，剧情1.7那是多后面的事了</blockquote>
+也没多久啊，2016年圣诞后面就是7章了啊
+
+
+*****
+
+####  alucardcz  
+##### 81551#       发表于 2021-8-6 22:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269382&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-6 22:42</a>
+
+想到我一年前清free本挖矿差不多一整天才抽出的cab
+
+任重道远啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这不是毛毛雨啊  不过free我是第1时间清空的  根本没的挖  
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这几天我带的6羁绊加成礼装qp都刷了23亿了。。无限池都没这么刷过
+
+
+*****
+
+####  真红眼教授  
+##### 81552#       发表于 2021-8-6 22:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269398&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-8-6 22:44</a>
+
+也没多久啊，2016年圣诞后面就是7章了啊</blockquote>
+好像是的，记错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81553#       发表于 2021-8-6 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269461&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 22:48</a>
+
+你这不是毛毛雨啊  不过free我是第1时间清空的  根本没的挖  
+
+这几天我带的6羁绊加成礼装q ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说真的,不如学学隔壁论坛的憋怪憋个一年
+
+怎么着也能抽到一宝,多出来的还可以留着
+
+但是人有千里眼这点影响挺大的
+
+
+*****
+
+####  alucardcz  
+##### 81554#       发表于 2021-8-6 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269539&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-6 22:56</a>
+
+说真的,不如学学隔壁论坛的憋怪憋个一年
+
+怎么着也能抽到一宝,多出来的还可以留着
+
+但是人有千里眼 ...</blockquote>
+怎么着也能抽到一宝？ 这是谁给你的自信  
+
+这游戏要是有保底我也许存  不过没有的东西有啥好谈的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+而且你是不是只看到海豹没看到沉船的   <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81555#       发表于 2021-8-6 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269539&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-6 22:56</a>
+
+说真的,不如学学隔壁论坛的憋怪憋个一年
+
+怎么着也能抽到一宝,多出来的还可以留着
+
+但是人有千里眼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">您是不是没见过20单0五星？
+
+
+*****
+
+####  alucardcz  
+##### 81556#       发表于 2021-8-6 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269622&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-6 23:06</a>
+
+您是不是没见过20单0五星？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲人快分点欧气给我 让我13号届到a狐
+
+
+*****
+
+####  黑上シグマ  
+##### 81557#       发表于 2021-8-6 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269634&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 23:08</a>
+
+欧洲人快分点欧气给我 让我13号届到a狐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">滚你丫的我这次课了3单才出的
+
+
+*****
+
+####  zore  
+##### 81558#       发表于 2021-8-6 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269570&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 22:59</a>
+
+怎么着也能抽到一宝？ 这是谁给你的自信  
+
+这游戏要是有保底我也许存  不过没有的东西有啥好谈的
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键时刻就得相信自己
+
+
+*****
+
+####  alucardcz  
+##### 81559#       发表于 2021-8-6 23:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269640&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-6 23:08</a>
+
+滚你丫的我这次课了3单才出的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">滚你丫的我这不是已经超3单了  还有一单不到的机会
+
+
+*****
+
+####  zore  
+##### 81560#       发表于 2021-8-6 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269622&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-6 23:06</a>
+
+您是不是没见过20单0五星？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">憋了一年都无货出那只能说无缘了
+
+
+*****
+
+####  alucardcz  
+##### 81561#       发表于 2021-8-6 23:12
+
+
+ 本帖最后由 alucardcz 于 2021-8-6 23:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说我模拟了下1宝王姐双a狐 第3面伤害才10万？ 我算错了还是真就这点？
+
+
+*****
+
+####  alucardcz  
+##### 81562#       发表于 2021-8-6 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269672&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-6 23:11</a>
+
+憋了一年都无货出那只能说无缘了</blockquote>
+隔壁沉船弃坑贴不要太多 不过一会就被删了
+
+
+而且这是日服你憋什么 周年也不一定就出拐 你准备几年不抽吗 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81563#       发表于 2021-8-6 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269687&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 23:12</a>
+话说我模拟了下1宝王姐双c狐 第3面伤害才10万？ 我算错了还是真就这点？ ...</blockquote>
+c狐？选错人了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81564#       发表于 2021-8-6 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269714&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-6 23:14</a>
+
+c狐？选错人了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你第1反映为什么不是打错字 真用c狐还能有10吗！5万都难！
+
+
+*****
+
+####  zore  
+##### 81565#       发表于 2021-8-6 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269700&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 23:13</a>
+
+隔壁沉船弃坑贴不要太多 不过一会就被删了</blockquote>
+五星复刻也用不着几年吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+摩根2宝w杀狐打狗粮也就20万,狂娜赢一手特攻
+
+
+*****
+
+####  alucardcz  
+##### 81566#       发表于 2021-8-6 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269743&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-6 23:17</a>
+
+五星复刻也用不着几年吧
+
+摩根2宝w杀狐打狗粮也就20万,狂娜赢一手特攻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗粮是有特攻的？  萌新按了按3宝也打不到20万（不特攻
+
+
+*****
+
+####  alucardcz  
+##### 81567#       发表于 2021-8-6 23:23
+
+
+[https://bbs.nga.cn/read.php?tid=27952630](https://bbs.nga.cn/read.php?tid=27952630)
+
+
+突然发现隔壁有计算贴  我还模拟个猫儿
+
+
+2宝王姐15万？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 81568#       发表于 2021-8-6 23:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">啊啊 终于打完了 还可以 不少地方还是挺喜欢的
+
+唯一遗憾的还是摩根就那么死了  要是真的原来是摩根当最后的boss来一段感觉更好 不过羽海野的奥伯龙最后还是挺喜欢的
+
+
+*****
+
+####  黑上シグマ  
+##### 81569#       发表于 2021-8-6 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269658&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 23:10</a>
+
+滚你丫的我这不是已经超3单了  还有一单不到的机会</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">滚你丫的超个屁，我说的当然是所有送的石头去掉再课3单
+
+
+*****
+
+####  rooarr  
+##### 81570#       发表于 2021-8-6 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269800&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 23:23</a>
+https://bbs.nga.cn/read.php?tid=27952630
+
+
+突然发现隔壁有计算贴  我还模拟个猫儿</blockquote>
+他这种换人的，毫无参考价值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能看不换人的
+
+
+
+
+*****
+
+####  alucardcz  
+##### 81571#       发表于 2021-8-6 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269824&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-6 23:25</a>
+
+他这种换人的，毫无参考价值只能看不换人的</blockquote>
+有啊 下面啊  不换人2宝王姐11万<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81572#       发表于 2021-8-6 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269800&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-6 23:23</a>
+
+https://bbs.nga.cn/read.php?tid=27952630
+
+
+突然发现隔壁有计算贴  我还模拟个猫儿</blockquote>
+只用杀狐技能1000芙芙2宝百级宝石打了个19万
+
+
+*****
+
+####  zore  
+##### 81573#       发表于 2021-8-6 23:28
+
+
+翻页翻页
+
+
+*****
+
+####  sosgame67  
+##### 81574#       发表于 2021-8-6 23:30
+
+
+王姐不特攻确实水枪啊，我自己2宝3面都不能稳定，于是又回去用3宝水杀了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81575#       发表于 2021-8-6 23:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269855&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-6 23:28</a>
+
+只用杀狐技能1000芙芙2宝百级宝石打了个19万</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那差的挺多的 他是90级+20级的宝石
+
+
+                                                

@@ -9285,3 +9285,104 @@ DLC种类，传说一直很足<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+*****
+
+####  qiyu1234  
+##### 2181#       发表于 2021-8-6 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269101&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-6 22:17</a>
+
+https://www.youtube.com/watch?v=J_gPXIjzOMY
+
+
+不要在意服装，注意技能和各种截图与片段——原来奥尔芬和 ...</blockquote>
+襲爪雷斬 上次出现是TOZ的罗洁的奥义技能
+
+
+TOHR里辛格的思念技
+
+
+TOX里作为米拉跟艾尔文的共鸣技出现
+
+
+*****
+
+####  魂淡放我出去  
+##### 2182#       发表于 2021-8-6 22:58
+
+
+tov的反派姐妹我记得也是这个冲破十文字秘奥义
+
+
+*****
+
+####  LT_Harry  
+##### 2183#         楼主| 发表于 2021-8-6 22:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269511&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-6 22:53</a>
+
+襲爪雷斬 上次出现是TOZ的罗洁的奥义技能
+
+
+TOHR里辛格的思念技</blockquote>
+嗷，想起来了，X 里确实有这个技能，是发动雷属性快攻触发的连接技。
+
+
+*****
+
+####  qiyu1234  
+##### 2184#       发表于 2021-8-6 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269556&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-6 22:58</a>
+
+嗷，想起来了，X 里确实有这个技能，是发动雷属性快攻触发的连接技。</blockquote>
+这招跟衝破十文字都是曾经作为共鸣技出现过的（衝破十文字在TOX里是艾尔文跟蕾雅的共鸣技，曾经还是双人秘奥义），可以说是经典传承了
+
+
+*****
+
+####  LT_Harry  
+##### 2185#         楼主| 发表于 2021-8-6 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269555&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-8-6 22:58</a>
+
+tov的反派姐妹我记得也是这个冲破十文字秘奥义</blockquote>
+这个技能最早可以追溯到 tales of symphonia，是两个角色的 unison 合技。
+
+
+*****
+
+####  LT_Harry  
+##### 2186#         楼主| 发表于 2021-8-6 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269593&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-6 23:03</a>
+
+这招跟衝破十文字都是曾经作为共鸣技出现过的（衝破十文字在TOX里是艾尔文跟蕾雅的共鸣技，曾经还是双人 ...</blockquote>
+#查询破晓传奇技能成分
+
+结果：继承的遗产太多辣<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2187#       发表于 2021-8-6 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52269637&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-6 23:08</a>
+
+#查询破晓传奇技能成分
+
+结果：继承的遗产太多辣</blockquote>
+不同的世界观，不同的系统，不同的角色，却有相似的技能名，往日的种种随着角色的呼喊浮现在眼前
+
+系列的醍醐味就在这里了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+                                                 
