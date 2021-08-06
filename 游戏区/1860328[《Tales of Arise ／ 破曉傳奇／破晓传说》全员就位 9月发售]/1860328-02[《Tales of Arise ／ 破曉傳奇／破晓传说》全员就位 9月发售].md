@@ -9253,3 +9253,16 @@ DLC种类，传说一直很足<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+*****
+
+####  hypnossz86  
+##### 2179#       发表于 2021-8-6 10:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52257978&amp;ptid=1860328" target="_blank">布里兰特 发表于 2021-8-6 08:43</a>
+不看好日本人能写好这种反抗压迫者的剧情，不过买还是会买</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">确实，这种讲侵略的故事，屁股不歪就能算超水平发挥了
+
+
+                                                 
