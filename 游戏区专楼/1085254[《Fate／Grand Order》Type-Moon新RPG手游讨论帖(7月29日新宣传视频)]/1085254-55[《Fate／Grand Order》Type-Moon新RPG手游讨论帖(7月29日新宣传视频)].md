@@ -7735,3 +7735,14 @@ https://bbs.nga.cn/read.php?tid=27952630
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 81587#       发表于 2021-8-7 00:51
+
+
+重新听了听新增的语音，妖兰对帕西瓦尔的语音又是一刀啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+                                                 
