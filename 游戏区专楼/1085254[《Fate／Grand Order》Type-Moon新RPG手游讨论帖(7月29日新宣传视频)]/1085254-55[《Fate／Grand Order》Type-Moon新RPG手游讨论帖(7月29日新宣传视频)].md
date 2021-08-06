@@ -5560,3 +5560,55 @@ appmedia直接写了以灵脉石前提作战，攻略班根本集体放弃治疗
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 81418#       发表于 2021-8-6 10:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52259101&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-6 10:28</a>
+
+菌皇钢铁直男bg怪人又不是第一天了
+
+像我这种河豚都知道月球百合，狗都不吃 ...</blockquote>
+蘑菇压根就不会写百合，而且也不想写百合，他写的两个女性间怎么都看不出一点百合的感情。反正我看菌皇这意思，只把女儿给咕哒夫，咕哒子不好意思自己嫁人去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81419#       发表于 2021-8-6 10:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52258939&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-6 10:12</a>
+
+抽掉230W，终于满了，期间出了7只莉莉，2只黑漆漆
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+萌新前3只100万不到就出了 最后一只抽了200万
+
+
+抽到后面我丸子都懒得搓了直接卖了...真的吐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+友情点数是小事 时间才是大头 哎
+
+
+*****
+
+####  黑上シグマ  
+##### 81420#       发表于 2021-8-6 10:49
+
+
+<blockquote>引用第81418楼alucardcz于2021-08-06 10:44发表的  :
+
+引用:黑上シグマ 发表于 2021-8-6 10:12抽掉230W，终于满了，期间出了7只莉莉，2只......</blockquote>
+我直接设置的所有礼装直接卖，搓个球的丸子
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+                                                 

@@ -13217,3 +13217,23 @@ ssk或许还有机会，其他高校直接寄了
 
 
                                                  
+
+*****
+
+####  free  
+##### 5585#       发表于 2021-8-6 11:09
+
+
+[https://www.moguravr.com/virtual-avex/](https://www.moguravr.com/virtual-avex/)
+[https://virtual-avex.com/](https://virtual-avex.com/)
+
+「バーチャル・エイベックス株式会社」の設立が発表
+
+
+惊了，原来这几个团都是avex的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+“大楼都没了的厂牌，不值一提，真霸权还得看我Sony Music Entertainment”——noHentai
+
+
+                                                 
