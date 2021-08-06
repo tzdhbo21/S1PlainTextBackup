@@ -9266,3 +9266,22 @@ DLC种类，传说一直很足<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2180#         楼主| 发表于 2021-8-6 22:17
+
+
+ 本帖最后由 LT_Harry 于 2021-8-6 22:20 编辑 
+
+[https://www.youtube.com/watch?v=J_gPXIjzOMY](https://www.youtube.com/watch?v=J_gPXIjzOMY)
+
+
+不要在意服装，注意技能和各种截图与片段——原来奥尔芬和杜欧哈林合作终结技是“冲破十文字”，奥尔芬和洛合作的终结技是“袭爪雷斩” (Lightning Tiger Blade) ，有味道了。上一次听到这个技能还是在 Tales of the Abyss 呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+另外，果然还是很想在游戏里听到旧作品的音乐，虽然视频里的收音效果不好，可能是故意降低了语音音量，提升了背景音乐音量。
+
+
+                                                 

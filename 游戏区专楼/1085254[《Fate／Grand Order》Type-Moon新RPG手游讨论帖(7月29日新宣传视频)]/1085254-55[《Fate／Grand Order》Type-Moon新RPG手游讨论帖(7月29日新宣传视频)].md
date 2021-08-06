@@ -6940,3 +6940,185 @@ nga的魔怔操作总让我觉得自己和他们玩的不是一个废狗，哦�
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 81527#       发表于 2021-8-6 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52267928&amp;ptid=1085254" target="_blank">gugu153 发表于 2021-8-6 07:10</a>
+
+奥博龙来迦勒底应该还需要点什么，不然池子就已经开了</blockquote>
+还需要泛人类史的奥伯龙当融合素材
+
+月球名魔术·英灵缝合
+
+出个啥活动讲讲泛人类史的仲夏夜之梦，泛人类史的奥伯龙当向导NPC走个流程，展现一下正牌原本是啥性格，最后和奈落之虫一缝合进池子
+
+灵1灵2泛人类史的奥伯龙，就是2.6前半那样，灵3灵4奈落之虫，完美
+
+DW快招我进去当策划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81528#       发表于 2021-8-6 21:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">啊？还有人认为这辣鸡游戏出卡池需要什么逻辑？
+
+
+最早是C呆提前来了1年....现在杀狐也玩这路子.....这2.6还没打完摩根和妖精3骑士就都能抽了....而且明说了不是什么泛人类史的...就是异闻带的本尊
+
+
+真想落地什么直接出就是了......这加勒底的召唤系统我看不止是过去....就连未来的可能性也包括了
+
+
+*****
+
+####  新吾  
+##### 81529#       发表于 2021-8-6 21:43
+
+
+蘑菇说的2.65估计就是奥贝龙实装了吧，给迎来终结的不列颠带来一点短暂的希望啥的，或者在废墟上出现了什么新的灾祸，然后奥贝龙被一同召唤了出来
+
+
+*****
+
+####  alucardcz  
+##### 81530#       发表于 2021-8-6 21:46
+
+
+ 本帖最后由 alucardcz 于 2021-8-6 21:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52268113&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-6 21:19</a>
+
+恩？不是说了500石沉了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是纯石没算护符 护符算进去就有了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13号前刷35万羁绊可以拿90石+7天的10护符  最后一战了
+
+
+*****
+
+####  白金口袋  
+##### 81531#       发表于 2021-8-6 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52268454&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-6 07:37</a>
+
+啊？还有人认为这辣鸡游戏出卡池需要什么逻辑？
+
+
+最早是C呆提前来了1年....现在杀狐也玩这路子..... ...</blockquote>
+这种落地最早其实可以追溯到第一个有剧情的活动，月神团子
+
+当时她就说了自己是跟藤丸未来有缘所以提前来玩的
+
+而正式出场是一个月后的1.3船长那章
+
+
+*****
+
+####  gugu153  
+##### 81532#       发表于 2021-8-6 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52268454&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-6 21:37</a>
+
+啊？还有人认为这辣鸡游戏出卡池需要什么逻辑？
+
+
+最早是C呆提前来了1年....现在杀狐也玩这路子..... ...</blockquote>
+虽然现在是越来越不讲道理，但一个6年的游戏也不是从一开始就是这样的，不要说的那么理所当然
+
+
+*****
+
+####  森兰丸  
+##### 81533#       发表于 2021-8-6 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52268636&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-6 21:48</a>
+
+这种落地最早其实可以追溯到第一个有剧情的活动，月神团子
+
+当时她就说了自己是跟藤丸未来有缘所以提前来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">所以真不需要什么剧情来圆....反正都是惯犯了
+
+
+*****
+
+####  alucardcz  
+##### 81534#       发表于 2021-8-6 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一惯例的一星期后出了263卡池你们这不是脸都要被打肿
+
+
+*****
+
+####  新吾  
+##### 81535#       发表于 2021-8-6 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单纯就是想借高人气套皮来捞钱，但自己剧情又要继续磨蹭，就提前实装而已。
+
+
+最夸张的例子是旧剑+旧狗+拉二，在他们认知中FP啥的全部打完了，但就不告诉你发生了啥，成天谜语人。
+
+为啥，因为FP小说都没写多少。
+
+
+*****
+
+####  khxooo  
+##### 81536#       发表于 2021-8-6 22:01
+
+
+希望舅舅的解包是真的吧，艾蕾宝具本。
+
+
+*****
+
+####  新吾  
+##### 81537#       发表于 2021-8-6 22:03
+
+
+出啥池子我都无所谓的，afk一个月后莫名其妙有了400石头，本来也半退坑了，没有就等9月抽完卸载，有新池子就看xp对不对的上
+
+
+*****
+
+####  alucardcz  
+##### 81538#       发表于 2021-8-6 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52268906&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-6 22:01</a>
+
+希望舅舅的解包是真的吧，艾蕾宝具本。</blockquote>
+啥解包 那另一个骑是啥
+
+
+*****
+
+####  黑上シグマ  
+##### 81539#       发表于 2021-8-6 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52268906&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-6 22:01</a>
+
+希望舅舅的解包是真的吧，艾蕾宝具本。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">我还真奶中了？
+
+
+*****
+
+####  zore  
+##### 81540#       发表于 2021-8-6 22:12
+
+
+枪狐落泪
+
+
+                                                 
