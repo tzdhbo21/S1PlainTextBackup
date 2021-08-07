@@ -9077,3 +9077,54 @@ NGA已经变鸡笼了
 
 
                                                  
+
+*****
+
+####  ryusei  
+##### 81689#       发表于 2021-8-7 19:32
+
+
+枪和杀的金饼干哪里刷快啊？一下午才刚给狐狸升满第一技能剩下俩都停在五级，这掉落率提升了个寂寞？
+
+
+*****
+
+####  exiaexa  
+##### 81690#       发表于 2021-8-7 19:37
+
+
+思来想去，我决定给阿拉什点个10
+压缩cost
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81691#       发表于 2021-8-7 19:42
+
+
+没有满破宝石的我给狂娜点了20np 双狐开荒很舒适<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81692#       发表于 2021-8-7 20:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真惨啊  连虚数都没得用了吗
+
+
+*****
+
+####  zore  
+##### 81693#       发表于 2021-8-7 20:15
+
+
+翻页翻页
+
+
+                                                

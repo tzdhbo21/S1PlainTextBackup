@@ -3456,3 +3456,59 @@ syl
 
 
                                                  
+
+*****
+
+####  FCCHua  
+##### 322#       发表于 2021-8-7 20:05
+
+
+在星川凸待那里出现了
+
+
+*****
+
+####  T_Hb  
+##### 323#       发表于 2021-8-7 20:10
+
+
+ 本帖最后由 T_Hb 于 2021-8-7 20:37 编辑 
+
+本来打算去蹲一下，结果忘了，只看到了中后段吧
+
+还是性骚扰、台风奥术、涮涮锅老几样，最后撒娇不让挂断被星川经典掐断，然后星川被苔总反向掐断了，一报还一报
+
+
+*****
+
+####  2014720  
+##### 324#       发表于 2021-8-7 20:32
+
+
+挺好
+
+
+*****
+
+####  GRMeA104  
+##### 325#       发表于 2021-8-7 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52278693&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-8-7 20:10</a>
+
+本来打算去蹲一下，结果忘了
+
+还是老几样啊，最后被星川经典掐断，然后星川被苔总反向掐断了，一报还一报 ...</blockquote>
+节目效果的一环只能说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 326#       发表于 2021-8-7 20:38
+
+
+这人还是打完一局之后才去凸待的 时间掐的刚刚好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

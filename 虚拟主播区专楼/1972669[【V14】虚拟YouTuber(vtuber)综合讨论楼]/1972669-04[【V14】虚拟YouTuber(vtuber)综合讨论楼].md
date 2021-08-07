@@ -14005,3 +14005,36 @@ king这就95W了
 
 
                                                  
+
+*****
+
+####  Suny08  
+##### 5646#       发表于 2021-8-7 19:34
+
+
+安洁这被棒球给打哭了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">，希望大家还是不要太在意胜负学习虹男社长和king快乐游戏捏
+
+
+*****
+
+####  free  
+##### 5647#       发表于 2021-8-7 19:38
+
+
+[https://twitter.com/TUBEOUT/status/1423947025213624327](https://twitter.com/TUBEOUT/status/1423947025213624327)
+
+
+又加了一堆人，说总数约40人参加，估计还会有后续追加
+
+
+<img src="https://img.saraba1st.com/forum/202108/07/193841xyw63677jlzs7pcc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (790.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-7 19:38 上传
+
+
+                                                 

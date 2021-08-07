@@ -685,3 +685,17 @@ kr和狗汉子其实合作过不少次了，东巴选他们，不知道是不是
 
 
                                                
+
+*****
+
+####  DOACAON  
+##### 66#       发表于 2021-8-7 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52277320&amp;ptid=2019274" target="_blank">韩子 发表于 2021-8-7 03:57</a>
+
+（其实日本人也不是不会签，比如跟海外合作就很看重合同…</blockquote>
+也就是典型人情行业吧，对不用讲人情的外国人就上冰冷的合同了
+
+
+                                                 

@@ -9640,3 +9640,14 @@ STEAM全区都有联动服装，我觉得就是单纯的不同区域不同平台
 
 
                                                  
+
+*****
+
+####  苇原雪道  
+##### 2206#       发表于 2021-8-7 20:17
+
+
+技能简化我是支持的，当年玩tov通关了都没放出过几次秘奥义<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 
