@@ -7965,3 +7965,92 @@ https://bbs.nga.cn/read.php?tid=27952630
 
 
                                                  
+
+*****
+
+####  久井路路  
+##### 81601#       发表于 2021-8-7 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52272166&amp;ptid=1085254" target="_blank">KOBI 发表于 2021-8-7 10:11</a>
+
+贝利尔先不论妖崔的傻白甜更像甘愿被人利用吧
+
+被人虐待也不发火不逃走。
+
+妖崔那朋友最后也是不知道是谁。 ...</blockquote>
+多半是指C呆吧，妖崔在卖鞋子的店里和C呆相遇的时候就有心说头一次碰见摩根以外她不打心底里讨厌的妖精
+
+
+即使说是希望皇，也完全没有脉络，只能靠猜（
+
+妖崔身上能打的补丁真够多的（
+
+
+*****
+
+####  alucardcz  
+##### 81602#       发表于 2021-8-7 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52271560&amp;ptid=1085254" target="_blank">snakeling 发表于 2021-8-7 08:46</a>
+
+摩根双杀狐加持下居然还这样水？看来抽个一宝当玩具就够了。。。</blockquote>
+狐狸buff少 很正常  就2个魔放 对标cba少2个降防 c呆少2个领导力 c呆有必要甚至能叠宝具
+
+
+*****
+
+####  exiaexa  
+##### 81603#       发表于 2021-8-7 11:08
+
+
+ 本帖最后由 exiaexa 于 2021-8-7 11:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52271932&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-7 09:44</a>
+
+但妖崔根本不喜欢妖精吧，剧情和羁绊资料都在强调她讨厌妖精，喜欢泛人类史的东西。我觉得蘑菇写妖崔就是把 ...</blockquote>
+你没看对吧……
+
+摩根最初被叫魔女的时候只有当时的妖崔去接近她，妖精历4000年反复轮回每次都被欺凌然后凄惨死去
+
+这都不算爱那就不是傻白甜能解释的了
+
+
+顺便你把因果搞反了，妖催性格残暴完全是摩根的原因，是某一次转生她死的时候影响到了灵魂，然后摩根来了句宁愿妖催狠毒一点，起码别被整的这么惨，看故事走向应该就是这次之后才让妖催暴躁起来的
+
+
+妖催对摩根也不是莫德雷德对呆毛，她俩完全是反过来的
+
+莫德雷德是因为想引起呆毛注意力故意去作，妖催根本就是摩根把她养成这样的，因为摩根不想看见她被欺负
+
+所以第二部结束的时候才有真正的女儿这个梗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81604#       发表于 2021-8-7 11:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52272775&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-7 11:08</a>
+你没看对吧……
+
+摩根最初被叫魔女的时候只有当时的妖崔去接近她，妖精历4000年反复轮回每次都被欺凌然后凄 ...</blockquote>
+是因为妖崔已经不能转生了，所以摩根说希望这一次你不再被欺负，谁知道这一次的结果更惨，连灵魂都被腐蚀了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81605#       发表于 2021-8-7 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52272826&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-7 11:12</a>
+
+是因为妖崔已经不能转生了，所以摩根说希望这一次你不再被欺负，谁知道这一次的结果更惨，连灵魂都被腐蚀 ...</blockquote>
+艹，合着我也记歪了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
