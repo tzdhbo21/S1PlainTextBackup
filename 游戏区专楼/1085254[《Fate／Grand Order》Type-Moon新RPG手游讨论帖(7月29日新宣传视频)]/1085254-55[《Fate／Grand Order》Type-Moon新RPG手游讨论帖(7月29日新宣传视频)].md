@@ -8054,3 +8054,117 @@ https://bbs.nga.cn/read.php?tid=27952630
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 81606#       发表于 2021-8-7 11:38
+
+
+抽了95W友情点终于把哈贝喵满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  newfaceryo  
+##### 81607#       发表于 2021-8-7 11:39
+
+
+看立绘就知道妖崔这人就是另一个龙娘，自我中心是因为从小没人告诉他不应该这么做。甚至告诉她你这么做都是对的。
+
+这一世会形成暴虐人格是因为从小被领主虐待逼迫形成的保护性人格。
+
+摩根把他救出来的时候觉得这样的性格可能对她更好于是放任了
+
+
+你要说这人有什么大脑，那肯定是没有的。
+
+我就是觉得奇怪怎么不给她加个Lip的被虐体质
+
+
+*****
+
+####  黑上シグマ  
+##### 81608#       发表于 2021-8-7 12:01
+
+
+<blockquote>引用第81605楼白金口袋于2021-08-07 11:38发表的  :
+
+抽了95W友情点终于把哈贝喵满宝了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">才95W……
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  不垃圾屌丝  
+##### 81609#       发表于 2021-8-7 12:11
+
+
+妖兰说欧若拉跑出去分分钟被人搞死
+然后摩根至少被欧若拉搞死两次
+然后你还要吹摩根多牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  angelooo  
+##### 81610#       发表于 2021-8-7 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52273523&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-8-7 12:11</a>
+
+妖兰说欧若拉跑出去分分钟被人搞死
+
+然后摩根至少被欧若拉搞死两次
+
+然后你还要吹摩根多牛逼</blockquote>
+屑妖精的脑回路正常人无法理解.jpg
+
+对面换成人就不会被搞死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+完全可以这么洗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+但这和场面太难看了一毛钱关系也没有<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81611#       发表于 2021-8-7 12:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52273119&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-7 11:38</a>
+
+抽了95W友情点终于把哈贝喵满宝了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">80W只抽到了一个的无语凝噎
+
+
+*****
+
+####  DARKGRAY  
+##### 81612#       发表于 2021-8-7 12:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52273130&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-8-7 11:39</a>
+
+看立绘就知道妖崔这人就是另一个龙娘，自我中心是因为从小没人告诉他不应该这么做。甚至告诉她你这么做都是 ...</blockquote>
+被虐体质是要撩起普通人虐她的啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81613#       发表于 2021-8-7 12:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52273119&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-7 11:38</a>
+抽了95W友情点终于把哈贝喵满宝了</blockquote>
+才区区90W<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+                                                 
