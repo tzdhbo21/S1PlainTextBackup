@@ -9128,3 +9128,29 @@ NGA已经变鸡笼了
 
 
                                                 
+
+*****
+
+####  exiaexa  
+##### 81694#       发表于 2021-8-7 20:52
+
+
+ 本帖最后由 exiaexa 于 2021-8-7 20:53 编辑 
+
+真没得用啊，保持效率的同时压缩cost
+短期目标就是西哥+布姐x2拉满
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/18de2267195d392a7433b99442e79926/IMG_CMP_77776612.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sosgame67  
+##### 81695#       发表于 2021-8-7 21:11
+
+
+蘑菇竟然更新了孽畜视角的2.6..<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                 
