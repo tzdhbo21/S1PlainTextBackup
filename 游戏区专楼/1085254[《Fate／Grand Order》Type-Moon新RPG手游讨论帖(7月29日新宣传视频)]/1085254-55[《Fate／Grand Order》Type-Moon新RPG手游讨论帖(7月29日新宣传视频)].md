@@ -9275,3 +9275,35 @@ md秃子，我阿拉什羁绊还不到12</blockquote>
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 81705#       发表于 2021-8-7 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52279984&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 21:45</a>
+羡慕 萌新为了刷羁绊把把要点7个技能  已吐</blockquote>
+太肝了吧，都快搞到15绊，我还没有一个到达过13绊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81706#       发表于 2021-8-7 23:06
+
+
+<img src="https://img.saraba1st.com/forum/202108/07/230611ma5za375b9jbzj67.png" referrerpolicy="no-referrer">
+
+
+<strong>455.png</strong> (37.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-7 23:06 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么这么多。吐了
+
+
+                                                 

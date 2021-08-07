@@ -3605,3 +3605,61 @@ six nine<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 
                                                 
+
+*****
+
+####  Dualist彩  
+##### 335#       发表于 2021-8-7 22:52
+
+
+保守麻捏，嘿嘿🤤🤤
+
+
+*****
+
+####  甘栗No.007  
+##### 336#       发表于 2021-8-7 23:41
+
+
+这算她第一次在别人频道宣传周边？
+怕不是周边数量不达标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 337#       发表于 2021-8-7 23:46
+
+
+也不算第一次了，之前chiroru就帮她打过广告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+今天杂谈力全开啊
+
+
+*****
+
+####  路人庚  
+##### 338#       发表于 2021-8-7 23:48
+
+
+你咩姐跟朋友聚过之后会变得更会说段子（
+
+
+*****
+
+####  T_Hb  
+##### 339#       发表于 2021-8-7 23:49
+
+
+内容太多了，我这拉胯日语转换不过来，漏了好多
+
+
+*****
+
+####  ashero  
+##### 340#       发表于 2021-8-7 23:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">将近半小时全是节目效果毫无尿点（除了主播去上厕所 然后上厕所也能成为谈资）
+
+
+                                                 

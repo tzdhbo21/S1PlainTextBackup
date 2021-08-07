@@ -1651,3 +1651,16 @@ https://b23.tv/2Pg2U7
 
 
                                                  
+
+*****
+
+####  gawain039  
+##### 149#       发表于 2021-8-7 23:04
+
+
+白白就是神！
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
