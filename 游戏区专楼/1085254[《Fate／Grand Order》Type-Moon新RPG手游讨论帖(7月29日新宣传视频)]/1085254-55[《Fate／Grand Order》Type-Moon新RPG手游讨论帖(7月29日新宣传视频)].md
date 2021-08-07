@@ -8168,3 +8168,78 @@ https://bbs.nga.cn/read.php?tid=27952630
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 81614#       发表于 2021-8-7 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52273119&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-7 11:38</a>
+
+抽了95W友情点终于把哈贝喵满宝了</blockquote>
+做个人吧，我250w指出了1张
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  newfaceryo  
+##### 81615#       发表于 2021-8-7 13:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52273720&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-8-7 12:28</a>
+
+被虐体质是要撩起普通人虐她的啦</blockquote>
+轮回了那么多次每次都被虐的不成人形，还说不是撩起普通人虐她？
+
+
+*****
+
+####  rollingusagi  
+##### 81616#       发表于 2021-8-7 13:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52272775&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-08-07 11:08:31</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她前世一直那么惨和她爱不爱妖精没关系啊，摩根回忆里不是说了吗，她根本不懂受伤了要逃跑，受欺负了要反击，只知道受帮助了要回报，所以即使四肢被拧断，被丢弃，还是会感谢摩根，这也很符合妖精单纯的本性，根本不会想那么多
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  khxooo  
+##### 81617#       发表于 2021-8-7 13:15
+
+
+无聊试了一下，枪虞姬无发牌3T队长，所以虞姬才是最大的内鬼吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81618#       发表于 2021-8-7 13:17
+
+
+ 本帖最后由 exiaexa 于 2021-8-7 13:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274128&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-7 13:08</a>
+
+她前世一直那么惨和她爱不爱妖精没关系啊，摩根回忆里不是说了吗，她根本不懂受伤了要逃跑，受欺负 ...</blockquote>
+也是，想了想大概是我对菌鸽鸽这傻逼设计对抗性太强，有点主观代入
+
+
+我就觉着这种啥都甩锅给因为是妖精的写法实在是太弱智了
+
+就跟“你被打都是因为你天生就该被打”一样，碳基生物很难整出这种活
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81619#       发表于 2021-8-7 13:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去隔壁各个板块都逛了逛 这2。6啊 不但fgo版在吹 甚至还有人在其他游戏的板块吹2。6怎么怎么的  无敌2字写在脸上了
+
+
+                                                 

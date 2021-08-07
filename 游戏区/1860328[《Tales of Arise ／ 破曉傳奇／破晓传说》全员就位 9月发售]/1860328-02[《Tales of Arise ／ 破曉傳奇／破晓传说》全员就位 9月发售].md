@@ -9464,3 +9464,16 @@ tov的反派姐妹我记得也是这个冲破十文字秘奥义</blockquote>
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2194#         楼主| 发表于 2021-8-7 13:16
+
+
+想买一台 Steam Deck 玩破晓传奇（无端<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+Linux 拿来做一些基本工作应该也没问题的！
+
+
+                                                 
