@@ -8991,3 +8991,89 @@ NGA已经变鸡笼了
 
 
                                                  
+
+*****
+
+####  シャル  
+##### 81683#       发表于 2021-8-7 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52277466&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-7 18:11</a>
+
+其实我现在也没搞懂技能赋予特攻和宝具特攻的区别</blockquote>
+技能特攻，平A也有效果啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 81684#       发表于 2021-8-7 18:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52277582&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-7 18:24</a>
+ 技能特攻，平A也有效果啊</blockquote>
+但是好像说技能赋予的特攻会被稀释来着，所以不是完全的优于宝具特攻<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 81685#       发表于 2021-8-7 18:34
+
+
+ 本帖最后由 xiongxingyu 于 2021-8-7 18:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52277643&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-7 18:30</a>
+
+但是好像说技能赋予的特攻会被稀释来着，所以不是完全的优于宝具特攻 ...</blockquote>
+赋予特攻是C类buff，和宝威，活动特效属于一类，同类buff都是加算的，而且C类buff是属于来源比较多比较容易被稀释的那种，而宝具特攻是特殊的D类buff，独一档，直接和宝具倍率乘算，目前来看还没有会和宝具特攻加算导致稀释的buff。
+
+
+*****
+
+####  exiaexa  
+##### 81686#       发表于 2021-8-7 18:48
+
+
+ 本帖最后由 exiaexa 于 2021-8-7 18:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52277466&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-7 18:11</a>
+其实我现在也没搞懂技能赋予特攻和宝具特攻的区别</blockquote>
+简单的记一下就行
+对于宝具来说，伤害来自于各buff倍率相乘，包括:
+①（攻击力+降防）x
+②（魔力放出+色卡耐性降低）x
+③（宝具威力up+会在头上显示的特攻【俗称技能特攻】+活动里伤害上升的buff）x
+④宝具特攻【不会显示出buff图标的那种】
+
+在都能触发的情况下宝具特攻优于技能特攻，因为没东西跟他相加
+
+
+*****
+
+####  newfaceryo  
+##### 81687#       发表于 2021-8-7 18:51
+
+
+抽了一下午友情，180w哈贝喵满宝了。
+
+因为结晶储量为0就拿99的技能打了一下qp本，不是无脑6加成3t来着吗？
+
+仔细看了一下原来你们说的不是双c呆啊？
+
+
+*****
+
+####  alucardcz  
+##### 81688#       发表于 2021-8-7 18:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52277832&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-8-7 18:51</a>
+
+抽了一下午友情，180w哈贝喵满宝了。
+
+因为结晶储量为0就拿99的技能打了一下qp本，不是无脑6加成3t来着吗？
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的是不能无脑6加成3t   这里的无脑是指第1回合技能全交然后闭眼3宝具
+
+
+                                                 

@@ -6119,3 +6119,14 @@ dev的时候就有这个毛病好像
 
 
                                                  
+
+*****
+
+####  Litccc  
+##### 508#       发表于 2021-8-7 18:37
+
+
+记得去权限里关闭Cortana语音激活的权限，和朋友打游戏语音动不动就跳出来，人工智障<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+                                                 
