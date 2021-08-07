@@ -14197,3 +14197,17 @@ image.png
 
 
                                                  
+
+*****
+
+####  死体残留  
+##### 5657#       发表于 2021-8-8 01:53
+
+
+ 本帖最后由 死体残留 于 2021-8-8 01:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">虹这甲子园怎么去到第三年几个队都差不多的 差不多每个队都有捕a了 真可怕
+除非老板娘能去夏甲的话 六只队伍其实也差不多强度 
+
+
+                                                 

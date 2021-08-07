@@ -9389,3 +9389,41 @@ md秃子，我阿拉什羁绊还不到12</blockquote>
 
 
                                                  
+
+*****
+
+####  黑上シグマ  
+##### 81713#       发表于 2021-8-8 01:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52282087&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-8 00:44</a>
+
+草  不过不到40w我都已经哈贝喵4宝了 还抽了三个lily一个小安 已经欧的不行了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候本楼哈贝喵5宝挑战最欧的那个会被其他所有人拖出去打一顿，目前你暂定第一位
+
+
+*****
+
+####  v22325  
+##### 81714#       发表于 2021-8-8 01:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52282411&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-8 01:31</a>
+
+到时候本楼哈贝喵5宝挑战最欧的那个会被其他所有人拖出去打一顿，目前你暂定第一位 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又抽了30w没有第五张
+
+
+*****
+
+####  黑上シグマ  
+##### 81715#       发表于 2021-8-8 01:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52282420&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-8 01:33</a>
+
+又抽了30w没有第五张</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前暂定第二位的那个是95W搞定的，你还有希望
+
+
+                                                 
