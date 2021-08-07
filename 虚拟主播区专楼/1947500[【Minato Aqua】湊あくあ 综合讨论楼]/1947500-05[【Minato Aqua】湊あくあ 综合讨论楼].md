@@ -8230,3 +8230,23 @@ tc看上去以后还会播的，油管两三天播次游戏，tc虚无杂谈唱�
 
 
                                                  
+
+*****
+
+####  乌鸦绅士  
+##### 6671#       发表于 2021-8-7 16:39
+
+
+直播间这个封面，要复活MC了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Scardy  
+##### 6672#       发表于 2021-8-7 17:11
+
+
+上次mc隔了多久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

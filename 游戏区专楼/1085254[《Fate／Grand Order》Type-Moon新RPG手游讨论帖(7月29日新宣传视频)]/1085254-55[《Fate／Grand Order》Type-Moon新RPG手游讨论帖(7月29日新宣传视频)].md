@@ -8750,3 +8750,244 @@ NGA已经变鸡笼了
 
 
                                                 
+
+*****
+
+####  xiongxingyu  
+##### 81661#       发表于 2021-8-7 16:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276070&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-7 15:57</a>
+
+说到结晶，我现在只有10+了，过上了每个月金方块换结晶的日子
+
+
+所以还有谁比较适合拉满通用2的，一个个去想 ...</blockquote>
+道满啊，彻底解放礼装原地起爆，本来刷阴间本还要蹭c呆孔明的群冲，现在配合杀狐cba也能用了，真正万用混沌恶插件<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81662#       发表于 2021-8-7 16:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我去刷素材把哈贝喵13技能也点点满算了 反正刷什么都是刷羁绊
+
+
+*****
+
+####  alucardcz  
+##### 81663#       发表于 2021-8-7 16:56
+
+
+手动翻页
+
+
+*****
+
+####  rooarr  
+##### 81664#       发表于 2021-8-7 16:57
+
+
+坐等哪个幸运的枪被强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81665#       发表于 2021-8-7 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276729&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 16:57</a>
+
+坐等哪个幸运的枪被强化</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舅舅不是说爱蕾吗
+
+
+*****
+
+####  rooarr  
+##### 81666#       发表于 2021-8-7 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276734&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 16:58</a>
+舅舅不是说爱蕾吗</blockquote>
+还真的是爱蕾和船长<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81667#       发表于 2021-8-7 17:01
+
+
+还真是爱雷
+
+另一个是船长
+
+
+*****
+
+####  angelooo  
+##### 81668#       发表于 2021-8-7 17:03
+
+
+艾蕾和船长，这次果然都是服务老从者or人气很高但一直没强化的从者，再顺带几个低星的，没啥特别意外的
+
+
+*****
+
+####  alucardcz  
+##### 81669#       发表于 2021-8-7 17:05
+
+
+船长的黄金率居然变成魔放+防御无视了。。
+
+爱师傅加了个特攻和3回合即死无效
+
+
+这强化好像。挺好的？
+
+
+*****
+
+####  里村紅葉  
+##### 81670#       发表于 2021-8-7 17:07
+
+
+我白枪呢<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81671#       发表于 2021-8-7 17:08
+
+
+爱蕾宝具对地特攻，还算不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81672#       发表于 2021-8-7 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276852&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 17:08</a>
+
+爱蕾宝具对地特攻，还算不错了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">船长的强化不是更史诗（
+
+
+*****
+
+####  angelooo  
+##### 81673#       发表于 2021-8-7 17:09
+
+
+船长终于解决了增伤的问题
+
+
+*****
+
+####  exiaexa  
+##### 81674#       发表于 2021-8-7 17:10
+
+
+船长赢麻了了啊，又一个无敌贯通+无视防御
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+艾蕾这个地特攻也不错，就是给的有点莫名其妙（指设定上）
+
+
+*****
+
+####  alucardcz  
+##### 81675#       发表于 2021-8-7 17:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 哈贝喵白字居然能打18万？
+
+
+*****
+
+####  exiaexa  
+##### 81676#       发表于 2021-8-7 17:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276313&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-7 16:21</a>
+道满啊，彻底解放礼装原地起爆，本来刷阴间本还要蹭c呆孔明的群冲，现在配合杀狐cba也能用了，真正万用混 ...</blockquote>
+尬住了，不符合xp我没抽
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81677#       发表于 2021-8-7 17:18
+
+
+船长这强化还不错啊 可惜是我新手开荒期的第一批五星 早早满绊丢仓库了 现在选择这么多也不想浪费梦火了 只好继续仓管了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81678#       发表于 2021-8-7 17:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下完整列表  5星强化全是红卡强化  太明显了（
+
+
+*****
+
+####  exiaexa  
+##### 81679#       发表于 2021-8-7 17:27
+
+
+ 本帖最后由 exiaexa 于 2021-8-7 17:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52277003&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 17:24</a>
+看了下完整列表  5星强化全是红卡强化  太明显了（</blockquote>
+其实还有个更明显的，三周年的红光炮，只剩旧剑枪呆没宝具本了，不知道这fp活动他们还想憋多久
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81680#       发表于 2021-8-7 17:48
+
+
+ 本帖最后由 alucardcz 于 2021-8-7 17:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276070&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-7 15:57</a>
+
+说到结晶，我现在只有10+了，过上了每个月金方块换结晶的日子
+
+
+所以还有谁比较适合拉满通用2的，一个个去想 ...</blockquote>
+拿蓝卡来说  凡是自充40以上+np回收优秀的 都是质变 因为开局能省2个领导力  22x  13x 肯定是随便刷了
+
+
+不过我只知道一个水贞 杀师傅本体+术阶那些光炮回收不算优秀 不知道效果如何  具体还要等别人算一算<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 81681#       发表于 2021-8-7 17:53
+
+
+艾雷原地爆炸，3回合即死无效，CBA的立场呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 81682#       发表于 2021-8-7 18:11
+
+
+其实我现在也没搞懂技能赋予特攻和宝具特攻的区别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

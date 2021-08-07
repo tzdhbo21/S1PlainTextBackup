@@ -9526,3 +9526,117 @@ tales of arise 的技能分配和说明已经是前所未有的直白了——�
 
 
                                                  
+
+*****
+
+####  放大镜  
+##### 2199#       发表于 2021-8-7 16:37
+
+
+弱点删掉了？这可真是……太好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+ <blockquote>为了连击奖励有时候不得不用一些画面上衔接非常生硬的技能组合。最近的比如TOB的龙男，弱点连一套下来大部分都是右（左）手在捶，另外一只手跟打了钢钉似的。</blockquote>
+
+以前的回复。
+
+
+*****
+
+####  DKD  
+##### 2200#       发表于 2021-8-7 16:44
+
+
+这作安利了三四个朋友进坑 传说还能再出十年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  roxassix  
+##### 2201#       发表于 2021-8-7 17:04
+
+
+ 本帖最后由 roxassix 于 2021-8-7 17:07 编辑 
+
+瞅了眼xbox的预购。。真就每个区都不一样呗。。md逼死强迫症。。
+
+以终极版为准
+
+区域 港日美 游戏本体〇〇 〇早期特典〇〇〇道具典藏組合包〇 X〇服裝典藏組合包〇〇 〇旅遊典藏組合包〇 X〇联动服装包 X  X〇歷代戰鬥背景音樂組合包〇〇 X泳装・校服・战国服装组合包〇〇〇
+
+价格按照xbox比价助手来看，美版714r，港版707r，日版841.。。。
+
+日版真的坑。。。最tm贵还各种少包。。美版和steam版基本一样也是没有bgm包。。
+
+现在看是不是买港版以后补联动服装包最好。。。md也不知道联动服装单不单卖
+
+
+*****
+
+####  qiyu1234  
+##### 2202#       发表于 2021-8-7 17:12
+
+
+ 本帖最后由 qiyu1234 于 2021-8-7 17:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276811&amp;ptid=1860328" target="_blank">roxassix 发表于 2021-8-7 17:04</a>
+
+瞅了眼xbox的预购。。真就每个区都不一样呗。。md逼死强迫症。。
+
+以终极版为准</blockquote>
+肯定单卖的，日版预购都没这个包，不可能会有连本国玩家都买不到的联动服装(日版介绍宣传里还专门提了句后续公开联动情报）
+
+
+*****
+
+####  roxassix  
+##### 2203#       发表于 2021-8-7 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276896&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-7 17:12</a>
+肯定单卖的，日版预购都没这个包，不可能会有连本国玩家都买不到的联动服装(日版介绍宣传里还专门提了句后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊我也是不信nbgi这个有钱不赚王八蛋的公司能干出这事儿来就是了。。总之先整个港版然后等着补联动服装好了。。
+
+话说这回这几个dlc咋整这么复杂。亚洲没有联动服装，欧美没有bgm，这是和谁又没谈拢么。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2204#       发表于 2021-8-7 17:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52277030&amp;ptid=1860328" target="_blank">roxassix 发表于 2021-8-7 17:27</a>
+
+日版联动服装是steam版限定打哟！11区的民那桑请去买steam版打哟！
+
+
+啊我也是不信n ...</blockquote>
+STEAM全区都有联动服装，我觉得就是单纯的不同区域不同平台搞不同收录内容的策略，就是不给你一次性整完
+
+
+总要另购DLC补齐
+
+
+*****
+
+####  qiyu1234  
+##### 2205#       发表于 2021-8-7 17:52
+
+
+昨天刚说完术技名在TALES OF系列里的传承
+
+
+今天官方油管频道 就放了术技进化录（以前都是玩家自己做，现在官方做了一份，不过看评论术技收录没给全，比如有连续作的，或者外传作品的就没收录）
+
+
+<img src="https://img.saraba1st.com/forum/202108/07/175203hg2za6qtlzbgeq6a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (245.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-7 17:52 上传
+
+
+                                                 
