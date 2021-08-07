@@ -7875,3 +7875,49 @@ https://bbs.nga.cn/read.php?tid=27952630
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 81595#       发表于 2021-8-7 08:02
+
+
+ 本帖最后由 exiaexa 于 2021-8-7 08:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52271086&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-8-7 04:51</a>
+我说的不是这个意思，是指妖崔这人到底是装傻还是真傻（
+
+
+妖精国里只有妖兰中村那么几个人看出欧 ...</blockquote>
+就是真傻，你得考虑到蘑菇这人的臭毛病来想这事儿
+
+蘑菇这人写优良品质都写得很别扭，或者说他非常喜欢自以为是的给你扭曲一下来添加一点可怜的属性
+这章c呆摩根，还有以前被他迫害的各位雷普受害人都是这逼样，当然还有goa的呆毛
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+蘑菇对妖崔可能就是单纯的想再来一个，在狗屎的世界里呼唤爱，就算妖崔她疯狂作妖， 但她也是个内心热爱妖精的害怕被人伤害的妖精啊，你们不觉得他可怜吗.jpg
+虽然你想的这么多我感觉对蘑菇可能就是套个模板的事儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  snakeling  
+##### 81596#       发表于 2021-8-7 08:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">摩根双杀狐加持下居然还这样水？看来抽个一宝当玩具就够了。。。
+
+
+*****
+
+####  eyeego  
+##### 81597#       发表于 2021-8-7 08:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52271560&amp;ptid=1085254" target="_blank">snakeling 发表于 2021-8-7 08:46</a>
+摩根双杀狐加持下居然还这样水？看来抽个一宝当玩具就够了。。。</blockquote>
+前面我就说过了啊 buff乘区太少能叠的又只有一个领导力是这样的 狐狸用特攻对标了cba的降防 所以相对的对打手本体的要求就更高了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                 

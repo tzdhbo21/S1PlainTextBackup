@@ -13784,3 +13784,46 @@ https://youtu.be/OAx2mMSHFnU
 
 
                                                  
+
+*****
+
+####  purdre  
+##### 5632#       发表于 2021-8-7 08:18
+
+
+ 本帖最后由 purdre 于 2021-8-7 08:22 编辑 
+
+虹新人初回收益
+
+
+教授 1907k
+
+黑毛 1739k
+
+鲨鱼 3121k
+
+红毛 6370k<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+这就是枪民的底力吗，一个集金回当别人一3D回，输了，确实比不上<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">V的未来是枪民的
+
+
+*****
+
+####  心垂万刃  
+##### 5633#       发表于 2021-8-7 08:23
+
+
+蓝毛呢？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 5634#       发表于 2021-8-7 08:30
+
+
+蓝毛摸鱼，非要等到豆猫画完了才肯开SC，我看他开的时候SC都被其他新人吸光了好吧，怎么可能比得过枪民
+
+
+                                                 
