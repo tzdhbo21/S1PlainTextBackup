@@ -9307,3 +9307,59 @@ md秃子，我阿拉什羁绊还不到12</blockquote>
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 81707#       发表于 2021-8-7 23:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52280992&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 23:06</a>
+
+为什么这么多。吐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推荐120并点满三个被动
+
+
+*****
+
+####  zore  
+##### 81708#       发表于 2021-8-7 23:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">分点苹果吧 不够用了
+
+
+*****
+
+####  rooarr  
+##### 81709#       发表于 2021-8-7 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52280992&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 23:06</a>
+为什么这么多。吐了</blockquote>
+还好吧，再抽300w友情就够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  newfaceryo  
+##### 81710#       发表于 2021-8-8 00:02
+
+
+为什么qp的上限开到20亿，我的猜想是因为int的上限是2,147,483,647。
+
+技术的dw<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81711#       发表于 2021-8-8 00:25
+
+
+瞄了眼，大英雄再差90W绊点就第三人15绊下班了
+
+下一个不知道挂谁了……
+
+
+                                                 
