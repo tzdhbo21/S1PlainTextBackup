@@ -9651,3 +9651,25 @@ STEAM全区都有联动服装，我觉得就是单纯的不同区域不同平台
 
 
                                                  
+
+*****
+
+####  lighttt  
+##### 2207#       发表于 2021-8-7 21:55
+
+
+大家STEAM买什么版本啊
+
+
+*****
+
+####  LT_Harry  
+##### 2208#         楼主| 发表于 2021-8-7 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52280098&amp;ptid=1860328" target="_blank">lighttt 发表于 2021-8-7 21:55</a>
+大家STEAM买什么版本啊</blockquote>
+非普通版的全部都有作弊道具，可以提升收益、商店折扣、减少素材消耗，省点游戏时间
+
+
+                                                 

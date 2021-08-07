@@ -9154,3 +9154,124 @@ NGA已经变鸡笼了
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 81696#       发表于 2021-8-7 21:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52279324&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-7 20:52</a>
+
+真没得用啊，保持效率的同时压缩cost
+
+短期目标就是西哥+布姐x2拉满</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202108/07/214529qi342qqnp8upqu4p.png" referrerpolicy="no-referrer">
+
+
+<strong>234.png</strong> (180.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-7 21:45 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕 萌新为了刷羁绊把把要点7个技能  已吐
+
+
+*****
+
+####  qixinno2  
+##### 81697#       发表于 2021-8-7 21:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹 我都四个莉莉了 为什么没有哈贝喵
+
+
+*****
+
+####  exiaexa  
+##### 81698#       发表于 2021-8-7 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52279984&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 21:45</a>
+羡慕 萌新为了刷羁绊把把要点7个技能  已吐</blockquote>
+md秃子，我阿拉什羁绊还不到12
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81699#       发表于 2021-8-7 21:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52280010&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-7 21:48</a>
+
+md秃子，我阿拉什羁绊还不到12</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">秃个猫啊  不是a狐血沉 怕不是这辈子都不会刷什么羁绊
+
+
+*****
+
+####  黑上シグマ  
+##### 81700#       发表于 2021-8-7 21:54
+
+
+ 本帖最后由 黑上シグマ 于 2021-8-7 21:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52280010&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-7 21:48</a>
+
+md秃子，我阿拉什羁绊还不到12</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">啥？大英雄不都是带在后排蹭绊，14绊不是理所当然的吗？
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看看CBA和狛爵，早就15绊毕业回英灵殿了（不对
+
+
+*****
+
+####  森兰丸  
+##### 81701#       发表于 2021-8-7 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52280019&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 21:50</a>
+
+秃个猫啊  不是a狐血沉 怕不是这辈子都不会刷什么羁绊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怨念都这么大了还不用万能修改工具小卡片么
+
+
+*****
+
+####  alucardcz  
+##### 81702#       发表于 2021-8-7 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52280104&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-7 21:56</a>
+
+怨念都这么大了还不用万能修改工具小卡片么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？ 13号抽不到就溜了 课金是不可能的
+
+
+*****
+
+####  exiaexa  
+##### 81703#       发表于 2021-8-7 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52280083&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-7 21:54</a>
+啥？大英雄不都是带在后排蹭绊，14绊不是理所当然的吗？
+
+看看CBA和狛爵，早就15绊毕业回英 ...</blockquote>
+说个你可能不相信的，阿拉什已经是我羁绊最高的人了，我基本是平均主义
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81704#       发表于 2021-8-7 22:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有最后13万 刷完就可以摸了  话说qp上限为什么才20亿 真不够刷（
+
+
+                                                 
