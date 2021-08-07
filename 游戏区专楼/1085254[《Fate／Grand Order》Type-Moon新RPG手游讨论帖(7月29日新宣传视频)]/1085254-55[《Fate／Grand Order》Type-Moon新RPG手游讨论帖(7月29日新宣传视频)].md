@@ -8243,3 +8243,510 @@ https://bbs.nga.cn/read.php?tid=27952630
 
 
                                                  
+
+*****
+
+####  DARKGRAY  
+##### 81620#       发表于 2021-8-7 13:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274097&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-8-7 13:04</a>
+
+轮回了那么多次每次都被虐的不成人形，还说不是撩起普通人虐她？</blockquote>
+妖精本身就不是普通人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 81621#       发表于 2021-8-7 13:42
+
+
+ 本帖最后由 zakki 于 2021-8-7 13:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274218&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 13:21</a>
+我去隔壁各个板块都逛了逛 这2。6啊 不但fgo版在吹 甚至还有人在其他游戏的板块吹2。6怎么怎么的   ...</blockquote>
+我觉得现在nga最大的槽点是一水的吐槽蓝卡队伤害，强拉绿卡队来比，吐槽用武藏打杀狂回收不够等等，敢情他们搁这讨论了一年的蓝卡环境连怎么操作带什么礼装都不知道啊，而且术阶蓝光炮遍地都是为什么老想用武藏仇凛去打杀狂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81622#       发表于 2021-8-7 13:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274391&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-7 13:42</a>
+
+我觉得现在nga最大的槽点是一水的吐槽蓝卡队伤害，强拉绿卡队来比，吐槽用武藏打杀狂回收不够等等，敢情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我已经能看到明年a狐出来被喷这伤害怎么那么低啊的情景了
+
+
+*****
+
+####  alucardcz  
+##### 81623#       发表于 2021-8-7 13:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274391&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-7 13:42</a>
+
+我觉得现在nga最大的槽点是一水的吐槽蓝卡队伤害，强拉绿卡队来比，吐槽用武藏打杀狂回收不够等等，敢情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关于这个我还看到隔壁问齐格怎么回收不够 要不要给圣杯   点进去一看技能都不点满 还说什么不配用结晶
+
+
+我感情圣杯不比你结晶稀有？
+
+
+*****
+
+####  rooarr  
+##### 81624#       发表于 2021-8-7 13:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274481&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 13:51</a>
+关于这个我还看到隔壁问齐格怎么回收不够 要不要给圣杯   点进去一看技能都不点满 还说什么不配用 ...</blockquote>
+现在确实是结晶比圣杯重要啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81625#       发表于 2021-8-7 13:57
+
+
+ 本帖最后由 alucardcz 于 2021-8-7 14:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274520&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 13:55</a>
+
+现在确实是结晶比圣杯重要啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 圣杯不要太缺 我都不敢拉120
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">我圣杯浪费的太多了 特别bx 大公 黑贞这种不该喂 现在后悔的一猫
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑贞喂的时候她都已经凉了 为了纪念才喂的  哎 年少无知不知道圣杯的重要性
+
+
+*****
+
+####  rooarr  
+##### 81626#       发表于 2021-8-7 14:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274536&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 13:57</a>
+啥 圣杯不要太缺 我都不敢拉120
+
+我圣杯浪费的太多了 特别bx 大公 黑贞这种不该喂 现在后悔 ...</blockquote>
+现在20np要结晶，不要圣杯这一点直接导致圣杯不值钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 81627#       发表于 2021-8-7 14:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽，妖崔新增语音提到欧若拉会不会来迦，这要是到时候和奥伯龙一个池子那真是。。。画美不看
+
+
+*****
+
+####  alucardcz  
+##### 81628#       发表于 2021-8-7 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274573&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 14:00</a>
+
+现在20np要结晶，不要圣杯这一点直接导致圣杯不值钱了120级不要想，那不是圣杯就能解决的问题[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是实际上20np根本就没用啊
+
+
+*****
+
+####  alucardcz  
+##### 81629#       发表于 2021-8-7 14:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274591&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-7 14:02</a>
+
+卧槽，妖崔新增语音提到欧若拉会不会来迦，这要是到时候和奥伯龙一个池子那真是。。。画美不看 ...</blockquote>
+醒醒 建模都没有的人怎么可能入池
+
+你对dw可能有什么很大的误解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81630#       发表于 2021-8-7 14:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274597&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 14:03</a>
+可是实际上20np根本就没用啊</blockquote>
+我觉得很有用啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">少按一个技能就是巨大提升啊
+
+
+
+
+*****
+
+####  alucardcz  
+##### 81631#       发表于 2021-8-7 14:08
+
+
+ 本帖最后由 alucardcz 于 2021-8-7 14:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274625&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 14:05</a>
+
+我觉得很有用啊少按一个技能就是巨大提升啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更关键的是我圣杯只剩10几个了  结晶还有40多  不慌啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我甚至把哈贝猫的技能拉满了 然后发现并不能3连刷钱本 只能自爆 
+
+
+*****
+
+####  rollingusagi  
+##### 81632#       发表于 2021-8-7 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274621&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 14:05</a>
+
+醒醒 建模都没有的人怎么可能入池
+
+你对dw可能有什么很大的误解</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也是，就算蘑菇还想整烂活dw也没这能力
+
+
+*****
+
+####  alucardcz  
+##### 81633#       发表于 2021-8-7 14:10
+
+
+翻页
+
+
+*****
+
+####  rooarr  
+##### 81634#       发表于 2021-8-7 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274653&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 14:08</a>
+更关键的是我圣杯只剩10几个了  结晶还有40多  不慌啊
+
+我甚至把哈贝猫的技能拉满了 然后发 ...</blockquote>
+可以刷钱本啊，我现在就在用，豆爸加c呆给buff，6加成3面要补刀，5加成全程冲浪毫无难度<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81635#       发表于 2021-8-7 14:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274701&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 14:12</a>
+
+可以刷钱本啊，我现在就在用，豆爸加c呆给buff，6加成3面要补刀，5加成全程冲浪毫无难度 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是等于不能刷 我6加成武藏都可以随便冲  
+
+
+*****
+
+####  rooarr  
+##### 81636#       发表于 2021-8-7 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274738&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 14:14</a>
+这不是等于不能刷 我6加成武藏都可以随便冲</blockquote>
+你带两个c呆了？武藏一面就不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81637#       发表于 2021-8-7 14:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274778&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 14:18</a>
+
+你带两个c呆了？武藏一面就不行啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不带2个c呆？   你肯定忘记了我是刷羁绊 不是为了刷钱
+
+
+*****
+
+####  rooarr  
+##### 81638#       发表于 2021-8-7 14:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274790&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 14:19</a>
+为什么不带2个c呆？   你肯定忘记了我是刷羁绊 不是为了刷钱</blockquote>
+这根本不是一个节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81639#       发表于 2021-8-7 14:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274813&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 14:21</a>
+
+这根本不是一个节奏你继续6加成武藏吧，一般人都做不到的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有啥做不到  有好几个带小碧池的c呆 我还被坑了几次！
+
+
+*****
+
+####  rooarr  
+##### 81640#       发表于 2021-8-7 14:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274827&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 14:22</a>
+有啥做不到  有好几个带小碧池的c呆 我还被坑了几次！</blockquote>
+107个好友有7个带了，确实不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81641#       发表于 2021-8-7 14:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274876&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 14:26</a>
+
+107个好友有7个带了，确实不少</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说现在好友哈贝猫多不多  是不是直接找个哈贝猫再上个狗蛋就可以少按很多键了
+
+
+*****
+
+####  rooarr  
+##### 81642#       发表于 2021-8-7 14:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274908&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 14:28</a>
+话说现在好友哈贝猫多不多  是不是直接找个哈贝猫再上个狗蛋就可以少按很多键了 ...</blockquote>
+我的好友只有2个挂出来比较难找，实战意义很小
+
+
+*****
+
+####  alucardcz  
+##### 81643#       发表于 2021-8-7 14:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274947&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 14:32</a>
+
+我的好友只有2个挂出来比较难找，实战意义很小</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 其中一个不会是我吧
+
+
+*****
+
+####  rooarr  
+##### 81644#       发表于 2021-8-7 14:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274985&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 14:36</a>
+什么 其中一个不会是我吧</blockquote>
+然而刚才你并没有挂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在有3个了
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81645#       发表于 2021-8-7 14:43
+
+
+已经抽到俩小安俩莉莉都没见一个哈贝喵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81646#       发表于 2021-8-7 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52275028&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 14:40</a>
+
+然而刚才你并没有挂现在有3个了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我早挂了。不过挂在活动支援里有。。刚刚意识到挂错地方了
+
+
+*****
+
+####  alucardcz  
+##### 81647#       发表于 2021-8-7 14:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">爱酱30石工资到手  想换个人发现cost爆炸了。。。只能让水武藏滚了
+
+
+*****
+
+####  黑上シグマ  
+##### 81648#       发表于 2021-8-7 14:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刷钱都是找带小碧池的C呆的，6加成3T很舒适的
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  yyzcacxg  
+##### 81649#       发表于 2021-8-7 15:06
+
+
+挂了点满2技能20np的贝拉丽莎哈贝喵，求点一样的好友刷QP本<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+ID：166354622
+
+
+*****
+
+####  angelooo  
+##### 81650#       发表于 2021-8-7 15:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274536&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 13:57</a>
+
+啥 圣杯不要太缺 我都不敢拉120
+
+我圣杯浪费的太多了 特别bx 大公 黑贞这种不该喂 现在后悔 ...</blockquote>
+20np比120级重要，真的，120级我特么哪来那么多硬币
+
+
+*****
+
+####  newfaceryo  
+##### 81651#       发表于 2021-8-7 15:18
+
+
+蘑菇更新了日记
+
+简单概括就是——你说你马呢
+
+
+*****
+
+####  alucardcz  
+##### 81652#       发表于 2021-8-7 15:42
+
+
+ 本帖最后由 alucardcz 于 2021-8-7 15:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52274701&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 14:12</a>
+
+可以刷钱本啊，我现在就在用，豆爸加c呆给buff，6加成3面要补刀，5加成全程冲浪毫无难度 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新尝试了下6加成哈贝喵 双c呆回收不满啊  只能2面开个1技能 3面再开个1技能  3面倒是正好能秒  
+
+用豆爸能回满？
+
+
+*****
+
+####  newfaceryo  
+##### 81653#       发表于 2021-8-7 15:47
+
+
+6加成哈贝喵应该是两个结晶点满100自充吧，
+
+这样后两回合也回不满？
+
+
+*****
+
+####  alucardcz  
+##### 81654#       发表于 2021-8-7 15:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52275951&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-8-7 15:47</a>
+
+6加成哈贝喵应该是两个结晶点满100自充吧，
+
+这样后两回合也回不满？</blockquote>
+回不满 但是技能错开放可以3连冲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81655#       发表于 2021-8-7 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52275908&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 15:42</a>
+萌新尝试了下6加成哈贝喵 双c呆回收不满啊  只能2面开个1技能 3面再开个1技能  3面倒是正好能秒  
+
+ ...</blockquote>
+就是你这种方式啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5加成才能回满，6加成回83
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  exiaexa  
+##### 81656#       发表于 2021-8-7 15:57
+
+
+说到结晶，我现在只有10+了，过上了每个月金方块换结晶的日子
+
+
+所以还有谁比较适合拉满通用2的，一个个去想好麻烦
+
+我现在就点了个妖兰，用来对付薛定谔的阴间本
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81657#       发表于 2021-8-7 15:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276068&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 15:56</a>
+
+就是你这种方式啊5加成才能回满，6加成回83
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这刀法 还是挺精准的啊 
+
+
+*****
+
+####  rooarr  
+##### 81658#       发表于 2021-8-7 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276080&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-7 15:57</a>
+这刀法 还是挺精准的啊</blockquote>
+非常准，np回收80级到100级根本没提升多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  alucardcz  
+##### 81659#       发表于 2021-8-7 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52276100&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-7 16:00</a>
+
+非常准，np回收80级到100级根本没提升多少
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 np回收有什么好刀的呢    已经刷掉2条令咒了  （习惯这东西真的很麻烦啊
+
+
+*****
+
+####  远野四季  
+##### 81660#       发表于 2021-8-7 16:16
+
+
+NGA已经变鸡笼了
+
+
+                                                
