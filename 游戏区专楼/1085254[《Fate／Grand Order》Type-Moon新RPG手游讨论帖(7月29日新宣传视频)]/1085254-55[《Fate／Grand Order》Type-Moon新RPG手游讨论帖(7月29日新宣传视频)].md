@@ -7921,3 +7921,47 @@ https://bbs.nga.cn/read.php?tid=27952630
 
 
                                                  
+
+*****
+
+####  rollingusagi  
+##### 81598#       发表于 2021-8-7 09:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52271381&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-08-07 08:02:42</a></blockquote>但妖崔根本不喜欢妖精吧，剧情和羁绊资料都在强调她讨厌妖精，喜欢泛人类史的东西。我觉得蘑菇写妖崔就是把小莫那套换了个形式，虽然我很残暴很熊孩子但我本性是个好人，而且都很在意父亲/母亲对自己的看法
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  rollingusagi  
+##### 81599#       发表于 2021-8-7 09:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52271086&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-08-07 04:51:51</a>
+我说的不是这个意思，是指妖崔这人到底是装傻还是真傻（</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真能看穿还是会被坑，这2.6的例子还少吗，c呆摩根这俩有妖精眼的看看被坑的多惨，只能说妖精这种族就是容易被骗被坑，蘑菇也没细写一句因为妖精很纯粹就完事了，我是感觉蘑菇在写妖精这块有些仗着设定就开始无视逻辑了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  KOBI  
+##### 81600#       发表于 2021-8-7 10:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52271086&amp;ptid=1085254" target="_blank">久井路路 发表于 2021-8-7 04:51</a>
+
+我说的不是这个意思，是指妖崔这人到底是装傻还是真傻（
+
+
+妖精国里只有妖兰中村那么几个人看出欧 ...</blockquote>
+贝利尔先不论妖崔的傻白甜更像甘愿被人利用吧
+
+被人虐待也不发火不逃走。
+
+妖崔那朋友最后也是不知道是谁。。真就希望皇？
+
+
+                                                 

@@ -10734,3 +10734,17 @@ Xperia 5III先行测评</blockquote>
 
 
                                                  
+
+*****
+
+####  无印凉粉  
+##### 753#       发表于 2021-8-7 09:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52263994&amp;ptid=1985265" target="_blank">封印之矢 发表于 2021-8-6 16:41</a>
+
+国内5III什么时候会出呢。手持X5一代的红色，不知道尺寸上会不会还有变化。 ...</blockquote>
+5M3不如5M2，真的。
+
+
+                                                 
