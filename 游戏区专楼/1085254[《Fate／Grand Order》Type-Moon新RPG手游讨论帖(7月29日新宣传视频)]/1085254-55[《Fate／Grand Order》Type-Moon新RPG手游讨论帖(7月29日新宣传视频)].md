@@ -9585,3 +9585,22 @@ nga看不下去了，太特么反智了，早就说了杀狂用术阶，然后�
 
 
                                                 
+
+*****
+
+####  miro112233  
+##### 81727#       发表于 2021-8-8 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52283001&amp;ptid=1085254" target="_blank">rynchee 发表于 2021-8-8 06:52</a>
+
+剧情肯定大改过。看一年前的C呆语音就能看出来。
+
+
+“梅林。就是那个身为我的魔术老师，在离开时一边说着“ ...</blockquote>
+在之前的FGOM里，贝里尔设定里有三个特长：巫术，园艺和服饰（我理解为变装）
+
+结果2.6剧情里都明确解释了他的巫术和园艺是从何而来的，只有服饰提都没提<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

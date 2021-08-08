@@ -14261,3 +14261,23 @@ https://youtu.be/qgwgROPZaJk
 
 
                                                  
+
+*****
+
+####  ShuTk4O  
+##### 5662#       发表于 2021-8-8 10:41
+
+
+点进去看了几分钟，没看到棒子。可能都是被这零基础气得血压爆掉了吧
+
+
+*****
+
+####  sgssk  
+##### 5663#       发表于 2021-8-8 10:58
+
+
+看了眼只有5个SCV在采矿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">白皮佬们都坐不住了，使劲打“neeeeeeeeeed more SCV”
+
+
+                                                 
