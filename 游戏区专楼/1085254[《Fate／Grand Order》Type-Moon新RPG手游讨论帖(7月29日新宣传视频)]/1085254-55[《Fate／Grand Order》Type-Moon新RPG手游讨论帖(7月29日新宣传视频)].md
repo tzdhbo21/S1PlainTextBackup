@@ -9665,3 +9665,100 @@ nga看不下去了，太特么反智了，早就说了杀狂用术阶，然后�
 
 
                                                  
+
+*****
+
+####  angelooo  
+##### 81733#       发表于 2021-8-8 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52285869&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-8 13:37</a>
+
+预言一波明年狐狸出后满屏伤害低</blockquote>
+这两天我隔壁就看不懂了，狐狸刚落地直接被吹上天了，梅林甚至CBA都被拉出来辱
+
+然后国服C呆落地之后又一群人说不好用转头去吹CBA，这也太割裂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过按CBA和C呆落地的尿性，明年狐狸落地不被喷一下是不现实的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  芭德薇  
+##### 81734#       发表于 2021-8-8 15:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287062&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-8 15:41</a>
+
+这两天我隔壁就看不懂了，狐狸刚落地直接被吹上天了，梅林甚至CBA都被拉出来辱
+
+然后国服C呆落地之后又一 ...</blockquote>
+因为杀狐还不能抽，后者已经拿到了啊……计算器总是美好的。
+
+
+*****
+
+####  alucardcz  
+##### 81735#       发表于 2021-8-8 15:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287062&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-8 15:41</a>
+
+这两天我隔壁就看不懂了，狐狸刚落地直接被吹上天了，梅林甚至CBA都被拉出来辱
+
+然后国服C呆落地之后又一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水武藏24w单体隔壁都觉得太低  杀狐不被喷爆才怪
+
+
+*****
+
+####  newfaceryo  
+##### 81736#       发表于 2021-8-8 16:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52283001&amp;ptid=1085254" target="_blank">rynchee 发表于 2021-8-8 06:52</a>
+
+剧情肯定大改过。看一年前的C呆语音就能看出来。
+
+
+“梅林。就是那个身为我的魔术老师，在离开时一边说着“ ...</blockquote>
+关于大c呆和梅林的关系，我个人是这样解释的。
+
+
+现在大家都知道，
+
+大c呆其实并不是剧情中的阿尔托利亚卡斯特，而是所有圣剑的持剑侍女的融合体。
+
+那么湖中仙女，不管薇薇安还是摩根还是妙妮都应该是大c呆的组成部分。
+
+那么和梅林有情感纠葛，没事把梅林关在塔里几千几百年的那位当然也是大c呆的一部分。
+
+那么站在那位的立场上，说出想要把梅林砍头这件事是完全可以理解的。
+
+
+*****
+
+####  都谷捻柏  
+##### 81737#       发表于 2021-8-8 16:06
+
+
+应该不会，嫌低应该是只抽了个1宝蓝卡打手。
+
+隔壁红卡打手宝具数应该远高于蓝卡打手宝具数。
+
+
+*****
+
+####  alucardcz  
+##### 81738#       发表于 2021-8-8 16:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287299&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-8 16:06</a>
+
+应该不会，嫌低应该是只抽了个1宝蓝卡打手。
+
+隔壁红卡打手宝具数应该远高于蓝卡打手宝具数。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你太看不起nga了  水武藏不能充狂杀几百年前都知道的事情还能反复bianshi   齐格满技能随便冲狂杀这种几亿年前都知道的事情还非要点个9级技能问怎么冲不了
+
+
+                                                 

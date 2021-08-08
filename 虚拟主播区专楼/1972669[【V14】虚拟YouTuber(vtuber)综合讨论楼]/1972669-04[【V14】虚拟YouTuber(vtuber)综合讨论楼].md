@@ -14302,3 +14302,41 @@ https://youtu.be/qgwgROPZaJk
 
 
                                                  
+
+*****
+
+####  winda  
+##### 5666#       发表于 2021-8-8 16:00
+
+
+ 本帖最后由 winda 于 2021-8-8 16:05 编辑 
+
+[https://www.youtube.com/watch?v=vanYLhzs1Yk](https://www.youtube.com/watch?v=vanYLhzs1Yk)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圭利的一人日本代表队开始，还提前一小时开练习的啊
+
+syl
+
+
+<img src="https://img.saraba1st.com/forum/202108/08/160330e4xwb3ytebz4qg36.png" referrerpolicy="no-referrer">
+
+
+<strong>gwelu.png</strong> (95.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-8 16:03 上传
+
+
+大佐地图艹
+
+
+*****
+
+####  Sacko9  
+##### 5667#       发表于 2021-8-8 16:14
+
+
+原来一人一队啊，我以为要拼进其他队伍里
+
+
+                                                 

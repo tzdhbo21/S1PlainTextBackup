@@ -1728,3 +1728,37 @@ co宝和lin看了眼录播，co宝还太嫩；lin在锐评ig“先不谈中上�
 
 
                                                  
+
+*****
+
+####  莫洛骑士  
+##### 155#       发表于 2021-8-8 15:59
+
+
+【【文静典中典#4】绿茶小文静的恋爱小课堂-哔哩哔哩】https://b23.tv/utBVUz
+
+文静从初中开始就是饭桶了
+
+
+*****
+
+####  人民de救星  
+##### 156#       发表于 2021-8-8 16:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52263960&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-8-6 16:39</a>
+
+核中核，文静请假去相亲，但是对面发现她微信都是夹子音和高p视频，实际上还有俩拖油瓶，尿遁跑了，静将军 ...</blockquote>
+小团体拉我<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 157#       发表于 2021-8-8 16:48
+
+
+还是很不看好企划本身，企鹅内部画饼拿资源要过的关太多了。希望文静润之前能给个暗号，她这业务能力只当主播的话哪儿都能吃上饭。
+
+
+                                                 
