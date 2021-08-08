@@ -2049,3 +2049,50 @@ WWWW, 走红地毯了💃💃💃💃💃. HAPPY
 
 
                                                  
+
+*****
+
+####  gawain039  
+##### 185#       发表于 2021-8-9 01:09
+
+
+第一！我们是冠军！直播10小时的含金量！
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  袜子  
+##### 186#       发表于 2021-8-9 01:14
+
+
+能从片哥手里捞点出来是真的离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  gawain039  
+##### 187#       发表于 2021-8-9 01:25
+
+
+“最后一首”
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  tankai  
+##### 188#       发表于 2021-8-9 01:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52297446&amp;ptid=2013779" target="_blank">袜子 发表于 2021-8-9 01:14</a>
+
+能从片哥手里捞点出来是真的离谱腾讯视频部真心傻逼，要啥没啥，静二姨去隔壁星瞳组当聊天员算了(估 ...</blockquote>
+星瞳组有几个VTB啊?提前说好,010烧鸡,可不怪文二姨.
+
+
+                                                 
