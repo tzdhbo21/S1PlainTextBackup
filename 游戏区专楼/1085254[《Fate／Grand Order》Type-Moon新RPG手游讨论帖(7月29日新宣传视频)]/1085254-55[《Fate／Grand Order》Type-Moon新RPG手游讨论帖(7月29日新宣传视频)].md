@@ -9762,3 +9762,61 @@ nga看不下去了，太特么反智了，早就说了杀狂用术阶，然后�
 
 
                                                  
+
+*****
+
+####  都谷捻柏  
+##### 81739#       发表于 2021-8-8 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287467&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-8 16:25</a>
+
+你太看不起nga了  水武藏不能充狂杀几百年前都知道的事情还能反复bianshi   齐格满技能随便冲狂杀 ...</blockquote>
+毕竟是水武藏嘛。
+
+也就开始这段时间拿绿卡队比一比，过段时间习惯90+的环境就没她啥事了。
+
+
+PS：稍微纠正一下，水武藏是冲不了狂本，然后高配可以用蓝泳装冲杀（根据经验，一些活动的礼装可以进一步降低这个条件），低配应该是鞭尸次数不够刷不了。
+
+
+*****
+
+####  alucardcz  
+##### 81740#       发表于 2021-8-8 16:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287635&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-8 16:41</a>
+
+毕竟是水武藏嘛。
+
+也就开始这段时间拿绿卡队比一比，过段时间习惯90+的环境就没她啥事了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这说了等于白说 无意义啊  本来就可以带50np的礼装+np衣服 开局不开2个领导力 狂也乱冲  可是这种绑衣服的方法nga能看的上？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实还有60np的礼装更方便 不过我估计也没几个人有
+
+
+*****
+
+####  都谷捻柏  
+##### 81741#       发表于 2021-8-8 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287727&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-8 16:50</a>
+
+你这说了等于白说 无意义啊  本来就可以带50np的礼装+np衣服 开局不开2个领导力 狂也乱冲  可是这 ...</blockquote>
+这里高配可以冲是指的不需要礼装那种的，就是要绑衣服。
+
+
+*****
+
+####  alucardcz  
+##### 81742#       发表于 2021-8-8 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287785&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-8 16:56</a>
+
+这里高配可以冲是指的不需要礼装那种的，就是要绑衣服。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绑衣服=全部木大     说难听点 齐格随便冲还是白给的  非要折腾武藏也就隔壁能干出这种事情了
+
+
+                                                 

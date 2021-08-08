@@ -6679,3 +6679,27 @@ E6qDvUZVkAU97iR.jfif
 
 
                                                  
+
+*****
+
+####  三合一出现  
+##### 1989#       发表于 2021-8-8 17:10
+
+
+ 本帖最后由 三合一出现 于 2021-8-8 17:27 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/08/171004sr4e8haearnwn8nw.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210808170854.png</strong> (47.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-8 17:10 上传
+
+
+这开头的珊瑚不对劲！这集到底是哪个士大夫的手笔
+
+
+                                                 

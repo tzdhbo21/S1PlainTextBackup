@@ -1762,3 +1762,27 @@ co宝和lin看了眼录播，co宝还太嫩；lin在锐评ig“先不谈中上�
 
 
                                                  
+
+*****
+
+####  丢了五块钱  
+##### 158#       发表于 2021-8-8 17:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287703&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-8-8 16:48</a>
+还是很不看好企划本身，企鹅内部画饼拿资源要过的关太多了。希望文静润之前能给个暗号，她这业务能力只当主 ...</blockquote>
+听说有竞业协议的，run了也没法播了
+
+
+*****
+
+####  夜潇箫  
+##### 159#       发表于 2021-8-8 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287972&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-8-8 17:19</a>
+听说有竞业协议的，run了也没法播了</blockquote>
+要直播只能露脸直播，没法当虚拟主播，1.0那几个都是露脸直播
+
+
+                                                 

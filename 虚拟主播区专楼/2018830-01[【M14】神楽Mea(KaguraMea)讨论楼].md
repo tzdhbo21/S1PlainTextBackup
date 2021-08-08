@@ -4009,3 +4009,23 @@ fafa切出电动玩具事件了，好快啊
 
 
                                                  
+
+*****
+
+####  pei23333  
+##### 375#       发表于 2021-8-8 17:19
+
+
+今天是不是还有个联动，怎么一点动静都没有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 376#       发表于 2021-8-8 17:24
+
+
+是的，但是我还没看到chiroru建直播间或者发推
+
+
+                                                 
