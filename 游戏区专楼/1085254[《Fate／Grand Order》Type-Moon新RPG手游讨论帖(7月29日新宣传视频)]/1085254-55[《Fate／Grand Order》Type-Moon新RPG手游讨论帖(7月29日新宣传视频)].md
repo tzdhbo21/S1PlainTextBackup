@@ -9604,3 +9604,64 @@ nga看不下去了，太特么反智了，早就说了杀狂用术阶，然后�
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 81728#       发表于 2021-8-8 13:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52283589&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-8 09:29</a>
+
+所以说nga的计算器玩家也挺惨的
+
+费心费力算完了还总有弱智不看</blockquote>
+预言一波明年狐狸出后满屏伤害低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81729#       发表于 2021-8-8 14:37
+
+
+今天怎么没海豹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81730#       发表于 2021-8-8 14:40
+
+
+ 本帖最后由 alucardcz 于 2021-8-8 14:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52286467&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-8 14:37</a>
+
+今天怎么没海豹</blockquote>
+? 今天又没池子 豹啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81731#       发表于 2021-8-8 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52286487&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-8 14:40</a>
+? 今天又没池子 豹啥</blockquote>
+不是今天10护符吗？
+
+
+*****
+
+####  alucardcz  
+##### 81732#       发表于 2021-8-8 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52286504&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-8 14:41</a>
+
+不是今天10护符吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是有 但是不会有人去抽双up的吧？ 也太想不开了
+
+
+                                                 

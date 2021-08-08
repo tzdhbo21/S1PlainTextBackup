@@ -1714,3 +1714,17 @@ co宝和lin看了眼录播，co宝还太嫩；lin在锐评ig“先不谈中上�
 
 
                                                  
+
+*****
+
+####  袜子  
+##### 154#       发表于 2021-8-8 14:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52285198&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-8-8 12:40</a>
+
+我总感觉艾瑞思她的声音有点做作</blockquote>
+翻了下1.0时期的艾瑞斯还没这么夹，现在的版本过于夹了有点难受
+
+
+                                                 
