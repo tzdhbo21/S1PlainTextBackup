@@ -9834,3 +9834,18 @@ PS：稍微纠正一下，水武藏是冲不了狂本，然后高配可以用蓝
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 81744#       发表于 2021-8-8 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287635&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-8 16:41</a>
+毕竟是水武藏嘛。
+
+也就开始这段时间拿绿卡队比一比，过段时间习惯90+的环境就没她啥事了。</blockquote>
+恰恰相反吧，等他们看到90+平常活动没什么太大收益操作还繁琐反而会喷推荐他们抽阴间本通解仇凛的
+
+
+                                                 
