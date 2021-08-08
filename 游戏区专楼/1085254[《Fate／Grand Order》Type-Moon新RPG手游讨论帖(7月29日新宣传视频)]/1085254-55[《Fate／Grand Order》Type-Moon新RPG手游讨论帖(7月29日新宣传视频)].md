@@ -9495,3 +9495,93 @@ nga看不下去了，太特么反智了，早就说了杀狂用术阶，然后�
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 81720#       发表于 2021-8-8 09:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52282940&amp;ptid=1085254" target="_blank">rynchee 发表于 2021-8-8 06:02</a>
+真别嫌弃樱井，这2.6跟2.2简直一个味。女主角玛修/奥菲利亚身边有一个神经病舔gou贝利尔/苏尔特，还有一个 ...</blockquote>
+整个tm的作家群，蘑菇和樱井本来就是最像的，单说fgo，蘑菇基本就是樱井的上位版，褒贬意都是
+
+所以经常整出骂完樱井然后蘑菇跳出来，嗨大家开心吗的弱智戏码，还总有人乐此不疲的中招
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  exiaexa  
+##### 81721#       发表于 2021-8-8 09:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52283420&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-8 09:01</a>
+nga看不下去了，太特么反智了，早就说了杀狂用术阶，然后还非要用武藏去冲杀狂，冲就冲了还特么非要6加成不 ...</blockquote>
+所以说nga的计算器玩家也挺惨的
+费心费力算完了还总有弱智不看
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81722#       发表于 2021-8-8 09:40
+
+
+翻页
+
+
+*****
+
+####  zakki  
+##### 81723#       发表于 2021-8-8 09:58
+
+
+翻页
+
+
+*****
+
+####  rynchee  
+##### 81724#       发表于 2021-8-8 10:01
+
+
+ 本帖最后由 rynchee 于 2021-8-8 10:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52283236&amp;ptid=1085254" target="_blank">الطائر 发表于 2021-8-8 08:19</a>
+不对吧，这个语音只有切换到大C呆才能触发，这句话的关键词是“把凯茜帕鲁格强塞给我”、“处决死不掉的梦 ...</blockquote>
+“可怕的大姐姐”指的是摩根啊，最明显的，不管蓝呆还是C呆的年龄都比较小，也只有拥有泛人类史记忆、而且在异闻带活了近万年的摩根可以被梅林叫成大姐姐吧（题外话，以年龄来看，除了与星球同寿那几个，摩根应该是年龄最高那一批队的了）
+
+其次，真别伏笔了，首先异闻带这东西就出现没多久，异闻带出现以前大C呆跟梅林就见过可能么？真要是在以前见过，就会像医生跟梅林那样，在剧情里反复提到“魔法少女梅丽”的事情，到最后揭露梅林就是梅丽，而不是仅仅有个语音就完事……别忘了，C呆是限定五星，有不少玩家没抽到，抽到也不一定听语音。而且从261一直到263玩家一直说伏笔什么的，事实证明压根啥伏笔都没有。整个2.6就是特直白。
+
+语音问题就是因为剧情大改了。至少在一年前，2.6搞事的人应该是梅林或跟梅林有关的人。但是加塞了奥贝龙，搞事人身份变了，但是一年前的语音就留下漏洞了
+
+
+*****
+
+####  都谷捻柏  
+##### 81725#       发表于 2021-8-8 10:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52283420&amp;ptid=1085254" target="_blank">zakki 发表于 2021-08-08 09:01:37</a></blockquote>有的人是以为可以1宝6加成不换人不绑衣服的，只能说想的太多氪的太少。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  angelooo  
+##### 81726#       发表于 2021-8-8 10:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52283420&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-8 09:01</a>
+
+nga看不下去了，太特么反智了，早就说了杀狂用术阶，然后还非要用武藏去冲杀狂，冲就冲了还特么非要6加成不 ...</blockquote>
+我记得CBA刚出的时候那边也一帮人跳脚说我怎么没法三连<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+球球你们了多看几个组队帖子少在那没事找事撕逼吧
+
+
+                                                

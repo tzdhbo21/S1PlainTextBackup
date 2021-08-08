@@ -14225,3 +14225,39 @@ image.png
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 5659#       发表于 2021-8-8 09:20
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">tamori...お前ってやつさ。。。！
+
+
+*****
+
+####  ShuTk4O  
+##### 5660#       发表于 2021-8-8 09:35
+
+
+[https://youtu.be/qgwgROPZaJk](https://youtu.be/qgwgROPZaJk)
+
+2434en玩星际1。en太内卷了，连kr观众都不放过？
+
+
+*****
+
+####  Suny08  
+##### 5661#       发表于 2021-8-8 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52283627&amp;ptid=1972669" target="_blank">ShuTk4O 发表于 2021-8-8 09:35</a>
+
+https://youtu.be/qgwgROPZaJk
+
+2434en玩星际1。en太内卷了，连kr观众都不放过？</blockquote>
+评论栏一堆棒子<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">所以棒子是不看自己的v吗，看起来人好像挺多的
+
+
+                                                 

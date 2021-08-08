@@ -992,3 +992,20 @@ https://www.amazon.co.jp/dp/B098T51T7X?tag=nataliecomic-22
 
 
                                                  
+
+*****
+
+####  ads147147  
+##### 90#       发表于 2021-8-8 09:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52270504&amp;ptid=2013091" target="_blank">heseran 发表于 2021-8-7 00:55</a>
+所以说日亚能看吗
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+能，我日亚账号看到了预上线的节目。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
