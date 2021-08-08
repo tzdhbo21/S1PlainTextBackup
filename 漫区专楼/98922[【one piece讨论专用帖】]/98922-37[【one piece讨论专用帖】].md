@@ -17439,3 +17439,63 @@ op这玩意还能讨论战力？</blockquote>
 
 
                                                  
+
+*****
+
+####  灰狼  
+##### 55459#       发表于 2021-8-9 06:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52272522&amp;ptid=98922" target="_blank">华丽の蝴蝶 发表于 2021-8-7 10:45</a>
+
+我也没看懂为啥看到恶魔罗宾直接就丢键盘被控了</blockquote>
+恶魔罗宾
+
+巨兽
+
+决斗者
+
+反大型敌人
+
+惊骇敌军
+
+
+黑色玛丽亚
+
+冲击巨兽
+
+伤害输出者
+
+领导力低下
+
+
+*****
+
+####  灰狼  
+##### 55460#       发表于 2021-8-9 06:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52272522&amp;ptid=98922" target="_blank">华丽の蝴蝶 发表于 2021-8-7 10:45</a>
+
+我也没看懂为啥看到恶魔罗宾直接就丢键盘被控了</blockquote>
+恶魔罗宾
+
+巨兽
+
+决斗者
+
+反大型敌人
+
+惊骇敌军
+
+
+黑色玛丽亚
+
+冲击巨兽
+
+伤害输出者
+
+领导力低下
+
+
+                                                 
