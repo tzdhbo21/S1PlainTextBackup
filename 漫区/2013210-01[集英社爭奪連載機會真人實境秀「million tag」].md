@@ -2603,3 +2603,19 @@ j+熱門漫畫裡最考慮手機作為閱讀媒介而去創作的漫畫應該是
 
 
                                                  
+
+*****
+
+####  フリーレン  
+##### 177#         楼主| 发表于 2021-8-9 01:37
+
+
+ 本帖最后由 フリーレン 于 2021-8-9 02:29 编辑 
+
+第五集字幕出了
+[http://b23.tv/7ZPEtb](http://b23.tv/7ZPEtb)
+
+我每週看之前順便就點一鍵三連支持下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有人能做這個的字幕ˋ真的很感恩
+
+
+                                                 
