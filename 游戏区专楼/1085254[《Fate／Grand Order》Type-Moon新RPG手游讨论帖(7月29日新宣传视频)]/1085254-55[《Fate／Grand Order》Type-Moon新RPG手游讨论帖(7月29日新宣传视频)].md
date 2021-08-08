@@ -9820,3 +9820,17 @@ PS：稍微纠正一下，水武藏是冲不了狂本，然后高配可以用蓝
 
 
                                                  
+
+*****
+
+####  都谷捻柏  
+##### 81743#       发表于 2021-8-8 18:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287812&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-8 16:59</a>
+
+绑衣服=全部木大     说难听点 齐格随便冲还是白给的  非要折腾武藏也就隔壁能干出这种事情了 ...</blockquote>
+只是不能冲杀谣言传的太广，看到了提一嘴而已。
+
+
+                                                 
