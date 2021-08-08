@@ -749,3 +749,17 @@ kr和狗汉子其实合作过不少次了，东巴选他们，不知道是不是
 
 
                                                  
+
+*****
+
+####  茗夜雨  
+##### 71#       发表于 2021-8-8 09:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52254335&amp;ptid=2019274" target="_blank">XIEGC 发表于 2021-8-5 21:11</a>
+
+不签协议+抄袭，他们公司没有法务的吗</blockquote>
+日本动画体制一直是非工业化的作坊式生产，就这还有人吹呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -14211,3 +14211,17 @@ image.png
 
 
                                                  
+
+*****
+
+####  winda  
+##### 5658#       发表于 2021-8-8 09:17
+
+
+圭利昨天apex开头谈了vr的国际大会为什么jp只有他一个人的问题。
+就是因为运营失误和ib的足球大会撞了导致大多数jp liver不能参加。自己三周前发觉报告后也被运营回绝了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为这次大会机会很珍惜（圭利还把和dtn合作的虹pex拿来对比），所以他就一个人参加了。
+顺便hada那边拿到的也是日文规则。
+
+
+                                                 
