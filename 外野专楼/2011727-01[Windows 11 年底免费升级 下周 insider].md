@@ -6130,3 +6130,17 @@ dev的时候就有这个毛病好像
 
 
                                                  
+
+*****
+
+####  bestwood  
+##### 509#       发表于 2021-8-8 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52256690&amp;ptid=2011727" target="_blank">石化金鱼 发表于 2021-8-6 00:42</a>
+
+开始菜单可以改回老版，393楼那个办法</blockquote>
+我建议还是尽早习惯新开始菜单吧，正式版估计会把磁贴的注册表后门砍了。
+
+
+                                                 

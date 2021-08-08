@@ -1686,3 +1686,31 @@ https://b23.tv/2Pg2U7
 
 
                                                  
+
+*****
+
+####  丢了五块钱  
+##### 152#       发表于 2021-8-8 12:17
+
+
+感觉文静和白白都有节目效果
+
+co宝和lin看了眼录播，co宝还太嫩；lin在锐评ig“先不谈中上是不对的”太冷静
+
+艾瑞丝嘛，求求你别夹了
+
+
+*****
+
+####  夜潇箫  
+##### 153#       发表于 2021-8-8 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52284981&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-8-8 12:17</a>
+感觉文静和白白都有节目效果
+
+co宝和lin看了眼录播，co宝还太嫩；lin在锐评ig“先不谈中上是不对的”太冷静 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">我总感觉艾瑞思她的声音有点做作
+
+
+                                                 

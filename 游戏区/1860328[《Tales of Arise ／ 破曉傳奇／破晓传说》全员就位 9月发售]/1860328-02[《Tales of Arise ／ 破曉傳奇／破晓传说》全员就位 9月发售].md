@@ -9705,3 +9705,14 @@ Vesperia 对技能的分类和常规连击的限制也是各作品里较为少�
 
 
                                                  
+
+*****
+
+####  hugosol  
+##### 2211#       发表于 2021-8-8 12:11
+
+
+看了下官方演示的新skit模式感觉怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 
