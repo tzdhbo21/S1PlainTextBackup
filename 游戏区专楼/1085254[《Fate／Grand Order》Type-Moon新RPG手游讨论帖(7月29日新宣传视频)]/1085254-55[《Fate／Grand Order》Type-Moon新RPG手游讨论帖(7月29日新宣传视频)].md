@@ -9849,3 +9849,26 @@ PS：稍微纠正一下，水武藏是冲不了狂本，然后高配可以用蓝
 
 
                                                  
+
+*****
+
+####  里村紅葉  
+##### 81745#       发表于 2021-8-8 20:03
+
+
+突然想到今年周年没说新OST什么时候卖吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我还等着BGM版明镜肆水呢
+
+
+*****
+
+####  angelooo  
+##### 81746#       发表于 2021-8-8 20:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52290566&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-8 20:03</a>
+
+突然想到今年周年没说新OST什么时候卖吗我还等着BGM版明镜肆水呢</blockquote>
+今年12月22号
+
+
+                                                 

@@ -9810,3 +9810,145 @@ syl 我佛了 这次怎么连贴图都不上了
 
 
                                                  
+
+*****
+
+####  stedckk  
+##### 12851#       发表于 2021-8-8 19:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">再见宣言都快八百万了，到底是谁在loop啊，看看今晚能整出什么整那么久。
+
+
+*****
+
+####  一仙  
+##### 12852#       发表于 2021-8-8 19:46
+
+
+ 本帖最后由 一仙 于 2021-8-8 19:52 编辑 
+
+话说不开个定时啥的吗
+
+
+出来了，是花に亡霊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  Fami水  
+##### 12853#       发表于 2021-8-8 19:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这你还要拖了两个月
+
+
+*****
+
+####  cctvyt1  
+##### 12854#       发表于 2021-8-8 20:00
+
+
+中规中矩的选曲吧
+
+不到惊喜也不算烂大街<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 12855#       发表于 2021-8-8 20:02
+
+
+点进主页自动播放的也算播放量吧，每次点进去都会放再见宣言，能听也不会刻意去关。
+
+奇怪的是我进狗狗和狐狸的直播间会自动播放置顶曲，进夸宝和紫宝的就不会，但好像夸宝进自己主页会，挺玄学的
+
+
+*****
+
+####  Fami水  
+##### 12856#       发表于 2021-8-8 20:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">差点没分清前后背
+
+
+*****
+
+####  一仙  
+##### 12857#       发表于 2021-8-8 20:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">绫还是可爱的
+
+
+*****
+
+####  stedckk  
+##### 12858#       发表于 2021-8-8 20:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">虽然没啥惊喜，不过这歌还是挺适合余的
+
+
+*****
+
+####  cctvyt1  
+##### 12859#       发表于 2021-8-8 20:23
+
+
+最后脖子的角度扭过头了 作画大失误<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+分不清前胸后背
+
+
+*****
+
+####  cctvyt1  
+##### 12860#       发表于 2021-8-8 20:29
+
+
+卍组羁绊就看等等夸宝凸待了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nian1538  
+##### 12861#       发表于 2021-8-8 20:30
+
+
+肯定不会去的吧
+
+
+*****
+
+####  星尘的杨桃精  
+##### 12862#       发表于 2021-8-8 20:31
+
+
+这次没魔改不大但混音效果跟原曲比 。。太有特点了。。 欣赏不来
+
+
+*****
+
+####  一仙  
+##### 12863#       发表于 2021-8-8 20:32
+
+
+绫应该是那种不提前喊，她自己是绝对不会主动的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+aqua会去提前邀请吗
+
+
+*****
+
+####  Fami水  
+##### 12864#       发表于 2021-8-8 20:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">发布翻唱没撞已经是羁绊了
+
+
+                                                 
