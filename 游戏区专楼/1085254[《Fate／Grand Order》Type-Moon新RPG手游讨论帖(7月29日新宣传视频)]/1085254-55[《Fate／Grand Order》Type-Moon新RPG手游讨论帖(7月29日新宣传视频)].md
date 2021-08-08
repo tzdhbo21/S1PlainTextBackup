@@ -9967,3 +9967,94 @@ ID 777878854。
 
 
                                                 
+
+*****
+
+####  exiaexa  
+##### 81755#       发表于 2021-8-8 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52293291&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-8 21:12</a>
+30多w抽满哈贝喵，似乎还是挺欧的？第一时间把二技能和被动满上了，还好不吃铃铛。不过有些人说300W都没抽 ...</blockquote>
+你好，我就是那个300w没抽满，lily硬币680的傻逼，您牛逼行了吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81756#       发表于 2021-8-8 23:07
+
+
+NMD这年头当非洲人都要自证清白，真是日了狗了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+__YLA]]9$RKF}BZ~FW3D8_8.png
+(55.9 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-8 23:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/08/230714lfdlulu9l94f9lrg.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81757#       发表于 2021-8-8 23:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹，过了11点去清体力了才想起有俩周常没完成……
+
+
+*****
+
+####  areklose  
+##### 81758#       发表于 2021-8-8 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52296286&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-8 23:14</a>
+
+艹，过了11点去清体力了才想起有俩周常没完成……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不说我都忘记了我上周周常做了没
+
+
+*****
+
+####  alucardcz  
+##### 81759#       发表于 2021-8-8 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52296195&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-8 23:07</a>
+
+NMD这年头当非洲人都要自证清白，真是日了狗了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么比我还多了5个硬币 为什么 是羁绊的力量吗
+
+
+*****
+
+####  qixinno2  
+##### 81760#       发表于 2021-8-8 23:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无限池没怎么刷 好缺友情点啊 顺便手贱抽了发十连 金杀转身是个老虞
+
+
+*****
+
+####  exiaexa  
+##### 81761#       发表于 2021-8-8 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52296314&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-8 23:16</a>
+你怎么比我还多了5个硬币 为什么 是羁绊的力量吗</blockquote>
+我不知道啊，我lily羁绊只有5
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

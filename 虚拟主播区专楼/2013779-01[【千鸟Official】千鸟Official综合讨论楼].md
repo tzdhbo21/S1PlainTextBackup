@@ -1852,3 +1852,160 @@ co宝和lin看了眼录播，co宝还太嫩；lin在锐评ig“先不谈中上�
 
 
                                                  
+
+*****
+
+####  丢了五块钱  
+##### 166#       发表于 2021-8-8 22:42
+
+
+ 本帖最后由 丢了五块钱 于 2021-8-8 23:08 编辑 
+
+片哥被静姨感动到发SC打广告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+静姨钓出红SC，笑嘻了
+
+
+片哥再度SC，变成工商回了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+片哥 SC x 4，又有红地毯，收
+
+
+*****
+
+####  IDIDIDID  
+##### 167#       发表于 2021-8-8 22:55
+
+
+哪儿学来的脑控神功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 168#       发表于 2021-8-8 23:01
+
+
+中国只有北京有偶像是吧，这么喜欢💣
+
+
+*****
+
+####  gawain039  
+##### 169#       发表于 2021-8-8 23:22
+
+
+选择片哥？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  tankai  
+##### 170#       发表于 2021-8-8 23:26
+
+
+二姨u收一收,我怕怕.你这样红地毯恰饱饱我怕哪天被队友裹起来丢河里.
+
+
+*****
+
+####  tankai  
+##### 171#       发表于 2021-8-8 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52295547&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-8-8 22:27</a>
+
+5分钟后吃A落happy💃💃💃💃💃</blockquote>
+WWWW, 走红地毯了💃💃💃💃💃. HAPPY 
+
+
+*****
+
+####  伞沢直美  
+##### 172#       发表于 2021-8-8 23:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我超文静阿姨今天吃药了？
+
+
+*****
+
+####  IDIDIDID  
+##### 173#       发表于 2021-8-8 23:30
+
+
+片哥我的片哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tankai  
+##### 174#       发表于 2021-8-8 23:32
+
+
+呜呜呜,这他妈是个啥.片哥你燥其他主播皮,怎么就栽在文二姨这里了.
+
+
+*****
+
+####  IDIDIDID  
+##### 175#       发表于 2021-8-8 23:35
+
+
+这下榜一了
+
+
+*****
+
+####  gawain039  
+##### 176#       发表于 2021-8-8 23:35
+
+
+主播今天开运钞车是吧？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  gawain039  
+##### 177#       发表于 2021-8-8 23:35
+
+
+冠军喽！！！
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  丢了五块钱  
+##### 178#       发表于 2021-8-8 23:37
+
+
+每周毕业一次，都是红地毯，静姨你好强大
+
+
+*****
+
+####  本间日阳  
+##### 179#       发表于 2021-8-8 23:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">直播算是给她玩明白了
+
+
+*****
+
+####  IDIDIDID  
+##### 180#       发表于 2021-8-8 23:41
+
+
+直球发片都来了，什么天降的节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
