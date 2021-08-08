@@ -9952,3 +9952,49 @@ aqua会去提前邀请吗
 
 
                                                  
+
+*****
+
+####  stedckk  
+##### 12865#       发表于 2021-8-8 20:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这脖子确实扭得想要断一样
+
+
+*****
+
+####  nian1538  
+##### 12866#       发表于 2021-8-8 20:52
+
+
+背后的纹身也没了，这图画的问题是有点多
+
+唱的有点微妙
+
+
+*****
+
+####  面具13  
+##### 12867#       发表于 2021-8-8 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52291721&amp;ptid=1914409" target="_blank">一仙 发表于 2021-8-8 20:32</a>
+
+绫应该是那种不提前喊，她自己是绝对不会主动的
+
+
+aqua会去提前邀请吗 ...</blockquote>
+只有@everyone，没有单独发
+
+
+*****
+
+####  Fami水  
+##### 12868#       发表于 2021-8-8 21:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那肯定是么得了
+
+
+                                                 

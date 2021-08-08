@@ -9872,3 +9872,98 @@ PS：稍微纠正一下，水武藏是冲不了狂本，然后高配可以用蓝
 
 
                                                  
+
+*****
+
+####  里村紅葉  
+##### 81747#       发表于 2021-8-8 21:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52291563&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-8 20:28</a>
+
+今年12月22号</blockquote>
+鬼鬼这么晚，但愿是因为带了2.6的BGM<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 81748#       发表于 2021-8-8 21:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52292928&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-8 21:01</a>
+
+鬼鬼这么晚，但愿是因为带了2.6的BGM</blockquote>
+是的，包括了255到2.6的BGM，跃动、明镜肆水、幻日什么的也都有
+
+
+*****
+
+####  森兰丸  
+##### 81749#       发表于 2021-8-8 21:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52290566&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-8 20:03</a>
+
+突然想到今年周年没说新OST什么时候卖吗我还等着BGM版明镜肆水呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">油管搜一下不就有一堆截录的了么.....反正我耳盲听不出和OST有啥区别
+
+
+*****
+
+####  里村紅葉  
+##### 81750#       发表于 2021-8-8 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52293144&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-8 21:07</a>
+
+油管搜一下不就有一堆截录的了么.....反正我耳盲听不出和OST有啥区别 ...</blockquote>
+开视频太麻烦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  xiongxingyu  
+##### 81751#       发表于 2021-8-8 21:12
+
+
+30多w抽满哈贝喵，似乎还是挺欧的？第一时间把二技能和被动满上了，还好不吃铃铛。不过有些人说300W都没抽满这有点夸张了吧，300w下去小安都可以满了。
+
+顺便求一波挂qp礼装满被动和二技能的哈贝喵好友，大概还有10来个坑位。小番茄刷qb有点审美疲劳了，亟需缓缓口味，有条件的话活动助战extra阶能挂梵高就更好了。
+
+ID 777878854。
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81752#       发表于 2021-8-8 21:25
+
+
+90w友情一哈贝喵+满宝莉莉 不抽了 每日十连随缘吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81753#       发表于 2021-8-8 21:25
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 81754#       发表于 2021-8-8 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52293291&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-8 21:12</a>
+
+30多w抽满哈贝喵，似乎还是挺欧的？第一时间把二技能和被动满上了，还好不吃铃铛。不过有些人说300W都没抽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恭喜你获得了本楼最欧的称号
+
+
+                                                

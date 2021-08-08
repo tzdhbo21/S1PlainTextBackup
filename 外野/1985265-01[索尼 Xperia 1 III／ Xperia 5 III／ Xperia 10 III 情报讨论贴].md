@@ -10779,3 +10779,16 @@ Xperia 5III先行测评</blockquote>
 
 
                                                  
+
+*****
+
+####  jzsgtx  
+##### 756#       发表于 2021-8-8 20:48
+
+
+发现III的工程模式没有测试菜单了，只有info<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+顺便这两天使用感受还挺不错
+
+
+                                                 
