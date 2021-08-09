@@ -7360,3 +7360,59 @@ hasan说话风格像第一次用unreal做游戏的大学生<img src="https://sta
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 568#       发表于 2021-8-9 23:50
+
+
+[https://twitter.com/BBGameStudios/status/1424755432644648964](https://twitter.com/BBGameStudios/status/1424755432644648964)
+ <blockquote>BLUE BOX Game Studios
+
+The Realtime Experience patch will be available universally on August 10th. Timezone difference does not affect this.
+
+Available: 21:00 CET</blockquote>
+
+北京时间周三凌晨三点上线
+
+
+*****
+
+####  luoyianwu  
+##### 569#       发表于 2021-8-9 23:53
+
+
+[https://www.konami.com/games/eu/en/topics/15988/](https://www.konami.com/games/eu/en/topics/15988/)
+
+Konami参加Gamescom，除了足球和游戏王外有新的annoucement
+
+
+*****
+
+####  新八  
+##### 570#       发表于 2021-8-10 00:00
+
+
+如果要发布的话科隆展级别应该是够的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  luoyianwu  
+##### 571#       发表于 2021-8-10 00:30
+
+
+ 本帖最后由 luoyianwu 于 2021-8-10 00:32 编辑 
+
+[https://twitter.com/AkiraYamaoka/status/1424630584010186756](https://twitter.com/AkiraYamaoka/status/1424630584010186756)
+<img src="https://p.sda1.dev/2/6aceaf8da344a675f46ee00936eb31f3/ay.png" referrerpolicy="no-referrer">
+
+寂静岭作曲家山岡晃：好事将发生
+
+离他上一条推已四个月
+
+
+                                                

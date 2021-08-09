@@ -9893,3 +9893,41 @@ BS有范围伤害这个最早的7分钟演示里就有了
 
 
                                                 
+
+*****
+
+####  LMBS  
+##### 2226#       发表于 2021-8-9 23:47
+
+
+我记得这次是第一次把BGM拿出来卖吧，怎么看到不少说历代都是这样
+
+
+*****
+
+####  LT_Harry  
+##### 2227#         楼主| 发表于 2021-8-9 23:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52309382&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-8-9 23:47</a>
+
+我记得这次是第一次把BGM拿出来卖吧，怎么看到不少说历代都是这样</blockquote>
+取决于对销售方式的认知——以往经典音乐是和经典人物服装一起卖的，当然经典音乐也只限于服装对应的作品，但终究还是卖了个这样的东西出来。
+
+
+说起来这次还没公布（也可能是没有？）经典人物套装，如果有服装内容我只想买这种。
+
+
+*****
+
+####  qiyu1234  
+##### 2228#       发表于 2021-8-9 23:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52309382&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-8-9 23:47</a>
+
+我记得这次是第一次把BGM拿出来卖吧，怎么看到不少说历代都是这样</blockquote>
+他们可能指的是部分服装带的BGM
+
+
+                                                 

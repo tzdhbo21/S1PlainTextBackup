@@ -10442,3 +10442,154 @@ C呆那个铁匠，就是黑骑士。</blockquote>
 
 
                                                  
+
+*****
+
+####  newfaceryo  
+##### 81791#       发表于 2021-8-9 23:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52309002&amp;ptid=1085254" target="_blank">光影mk2 发表于 2021-8-9 23:07</a>
+
+请问在哪一节？我再回去看看，真没印象了</blockquote>
+身材相近，做东西很灵巧，并且村里人知道是摩根的心腹。
+
+反正很多点可以看出来
+
+
+*****
+
+####  eden_hazard  
+##### 81792#       发表于 2021-8-9 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52307477&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-9 20:43</a>
+
+老萌新前阵子刷了个新号回坑了，好友好难加球各位巨巨们带带
+
+
+978293175</blockquote>
+加你了，qwsted
+
+你直接新号从零开始的？
+
+
+*****
+
+####  任天索尼子  
+##### 81793#       发表于 2021-8-9 23:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52307477&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-9 20:43</a>
+
+老萌新前阵子刷了个新号回坑了，好友好难加球各位巨巨们带带
+
+
+978293175</blockquote>
+加了你了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 81794#       发表于 2021-8-9 23:47
+
+
+ 本帖最后由 シャル 于 2021-8-9 23:49 编辑 
+
+卧槽，LB6的遗影李庄人都在啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+一家人就是要整整齐齐的，全家福没有摩根<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+E8B3KAvVUAEHG5L.jpg
+(22.25 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-9 23:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/09/234750mjf9pcl00f09mf9m.jpg" referrerpolicy="no-referrer">
+
+
+E8B3KAwVgAAwngQ.jpg
+(17.5 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-9 23:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/09/234751po0991fzxiaz8ji0.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LOLITA  
+##### 81795#       发表于 2021-8-10 00:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52309341&amp;ptid=1085254" target="_blank">eden_hazard 发表于 2021-8-9 23:43</a>
+
+加你了，qwsted
+
+你直接新号从零开始的？</blockquote>
+怎么会，从0开始我怕是连第一部都没耐心打<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+之前买的摩根初始这是
+
+
+*****
+
+####  LOLITA  
+##### 81796#       发表于 2021-8-10 00:38
+
+
+ 本帖最后由 LOLITA 于 2021-8-10 01:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52309353&amp;ptid=1085254" target="_blank">任天索尼子 发表于 2021-8-9 23:45</a>
+
+加了你了</blockquote>
+谢谢大佬<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+感谢大家加我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+好友已经够多了可以去打2.6了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81797#       发表于 2021-8-10 01:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52309387&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-9 23:47</a>
+
+卧槽，LB6的遗影李庄人都在啊
+
+
+一家人就是要整整齐齐的，全家福没有摩根</blockquote>
+将摩根想成拿照相机那个吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81798#       发表于 2021-8-10 01:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52309764&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-10 00:38</a>
+谢谢大佬
+
+
+感谢大家加我</blockquote>
+申请了，需要挂什么特殊的出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

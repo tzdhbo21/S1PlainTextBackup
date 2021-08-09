@@ -2246,3 +2246,14 @@ https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web
 
 
                                                  
+
+*****
+
+####  tn_teana  
+##### 201#       发表于 2021-8-10 01:40
+
+
+看艾白和艾瑞思唱歌，不得不承认努力真的打不过天赋
+
+
+                                                 
