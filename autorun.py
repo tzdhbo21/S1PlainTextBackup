@@ -16,8 +16,8 @@ def parse_html(html,threadict):
         threadids = re.search(r'normalthread_\d{7}',str(i))
         if(threadids):
             levels = re.search(r'\d{1,5}</a></span>',str(i))
-            if(levels):
-                threadid = re.sub(r'normalthread_','',str(threadids.group(0)))
+            threadid = re.sub(r'normalthread_','',str(threadids.group(0)))
+            if(levels) and (int(threadid) > 2000000):
                 level = re.sub(r'</a></span>','',str(levels.group(0)))
                 lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
                 replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
@@ -60,7 +60,7 @@ if __name__ == '__main__':
     rootdir="./"
     for k in forumdict.keys():
         threadict = {}
-        for i in range(1,6):
+        for i in range(1,2):
             RURL = 'https://bbs.saraba1st.com/2b/forum-'+forumdict[k]+'-'+str(i)+'.html'
             s1 = requests.get(RURL, headers=headers,  cookies=cookies)
             # s1 = requests.get(RURL, headers=headers)
@@ -81,13 +81,13 @@ if __name__ == '__main__':
                 thdata.append(newthread)
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
-    activethdata=[]
-    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
-            thdata=json.load(f)
-    for i in range(len(thdata)):
-        if(thdata[i]['active']):
-            activethdata.append(thdata[i])
-    with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
-            f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
+    # activethdata=[]
+    # with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+    #         thdata=json.load(f)
+    # for i in range(len(thdata)):
+    #     if(thdata[i]['active']):
+    #         activethdata.append(thdata[i])
+    # with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
+    #         f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
         
         
