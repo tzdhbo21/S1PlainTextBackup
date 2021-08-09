@@ -60,7 +60,7 @@ if __name__ == '__main__':
     rootdir="./"
     for k in forumdict.keys():
         threadict = {}
-        for i in range(1,2):
+        for i in range(1,3):
             RURL = 'https://bbs.saraba1st.com/2b/forum-'+forumdict[k]+'-'+str(i)+'.html'
             s1 = requests.get(RURL, headers=headers,  cookies=cookies)
             # s1 = requests.get(RURL, headers=headers)
@@ -70,9 +70,9 @@ if __name__ == '__main__':
         with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
         flag = 1
-        ids = []
+        ids = {}
         for j in range(len(thdata)):
-            ids.append(thdata[i]['id'])
+            ids.append(thdata[j]['id'])
         for l in threadict.keys():
             if l in ids:
                 thdata[ids.index(l)]['active'] = True
