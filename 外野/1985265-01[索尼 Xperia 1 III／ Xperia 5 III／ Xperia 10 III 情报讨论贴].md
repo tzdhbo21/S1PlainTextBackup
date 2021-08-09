@@ -10972,3 +10972,38 @@ Xperia 5III先行测评</blockquote>
 
 
                                                  
+
+*****
+
+####  我很费纸  
+##### 769#       发表于 2021-8-9 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52298526&amp;ptid=1985265" target="_blank">leystage 发表于 2021-8-9 08:27</a>
+往好了想，不拍照的话，5m3和m2比没啥改进，可以跳过</blockquote>
+我确实是打算跳过5M3了，连RAM都没加，那真的没有换的必要
+
+但是不乐观消息是，下一代高通还是三星工艺<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  我很费纸  
+##### 770#       发表于 2021-8-9 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52299980&amp;ptid=1985265" target="_blank">gulant 发表于 2021-8-9 10:41</a>
+3的一次已经辟谣了。
+
+
+18个月是按地区还是什么标准算？例如日区比较晚是不是延迟几个月？还是按照发布人开 ...</blockquote>
+其实18个月就是个约数，实际情况就是2个大版本更新，
+
+以xz2c为例，更新一路从8.0管到了10.0，11的更新名单就没xz2这一代的份了。再往后除非有什么重大安全需要更新，就不会有更新推送了。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

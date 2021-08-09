@@ -2216,3 +2216,33 @@ WWWW, 走红地毯了💃💃💃💃💃. HAPPY
 
 
                                                  
+
+*****
+
+####  丢了五块钱  
+##### 199#       发表于 2021-8-9 17:35
+
+
+ 本帖最后由 丢了五块钱 于 2021-8-9 18:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52301338&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-8-9 12:25</a>
+https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web
+
+
+首播这个事故就算傻子御姐吧 ...</blockquote>
+我感觉白白确实是傻子，但是舍不得能牵狗的4.0人设，还得端着。
+
+省一楼
+
+听了听琳的歌回，让我想起了holo的巧可，这波伴奏配合的不是很好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 200#       发表于 2021-8-9 22:52
+
+
+文静的游戏力，只能用悲剧形容……
+
+
+                                                 

@@ -10357,3 +10357,88 @@ NMD这年头当非洲人都要自证清白，真是日了狗了</blockquote>
 
 
                                                  
+
+*****
+
+####  都谷捻柏  
+##### 81784#       发表于 2021-8-9 19:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304145&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-08-09 16:04:40</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用以后，这期就有几个红单，你可以去试一试
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  exiaexa  
+##### 81785#       发表于 2021-8-9 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52306452&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-9 19:12</a>
+
+不用以后，这期就有几个红单，你可以去试一试
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+其他几个红单没啥意思啊，没有拉二这种俩皇权叠起来的卧槽感
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81786#       发表于 2021-8-9 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">算了算一共刷了31亿qp 用掉了12亿。。。该摸了  再也不刷了
+
+
+*****
+
+####  LOLITA  
+##### 81787#       发表于 2021-8-9 20:43
+
+
+老萌新前阵子刷了个新号回坑了，好友好难加球各位巨巨们带带<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+978293175
+
+
+谢谢大佬<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  光影mk2  
+##### 81788#       发表于 2021-8-9 22:22
+
+
+后面蘑菇有提到跟随摩根那个黑骑士去哪了吗？我咋看着看着他人没了，是我看漏了还是没写？
+
+
+*****
+
+####  khxooo  
+##### 81789#       发表于 2021-8-9 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52308608&amp;ptid=1085254" target="_blank">光影mk2 发表于 2021-8-9 22:22</a>
+后面蘑菇有提到跟随摩根那个黑骑士去哪了吗？我咋看着看着他人没了，是我看漏了还是没写？ ...</blockquote>
+C呆那个铁匠，就是黑骑士。
+
+
+*****
+
+####  光影mk2  
+##### 81790#       发表于 2021-8-9 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52308722&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-9 22:35</a>
+
+C呆那个铁匠，就是黑骑士。</blockquote>
+请问在哪一节？我再回去看看，真没印象了
+
+
+                                                 

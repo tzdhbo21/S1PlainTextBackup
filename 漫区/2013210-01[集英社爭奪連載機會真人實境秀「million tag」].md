@@ -2619,3 +2619,44 @@ j+熱門漫畫裡最考慮手機作為閱讀媒介而去創作的漫畫應該是
 
 
                                                  
+
+*****
+
+####  熊猫roey  
+##### 178#       发表于 2021-8-9 22:42
+
+
+emmmm……林士平编辑站在穿着电锯人周边T恤的藤田小哥后面，让我忍不住想到一句经典台词
+
+“你怎么穿着品如的衣服”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/09/224223d1j7yetvs1tsps41.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (158.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-9 22:42 上传
+
+
+*****
+
+####  熊猫roey  
+##### 179#       发表于 2021-8-9 23:00
+
+
+存了这张图，感觉以后经常可以用上<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/09/230046cvnnk6bbtjzt8lti.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (206.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-9 23:00 上传
+
+
+                                                 

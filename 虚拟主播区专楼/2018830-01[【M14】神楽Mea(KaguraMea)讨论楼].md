@@ -4416,3 +4416,356 @@ syl  大司咩
 
 
                                                  
+
+*****
+
+####  GRMeA104  
+##### 412#       发表于 2021-8-9 18:13
+
+
+你麻想的努力播大概跟你们完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+明明这么努力联动了怎么还有人抱怨的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 413#       发表于 2021-8-9 18:17
+
+
+没有了fleet，也没有tc，虽然昨晚看她小游戏还挺乐呵，但总感觉好寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 414#       发表于 2021-8-9 18:18
+
+
+ 本帖最后由 T_Hb 于 2021-8-9 18:21 编辑 
+
+tc是好久没播了，有点想看
+其实我一直很奇怪她为啥不喜欢自频道联动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GRMeA104  
+##### 415#       发表于 2021-8-9 18:22
+
+
+主播没有和观众的共情能力，她能懂你们的需求就有鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 416#       发表于 2021-8-9 18:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52305802&amp;ptid=2018830" target="_blank">GRMeA104 发表于 2021-8-9 18:13</a>
+你麻想的努力播大概跟你们完全不一样
+明明这么努力联动了怎么还有人抱怨的感觉 ...</blockquote>
+庄司：粉丝抱怨可能还是嫌现在的联动不够多吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 417#       发表于 2021-8-9 18:54
+
+
+<img src="https://img.saraba1st.com/forum/202108/09/185349yo8d0oiore0e9orp.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (15.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-9 18:53 上传
+
+
+25号联动调整到了26号
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  献给亲爱的世界  
+##### 418#       发表于 2021-8-9 21:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52294872&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-8-8 22:05</a>
+
+anmr箱的，还蛮迷你咩的
+
+前面几次多人联动都说过要和你咩联动，还给咩宝发长文dm，被你咩直播挂出来过[f:06 ...</blockquote>
+有切片吗，想补一下
+
+
+*****
+
+####  T_Hb  
+##### 419#       发表于 2021-8-9 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52308134&amp;ptid=2018830" target="_blank">献给亲爱的世界 发表于 2021-8-9 21:38</a>
+
+有切片吗，想补一下</blockquote>
+[https://www.bilibili.com/video/B ... =472790490617853872](https://www.bilibili.com/video/BV1P64y1R7LC?from=search&amp;seid=472790490617853872)
+
+只找到了多人联动的切片
+
+挂私信的那次是歌回，我也找不到是哪一天的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 420#       发表于 2021-8-9 22:02
+
+
+有些人懒得连日语都不想打了 没错 就是说你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  thisisaspider  
+##### 421#       发表于 2021-8-9 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52308134&amp;ptid=2018830" target="_blank">献给亲爱的世界 发表于 2021-8-9 21:38</a>
+
+有切片吗，想补一下</blockquote>
+[https://www.bilibili.com/video/BV1KV41177VG](https://www.bilibili.com/video/BV1KV41177VG)
+
+挂私信
+
+
+*****
+
+####  2014720  
+##### 422#       发表于 2021-8-9 22:03
+
+
+ 本帖最后由 2014720 于 2021-8-9 22:12 编辑 
+
+开了
+
+舒服
+
+
+*****
+
+####  T_Hb  
+##### 423#       发表于 2021-8-9 22:07
+
+
+ 本帖最后由 T_Hb 于 2021-8-9 22:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然在官号上，难怪找不到
+
+“tokyo tower在哪里”
+
+<img src="https://img.saraba1st.com/forum/202108/09/222027o0sk2ziqly8ylt5q.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (5.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-9 22:20 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iuhehc  
+##### 424#       发表于 2021-8-9 22:23
+
+
+这个谈话能不能有点利好坦克民的信息
+
+
+*****
+
+####  T_Hb  
+##### 425#       发表于 2021-8-9 22:23
+
+
+ 本帖最后由 T_Hb 于 2021-8-9 22:25 编辑 
+
+这不是来了吗，聊吃的了，还是上次和苔总喝咖啡之前的事，吃了好几个甜品
+
+
+*****
+
+####  路人庚  
+##### 426#       发表于 2021-8-9 22:35
+
+
+大猩猩还行，这是多么久远的联络（
+
+
+*****
+
+####  T_Hb  
+##### 427#       发表于 2021-8-9 22:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">东卍又来了
+
+
+*****
+
+####  2014720  
+##### 428#       发表于 2021-8-9 22:57
+
+
+兔鞠 兔鞠<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 429#       发表于 2021-8-9 22:57
+
+
+过了快1小时来了个兔菊（
+
+
+*****
+
+####  T_Hb  
+##### 430#       发表于 2021-8-9 23:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 431#       发表于 2021-8-9 23:03
+
+
+又是这位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 432#       发表于 2021-8-9 23:06
+
+
+ 本帖最后由 T_Hb 于 2021-8-9 23:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我要笑死了
+
+tomari怎么也来了，太怪了，我要笑死了
+
+对罗贝尔来说确实是地狱，怎么老叫他说些怪台词
+
+
+*****
+
+####  2014720  
+##### 433#       发表于 2021-8-9 23:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 434#       发表于 2021-8-9 23:29
+
+
+“電マの花束”   有点赛博<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 435#       发表于 2021-8-9 23:35
+
+
+拜普都出来了还行（该脑补一下你咩姐看A〇看到腿抽筋的具体经过了
+
+
+*****
+
+####  T_Hb  
+##### 436#       发表于 2021-8-9 23:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">不能脑补，太H了
+
+
+*****
+
+####  gundamf91  
+##### 437#       发表于 2021-8-9 23:43
+
+
+ウーマナイザー
+
+真会玩<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 438#       发表于 2021-8-9 23:47
+
+
+女性紫薇器真有你的肥婆
+
+
+*****
+
+####  路人庚  
+##### 439#       发表于 2021-8-9 23:50
+
+
+ 本帖最后由 路人庚 于 2021-8-9 23:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐想聊前男友居然被打断了还行
+
+五元果然还是来了
+
+
+五元：domo，神乐mea男友五元desu
+
+
+*****
+
+####  T_Hb  
+##### 440#       发表于 2021-8-9 23:51
+
+
+直播间里都是🦄，听不得这个
+
+
+                                                
