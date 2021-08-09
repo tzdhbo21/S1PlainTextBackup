@@ -17,7 +17,7 @@ def parse_html(html,threadict):
         if(threadids):
             levels = re.search(r'\d{1,5}</a></span>',str(i))
             threadid = re.sub(r'normalthread_','',str(threadids.group(0)))
-            if(levels) and (int(threadid) > 2000000):
+            if(levels) and (int(threadid) > 2017000):
                 level = re.sub(r'</a></span>','',str(levels.group(0)))
                 lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
                 replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
