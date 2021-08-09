@@ -9754,3 +9754,142 @@ Vesperia 对技能的分类和常规连击的限制也是各作品里较为少�
 
 
                                                  
+
+*****
+
+####  LMBS  
+##### 2215#       发表于 2021-8-9 21:27
+
+
+原本以为发售前一个月会有试玩，现在看来预告都还没放完，别搞得发售前两周给试玩，富泽真能忍
+
+
+*****
+
+####  laoz  
+##### 2216#       发表于 2021-8-9 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52308002&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-8-9 21:27</a>
+
+原本以为发售前一个月会有试玩，现在看来预告都还没放完，别搞得发售前两周给试玩，富泽真能忍 ...</blockquote>
+TOB就是发售前两周才把demo丢出来的
+
+
+*****
+
+####  魂淡放我出去  
+##### 2217#       发表于 2021-8-9 21:55
+
+
+我现在才看到这次的秘奥义除了男主，其他的运镜速度似乎都很快，搞得我有点懵<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  defer  
+##### 2218#       发表于 2021-8-9 21:56
+
+
+篝火翻译了个gi的试玩，把第一章剧情透了个干净，我草草看了两眼赶紧关掉了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桧山修之  
+##### 2219#       发表于 2021-8-9 22:24
+
+
+ 本帖最后由 桧山修之 于 2021-8-9 22:27 编辑 
+
+我对爆气是被动产生(TOD2、TOS)，合体技是处刑表演(TOR)，这两点非常不乐观，千万不要搞砸了
+
+
+*****
+
+####  qiyu1234  
+##### 2220#       发表于 2021-8-9 22:35
+
+
+ 本帖最后由 qiyu1234 于 2021-8-9 22:45 编辑 
+
+OVL不能自主控制这个在TOG里也是一样的，考虑到香川是TOG的战斗策划，有可能像TOGF那样后期追加自主控制OVL(或者直接追加一个爆发条）的称号
+
+
+Boost Strike的演出有点像强化运镜效果的TOX共鸣技（实质上是血线/连击数/特殊破防情况下的斩杀技，跟共鸣技功能上不是一回事）发动起来也没那么自由，对战斗节奏的干扰应该不算明显，一般来说只有秘奥义才是事实上的连段终结技能
+
+
+
+
+*****
+
+####  a7828986  
+##### 2221#       发表于 2021-8-9 22:45
+
+
+pc优化不知道怎么样
+
+3080 4k 120应该行吧
+
+绯红优化就挺好的 可以稳4k 120
+
+
+*****
+
+####  LMBS  
+##### 2222#       发表于 2021-8-9 22:49
+
+
+现在进攻手段不少，对OVL有限制我觉得还好。
+
+BreakStrike目前的视频看来好像只能打到目标，如果像TOV的FS能打到附近的怪提高打怪效率就好，起码应该要能学习技能杀敌能回复HPAG
+
+
+*****
+
+####  qiyu1234  
+##### 2223#       发表于 2021-8-9 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52308844&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-8-9 22:49</a>
+
+现在进攻手段不少，对OVL有限制我觉得还好。
+
+BreakStrike目前的视频看来好像只能打到目标，如果像TOV的FS能 ...</blockquote>
+BS有范围伤害这个最早的7分钟演示里就有了
+
+
+奥尔芬跟林薇儿的BS就同时击中了三个敌人（三个敌人被击中后同时蹦出伤害数字）
+
+
+*****
+
+####  LT_Harry  
+##### 2224#         楼主| 发表于 2021-8-9 23:02
+
+
+ 本帖最后由 LT_Harry 于 2021-8-9 23:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52308318&amp;ptid=1860328" target="_blank">defer 发表于 2021-8-9 21:56</a>
+
+篝火翻译了个gi的试玩，把第一章剧情透了个干净，我草草看了两眼赶紧关掉了 ...</blockquote>
+我看了，信息量一般吧，翻译得有点不好，部分用词不太符合系列中文化后的习惯。
+
+补充：我居然没在 gameinformer.com 找到这篇文章，是不是还没发啊？
+
+
+*****
+
+####  qiyu1234  
+##### 2225#       发表于 2021-8-9 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52308959&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-9 23:02</a>
+
+我看了，信息量一般吧，翻译得有点不好，部分用词不太符合系列中文化后的习惯。
+
+补充：我居然没在 gameinf ...</blockquote>
+杂志专稿，数字版阅读得订阅
+[https://www.gameinformer.com/magazine](https://www.gameinformer.com/magazine)
+
+
+                                                
