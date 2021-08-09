@@ -4338,3 +4338,39 @@ syl  大司咩
 
 
                                                  
+
+*****
+
+####  时间在我手中  
+##### 405#       发表于 2021-8-9 14:30
+
+
+下一回，最后八年<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">估计四小时多能完结
+
+
+今天吊人最后-558亿，中间一度毫无声音
+
+
+                                                 
+
+*****
+
+####  格林卡罗尔  
+##### 406#       发表于 2021-8-9 15:01
+
+
+之前旋转雪月花的翻唱结果给德龙和星川牵了线，什么红娘
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  T_Hb  
+##### 407#       发表于 2021-8-9 15:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">龙星CP很早就搞起来了，你咩没起作用
+
+
+                                                 
