@@ -10272,3 +10272,44 @@ NMD这年头当非洲人都要自证清白，真是日了狗了</blockquote>
 
 
                                                  
+
+*****
+
+####  rooarr  
+##### 81777#       发表于 2021-8-9 11:36
+
+
+自选5星的这2个蓝单剧情限定怎么感觉都用不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 81778#       发表于 2021-8-9 12:02
+
+
+改过的qp本效率太高了，感觉比无限池都要高了，随便刷刷都能5个亿
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81779#       发表于 2021-8-9 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52300687&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-9 11:36</a>
+
+自选5星的这2个蓝单剧情限定怎么感觉都用不到啊</blockquote>
+熊莉亚可以打打老外 老李是真不知道能干啥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 81780#       发表于 2021-8-9 12:26
+
+
+反正这个卷不限时，可以先放着
+
+
+                                                 

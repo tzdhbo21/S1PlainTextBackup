@@ -10905,3 +10905,20 @@ Xperia 5III先行测评</blockquote>
 
 
                                                  
+
+*****
+
+####  利物浦  
+##### 765#       发表于 2021-8-9 12:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287381&amp;ptid=1985265" target="_blank">leystage 发表于 2021-8-8 16:16</a>
+用了一周，最近事情比较多，成文的感想还要晚点。
+
+简单说就是，作为 1 II 的升级，120Hz、震动、扬声器、长 ...</blockquote>
+手持洗澡盆的我本来想憋个大的。。没想到连你都这样评价了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

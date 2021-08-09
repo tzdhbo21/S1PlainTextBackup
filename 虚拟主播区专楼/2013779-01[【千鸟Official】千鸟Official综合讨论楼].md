@@ -2154,3 +2154,54 @@ WWWW, 走红地毯了💃💃💃💃💃. HAPPY
 
 
                                                  
+
+*****
+
+####  GAKOTO  
+##### 194#         楼主| 发表于 2021-8-9 12:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52299205&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-8-9 09:37</a>
+希望白白能开拓傻子御姐戏路，和lin好好区分一下</blockquote>
+虽然但是，是rin<img src="https://static.saraba1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夜潇箫  
+##### 195#       发表于 2021-8-9 12:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">我好扭曲，北漂破防小文静听的我好心疼又好愉悦
+
+
+*****
+
+####  tn_teana  
+##### 196#       发表于 2021-8-9 12:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52299205&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-8-9 09:37</a>
+
+希望白白能开拓傻子御姐戏路，和lin好好区分一下</blockquote>
+[https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web](https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web)
+
+
+首播这个事故就算傻子御姐吧
+
+
+*****
+
+####  tn_teana  
+##### 197#       发表于 2021-8-9 12:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52299120&amp;ptid=2013779" target="_blank">斯大林的拖拉机 发表于 2021-8-9 09:29</a>
+
+38岁离异带娃妇女+片哥打钱，还缺一个cue超管的梗基本就是千鸟小伊万了，而伊万也是雪风小周淑怡，这么看来 ...</blockquote>
+还真是不太一样，周姐和万子姐属于女汉子苕皮+RSQ，文静不怎么玩RSQ，昨晚的直播也非常“文静”
+
+这三个人的共同点大概是给人一种经验丰富的大姐姐的感觉
+
+
+                                                 
