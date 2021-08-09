@@ -10313,3 +10313,47 @@ NMD这年头当非洲人都要自证清白，真是日了狗了</blockquote>
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 81781#       发表于 2021-8-9 16:04
+
+
+ 本帖最后由 exiaexa 于 2021-8-9 16:27 编辑 
+
+上班摸鱼试了下拉二狐，有点快乐的
+
+2宝拉二/满级圣诞凛+狐狸/空+鹤小姐/空+狐狸/空+莱尼斯/空，任何牌都不打只扔宝具
+
+第一t 33.4w，第二T 97w，如果第二T能打俩蓝还能再扔出第三个坟头，换成空骑应该就能上100w还能塞三个牛魔王（如果你有的话
+
+
+——更新——
+
+换成满级空骑+1张牛魔王以后，1t 41.7w，2t 109w；
+
+
+希望以后的红单强化都能这么快乐，有没有用另说起码好看啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81782#       发表于 2021-8-9 16:05
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 81783#       发表于 2021-8-9 16:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再翻
+
+
+                                                 
