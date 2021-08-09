@@ -70,7 +70,7 @@ if __name__ == '__main__':
         with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
         flag = 1
-        ids = {}
+        ids = []
         for j in range(len(thdata)):
             ids.append(thdata[j]['id'])
         for l in threadict.keys():
