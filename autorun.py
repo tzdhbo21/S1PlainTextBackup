@@ -56,7 +56,7 @@ if __name__ == '__main__':
         cookies[key] = value
     # 设置请求头
     headers = {'User-agent':'Mozilla/5.0 (Windows NT 6.1; WOW64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/60.0.3112.113 Safari/537.36'}
-    forumdict = {'外野': '75','虚拟主播区专楼':'151','游戏区':'4','漫区':'6',}
+    forumdict = {'外野': '75'}
     rootdir="./"
     for k in forumdict.keys():
         threadict = {}
