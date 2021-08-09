@@ -2117,3 +2117,29 @@ WWWW, 走红地毯了💃💃💃💃💃. HAPPY
 
 
                                                  
+
+*****
+
+####  斯大林的拖拉机  
+##### 191#       发表于 2021-8-9 09:29
+
+
+38岁离异带娃妇女+片哥打钱，还缺一个cue超管的梗基本就是千鸟小伊万了，而伊万也是雪风小周淑怡，这么看来不同直播观众群体的兴趣偏好差异没有想象中大
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  袜子  
+##### 192#       发表于 2021-8-9 09:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52299120&amp;ptid=2013779" target="_blank">斯大林的拖拉机 发表于 2021-8-9 09:29</a>
+38岁离异带娃妇女+片哥打钱，还缺一个cue超管的梗基本就是千鸟小伊万了，而伊万也是雪风小周淑怡，这么看来 ...</blockquote>
+看直播的不都是同一批人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
