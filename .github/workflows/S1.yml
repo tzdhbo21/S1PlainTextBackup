@@ -27,6 +27,7 @@ jobs:
       env:
         S1_COOKIE: ${{ secrets.S1_COOKIE }}
       run: |
+        python autorun.py
         python s1.py
     - name: commit
       env:
