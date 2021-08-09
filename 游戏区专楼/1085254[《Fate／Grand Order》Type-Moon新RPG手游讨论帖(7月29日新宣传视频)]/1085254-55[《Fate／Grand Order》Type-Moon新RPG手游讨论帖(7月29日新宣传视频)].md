@@ -10082,3 +10082,69 @@ FREE还放带遗言负面的小怪的啊，临睡前清FREE结束时一看怎么
 
 
                                                  
+
+*****
+
+####  苍之轨迹  
+##### 81764#       发表于 2021-8-9 07:47
+
+
+奥伯龙这个月能落地吗？好几年没有这么想要的你狗角色了
+
+
+*****
+
+####  苍之轨迹  
+##### 81765#       发表于 2021-8-9 07:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52283001&amp;ptid=1085254" target="_blank">rynchee 发表于 2021-8-8 06:52</a>
+
+剧情肯定大改过。看一年前的C呆语音就能看出来。
+
+
+“梅林。就是那个身为我的魔术老师，在离开时一边说着“ ...</blockquote>
+说大C呆里的语音里的梅林指奥伯龙本来就很奇怪，说到底大C呆这个形态还是回应了奥伯龙的期许才诞生的
+
+
+*****
+
+####  exiaexa  
+##### 81766#       发表于 2021-8-9 08:19
+
+
+ 本帖最后由 exiaexa 于 2021-8-9 08:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52298317&amp;ptid=1085254" target="_blank">苍之轨迹 发表于 2021-8-9 07:51</a>
+说大C呆里的语音里的梅林指奥伯龙本来就很奇怪，说到底大C呆这个形态还是回应了奥伯龙的期许才诞生的 ...</blockquote>
+你奥伯龙是呆毛caster粉，跟人圣剑精有啥关系
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+圣剑精硬要说也是呆毛caster自己的愿望+圣剑升华出来人机辅助装置啊，咋这都能蹭一波奥伯龙的，奥伯龙看见自家养的白菜献祭出这么个玩意儿不冲上去手撕了就不错了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍之轨迹  
+##### 81767#       发表于 2021-8-9 09:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52298472&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-9 08:19</a>
+
+你奥伯龙是呆毛caster粉，跟人圣剑精有啥关系</blockquote>
+大C这个形态就奥伯龙扮梅林时对她说的“希望成为无名之王在墙上鼓舞众人”的形态啊，C呆自己去玉座的时候脑子里想的就是奥伯龙说的这段，然后大C呆的语音就是无名之王。
+
+
+*****
+
+####  都谷捻柏  
+##### 81768#       发表于 2021-8-9 09:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52288910&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-8 18:32</a>
+
+恰恰相反吧，等他们看到90+平常活动没什么太大收益操作还繁琐反而会喷推荐他们抽阴间本通解仇凛的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">陈宫吹了那么久，我觉得操作繁琐应该不是问题
+
+
+                                                 

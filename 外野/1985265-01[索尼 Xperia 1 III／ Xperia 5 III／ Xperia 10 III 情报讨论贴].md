@@ -10792,3 +10792,58 @@ Xperia 5III先行测评</blockquote>
 
 
                                                  
+
+*****
+
+####  我很费纸  
+##### 757#       发表于 2021-8-9 08:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52287381&amp;ptid=1985265" target="_blank">leystage 发表于 2021-8-8 16:16</a>
+用了一周，最近事情比较多，成文的感想还要晚点。
+
+简单说就是，作为 1 II 的升级，120Hz、震动、扬声器、长 ...</blockquote>
+还是当初发布时候的感想：1M3啥都好，就可惜是888；5M3啥都好，就可惜是8+888<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  gulant  
+##### 758#       发表于 2021-8-9 08:20
+
+
+借楼一问xperia支持怎么算的，例如2的最后一次系统更新到明年什么时候？
+
+
+*****
+
+####  leystage  
+##### 759#         楼主| 发表于 2021-8-9 08:26
+
+
+<blockquote>gulant 发表于 2021-8-9 08:20
+借楼一问xperia支持怎么算的，例如2的最后一次系统更新到明年什么时候？</blockquote>
+历史经验，旗舰型号保证18个月系统更新，通常能有两次大版本更新，也就是说，1m3按经验能升级 Android 13。
+
+不保证1m3也是如此。
+
+不过前一阵网上传出来的只升级一次没有根据。
+
+
+*****
+
+####  leystage  
+##### 760#         楼主| 发表于 2021-8-9 08:27
+
+
+<blockquote>我很费纸 发表于 2021-8-9 08:17
+还是当初发布时候的感想：1M3啥都好，就可惜是888；5M3啥都好，就可惜是8+888
+
+
+—— 来自 Sony XQ ...</blockquote>
+往好了想，不拍照的话，5m3和m2比没啥改进，可以跳过
+
+
+                                                 

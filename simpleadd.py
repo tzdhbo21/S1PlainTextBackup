@@ -20,7 +20,6 @@ while(flag):
         break
     if(threadid in ids):
         print(u"早就有了！更新时间")
-        thdata[ids.index(threadid)]['lastedit'] = int(time.time())
         thdata[ids.index(threadid)]['active'] = True
     else:
         print(u'请输入版面分类代号：\n1 = 外野，11 = 外野专楼\n2 = 漫区，22 = 漫区专楼\n3 = 游戏区，33 = 游戏区专楼\n4 = 虚拟主播区专楼，44 = 虚拟主播区专楼')
