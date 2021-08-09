@@ -4374,3 +4374,45 @@ syl  大司咩
 
 
                                                  
+
+*****
+
+####  pei23333  
+##### 408#       发表于 2021-8-9 16:01
+
+
+这人最近是真不打算播了啊，除了联动啥消息没有
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  时间在我手中  
+##### 409#       发表于 2021-8-9 16:03
+
+
+今天是联动四连的最后一天，虽然单人播也就是歌回（）
+
+
+*****
+
+####  T_Hb  
+##### 410#       发表于 2021-8-9 16:05
+
+
+联动也很努力了，每次都是3、4个小时，在自己频道都看不到游戏回，偶尔换换口味也可以
+
+
+*****
+
+####  rosevalley46  
+##### 411#       发表于 2021-8-9 16:33
+
+
+我觉得联动对她来说应该挺累的,毕竟她自己直播很少有台本或者规划之类的东西<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+不过要是不开台确实自己频道就等于没人播了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+                                                 

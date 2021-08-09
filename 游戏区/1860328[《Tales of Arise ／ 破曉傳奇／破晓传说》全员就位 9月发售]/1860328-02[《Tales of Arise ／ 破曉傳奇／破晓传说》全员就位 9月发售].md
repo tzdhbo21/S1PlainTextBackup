@@ -9738,3 +9738,19 @@ Vesperia 对技能的分类和常规连击的限制也是各作品里较为少�
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2214#         楼主| 发表于 2021-8-9 15:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52289619&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-8-8 19:23</a>
+
+各个版本的 分辨率 帧率参数最后会提吧.....</blockquote>
+各版本  ❌
+
+手上的 PS4 Pro, Xbox One X 到底怎么办  ⭕
+
+
+                                                 
