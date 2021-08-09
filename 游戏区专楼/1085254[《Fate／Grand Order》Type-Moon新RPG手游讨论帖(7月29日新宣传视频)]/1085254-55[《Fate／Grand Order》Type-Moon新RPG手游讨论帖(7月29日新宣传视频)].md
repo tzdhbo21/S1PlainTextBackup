@@ -10148,3 +10148,61 @@ FREE还放带遗言负面的小怪的啊，临睡前清FREE结束时一看怎么
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 81769#       发表于 2021-8-9 09:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52298840&amp;ptid=1085254" target="_blank">苍之轨迹 发表于 2021-8-9 09:04</a>
+
+大C这个形态就奥伯龙扮梅林时对她说的“希望成为无名之王在墙上鼓舞众人”的形态啊，C呆自己去玉座的时候 ...</blockquote>
+打完2.6呆毛caster整个人死得灰都不剩，圣剑精本身就是完全体靠记录模拟村姑
+
+与其说受奥伯龙影响不如说大概率人本身就长这样，反过来影响了异闻带
+
+
+至少目前没有任何证据圣剑精跟奥伯龙有啥直接关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 81770#       发表于 2021-8-9 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52296195&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-8 23:07</a>
+
+NMD这年头当非洲人都要自证清白，真是日了狗了</blockquote>
+30w肯定有运气成分在，但我看大多数人都是100-200w之间出的，原来实际真的会有这么夸张的吗？我还以为那些3,400w的都是口嗨的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81771#       发表于 2021-8-9 09:41
+
+
+<blockquote>引用第81769楼xiongxingyu于2021-08-09 09:33发表的  :
+
+引用:exiaexa 发表于 2021-8-8 23:07NMD这年头当非洲人都要自证清白，真是日了......</blockquote>
+4星出率大约0.08%，还要和莉莉分，3、400W才搞定不是很正常
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  quanlix  
+##### 81772#       发表于 2021-8-9 09:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52299159&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-9 09:33</a>
+
+30w肯定有运气成分在，但我看大多数人都是100-200w之间出的，原来实际真的会有这么夸张的吗？我还以为那 ...</blockquote>
+往前翻两页，我把自己的友情池抽卡记录发出来了，我现在lily硬币1150
+
+
+                                                 
