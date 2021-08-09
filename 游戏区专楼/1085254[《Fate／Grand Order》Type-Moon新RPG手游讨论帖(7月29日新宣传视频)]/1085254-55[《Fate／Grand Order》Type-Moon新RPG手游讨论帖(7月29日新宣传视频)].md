@@ -10206,3 +10206,69 @@ NMD这年头当非洲人都要自证清白，真是日了狗了</blockquote>
 
 
                                                  
+
+*****
+
+####  xiongxingyu  
+##### 81773#       发表于 2021-8-9 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52299249&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-9 09:41</a>
+
+4星出率大约0.08%，还要和莉莉分，3、400W才搞定不是很正常
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+友情4星这么低的吗？感觉lily的出货率不止这个数啊，平时抽狗粮时不时就能出一个，这回我30w抽满哈贝喵lily还是出得比较多。我看那些翻船的都是晒2、3排lily的，感觉应该是分别设置出率的吧，我看了下自己的lily也有800多硬币（我的lily是5绊的），光这回就出了5个。
+
+
+*****
+
+####  被子十三  
+##### 81774#       发表于 2021-8-9 11:00
+
+
+进度到了17节
+排热大公必败战里一刀一个小朋友，被帕西瓦尔捅了之后就彻底拜倒在了我二姐的石榴裙下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+亚铃百种算是蘑菇挖的一个坑么？剧情里说只是异闻带妖精的一种，但名字和亚丽百种这么想的话肯定有什么大伏笔吧
+
+
+*****
+
+####  UNISONIA  
+##### 81775#       发表于 2021-8-9 11:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52300227&amp;ptid=1085254" target="_blank">被子十三 发表于 2021-8-9 11:00</a>
+
+进度到了17节
+
+排热大公必败战里一刀一个小朋友，被帕西瓦尔捅了之后就彻底拜倒在了我二姐的石榴裙下 ...</blockquote>
+问就是没有必然联系，只有读音和写法碰瓷了
+
+
+以下内容引用自tmdict的Notes.用语集
+
+【亚丽百种】[a-ray]
+
+耗尽行星资源的，人类所创造的次世代<strong>灵长类</strong>。
+
+以过去的星球上曾存在过的各<strong>生物物种</strong>为原形的物种。为了在荒废的星球也能生存下去而对其生态进行过大幅度改良与强化的物种。其系统树五花八门，大致分类达百种。一位到十位的亚丽是单一种，而非群体。
+
+其中虽然也存在含有人类的遗传因子、形态近似人类的亚丽，但大部分都还是各种生命种与<strong>灵长类</strong>融合进化后的物种。
+
+
+*****
+
+####  yyzcacxg  
+##### 81776#       发表于 2021-8-9 11:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52293291&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-8 21:12</a>
+
+30多w抽满哈贝喵，似乎还是挺欧的？第一时间把二技能和被动满上了，还好不吃铃铛。不过有些人说300W都没抽 ...</blockquote>
+申请了，我300w抽满的哈贝喵，感觉不欧也不非吧，就是累，其实还想再抽点喂礼装的
+
+
+                                                 

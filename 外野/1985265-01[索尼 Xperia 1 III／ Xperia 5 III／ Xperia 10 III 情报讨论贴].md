@@ -10847,3 +10847,61 @@ Xperia 5III先行测评</blockquote>
 
 
                                                  
+
+*****
+
+####  gulant  
+##### 761#       发表于 2021-8-9 10:41
+
+
+ 本帖最后由 gulant 于 2021-8-9 10:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52298522&amp;ptid=1985265" target="_blank">leystage 发表于 2021-8-9 08:26</a>
+
+历史经验，旗舰型号保证18个月系统更新，通常能有两次大版本更新，也就是说，1m3按经验能升级 Android 13 ...</blockquote>
+3的一次已经辟谣了。
+
+
+18个月是按地区还是什么标准算？例如日区比较晚是不是延迟几个月？还是按照发布人开始算？
+
+例如1代是19年2月25号发布会，是不是到今年8月就是最后一次系统补丁的更新了，之后只会更新软件，系统不再更新这样？
+
+
+*****
+
+####  黑糖花园  
+##### 762#       发表于 2021-8-9 10:49
+
+
+上听筒里太脏该怎么清理<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  封印之矢  
+##### 763#       发表于 2021-8-9 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52300072&amp;ptid=1985265" target="_blank">黑糖花园 发表于 2021-8-9 10:49</a>
+
+上听筒里太脏该怎么清理
+
+
+—— 来自 Sony XQ-BC72, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+拿个旧牙刷随便刷刷就可以了吧
+
+
+*****
+
+####  封印之矢  
+##### 764#       发表于 2021-8-9 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52271777&amp;ptid=1985265" target="_blank">无印凉粉 发表于 2021-8-7 09:23</a>
+
+5M3不如5M2，真的。</blockquote>
+比较喜欢这个红色，目前也没打算换，等X5 四吧<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+
+                                                 
