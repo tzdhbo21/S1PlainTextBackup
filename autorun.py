@@ -19,9 +19,9 @@ def parse_html(html,threadict):
             if(levels):
                 threadid = re.sub(r'normalthread_','',str(threadids.group(0)))
                 level = re.sub(r'</a></span>','',str(levels.group(0)))
-                if(int(level) > 2):
-                    lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
-                    replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
+                lastreplytime = re.findall(r'\d{4}-\d{1,2}-\d{1,2} \d{2}:\d{2}',str(i))
+                replytime = time.mktime(time.strptime(str(lastreplytime[1]), "%Y-%m-%d %H:%M"))
+                if(int(level) > 2) and ((int(time.time()) - replytime )< 1296000):
                     threadict[threadid] = replytime
     # replylist = soup.find_all(name="td", attrs={"class":"t_f"})
     # replylist = soup.find_all(name='div', attrs={"class":"pcb"})
