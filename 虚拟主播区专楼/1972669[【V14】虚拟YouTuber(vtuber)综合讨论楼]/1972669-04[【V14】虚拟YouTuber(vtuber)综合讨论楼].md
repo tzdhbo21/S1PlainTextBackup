@@ -14519,3 +14519,30 @@ Konami还是会玩，把king和德龙送进甲子园了，强行把本来注定�
 
 
                                                  
+
+*****
+
+####  SuntoryNomu  
+##### 5684#       发表于 2021-8-9 12:58
+
+
+ 本帖最后由 SuntoryNomu 于 2021-8-9 13:23 编辑 
+
+恋诗夜配信逐渐去RP化，BGM开始恢复音游曲目了。
+
+不过按RP说法那就是找回记忆了，某些意义上也是一种RP。
+
+
+为什么不发B综？因为虚拟樱花妹（学力
+
+
+*****
+
+####  渡鸦骑士  
+##### 5685#       发表于 2021-8-9 13:13
+
+
+[https://upstation-ntv.com/article/20210805_Baacharu_interview](https://upstation-ntv.com/article/20210805_Baacharu_interview)居然把马叔拉出来做采访了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
