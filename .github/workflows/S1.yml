@@ -28,11 +28,7 @@ jobs:
         S1_COOKIE: ${{ secrets.S1_COOKIE }}
       run: |
         python autorun.py
-    - name: S1
-      env:
-        S1_COOKIE: ${{ secrets.S1_COOKIE }}
-      run: |
-        python s1.py
+
     - name: commit
       env:
         TZ: 'CST-8'
