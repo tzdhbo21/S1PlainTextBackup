@@ -61,7 +61,7 @@ if __name__ == '__main__':
     rootdir="./"
     for k in forumdict.keys():
         threadict = {}
-        for i in range(1,3):
+        for i in range(1,4):
             RURL = 'https://bbs.saraba1st.com/2b/forum-'+forumdict[k]+'-'+str(i)+'.html'
             s1 = requests.get(RURL, headers=headers,  cookies=cookies)
             # s1 = requests.get(RURL, headers=headers)
@@ -86,7 +86,7 @@ if __name__ == '__main__':
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
     for i in range(len(thdata)):
-        if(thdata[i]['active']) or (int(time.time()) -thdata[i]['lastedit']) < 2592000 ):
+        if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 2592000) :
             activethdata.append(thdata[i])
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
