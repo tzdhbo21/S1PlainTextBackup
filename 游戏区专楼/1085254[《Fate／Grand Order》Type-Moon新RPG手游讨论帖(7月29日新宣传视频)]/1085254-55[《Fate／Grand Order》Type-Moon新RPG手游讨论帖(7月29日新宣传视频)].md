@@ -11027,3 +11027,26 @@ fgo维护的标签下奥伯龙pickup已经上蓝鸟热搜了，果然人还是�
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 81830#       发表于 2021-8-10 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52318638&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-10 05:25</a>
+
+你们也有点太偏颇了，奥伯龙这个角色最后几个场景还是挺讨喜的，看了圈不管男女都想抽，迫不及待的 ...</blockquote>
+这楼里没人说过奥伯龙不讨喜，不讨喜的是遍布微博贴吧NGA及其他各种讨论地的发情鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 81831#       发表于 2021-8-10 21:18
+
+
+妖兰用YLS的话说工作量是普通从者的5倍
+
+
+                                                 
