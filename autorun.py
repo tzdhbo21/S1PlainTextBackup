@@ -82,13 +82,13 @@ if __name__ == '__main__':
                 thdata.append(newthread)
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
-    # activethdata=[]
-    # with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
-    #         thdata=json.load(f)
-    # for i in range(len(thdata)):
-    #     if(thdata[i]['active']):
-    #         activethdata.append(thdata[i])
-    # with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
-    #         f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
+    activethdata=[]
+    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+            thdata=json.load(f)
+    for i in range(len(thdata)):
+        if(thdata[i]['active']) or (int(time.time()) -thdata[i]['lastedit']) < 2592000 ):
+            activethdata.append(thdata[i])
+    with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
+            f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
         
         
