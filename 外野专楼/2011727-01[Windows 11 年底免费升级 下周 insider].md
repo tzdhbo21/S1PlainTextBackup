@@ -6159,3 +6159,16 @@ Windows 8和8.1都是靠Classic Shell过的
 
 
                                                  
+
+*****
+
+####  JollytheJoker  
+##### 511#       发表于 2021-8-11 04:28
+
+
+在wslg里面装了个android studio，开模拟器秒退
+
+只能等安卓模拟器了
+
+
+                                                 

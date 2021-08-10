@@ -7935,3 +7935,157 @@ We apologize for the inconvenience.
 
 
                                                  
+
+*****
+
+####  asion617  
+##### 618#       发表于 2021-8-11 03:26
+
+
+bbgs也没说多久能修好，就说修好了会再通知<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  鱼雷鲨  
+##### 619#       发表于 2021-8-11 03:34
+
+
+这是不收钱的ARG，就像没做完的MGS5父子局一样，观众只需要被吊起胃口，然后感叹
+
+
+*****
+
+####  luoyianwu  
+##### 620#       发表于 2021-8-11 03:37
+
+
+ 本帖最后由 luoyianwu 于 2021-8-11 03:39 编辑 
+
+<[img src="https://p.sda1.dev/2/bb4c9035286eb9f1f96ee471962f2a8f/sy3.png" referrerpolicy="no-referrer">
+[https://twitter.com/yosp/status/1425178508347666433](https://twitter.com/yosp/status/1425178508347666433)
+
+吉田修平，参战！
+
+
+*****
+
+####  Samak  
+##### 621#       发表于 2021-8-11 04:00
+
+
+一般来讲，不是提前安排好的情节的话，至少要修几个小时到几天
+
+
+*****
+
+####  阿布都督  
+##### 622#       发表于 2021-8-11 04:14
+
+
+这活整的也太烂了，先是好久之前demo出bug，然后又是补丁的delivery出bug，这绝壁是故意的，玩弄人的感情<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  920619lqy  
+##### 623#       发表于 2021-8-11 04:25
+
+
+这活整了这么久都烂透了，今天这无论如何也是烂活的一部分吧
+
+
+*****
+
+####  cwlqxs  
+##### 624#       发表于 2021-8-11 04:26
+
+
+光看repo感觉这arg整得挺傻逼的
+
+
+*****
+
+####  Metropolis  
+##### 625#       发表于 2021-8-11 04:35
+
+
+ 本帖最后由 Metropolis 于 2021-8-11 04:50 编辑 
+
+BLUE = Bullshit Level User Experience
+
+
+Screen Shot 2021-08-10 at 3.50.23 PM.png
+(150.95 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-11 04:50 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/11/045033jw0xxn5011wwmu1m.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  littlezoo  
+##### 626#       发表于 2021-8-11 04:56
+
+
+<img src="https://img.saraba1st.com/forum/202108/11/045625px6wpuxolugqrudp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>iaksfgtmvre71.jpg</strong> (123.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-8-11 04:56 上传
+
+
+天大的阴谋
+
+
+*****
+
+####  阿布都督  
+##### 627#       发表于 2021-8-11 05:07
+
+
+BLUE BOX Game Studios 刚刚在PS商店上架了个新游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[https://store.playstation.com/en-us/concept/10000183/](https://store.playstation.com/en-us/concept/10000183/)
+
+
+*****
+
+####  luoyianwu  
+##### 628#       发表于 2021-8-11 05:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52323752&amp;ptid=2010295" target="_blank">阿布都督 发表于 2021-8-11 05:07</a>
+BLUE BOX Game Studios 刚刚在PS商店上架了个新游戏
+
+
+https://store.playstation.com/en-us/concept ...</blockquote>
+六月就有了
+
+
+*****
+
+####  luoyianwu  
+##### 629#       发表于 2021-8-11 05:18
+
+
+[https://twitter.com/bbgamestudios/status/1425203276547559431?s=21](https://twitter.com/bbgamestudios/status/1425203276547559431?s=21)
+
+Quick update: we are still working on it. We sincerely apologize for the inconvenience.
+
+五分钟前，Blue Box表示还在修<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+
+                                                 

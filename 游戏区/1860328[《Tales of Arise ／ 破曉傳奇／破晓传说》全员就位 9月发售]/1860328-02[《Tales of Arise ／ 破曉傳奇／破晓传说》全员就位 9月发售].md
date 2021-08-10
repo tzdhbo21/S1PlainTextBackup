@@ -10375,3 +10375,101 @@ demo不知道实装了简中没。</blockquote>
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2263#         楼主| 发表于 2021-8-11 03:35
+
+
+https://youtu.be/Cu4FvGClWBM
+这个韩国频道的测评视频，居然是韩语界面+60帧率，看着太舒服。巴哈姆特你是不是日本媒体啊？😅
+
+
+*****
+
+####  戏言学者  
+##### 2264#       发表于 2021-8-11 03:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52323184&amp;ptid=1860328" target="_blank">Booorunestud 发表于 2021-8-11 01:14</a>
+
+那么就依照试玩的手柄反馈决定玩主机版还是pc版了</blockquote>
+有ps5肯定ps5版！
+
+
+*****
+
+####  loley  
+##### 2265#       发表于 2021-8-11 03:52
+
+
+搞笑了，一开始看的A9VG的，后来看了楼主发的韩国的那个，竟然比A9那个多了差不多两分钟剧情，服了。
+
+
+*****
+
+####  loley  
+##### 2266#       发表于 2021-8-11 03:53
+
+
+不过他们怎么都不切女主打一打的
+
+
+*****
+
+####  LT_Harry  
+##### 2267#         楼主| 发表于 2021-8-11 03:55
+
+
+ 本帖最后由 LT_Harry 于 2021-8-11 04:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52323668&amp;ptid=1860328" target="_blank">loley 发表于 2021-8-11 03:52</a>
+搞笑了，一开始看的A9VG的，后来看了楼主发的韩国的那个，竟然比A9那个多了差不多两分钟剧情，服了。 ...</blockquote>
+韩语界面的西文字体和英语版是一个方案（无衬线），日本语的是有衬线，中文版因为没画面不知道（大概率是有衬线）。这个差异挺意外的，不过界面看起来都很清爽。
+
+像我这样在意字体的人应该，很少吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+另外，目前看过的视频里，只有韩国人这个音频是没被压过的，声音相对正常。真是令人费解……
+
+
+*****
+
+####  loley  
+##### 2268#       发表于 2021-8-11 04:04
+
+
+<blockquote>LT_Harry 发表于 2021-8-11 03:55
+韩语界面的西文字体和英语版是一个方案（无衬线），日本语的是有衬线，中文版因为没画面不知道（大概率是 ...</blockquote>
+我甚至没留意到这点😭
+
+
+*****
+
+####  LT_Harry  
+##### 2269#         楼主| 发表于 2021-8-11 04:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52323686&amp;ptid=1860328" target="_blank">loley 发表于 2021-8-11 04:04</a>
+我甚至没留意到这点😭</blockquote>
+因为读长段文字的时候，很在意文本的间距、字体的锐利度和笔画的饱满程度，自然就有了这种习惯。就西文字体而言，英语版的方案是比较好的，粗细合适、笔画均匀饱满，且没有恼人的全角字符间距。中文字体方案很多都不太重视英数字符的设计，估计届时端出来的就会有这个问题。
+
+
+*****
+
+####  qiyu1234  
+##### 2270#       发表于 2021-8-11 05:37
+
+
+看了下韩文试玩，剧情跟4gamer那个掐的地方还不一样，没把主线里那段无语音部分剪进来，值的一提的就是主菜单界面的立绘竟然直接是独立原画而不是一张图几名角色立绘拼贴，这个要好评一下，强敌战敌人强霸体对to来说还算正常，有weak手段就行，这领主战还真是半血触发斩杀结束战斗，看这样子估计有二阶段。
+
+
+*****
+
+####  火红之眼  
+##### 2271#       发表于 2021-8-11 06:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">重看一遍好像发现为何感到怪怪的了，这作攻击时不像以前那样点对点吸附着目标了，打着打着就歪出去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+                                                 
