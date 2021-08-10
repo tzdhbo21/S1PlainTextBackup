@@ -7720,3 +7720,42 @@ google的CET和time.is的又不一样。不过看到说北京 ...</blockquote>
 
 
                                                  
+
+*****
+
+####  halogta  
+##### 598#       发表于 2021-8-11 02:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52323108&amp;ptid=2010295" target="_blank">喵喵叫的猫 发表于 2021-8-11 01:01</a>
+
+现在欧洲夏令时比较麻烦
+
+理论上CET指的不带夏令时的
+
+但老外日常用不太会分CET还是CEST反正3点4点都看看吧 ...</blockquote>
+就是三点，荷兰这边都是默认按夏令时说
+
+
+*****
+
+####  战狼PTSD  
+##### 599#       发表于 2021-8-11 02:22
+
+
+艹，这玩意没完没了了
+
+
+*****
+
+####  shyso  
+##### 600#       发表于 2021-8-11 02:31
+
+
+大概率又是虚晃一枪吧
+
+
+最后可能玩成什么超媒体的arg局
+
+
+                                                 
