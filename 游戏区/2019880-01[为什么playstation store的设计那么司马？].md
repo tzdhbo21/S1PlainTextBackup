@@ -912,3 +912,53 @@ X1不能外服买、港服台服下以获得中文的极少数游戏也基本都
 
 
                                                  
+
+*****
+
+####  Heero_Z  
+##### 81#       发表于 2021-8-10 19:18
+
+
+Xbox商店体验更傻逼，三家体验下来eshop确实更好点，起码任天堂在输入法上是做了优化的
+
+—— 来自 Sony XQ-AT51, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  嘉术2015  
+##### 82#       发表于 2021-8-10 19:20
+
+
+只要你骂ps store的搜索功能…
+
+
+*****
+
+####  mjzs07  
+##### 83#       发表于 2021-8-10 19:26
+
+
+听说索尼数字版销量占比很高，看来索索真不介意商店司马啊
+
+
+*****
+
+####  宛若青空  
+##### 84#       发表于 2021-8-10 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52318399&amp;ptid=2019880" target="_blank">skdom 发表于 2021-8-10 19:02</a>
+感觉就日厂这个问题特别严重……
+
+
+记得当年X1金会员送无双大蛇的时候，免费游戏直接有三个版本：日文版、 ...</blockquote>
+xbox全给你总好过SIE锁区分语言版本卖
+SIE第一方的游戏就是这么带头搞的，所以你会看到FF15欧美PS4版没有中文是很正常的操作；
+
+从光荣和GUST的游戏来看，NS版都是日港韩同一个版本，到了PS4版就全都是港服中韩英版、日服日英版。
+
+为什么会这样？总之先说一声SIE傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                 

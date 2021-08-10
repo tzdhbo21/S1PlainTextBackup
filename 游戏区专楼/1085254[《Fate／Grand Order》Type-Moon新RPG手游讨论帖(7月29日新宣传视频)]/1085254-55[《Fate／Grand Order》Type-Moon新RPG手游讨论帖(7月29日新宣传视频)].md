@@ -10895,3 +10895,61 @@ fgo维护的标签下奥伯龙pickup已经上蓝鸟热搜了，果然人还是�
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 81821#       发表于 2021-8-10 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317926&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-10 18:21</a>
+前面我记得还有几个水友说得要个活动才能入池啥的  看看yls会不会考虑这种事情了（ ...</blockquote>
+奥伯龙自己就该去跑个活动而不是来挤主线
+现在把别人全给挤死了自己还跑出去开独立活动，也太杀人诛心了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 81822#       发表于 2021-8-10 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52318105&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-10 18:35</a>
+
+奥伯龙自己就该去跑个活动而不是来挤主线
+
+现在把别人全给挤死了自己还跑出去开独立活动，也太杀人诛心了
+
+ ...</blockquote>
+就是这个理<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">现在我看见这扑棱蛾子就膈应
+
+
+*****
+
+####  都谷捻柏  
+##### 81823#       发表于 2021-8-10 19:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317891&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-10 18:18</a>
+
+奥伯龙这次确实可以啊，三破造型、模组都没拉胯，bgm还特别突出，故事跟别人比拉胯了点，但是跟蘑菇自己 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为献祭了狐狸的宝具演出么
+
+
+*****
+
+####  森兰丸  
+##### 81824#       发表于 2021-8-10 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317828&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-10 18:12</a>
+
+你游现在拖时间新法宝不就是圣杯战线吗
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">狩猎本表示不服
+
+
+                                                 

@@ -9046,3 +9046,23 @@ mv的风格来看算是量身了，不错
 
 
                                                  
+
+*****
+
+####  Scardy  
+##### 6736#       发表于 2021-8-10 19:05
+
+
+没开窗，但是akukin建设连麦中<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 6737#       发表于 2021-8-10 19:11
+
+
+在mio香那边一起连麦做akukin建设的地图画，没开窗，没推特，封面和窗口没立绘，有点迷。一起的人还有船长，lamy，梅露的样子
+
+
+                                                 

@@ -2373,3 +2373,32 @@ https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web
 
 
                                                 
+
+*****
+
+####  丢了五块钱  
+##### 212#       发表于 2021-8-10 19:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52318086&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-8-10 18:33</a>
+
+所以文二姨当年北漂住地下室到底追什么梦啊，很难不是1800线摇滚乐队女主唱 ...</blockquote>
+旁边北影，也进过地下三层防空洞单间，北漂都差不多。
+
+
+当然，二姨具体什么项目还真猜不出
+
+
+*****
+
+####  丢了五块钱  
+##### 213#       发表于 2021-8-10 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52318067&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-8-10 18:31</a>
+
+自称平模，当管人的同时也还在当平模，说是平模，主要业务其实是给淘宝店当模特 ...</blockquote>
+这么说大腿比猪肉好一点，确实是可以期待的咯<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+                                                 
