@@ -6144,3 +6144,18 @@ dev的时候就有这个毛病好像
 
 
                                                  
+
+*****
+
+####  r_ex  
+##### 510#       发表于 2021-8-11 02:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52285594&amp;ptid=2011727" target="_blank">bestwood 发表于 2021-8-8 13:16</a>
+我建议还是尽早习惯新开始菜单吧，正式版估计会把磁贴的注册表后门砍了。 ...</blockquote>
+Windows 8和8.1都是靠Classic Shell过的
+
+—— 来自 BlackBerry BBF100-4, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+                                                 

@@ -7759,3 +7759,179 @@ google的CET和time.is的又不一样。不过看到说北京 ...</blockquote>
 
 
                                                  
+
+*****
+
+####  真实之影  
+##### 601#       发表于 2021-8-11 02:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52312927&amp;ptid=2010295" target="_blank">鱼雷鲨 发表于 2021-8-10 11:17</a>
+
+他给坦克世界写完音乐之后就没人找他了吧</blockquote>
+今年的灵媒The Medium找了他作曲和制作音效
+
+
+*****
+
+####  luoyianwu  
+##### 602#       发表于 2021-8-11 02:52
+
+
+[https://twitter.com/bbgamestudios/status/1425166922488991744](https://twitter.com/bbgamestudios/status/1425166922488991744)
+bbgs预热推。
+还有八分钟！
+
+
+*****
+
+####  黑夜守望者  
+##### 603#       发表于 2021-8-11 02:54
+
+
+反正都熬夜到这么晚了，我也来凑个热闹吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  泰坦失足  
+##### 604#       发表于 2021-8-11 02:58
+
+
+期待下,这个闹剧总该要结束了吧。
+
+
+*****
+
+####  frankCC  
+##### 605#       发表于 2021-8-11 03:01
+
+
+躺床上了，有没有个直播链接看看
+
+
+*****
+
+####  泡桐  
+##### 606#       发表于 2021-8-11 03:05
+
+
+[https://www.youtube.com/watch?v=M9_NSXKojeU](https://www.youtube.com/watch?v=M9_NSXKojeU)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搜了一下有个在直播的
+
+
+*****
+
+####  ffmzsj  
+##### 607#       发表于 2021-8-11 03:05
+
+
+所以是啥
+
+
+*****
+
+####  asion617  
+##### 608#       发表于 2021-8-11 03:05
+
+
+随便找了个人多的直播，demo还没开放？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  luoyianwu  
+##### 609#       发表于 2021-8-11 03:06
+
+
+目前app内没变化，也没有更新<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  luoyianwu  
+##### 610#       发表于 2021-8-11 03:08
+
+
+[https://boards.4channel.org/v/thread/566853659](https://boards.4channel.org/v/thread/566853659)
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p1vl8g/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p1vl8g/)
+[https://twitter.com/BBGameStudios/status/1425166922488991744](https://twitter.com/BBGameStudios/status/1425166922488991744)
+
+4chan、reddit、推特玩家陷入混乱
+
+
+*****
+
+####  D-JoeII  
+##### 611#       发表于 2021-8-11 03:11
+
+
+小島從來都沒幹過這麽low的宣傳，就算MGS5那會也只是玩點花樣做宣傳而不是一直拖着耍人
+
+
+*****
+
+####  泡桐  
+##### 612#       发表于 2021-8-11 03:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上次啥都没等到之后我明明说了自己不会再看了
+
+
+*****
+
+####  luoyianwu  
+##### 613#       发表于 2021-8-11 03:12
+
+
+<img src="https://p.sda1.dev/2/7afc52c01dfb07916a8ae3489810390d/abbd.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  luoyianwu  
+##### 614#       发表于 2021-8-11 03:15
+
+
+[https://twitter.com/BBGameStudios/status/1425173759883988996?s=20](https://twitter.com/BBGameStudios/status/1425173759883988996?s=20)
+
+BLUE BOX Game Studios
+
+There is a technical issue with the delivery of the patch. We are working to get this live ASAP. 
+
+We apologize for the inconvenience.
+
+
+出问题了！我们正在修，不好意思哦
+
+
+*****
+
+####  黑夜守望者  
+##### 615#       发表于 2021-8-11 03:15
+
+
+切，在失望上真的没让人失望，睡了
+
+
+*****
+
+####  littlezoo  
+##### 616#       发表于 2021-8-11 03:16
+
+
+神了，这最后要是不拿出点牛逼上天的东西来，这么耍猴这工作室怕不是要直接社死了。。。。
+
+
+*****
+
+####  泡桐  
+##### 617#       发表于 2021-8-11 03:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我又被骗了，我是小丑
+
+
+                                                 
