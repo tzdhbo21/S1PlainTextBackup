@@ -2257,3 +2257,27 @@ https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web
 
 
                                                  
+
+*****
+
+####  丢了五块钱  
+##### 202#       发表于 2021-8-10 07:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52310055&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-8-10 01:40</a>
+看艾白和艾瑞思唱歌，不得不承认努力真的打不过天赋</blockquote>
+昨晚没看，是说她俩都没天赋吗？
+
+
+*****
+
+####  夜潇箫  
+##### 203#       发表于 2021-8-10 07:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52310483&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-8-10 07:25</a>
+昨晚没看，是说她俩都没天赋吗？</blockquote>
+她俩是唱歌最好的两个
+
+
+                                                 

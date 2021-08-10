@@ -10618,3 +10618,17 @@ E8B3KAwVgAAwngQ.jpg
 
 
                                                  
+
+*****
+
+####  都谷捻柏  
+##### 81801#       发表于 2021-8-10 07:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52306810&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-08-09 19:45:42</a>
+其他几个红单没啥意思啊，没有拉二这种俩皇权叠起来的卧槽感</blockquote>因为这种强化才是更多数啊，你看羽蛇神这不没给宝具本么
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+                                                 
