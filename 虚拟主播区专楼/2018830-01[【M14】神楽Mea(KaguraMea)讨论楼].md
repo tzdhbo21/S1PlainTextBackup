@@ -5556,3 +5556,54 @@ ptr的嘉宾环节结束了，并没有你咩姐<img src="https://static.saraba1
 
 
                                                 
+
+*****
+
+####  雪风utopia  
+##### 513#       发表于 2021-8-11 01:16
+
+
+太困了，我顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  林照人  
+##### 514#       发表于 2021-8-11 01:16
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/121650rc7hsi4q7o977fqo.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210810121625.png</strong> (33.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-11 01:16 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  ylssb10438  
+##### 515#       发表于 2021-8-11 01:49
+
+
+好长一段时间没看直播，感觉唱功又进步了?🤔
+
+
+                                                 

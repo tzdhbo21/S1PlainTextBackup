@@ -7675,3 +7675,48 @@ https://twitter.com/adsk4/status/1424845299969794048
 
 
                                                  
+
+*****
+
+####  医生狼多  
+##### 595#       发表于 2021-8-11 00:50
+
+
+明早起来看烂活
+
+
+*****
+
+####  新八  
+##### 596#       发表于 2021-8-11 00:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52323001&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-11 00:44</a>
+
+有说三点的，有说四点的，现在你说五点。靠，我也糊涂了
+
+google的CET和time.is的又不一样。不过看到说北京 ...</blockquote>
+反正肯定是21:00 CET
+
+可能是我算错了，我也不知道这个怎么变换
+
+
+*****
+
+####  喵喵叫的猫  
+##### 597#       发表于 2021-8-11 01:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52323049&amp;ptid=2010295" target="_blank">新八 发表于 2021-8-11 00:51</a>
+
+反正肯定是21:00 CET
+
+可能是我算错了，我也不知道这个怎么变换</blockquote>
+现在欧洲夏令时比较麻烦
+
+理论上CET指的不带夏令时的
+
+但老外日常用不太会分CET还是CEST反正3点4点都看看吧
+
+
+                                                 
