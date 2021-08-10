@@ -5357,3 +5357,202 @@ ptr的嘉宾环节结束了，并没有你咩姐<img src="https://static.saraba1
 
 
                                                 
+
+*****
+
+####  路人庚  
+##### 494#       发表于 2021-8-10 22:56
+
+
+姨妈疼对你咩姐来说是正面buff（确信
+
+
+*****
+
+####  时间在我手中  
+##### 495#       发表于 2021-8-10 23:03
+
+
+这人吃的是乐松吧
+
+
+*****
+
+####  T_Hb  
+##### 496#       发表于 2021-8-10 23:04
+
+
+这笑话有点意义不明<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 497#       发表于 2021-8-10 23:06
+
+
+如她所说，单纯犯蠢肥猪罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 498#       发表于 2021-8-10 23:10
+
+
+ 本帖最后由 T_Hb 于 2021-8-10 23:30 编辑 
+
+怎么一转乳switch了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这首可以
+
+怎么直播间有人在发歌词啊
+
+明天是欧巴桑打扫的日子，要早起
+
+和朋友一起看动画、电视剧，一起睡了吗？没有一起睡，讨厌睡一个被窝里，太热了
+
+
+*****
+
+####  时间在我手中  
+##### 499#       发表于 2021-8-10 23:27
+
+
+ 本帖最后由 时间在我手中 于 2021-8-10 23:29 编辑 
+
+明早要早起，扫除阿姨要来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看来朋友也要走了
+
+
+*****
+
+####  路人庚  
+##### 500#       发表于 2021-8-10 23:31
+
+
+ 本帖最后由 路人庚 于 2021-8-10 23:33 编辑 
+
+女人居然还没走可还行
+
+感觉你咩姐的房还蛮大的
+
+
+*****
+
+####  T_Hb  
+##### 501#       发表于 2021-8-10 23:42
+
+
+都已经在家里养女人了，能不能顺便养一下我<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dualist彩  
+##### 502#       发表于 2021-8-10 23:46
+
+
+什么收留少女，不会也是v吧，这下成774了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 503#       发表于 2021-8-10 23:52
+
+
+ 本帖最后由 时间在我手中 于 2021-8-10 23:54 编辑 
+
+什么王之肘子，你想变成金皮卡是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+竟然丢下老娘一个人先睡了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 504#       发表于 2021-8-10 23:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 505#       发表于 2021-8-10 23:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 506#       发表于 2021-8-10 23:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kenjjj  
+##### 507#       发表于 2021-8-10 23:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 508#       发表于 2021-8-11 00:08
+
+
+ 本帖最后由 T_Hb 于 2021-8-11 00:28 编辑 
+
+炎唱的很棒啊，高音真不错
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她这掐的声线像游戏里的npc在念台词
+
+
+*****
+
+####  缺陷电气杨永信  
+##### 509#       发表于 2021-8-11 00:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">要被融化了
+
+
+*****
+
+####  雪风utopia  
+##### 510#       发表于 2021-8-11 00:24
+
+
+大姐姐咩，开大车<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  时间在我手中  
+##### 511#       发表于 2021-8-11 00:27
+
+
+神 乐 公 主  突 发 恶 疾
+
+
+*****
+
+####  rosevalley46  
+##### 512#       发表于 2021-8-11 00:38
+
+
+今晚状态不错,而且同接也在1800稳定了,挺好的
+
+
+                                                

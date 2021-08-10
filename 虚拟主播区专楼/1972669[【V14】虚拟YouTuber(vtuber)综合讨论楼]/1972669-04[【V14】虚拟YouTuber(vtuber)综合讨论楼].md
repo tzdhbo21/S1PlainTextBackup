@@ -15133,3 +15133,163 @@ DJGenki/Senaru/福市 基/弦月藤士郎/
 
 
                                                  
+
+*****
+
+####  -みゆめ-  
+##### 5725#       发表于 2021-8-10 23:16
+
+
+森和火鸡在看终将，有人可以介绍一下这两位吗？
+
+
+火鸡是女同吗？死神是直女吗？
+
+
+*****
+
+####  渡鸦骑士  
+##### 5726#       发表于 2021-8-10 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52322037&amp;ptid=1972669" target="_blank">-みゆめ- 发表于 2021-8-10 23:16</a>
+森和火鸡在看终将，有人可以介绍一下这两位吗？
+
+
+火鸡是女同吗？死神是直女吗？</blockquote>
+营业罢了。
+
+
+*****
+
+####  -みゆめ-  
+##### 5727#       发表于 2021-8-10 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52322078&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-8-10 23:20</a>
+
+营业罢了。</blockquote>
+我也清楚是营业所以用的是“这两位”不是“这一对”
+
+
+mori看起来真的好直女，但是火鸡看起来又有点姬？
+
+
+*****
+
+####  hulaoda007  
+##### 5728#       发表于 2021-8-10 23:26
+
+
+  运营也愿意就这么和Liver玩其实真的蛮难得的。
+
+
+*****
+
+####  OldGlory  
+##### 5729#       发表于 2021-8-10 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52322148&amp;ptid=1972669" target="_blank">-みゆめ- 发表于 2021-8-10 23:25</a>
+
+我也清楚是营业所以用的是“这两位”不是“这一对”
+
+
+mori看起来真的好直女，但是火鸡看起来又有点姬？ ...</blockquote>
+火鸡跟谁都是用力过猛的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 5730#       发表于 2021-8-10 23:49
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-11 00:02 编辑 
+
+热闹了；
+
+黑黑最协今天披露的队友梔子スイさん，被扒出来了之前在推上有过对葛King（新衣装）的アンチ发言
+
+本来キス部就不太招（部分叶队和火畜）喜欢，这下好了
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/235817bjjjw3lxlrlf0vmv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>あいつ葛葉の新衣装の嫌味言うためだけ.jpeg</strong> (148.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 23:58 上传
+
+
+
+
+*****
+
+####  Suny08  
+##### 5731#       发表于 2021-8-10 23:58
+
+
+早点把葵皇拉上不就没这事了
+
+
+*****
+
+####  FCCHua  
+##### 5732#       发表于 2021-8-10 23:58
+
+
+怎么说呢，就...选人挺精彩的
+
+
+*****
+
+####  CAserlumos  
+##### 5733#       发表于 2021-8-11 00:05
+
+
+我寻思社内随便拉个也没这事
+
+
+*****
+
+####  alcoholic1000  
+##### 5734#       发表于 2021-8-11 00:08
+
+
+叶师傅是不是有什么把柄捏在キス部手里了，这种喂饭法
+
+他对gamers和曾经好友都没这么情深意重<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+这个月有可能拿新衣装和翻唱出来冲喜
+
+
+*****
+
+####  adcdqre  
+##### 5735#       发表于 2021-8-11 00:15
+
+
+ 本帖最后由 adcdqre 于 2021-8-11 00:38 编辑 
+
+葵皇开apex同接立马减半葵熊是真不看，再说要联动约一波多葛本社不比这是非之地强。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|是不是最近没看葵，她现在apex的同接最高.|
+
+
+查看全部评分
+
+
+                                                
