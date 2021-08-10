@@ -23,9 +23,9 @@ while(flag):
         print(u"早就有了！更新时间")
         thdata[ids.index(threadid)]['active'] = True
     else:
-        print(u'请输入版面分类代号：\n1 = 外野，11 = 外野专楼\n2 = 漫区，22 = 漫区专楼\n3 = 游戏区，33 = 游戏区专楼\n4 = 虚拟主播区专楼，44 = 虚拟主播区专楼')
+        print(u'请输入版面分类代号：\n1 = 外野\n2 = 漫区\n3 = 游戏区\n4 = 虚拟主播区专楼')
         threadcategory  = input(u'我选：')
-        catechooser = {'1':'外野','11':'外野专楼','2':'漫区','22':'漫区专楼','3':'游戏区','33':'游戏区专楼','4':'虚拟主播区专楼','44':'虚拟主播区专楼'}
+        catechooser = {'1':'外野','2':'漫区','3':'游戏区','4':'虚拟主播区专楼'}
         newthread = {"id": threadid,"totalreply": 0,"title": "待更新","lastedit": int(time.time()),"category": catechooser[threadcategory],"active": True}
         thdata.append(newthread)
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
