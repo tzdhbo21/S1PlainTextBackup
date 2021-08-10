@@ -10678,3 +10678,69 @@ E8B3KAwVgAAwngQ.jpg
 
 
                                                  
+
+*****
+
+####  被子十三  
+##### 81805#       发表于 2021-8-10 13:23
+
+
+ 本帖最后由 被子十三 于 2021-8-10 13:24 编辑 
+
+终于打到19节，这节一路走上钟楼的几场战斗印象太深了。无声战斗对肃正骑士，六章背景音乐的圆桌，特别是最后一场还刻意新配了BGM<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+这一章的OST应该会爆卖吧，可惜要拖到年底才发售
+
+这么看其实哈贝喵才是知晓所有历史的人吧。因为玛修回归之后为了修正历史，所以所有人对于她和玛修曾经待在一起的记忆就被完全抹掉了？
+
+所谓2回目和新的2回目就是「玛修没有被送到过去」和「玛修被送到过去」的区别吧。这么看摩根下的棋也实在是太大了
+
+
+*****
+
+####  LOLITA  
+##### 81806#       发表于 2021-8-10 13:31
+
+
+个人感觉2.6目前为止算是第二部最有趣的一章，没玩过都值得开新号体验一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81807#       发表于 2021-8-10 13:44
+
+
+摩根下了啥棋? 一个欧若拉都防不住 下了个寂寞
+
+这章应该叫作: 我  奥某人 下棋.jpg
+
+
+*****
+
+####  黑上シグマ  
+##### 81808#       发表于 2021-8-10 13:54
+
+
+<blockquote>引用第81806楼alucardcz于2021-08-10 13:44发表的  :
+
+摩根下了啥棋? 一个欧若拉都防不住 下了个寂寞这章应该叫作: 我  奥某人 下棋.jpg</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">你看他才到19节嘛
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  被子十三  
+##### 81809#       发表于 2021-8-10 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52314764&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-10 13:44</a>
+摩根下了啥棋? 一个欧若拉都防不住 下了个寂寞
+
+这章应该叫作: 我  奥某人 下棋.jpg ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">按这个进度这周应该能打到戴冠式！应该吧
+
+
+                                                 

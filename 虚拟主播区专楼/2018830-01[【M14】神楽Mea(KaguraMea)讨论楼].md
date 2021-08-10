@@ -4928,3 +4928,76 @@ syl，以后去接电动玩具的工商算了
 
 
                                                  
+
+*****
+
+####  T_Hb  
+##### 455#       发表于 2021-8-10 13:05
+
+
+她不去给ptr留个言么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rosevalley46  
+##### 456#       发表于 2021-8-10 13:10
+
+
+她又和ptr怎么了,我这两天没啥时间看直播
+
+
+*****
+
+####  ashero  
+##### 457#       发表于 2021-8-10 13:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52314400&amp;ptid=2018830" target="_blank">rosevalley46 发表于 2021-8-10 13:10</a>
+
+她又和ptr怎么了,我这两天没啥时间看直播</blockquote>
+ptr今天生日 人两次你纪念日都过来留言了啊
+
+
+不过前几天琉璃生日她也没留言就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  呓亘  
+##### 458#       发表于 2021-8-10 13:25
+
+
+估计还没看到
+
+
+*****
+
+####  T_Hb  
+##### 459#       发表于 2021-8-10 13:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">晚上去ptr直播间蹲一下，阿咩估计今晚10点歌回吧
+
+
+*****
+
+####  TomDu  
+##### 460#       发表于 2021-8-10 14:17
+
+
+八月生日的好多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 461#       发表于 2021-8-10 14:49
+
+
+完了我被她影响了，看到“8月生日多”我的第一反应是“可能因为很多人六七月出道”或者“八月放暑假学生有钱有时间”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

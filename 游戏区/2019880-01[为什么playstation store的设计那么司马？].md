@@ -1,0 +1,721 @@
+
+
+*****
+
+####  土豆麻辣人  
+##### 1#       楼主       发表于 2021-8-9 16:36
+
+
+游戏，点进去，没截图没视频。
+
+
+同一个游戏分了好几个版本，什么中韩文版，日文版。
+
+
+还有什么合集包，重复买了竟然要出2份钱。
+
+
+dlc分类混乱，某些dlc地狱的游戏找找都麻烦（ 比如doa和自家的驾驶俱乐部）。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不说和steam比了，甚至还不如同行的人体堂和微卵。
+
+
+虽然ns的商店也卡，但至少还简洁点。
+
+
+*****
+
+####  一个陆仁贾  
+##### 2#       发表于 2021-8-9 16:40
+
+
+没截图预览或者视频介绍这个真的有点无语，看文字介绍也不懂是什么样的游戏，只能自己另外查
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  土豆麻辣人  
+##### 3#         楼主| 发表于 2021-8-9 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304649&amp;ptid=2019880" target="_blank">一个陆仁贾 发表于 2021-8-9 02:40</a>
+
+没截图预览或者视频介绍这个真的有点无语，看文字介绍也不懂是什么样的游戏，只能自己另外查
+
+
+—— 来自 HU ...</blockquote>
+十分迷惑，毕竟有时候浏览打折游戏捡烂白菜也是乐趣之一，pss那个商店一进去点开看了我就没购买欲望了。
+
+
+*****
+
+####  电磁炮233  
+##### 4#       发表于 2021-8-9 16:42
+
+
+所以G胖成功不是没有原因的
+
+
+*****
+
+####  silverwind  
+##### 5#       发表于 2021-8-9 16:42
+
+
+所以我不在商店买游戏，只买实体版
+
+
+*****
+
+####  wujae  
+##### 6#       发表于 2021-8-9 16:43
+
+
+旧版商店还有截图和视频介绍，这一版真的不知道如何评价。
+
+
+*****
+
+####  zikimi  
+##### 7#       发表于 2021-8-9 16:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">ps5的商店，我至今找不到试玩版这个大类在哪
+
+
+*****
+
+####  宛若青空  
+##### 8#       发表于 2021-8-9 16:45
+
+
+可能逼你用App？
+
+等一下现在新版网页商店还是没有游戏截图/视频？前阵子听说终于加上DLC关联了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  masterzx  
+##### 9#       发表于 2021-8-9 16:48
+
+
+<blockquote>同一个游戏分了好几个版本，什么中韩文版，日文版。</blockquote>
+
+别骂了，别骂了.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xvi黑翼公  
+##### 10#       发表于 2021-8-9 16:51
+
+
+默认大家都知道自己要买什么，点进去直接买，不要乱逛增加我们大法服务器负担<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  土豆麻辣人  
+##### 11#         楼主| 发表于 2021-8-9 16:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304703&amp;ptid=2019880" target="_blank">wujae 发表于 2021-8-9 02:43</a>
+
+旧版商店还有截图和视频介绍，这一版真的不知道如何评价。</blockquote>
+不是每个游戏都有，有的丢个不知所谓的直播链接。
+
+
+*****
+
+####  Kojimaru  
+##### 12#       发表于 2021-8-9 16:54
+
+
+相比之下ps App做的就丝般顺滑
+
+
+*****
+
+####  土豆麻辣人  
+##### 13#         楼主| 发表于 2021-8-9 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304691&amp;ptid=2019880" target="_blank">silverwind 发表于 2021-8-9 02:42</a>
+
+所以我不在商店买游戏，只买实体版</blockquote>
+问下ps5实体版还多么？二手市场能转起来吗？
+
+
+*****
+
+####  刘震云  
+##### 14#       发表于 2021-8-9 16:57
+
+
+PS5商店没试玩版分类是最草的，XBOX商店也不太行，至今XSX和XSS的UI都是1080P大果粒，商店图片老师加载不全，下载速度拉胯
+
+
+*****
+
+####  zergcs  
+##### 15#       发表于 2021-8-9 16:57
+
+
+我找爱马仕新作的DEMO没用搜索找了十几分钟。。
+
+
+*****
+
+####  hypnossz86  
+##### 16#       发表于 2021-8-9 16:58
+
+
+因为索尼傻逼
+
+
+*****
+
+####  五月之雨  
+##### 17#       发表于 2021-8-9 16:58
+
+
+游戏按语言分开卖本身不是什么问题,但在一个地区里这么卖就显得很sb,而且港服这个问题还特别严重
+
+
+*****
+
+####  Kazepollar  
+##### 18#       发表于 2021-8-9 16:59
+
+
+索尼那个商店根本就不是给人用来逛的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  法拉  
+##### 19#       发表于 2021-8-9 17:00
+
+
+我是日服的，找试玩版只需要直接搜体験版三个字就可以了，其他服应该也可以吧
+
+
+*****
+
+####  Kazepollar  
+##### 20#       发表于 2021-8-9 17:00
+
+
+不过别的各种商店里，抛开steam不说，我觉得gog galaxy也不错，就是我付款的时候会自动变成美区<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，所以都是用网页版买的
+
+
+*****
+
+####  izumiding  
+##### 21#       发表于 2021-8-9 17:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我也想问ps5商店的试玩分类在哪看 每次下试玩版都得找到正式版游戏点进去再版本选择试玩版 太弱智了
+
+
+*****
+
+####  Bruce33  
+##### 22#       发表于 2021-8-9 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304857&amp;ptid=2019880" target="_blank">土豆麻辣人 发表于 2021-8-9 16:55</a>
+ 问下ps5实体版还多么？二手市场能转起来吗？</blockquote>
+不冷门的淘宝好买好卖，冷门的去闲鱼淘
+
+
+*****
+
+####  a2042312  
+##### 23#       发表于 2021-8-9 17:01
+
+
+商店里不是视频和图片都有的么，视频自从上次加了节点后也都很流畅了。
+
+
+*****
+
+####  shikiki  
+##### 24#       发表于 2021-8-9 17:04
+
+
+这背后，故事一定是这样的，某某功能不好用，领导说不要总出现问题！于是功能就没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  土豆麻辣人  
+##### 25#         楼主| 发表于 2021-8-9 17:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304952&amp;ptid=2019880" target="_blank">a2042312 发表于 2021-8-9 03:01</a>
+
+商店里不是视频和图片都有的么，视频自从上次加了节点后也都很流畅了。</blockquote>
+你再仔细看看到底有没有
+
+
+*****
+
+####  peh  
+##### 26#       发表于 2021-8-9 17:05
+
+
+xbox store也难用，我到现在还是没找到语言在哪里..
+
+
+*****
+
+####  椎名mahuyo  
+##### 27#       发表于 2021-8-9 17:05
+
+
+ 本帖最后由 椎名mahuyo 于 2021-8-9 17:13 编辑 
+
+PS5商店里有截图和视频啊
+
+顺带一提，PS APP还算好用，虽然搜索还是有问题
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 28#       发表于 2021-8-9 17:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">你对我们索尼直男商店有什么意见
+
+
+*****
+
+####  silverwind  
+##### 29#       发表于 2021-8-9 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304857&amp;ptid=2019880" target="_blank">土豆麻辣人 发表于 2021-8-9 16:55</a>
+问下ps5实体版还多么？二手市场能转起来吗？</blockquote>
+搜搜就有，没有的一般被禁了
+
+
+*****
+
+####  a2042312  
+##### 30#       发表于 2021-8-9 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304999&amp;ptid=2019880" target="_blank">土豆麻辣人 发表于 2021-8-9 17:05</a>
+你再仔细看看到底有没有</blockquote>
+我最近就预购破晓和机战30进去商店看了下，破晓商店里有3个PV和一些截图，机战30只有截图，PV估计是有版权问题没放。至少这两个是有的，其他的就不知道了。
+
+
+
+
+*****
+
+####  ky怪  
+##### 31#       发表于 2021-8-9 17:11
+
+
+游戏倒无所谓，恶心的是新版商店去掉了主题和头像的购买，主机端可以买但相当难用。另外ps4只能买15年以后的主题和头像（也就是ps4支持主题功能之后的内容）。
+旧版网页商店可以买全部内容。不知道索尼是不是抽风要砍掉这个功能，虚拟形象这种基本的东西难道要让新入坑的玩家只能选择自带的丑比头像？没必要在这种地方学任天堂吧
+
+
+*****
+
+####  wgoenitz  
+##### 32#       发表于 2021-8-9 17:11
+
+
+ps4商店是特别烂，ps5好一些。
+
+
+*****
+
+####  birdma  
+##### 33#       发表于 2021-8-9 17:13
+
+
+ps5商店怎么设置它默认显示新商品？每次进列表都给我按照销售日期从旧往新排
+
+
+*****
+
+####  浅川雏羽  
+##### 34#       发表于 2021-8-9 17:15
+
+
+ps3我玩的破解所以不太清楚，ps4是上建看截图视频，ps5是下键看截图视频，但有的游戏既没有视频也没有截图，莫名其妙
+
+比eshop体验差了100个win10商店
+
+
+*****
+
+####  喵喵叫的猫  
+##### 35#       发表于 2021-8-9 17:18
+
+
+话说ps5 beta固件测试我唯一遇到的bug就是港服商店的排序从新到旧失效了
+
+
+*****
+
+####  土豆麻辣人  
+##### 36#         楼主| 发表于 2021-8-9 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52305058&amp;ptid=2019880" target="_blank">a2042312 发表于 2021-8-9 03:10</a>
+
+我最近就预购破晓和机战30进去商店看了下，破晓商店里有3个PV和一些截图，机战30只有截图，PV估计是有版 ...</blockquote>
+说的就是这个，不是每个游戏都有
+
+
+*****
+
+####  JudgmentEye  
+##### 37#       发表于 2021-8-9 17:26
+
+
+第一外包的，第二为防破解，把旧版商店很多api直接砍了
+
+
+*****
+
+####  战狼PTSD  
+##### 38#       发表于 2021-8-9 17:31
+
+
+买过那么多游戏，只有STEAM体验才是合格的，EPIC光送游戏不把功能补全活该输。
+
+
+*****
+
+####  Richardsw  
+##### 39#       发表于 2021-8-9 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304933&amp;ptid=2019880" target="_blank">Kazepollar 发表于 2021-8-9 17:00</a>
+不过别的各种商店里，抛开steam不说，我觉得gog galaxy也不错，就是我付款的时候会自动变成美区，所 ...</blockquote>
+是不是挂代理了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  土豆麻辣人  
+##### 40#         楼主| 发表于 2021-8-9 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52305302&amp;ptid=2019880" target="_blank">战狼PTSD 发表于 2021-8-9 03:31</a>
+
+买过那么多游戏，只有STEAM体验才是合格的，EPIC光送游戏不把功能补全活该输。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">pss要是有epic那水平也够了，问题是没有。
+
+
+*****
+
+####  zhouxin95  
+##### 41#       发表于 2021-8-10 09:02
+
+
+改版后就不知道愿望单去哪了，现在的网页商店除了领会免毫无意义
+
+
+*****
+
+####  颜小山  
+##### 42#       发表于 2021-8-10 09:25
+
+
+同意，点进去想看个trailer感觉好难🤯
+
+
+*****
+
+####  桜庭ななみ  
+##### 43#       发表于 2021-8-10 09:36
+
+
+最大的问题是搜索太烂了，知道是什么有的时候都搜不到
+
+
+*****
+
+####  村长猫  
+##### 44#       发表于 2021-8-10 09:41
+
+
+刚入坑ps 分语言卖的逻辑搞不懂。。这么搞是增加工作量吧。。
+
+
+*****
+
+####  tmmd  
+##### 45#       发表于 2021-8-10 09:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304930&amp;ptid=2019880" target="_blank">法拉 发表于 2021-8-9 17:00</a>
+
+我是日服的，找试玩版只需要直接搜体験版三个字就可以了，其他服应该也可以吧 ...</blockquote>
+那可不行,在港服,至少有三种  trial Demo  体验版(繁体字)
+
+
+*****
+
+####  h82258652  
+##### 46#       发表于 2021-8-10 09:42
+
+
+越做越烂+1
+
+搜索我还不如用谷歌搜，连个简繁模糊识别都没
+
+
+*****
+
+####  Lisylfn  
+##### 47#       发表于 2021-8-10 09:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52305000&amp;ptid=2019880" target="_blank">peh 发表于 2021-8-9 17:05</a>
+
+xbox store也难用，我到现在还是没找到语言在哪里..</blockquote>
+拉下去中间有一行详情, 往右拉就有了, 最近新加的, 不过不要太参考...
+
+
+*****
+
+####  kiddolck  
+##### 48#       发表于 2021-8-10 09:50
+
+
+从上周开始登录商店报错说改密码或者联系客服…
+
+很迷的提示，我没印象说 psn 有很严格的密码复杂性要求啊……
+
+
+*****
+
+####  winggg  
+##### 49#       发表于 2021-8-10 09:55
+
+
+跟蒸汽页面一比，真是草台
+
+混乱难用，搜索功能又有bug
+
+想起上次找某个DLC，10分钟都找不到，被它整得恶心，决定不买了。
+
+
+*****
+
+####  JudgmentEye  
+##### 50#       发表于 2021-8-10 10:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52311543&amp;ptid=2019880" target="_blank">村长猫 发表于 2021-8-10 09:41</a>
+
+刚入坑ps 分语言卖的逻辑搞不懂。。这么搞是增加工作量吧。。</blockquote>
+不同语言版本算不同的发行id/sku，从ps3就是了
+
+
+*****
+
+####  M0kha  
+##### 51#       发表于 2021-8-10 10:01
+
+
+纯纯的草台班子
+
+在代码层面无法想象他们的搜索功能是怎么写的
+
+
+*****
+
+####  M0kha  
+##### 52#       发表于 2021-8-10 10:01
+
+
+纯纯的草台班子
+
+在代码层面无法想象他们的搜索功能是怎么写的
+
+
+*****
+
+####  折中旗帜鲜明  
+##### 53#       发表于 2021-8-10 10:02
+
+
+新版网页商店就是一坨X
+
+
+*****
+
+####  妮贝雅  
+##### 54#       发表于 2021-8-10 10:29
+
+
+原版商店虽然烂但至少分类还算清晰 新版的这商店 呵 纯粹恶心人
+
+
+*****
+
+####  orcher1945  
+##### 55#       发表于 2021-8-10 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304703&amp;ptid=2019880" target="_blank">wujae 发表于 2021-8-9 16:43</a>
+
+旧版商店还有截图和视频介绍，这一版真的不知道如何评价。</blockquote>
+还是有不少游戏有截图和视频的，但整体的界面和方便程度被STEAM按在地上摩擦。
+
+
+*****
+
+####  ads147147  
+##### 56#       发表于 2021-8-10 10:41
+
+
+你知道索尼这个傻逼商店设计养活了多少做特惠推荐的up主吗，百万曹工jpg
+
+
+*****
+
+####  雪菜碧池  
+##### 57#       发表于 2021-8-10 10:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52311113&amp;ptid=2019880" target="_blank">zhouxin95 发表于 2021-8-10 09:02</a>
+
+改版后就不知道愿望单去哪了，现在的网页商店除了领会免毫无意义</blockquote>
+右上角不就是？购物车旁边
+
+
+*****
+
+####  老沙鳄鱼  
+##### 58#       发表于 2021-8-10 10:47
+
+
+在港服找了半天生化奇兵，搜索bioshock提示没有，但是按照首字母一个个找又能找到，真是无语的一批
+
+
+*****
+
+####  喵喵叫的猫  
+##### 59#       发表于 2021-8-10 10:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52311644&amp;ptid=2019880" target="_blank">kiddolck 发表于 2021-8-10 09:50</a>
+从上周开始登录商店报错说改密码或者联系客服…
+
+很迷的提示，我没印象说 psn 有很严格的密码复杂性要求啊 ...</blockquote>
+账号安全策略升级了
+现在跨ip登录多半都会提示这个，就算密码输对也要主机上开2步认证才能过
+
+
+*****
+
+####  kiddolck  
+##### 60#       发表于 2021-8-10 10:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52312568&amp;ptid=2019880" target="_blank">喵喵叫的猫 发表于 2021-8-10 10:53</a>
+账号安全策略升级了
+现在跨ip登录多半都会提示这个，就算密码输对也要主机上开2步认证才能过</blockquote>
+。震撼，真是到哪都要 mfa 了
+
+
+
+
+*****
+
+####  你号又双叒没了  
+##### 61#       发表于 2021-8-10 13:07
+
+
+我最近也被气到了，买的阿卡姆骑士全集，里面那么多的皮肤和AR挑战，还有阿卡姆之章好几个人物故事的DLC居然要我一个一个去下？
+
+我得点进商店里，然后游戏页面-追加内容-点进每一个DLC-点下载，然后点下载必会卡顿两秒，退出直接返回游戏页面。
+
+
+*****
+
+####  你号又双叒没了  
+##### 62#       发表于 2021-8-10 13:09
+
+
+而且最大的问题是搜索，搜一个游戏不知道应该搜中文还是英文标题，多一个字少一个字都没有结果。
+
+就算有结果的，它似乎知道你要什么东西，然后故意把它藏在一堆DLC或者相关游戏中间。
+
+
+*****
+
+####  谢俊豪  
+##### 63#       发表于 2021-8-10 13:15
+
+
+当你觉得steam界面老土的时候，玩玩别的平台，你会发现steam是业界之光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ffmzsj  
+##### 64#       发表于 2021-8-10 13:40
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/134013uxhl94jgong4h5zp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-10-13-39-37-19_40deb401b9ffe8e1df2f1cc5ba480b12.jpg</strong> (332.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 13:40 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/134003e8a73ttidj32stjj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-10-13-39-46-08_40deb401b9ffe8e1df2f1cc5ba480b12.jpg</strong> (267.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 13:40 上传
+
+
+*****
+
+####  宛若青空  
+##### 65#       发表于 2021-8-10 15:08
+
+
+ 本帖最后由 宛若青空 于 2021-8-10 15:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52314722&amp;ptid=2019880" target="_blank">ffmzsj 发表于 2021-8-10 13:40</a></blockquote>
+
+我见过把日语、英语一个版本、中文、韩文一个版本的，但没见过包含了中文、韩文、英语的一个版本后还单独出一个只有英语的版本…
+
+
+港服这也太傻逼了…
+
+
+*****
+
+####  404489039  
+##### 66#       发表于 2021-8-10 15:13
+
+
+小日本鬼子根本不知道标签是什么。弄标签分类很难吗
+
+
+                                               
