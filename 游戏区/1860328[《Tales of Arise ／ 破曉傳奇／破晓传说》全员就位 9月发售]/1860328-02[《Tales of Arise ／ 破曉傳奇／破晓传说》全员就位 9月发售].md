@@ -10029,3 +10029,58 @@ BS有范围伤害这个最早的7分钟演示里就有了
 
 
                                                  
+
+*****
+
+####  laoz  
+##### 2232#       发表于 2021-8-10 22:02
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/220216qhp0dxqwvwyoausq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210810_220132_com.twitter.android.jpg</strong> (246.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 22:02 上传
+
+
+*****
+
+####  laoz  
+##### 2233#       发表于 2021-8-10 22:02
+
+
+*****
+
+####  忧郁  
+##### 2234#       发表于 2021-8-10 22:06
+
+
+试玩终于定了
+
+
+*****
+
+####  qiyu1234  
+##### 2235#       发表于 2021-8-10 22:23
+
+
+试玩来的还算及时
+
+估计是之前媒体试玩的那个版本
+
+
+*****
+
+####  heseran  
+##### 2236#       发表于 2021-8-10 22:29
+
+
+试玩来了，舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+                                                 

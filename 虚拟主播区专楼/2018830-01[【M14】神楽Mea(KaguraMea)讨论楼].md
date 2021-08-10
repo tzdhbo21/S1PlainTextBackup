@@ -5221,3 +5221,139 @@ ptr的嘉宾环节结束了，并没有你咩姐<img src="https://static.saraba1
 
 
                                                  
+
+*****
+
+####  时间在我手中  
+##### 480#       发表于 2021-8-10 21:55
+
+
+30如狼40如虎，小麻坐地能吸土<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  Klience  
+##### 481#       发表于 2021-8-10 22:04
+
+
+难怪我怎么也搜不到小麻战绩 原来改id了啊 搜了一下这个id的意思 原来是BUMP OF CHICKEN的一个专辑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 482#       发表于 2021-8-10 22:06
+
+
+意思是今天要棒棒鸡连唱吗
+
+
+*****
+
+####  Klience  
+##### 483#       发表于 2021-8-10 22:11
+
+
+反正别给我整萌萌曲了 有点听腻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 484#       发表于 2021-8-10 22:15
+
+
+我感觉要先聊半小时
+
+
+*****
+
+####  T_Hb  
+##### 485#       发表于 2021-8-10 22:15
+
+
+ 本帖最后由 T_Hb 于 2021-8-10 22:19 编辑 
+
+昨天联动说了那些梗之后就知道评论栏会出现什么内容，今天禁止相关评论<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+又拍肚皮，“我心胸开阔”
+
+
+*****
+
+####  yywzjsw  
+##### 486#       发表于 2021-8-10 22:20
+
+
+是我卡还是她卡？
+
+
+*****
+
+####  T_Hb  
+##### 487#       发表于 2021-8-10 22:20
+
+
+是你卡
+
+
+*****
+
+####  yywzjsw  
+##### 488#       发表于 2021-8-10 22:20
+
+
+…破梯子
+
+
+*****
+
+####  T_Hb  
+##### 489#       发表于 2021-8-10 22:22
+
+
+今天又生理了，肚子痛
+
+
+*****
+
+####  时间在我手中  
+##### 490#       发表于 2021-8-10 22:31
+
+
+下播之后打算去玩瓦罗兰的样子，现在在扯夏目友人帐
+
+
+*****
+
+####  yywzjsw  
+##### 491#       发表于 2021-8-10 22:32
+
+
+是之前才醒吗
+
+
+*****
+
+####  Klience  
+##### 492#       发表于 2021-8-10 22:35
+
+
+7点打了一局 中间有没有睡就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 493#       发表于 2021-8-10 22:37
+
+
+ 本帖最后由 T_Hb 于 2021-8-10 22:41 编辑 
+
+睡了必起不来，她刚刚好像说吃了药（ロキソニンS）睡不着，我没听清楚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                

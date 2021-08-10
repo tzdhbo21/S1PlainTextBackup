@@ -11050,3 +11050,14 @@ fgo维护的标签下奥伯龙pickup已经上蓝鸟热搜了，果然人还是�
 
 
                                                  
+
+*****
+
+####  zore  
+##### 81832#       发表于 2021-8-10 21:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我很现实,没充能就不抽了.
+
+
+                                                 
