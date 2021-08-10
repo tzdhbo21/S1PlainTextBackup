@@ -740,3 +740,62 @@ xbox store也难用，我到现在还是没找到语言在哪里..</blockquote>
 
 
                                                  
+
+*****
+
+####  zerocount  
+##### 68#       发表于 2021-8-10 16:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304855&amp;ptid=2019880" target="_blank">Kojimaru 发表于 2021-8-9 16:54</a>
+相比之下ps App做的就丝般顺滑</blockquote>
+ps相关的app拆成了三个吧…
+
+
+*****
+
+####  Kojimaru  
+##### 69#       发表于 2021-8-10 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52316557&amp;ptid=2019880" target="_blank">zerocount 发表于 2021-8-10 16:32</a>
+ps相关的app拆成了三个吧…</blockquote>
+ps message又和ps商店那个app整合了，善变的索索<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lirj007  
+##### 70#       发表于 2021-8-10 17:09
+
+
+我的PSN找回密码的邮件无法收到，害得我血源都玩不了了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  leo204672099  
+##### 71#       发表于 2021-8-10 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52305000&amp;ptid=2019880" target="_blank">peh 发表于 2021-8-9 17:05</a>
+
+xbox store也难用，我到现在还是没找到语言在哪里..</blockquote>
+Xbox的情况是有些有，有些没有吧，我是这么感觉的，有时候你真不如直接看评价
+
+
+*****
+
+####  JudgmentEye  
+##### 72#       发表于 2021-8-10 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52315619&amp;ptid=2019880" target="_blank">宛若青空 发表于 2021-8-10 15:08</a>
+
+我见过把日语、英语一个版本、中文、韩文一个版本的，但没见过包含了中文、韩文、英语的一个版本后还单独 ...</blockquote>
+11区的游戏，单卖锁亚洲语言的米版欧版是常事，很多游戏比如仁王2就是米版欧版锁中日棒文，亚版锁欧洲语言
+
+
+                                                 

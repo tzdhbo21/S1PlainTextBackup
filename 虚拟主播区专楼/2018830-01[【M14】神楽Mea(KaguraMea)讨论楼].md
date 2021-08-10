@@ -5012,3 +5012,126 @@ ptr今天生日 人两次你纪念日都过来留言了啊
 
 
                                                  
+
+*****
+
+####  Mr.shelter  
+##### 463#       发表于 2021-8-10 16:40
+
+
+不是，啥玩具啥抽筋啥前男友，有录播指路吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">，repo也行撒
+
+
+*****
+
+####  T_Hb  
+##### 464#       发表于 2021-8-10 17:15
+
+
+ 本帖最后由 T_Hb 于 2021-8-10 17:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看片看到抽筋是8.2生日会上说的前一天晚上的事
+[https://www.bilibili.com/video/BV1R44y1C7HG](https://www.bilibili.com/video/BV1R44y1C7HG)
+
+电动玩具在8.8和兔妈妈双人联动提到一次
+[https://www.bilibili.com/video/BV1Bv411K7Pt](https://www.bilibili.com/video/BV1Bv411K7Pt)
+
+昨晚衍生到了吮吸的那种，当时直播间里其他人都不懂这玩意儿
+
+前男友是昨晚联动，舞元出来前说的，直接被苔总打断了施法
+[https://www.youtube.com/watch?v=oC7y_DJMWbM](https://www.youtube.com/watch?v=oC7y_DJMWbM)
+
+
+*****
+
+####  雪风utopia  
+##### 465#       发表于 2021-8-10 17:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52316678&amp;ptid=2018830" target="_blank">Mr.shelter 发表于 2021-8-10 16:40</a>
+不是，啥玩具啥抽筋啥前男友，有录播指路吗，repo也行撒</blockquote>
+总结一下就是，小麻在前男友面前用小玩具玩到抽筋<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 466#       发表于 2021-8-10 17:20
+
+
+ 本帖最后由 路人庚 于 2021-8-10 17:21 编辑 
+
+玩具是指她在跟女人同居之后冒出来的新系列话题，聊紫薇用具的，昨晚的联动里进行了些许延伸
+
+
+抽筋是指她在跟女人同居之前看小电影后腿抽筋的话题，与玩具联系起来只是水友的发散，她并没有提及二者的关联性
+
+
+前男友是指她在昨晚联动里聊到“真的生气”话题时，她张口就提了前凯子，然后被苔苔打断的一个小插曲
+
+
+*****
+
+####  JY要塞  
+##### 467#       发表于 2021-8-10 17:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么强调女人
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|大概是因为票宝是女人（|
+
+
+查看全部评分
+
+
+*****
+
+####  Cushaw  
+##### 468#       发表于 2021-8-10 17:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  clvan_  
+##### 469#       发表于 2021-8-10 17:23
+
+
+这些话题确实是你麻和女人线虫之后冒出来的吧，而且说过玩具是朋友送的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 470#       发表于 2021-8-10 17:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">总结，看片玩玩具玩到腿抽筋
+
+
+*****
+
+####  Dualist彩  
+##### 471#       发表于 2021-8-10 17:43
+
+
+你麻是真滴牛批，什么双性恋男女通吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

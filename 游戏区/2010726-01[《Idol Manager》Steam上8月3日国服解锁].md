@@ -2603,3 +2603,42 @@ would be removed later
 
 
                                                  
+
+*****
+
+####  夜游的树  
+##### 215#       发表于 2021-8-10 16:22
+
+
+ 本帖最后由 夜游的树 于 2021-8-10 16:23 编辑 
+
+喷了，用mod改了改商单，给的报酬超了上限变成倒扣钱了，定的合同违约金也超了上限变成给钱了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+另外最后这个奥运会的要求怎么达到啊，一个月涨粉2成靠mod做到了，但唱片销售榜第一名已经150万的销售额了，我的销售额才40万还没他零头高，但已经是第二名了，这还怎么搞<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  greendayu  
+##### 216#       发表于 2021-8-10 16:28
+
+
+<blockquote>夜游的树 发表于 2021-8-10 16:22
+喷了，用mod改了改商单，给的报酬超了上限变成倒扣钱了，定的合同违约金也超了上限变成给钱了
+
+另外 ...</blockquote>
+能接受作弊方式的话，可以直接改存档。这游戏的存档格式是明文的json。
+
+具体怎么改我就不知道了，我只改过人物的属性。。
+
+
+*****
+
+####  藤田有静  
+##### 217#       发表于 2021-8-10 16:38
+
+
+有关于F7修改的指南吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我想每月霸占单曲榜前5
+
+
+                                                 
