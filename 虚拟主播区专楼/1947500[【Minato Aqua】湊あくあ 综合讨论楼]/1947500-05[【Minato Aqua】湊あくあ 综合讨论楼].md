@@ -9066,3 +9066,52 @@ mv的风格来看算是量身了，不错
 
 
                                                  
+
+*****
+
+####  Scardy  
+##### 6738#       发表于 2021-8-10 19:23
+
+
+ 本帖最后由 Scardy 于 2021-8-10 19:31 编辑 
+
+船长也没有，话说整地干嘛来着，做海报吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/10/193113ua6k9uurkdnjh6bz.png" referrerpolicy="no-referrer">
+
+
+<strong>7HQIR83S%S6EBQRQ}85)X%4.png</strong> (23.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 19:31 上传
+
+
+还真是，就是这眼睛有点哈人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大厨麦当牛  
+##### 6739#       发表于 2021-8-10 19:41
+
+
+这海想列车的MV也太恋物语了吧。
+
+这么一想阿夸和千石抚子共同点还挺多。
+
+
+*****
+
+####  LightersFAN  
+##### 6740#       发表于 2021-8-10 20:39
+
+
+歌词……
+
+我也要去寻找阿库娅色的未来了
+
+谢谢你夸宝，希望今后也能自私地从你的背影里获取力量
+
+
+                                                 

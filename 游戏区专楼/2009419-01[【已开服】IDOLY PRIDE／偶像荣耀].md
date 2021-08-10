@@ -5698,3 +5698,26 @@ iPad Pro了性能应该没关系，就是拍好了用胶卷实写时经常失败
 
 
                                                  
+
+*****
+
+####  两个路人  
+##### 408#       发表于 2021-8-10 19:35
+
+
+抽卡掉落率突破常识得低，用券的二星狗粮才出过一张，都是出道具（白眼
+
+
+*****
+
+####  pansherry  
+##### 409#       发表于 2021-8-10 20:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52318748&amp;ptid=2009419" target="_blank">两个路人 发表于 2021-8-10 19:35</a>
+
+抽卡掉落率突破常识得低，用券的二星狗粮才出过一张，都是出道具（白眼</blockquote>
+工作的那几张低星明显比一般池子五星都难出<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+                                                 

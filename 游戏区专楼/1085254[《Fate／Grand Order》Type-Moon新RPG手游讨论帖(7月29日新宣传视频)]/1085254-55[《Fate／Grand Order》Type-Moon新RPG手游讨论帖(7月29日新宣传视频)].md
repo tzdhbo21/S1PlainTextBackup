@@ -10953,3 +10953,77 @@ fgo维护的标签下奥伯龙pickup已经上蓝鸟热搜了，果然人还是�
 
 
                                                  
+
+*****
+
+####  v22325  
+##### 81825#       发表于 2021-8-10 19:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们也有点太偏颇了，奥伯龙这个角色最后几个场景还是挺讨喜的，看了圈不管男女都想抽，迫不及待的二次图都一大堆.
+
+<img src="https://img.saraba1st.com/forum/202108/10/192503z4n9o3grdonnnny3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1628587831439.jpg</strong> (82.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 19:25 上传
+
+
+*****
+
+####  khxooo  
+##### 81826#       发表于 2021-8-10 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317168&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-10 17:15</a>
+明儿个维护，怕不是圣杯战线（
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+来个火药狩猎吧，我家狐狸到现在都没能满破，别说技能了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81827#       发表于 2021-8-10 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52318638&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-10 19:25</a>
+
+你们也有点太偏颇了，奥伯龙这个角色最后几个场景还是挺讨喜的，看了圈不管男女都想抽，迫不及待的 ...</blockquote>
+哪里偏颇了，这楼里基本不都默认奥伯龙写得可以了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81828#       发表于 2021-8-10 19:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52318560&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-10 19:17</a>
+
+因为献祭了狐狸的宝具演出么</blockquote>
+平心而论，我觉得妖兰更用心一点
+
+不知道DW和TM内部是怎么分配的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81829#       发表于 2021-8-10 20:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52318638&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-10 19:25</a>
+
+你们也有点太偏颇了，奥伯龙这个角色最后几个场景还是挺讨喜的，看了圈不管男女都想抽，迫不及待的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不对啊......按照リヨ的这沙雕漫设定诂哒夫和诂哒子的数量应该要换换才对吧
+
+
+                                                 
