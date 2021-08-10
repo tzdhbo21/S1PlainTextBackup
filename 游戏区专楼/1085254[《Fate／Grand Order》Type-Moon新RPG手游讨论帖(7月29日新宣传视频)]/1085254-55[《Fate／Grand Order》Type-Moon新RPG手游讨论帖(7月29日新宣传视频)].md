@@ -10793,3 +10793,105 @@ E8B3KAwVgAAwngQ.jpg
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 81814#       发表于 2021-8-10 17:32
+
+
+ 本帖最后由 exiaexa 于 2021-8-10 17:37 编辑 
+
+我决定给新人同志打个预防针
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+第一部分:铺（注）垫（水）
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+第二部分:矛盾拉开，大的要来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+第三部分:蘑菇:电车难题？把人多的那边全部用火箭先一步物理超度，我就可以救剩下那个人啦
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81815#       发表于 2021-8-10 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317168&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-10 17:15</a>
+
+明儿个维护，怕不是圣杯战线（
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+为啥是圣杯战线？ 之前有说过要再出？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81816#       发表于 2021-8-10 18:12
+
+
+<blockquote>引用第81814楼alucardcz于2021-08-10 18:09发表的  :
+
+引用:黑上シグマ 发表于 2021-8-10 17:15明儿个维护，怕不是圣杯战线（----发送自 ......</blockquote>
+你游现在拖时间新法宝不就是圣杯战线吗
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  xiongxingyu  
+##### 81817#       发表于 2021-8-10 18:12
+
+
+fgo维护的标签下奥伯龙pickup已经上蓝鸟热搜了，果然人还是逃不过真香定律<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81818#       发表于 2021-8-10 18:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317828&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-10 18:12</a>
+
+你游现在拖时间新法宝不就是圣杯战线吗
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也好 反正能抄作业
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我估计开个奥某人卡池然后没然后了
+
+
+*****
+
+####  exiaexa  
+##### 81819#       发表于 2021-8-10 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317829&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-10 18:12</a>
+fgo维护的标签下奥伯龙pickup已经上蓝鸟热搜了，果然人还是逃不过真香定律 ...</blockquote>
+奥伯龙这次确实可以啊，三破造型、模组都没拉胯，bgm还特别突出，故事跟别人比拉胯了点，但是跟蘑菇自己比还是有突破的
+
+
+*****
+
+####  alucardcz  
+##### 81820#       发表于 2021-8-10 18:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317891&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-10 18:18</a>
+
+奥伯龙这次确实可以啊，三破造型、模组都没拉胯，bgm还特别突出，故事跟别人比拉胯了点，但是跟蘑菇自己 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面我记得还有几个水友说得要个活动才能入池啥的  看看yls会不会考虑这种事情了（
+
+
+                                                 

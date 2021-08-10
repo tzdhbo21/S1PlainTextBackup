@@ -799,3 +799,116 @@ Xbox的情况是有些有，有些没有吧，我是这么感觉的，有时候�
 
 
                                                  
+
+*****
+
+####  剑起苍斓  
+##### 73#       发表于 2021-8-10 18:09
+
+
+用app了,不想用那司马网页版和主机版了
+
+—— 来自 OnePlus ONEPLUS A5010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  宛若青空  
+##### 74#       发表于 2021-8-10 18:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317321&amp;ptid=2019880" target="_blank">JudgmentEye 发表于 2021-8-10 17:27</a>
+
+11区的游戏，单卖锁亚洲语言的米版欧版是常事，很多游戏比如仁王2就是米版欧版锁中日棒文，亚版锁欧洲语言 ...</blockquote>
+
+主要是上面那个也包含了英语还单卖一个只有英语的就很迷惑
+
+
+*****
+
+####  JudgmentEye  
+##### 75#       发表于 2021-8-10 18:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317879&amp;ptid=2019880" target="_blank">宛若青空 发表于 2021-8-10 18:17</a>
+
+主要是上面那个也包含了英语还单卖一个只有英语的就很迷惑</blockquote>
+可能鸟语版有双语配音吧，亚版只有鸟语字幕没鸟语配音
+
+
+*****
+
+####  宛若青空  
+##### 76#       发表于 2021-8-10 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52317939&amp;ptid=2019880" target="_blank">JudgmentEye 发表于 2021-8-10 18:21</a>
+可能鸟语版有双语配音吧，亚版只有鸟语字幕没鸟语配音</blockquote>
+看了下还真是，绝了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leina0602  
+##### 77#       发表于 2021-8-10 18:50
+
+
+最搞的还是右边那个热门搜索，每次都是一堆色色的DLC<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  skdom  
+##### 78#       发表于 2021-8-10 19:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304907&amp;ptid=2019880" target="_blank">五月之雨 发表于 2021-8-9 16:58</a>
+
+游戏按语言分开卖本身不是什么问题,但在一个地区里这么卖就显得很sb,而且港服这个问题还特别严重 ...</blockquote>
+感觉就日厂这个问题特别严重……
+
+
+记得当年X1金会员送无双大蛇的时候，免费游戏直接有三个版本：日文版、中韩文的亚洲版，以及英文版
+
+
+真有成就党三个都下了，然后打三遍……
+
+
+X1不能外服买、港服台服下以获得中文的极少数游戏也基本都是日厂的
+
+其中以光荣最严重，SE也有一部分游戏有这毛病，万代的好像好得多
+
+
+我觉得最搞笑的就是FF15美版实体光盘，X1版有繁体中文（铁盒版给的国王刺客蓝光有繁简中文字幕），PS4版居然没有中文（贴吧看到的……）
+
+
+*****
+
+####  skdom  
+##### 79#       发表于 2021-8-10 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52304907&amp;ptid=2019880" target="_blank">五月之雨 发表于 2021-8-9 16:58</a>
+
+游戏按语言分开卖本身不是什么问题,但在一个地区里这么卖就显得很sb,而且港服这个问题还特别严重 ...</blockquote>
+港服很特殊的就是有港版日文这个东西存在
+
+就是封面和封底都是中文，然后右上角有个日文版的文字
+
+当年差点被坑买了日文版的
+
+
+*****
+
+####  路西恩  
+##### 80#       发表于 2021-8-10 19:05
+
+
+索尼罪大恶极
+
+索尼已经断气了
+
+
+                                                 
