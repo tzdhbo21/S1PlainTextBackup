@@ -2304,3 +2304,48 @@ https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web
 
 
                                                  
+
+*****
+
+####  夜潇箫  
+##### 206#       发表于 2021-8-10 12:19
+
+
+琳的声音，好浓的电台女主播味道，好像我关注的一个小v
+
+
+*****
+
+####  丢了五块钱  
+##### 207#       发表于 2021-8-10 12:20
+
+
+艾瑞思唱 红歌 卡萨布兰卡 流行 都是一种感觉，会唱一点又努力错了方向。还不如白嗓加点合适的感情。
+
+白白大家说强就是强吧，歌单和我有代沟都没听过，还是静姨的歌单亲切<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  丢了五块钱  
+##### 208#       发表于 2021-8-10 12:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52313762&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-8-10 12:19</a>
+琳的声音，好浓的电台女主播味道，好像我关注的一个小v</blockquote>
+我强烈怀疑琳的前世是lol陪玩，电台一起恰一下
+
+
+*****
+
+####  夜潇箫  
+##### 209#       发表于 2021-8-10 12:43
+
+
+ 本帖最后由 夜潇箫 于 2021-8-10 12:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52313809&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-8-10 12:22</a>
+我强烈怀疑琳的前世是lol陪玩，电台一起恰一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那是一个小v，和莱妮娅一个箱的，芙希希，声音风格有点像
+
+
+                                                 

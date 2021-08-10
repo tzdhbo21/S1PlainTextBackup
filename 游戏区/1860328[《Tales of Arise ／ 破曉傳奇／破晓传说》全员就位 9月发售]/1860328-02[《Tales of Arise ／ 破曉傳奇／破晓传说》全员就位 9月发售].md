@@ -9931,3 +9931,101 @@ BS有范围伤害这个最早的7分钟演示里就有了
 
 
                                                  
+
+*****
+
+####  qiyu1234  
+##### 2229#       发表于 2021-8-10 11:58
+
+
+英文官推更新了几张 【海水浴】DLC套装的截图
+
+
+奥尔芬的完整正脸看起来还算比较秀气
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/115849bbjqfzv4btc5nct6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (246.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 11:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/115849vpe4000se23p1css.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (463.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 11:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/115849kkbbqhqy1h8iyrhr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (176.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 11:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/115850enkq1nryn1k18ybn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4.jpg</strong> (281.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 11:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/115850vihihe4z4rhrtmep.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5.jpg</strong> (444.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 11:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/10/115850yniboz8ouaobx20w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6.jpg</strong> (452.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-10 11:58 上传
+
+
+*****
+
+####  DKD  
+##### 2230#       发表于 2021-8-10 12:28
+
+
+后两张看着嘴和鼻子怎么那么模糊
+
+
+*****
+
+####  qiyu1234  
+##### 2231#       发表于 2021-8-10 12:31
+
+
+ 本帖最后由 qiyu1234 于 2021-8-10 12:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52313899&amp;ptid=1860328" target="_blank">DKD 发表于 2021-8-10 12:28</a>
+
+后两张看着嘴和鼻子怎么那么模糊</blockquote>
+因为是战斗场景中截图，精度肯定跟事件演出中的不一样
+
+当然也跟游戏的这个渲染着色器有关
+
+
+                                                 

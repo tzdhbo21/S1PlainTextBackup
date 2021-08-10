@@ -6836,3 +6836,18 @@ E6qDvUZVkAU97iR.jfif
 
 
                                                  
+
+*****
+
+####  PrincessBanana  
+##### 2001#       发表于 2021-8-10 11:39
+
+
+这集的观感甚至比上一集还好，几个人物的特写都特别可爱
+
+反派干部间的互动也特别好，发明信片给加班的同事太损了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+不过感觉这季的反派和光美的交集还不是很深，现在看下来感觉就虾姑和夏夏有东西讲
+
+
+                                                 
