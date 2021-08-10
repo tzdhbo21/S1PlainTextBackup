@@ -10097,3 +10097,36 @@ SN@2II~OZZ8TH3_K~KNZ0YJ.png
 
 
                                                  
+
+*****
+
+####  nian1538  
+##### 12875#       发表于 2021-8-10 08:54
+
+
+会限：不一定会直播大A特A，游戏有点卡，猎兽不能全自动，挂逼也有点多
+现实：已经从青铜4上银2了，lol再见
+
+
+*****
+
+####  cctvyt1  
+##### 12876#       发表于 2021-8-10 09:25
+
+
+就算凸待没来 二期羁绊还是要演的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl 不打LOL还有宝可梦集结<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  因为你不会  
+##### 12877#       发表于 2021-8-10 10:46
+
+
+那得看绫总的高级陪玩带她玩什么<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+                                                 

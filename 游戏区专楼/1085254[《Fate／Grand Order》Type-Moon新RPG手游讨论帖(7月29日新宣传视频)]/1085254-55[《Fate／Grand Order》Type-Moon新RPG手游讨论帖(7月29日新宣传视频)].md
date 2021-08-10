@@ -10632,3 +10632,49 @@ E8B3KAwVgAAwngQ.jpg
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 81802#       发表于 2021-8-10 07:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52310486&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-10 07:26</a>
+
+因为这种强化才是更多数啊，你看羽蛇神这不没给宝具本么
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+所以一开始我才说，希望以后红单强化能快乐起来啊
+
+单纯的给个倍率没啥意思
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81803#       发表于 2021-8-10 08:51
+
+
+<blockquote>引用第81799楼森兰丸于2021-08-10 05:16发表的  :
+
+好友里杀狐挂下午茶的好少.......大部分还是都C呆挂着....说好的红卡时代来了呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁跟你说好的，C呆才12绊谁去用红卡啊
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  angelooo  
+##### 81804#       发表于 2021-8-10 10:33
+
+
+<blockquote>森兰丸 发表于 2021-8-10 05:16
+好友里杀狐挂下午茶的好少.......大部分还是都C呆挂着....说好的红卡时代来了呢 ...</blockquote>
+杀狐体系现在最大的敌人是午茶只有一张
+
+
+                                                 

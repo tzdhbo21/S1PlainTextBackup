@@ -2281,3 +2281,26 @@ https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web
 
 
                                                  
+
+*****
+
+####  莫洛骑士  
+##### 204#       发表于 2021-8-10 08:44
+
+
+文静唱歌哼两句还挺好听的，但是唱全首就有点……
+
+
+*****
+
+####  tn_teana  
+##### 205#       发表于 2021-8-10 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52310483&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-8-10 07:25</a>
+
+昨晚没看，是说她俩都没天赋吗？</blockquote>
+艾白天赋异禀了属于是，每次唱歌都是现学现唱
+
+
+                                                 

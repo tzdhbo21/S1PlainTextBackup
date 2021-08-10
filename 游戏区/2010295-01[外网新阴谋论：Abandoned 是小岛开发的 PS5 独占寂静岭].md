@@ -7427,3 +7427,188 @@ Konami参加Gamescom，除了足球和游戏王外有新的annoucement
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 573#       发表于 2021-8-10 08:56
+
+
+ 本帖最后由 luoyianwu 于 2021-8-10 08:57 编辑 
+
+demo上线倒数18小时
+[https://twitter.com/adsk4/status/1424845299969794048](https://twitter.com/adsk4/status/1424845299969794048)
+
+伊藤畅达神秘推文
+
+[https://twitter.com/HasanEKahram ... 02884131164174?s=20](https://twitter.com/HasanEKahraman/status/1424802884131164174?s=20)
+
+Hasan：demo将震惊全场，PS粉丝会很开心
+
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p1ar7b/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p1ar7b/)
+
+Hasan回复网友：真实性和细节将比肩荒野大镖客2
+
+
+*****
+
+####  芷雅居  
+##### 574#       发表于 2021-8-10 08:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">抱有点期望又没有啥期望
+
+
+*****
+
+####  医生狼多  
+##### 575#       发表于 2021-8-10 09:02
+
+
+比肩大表哥??
+
+
+*****
+
+####  Rapids  
+##### 576#       发表于 2021-8-10 09:03
+
+
+我等不及啦<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 577#       发表于 2021-8-10 09:08
+
+
+什么玩意就细节比肩rdr2，mgs还是寂静岭有这么大价值敢这么砸钱啊
+
+
+*****
+
+####  Kazepollar  
+##### 578#       发表于 2021-8-10 09:12
+
+
+细节比肩RDR2?<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+期待又存疑
+
+
+*****
+
+####  heseran  
+##### 579#       发表于 2021-8-10 09:20
+
+
+希望不是那种让人看到就想发就这的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  九十九忍  
+##### 580#       发表于 2021-8-10 09:22
+
+
+今晚凌晨再给你们跳个票我相信他们真的做的出来
+
+
+*****
+
+####  医生狼多  
+##### 581#       发表于 2021-8-10 09:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52311201&amp;ptid=2010295" target="_blank">Kazepollar 发表于 2021-8-10 09:12</a>
+细节比肩RDR2?
+
+期待又存疑</blockquote>
+然后发现是真人过场，那确实能比肩<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Marsoy  
+##### 582#       发表于 2021-8-10 10:18
+
+
+明早起床来这里，我倒要看看这葫芦里卖的是什么药
+
+
+*****
+
+####  本间日阳  
+##### 583#       发表于 2021-8-10 10:18
+
+
+这事还没到头啊……
+
+
+*****
+
+####  acejoe  
+##### 584#       发表于 2021-8-10 11:08
+
+
+艹，这活怎么还没结束啊。
+
+
+*****
+
+####  Eadric  
+##### 585#       发表于 2021-8-10 11:17
+
+
+提前就这
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  鱼雷鲨  
+##### 586#       发表于 2021-8-10 11:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52309707&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-10 00:30</a>
+
+https://twitter.com/AkiraYamaoka/status/1424630584010186756
+
+
+寂静岭作曲家山岡晃：好事将发生</blockquote>
+他给坦克世界写完音乐之后就没人找他了吧
+
+
+*****
+
+####  鱼雷鲨  
+##### 587#       发表于 2021-8-10 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52311335&amp;ptid=2010295" target="_blank">医生狼多 发表于 2021-8-10 09:23</a>
+
+然后发现是真人过场，那确实能比肩</blockquote>
+量子破碎那个劝退的串流下载过场吗
+
+
+*****
+
+####  鱼雷鲨  
+##### 588#       发表于 2021-8-10 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52311031&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-10 08:56</a>
+
+demo上线倒数18小时
+
+https://twitter.com/adsk4/status/1424845299969794048
+
+伊藤畅达神秘推文</blockquote>
+伊藤要是做高达多好
+
+
+                                                 
