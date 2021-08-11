@@ -12724,3 +12724,197 @@ WTM
 
 
                                                
+
+*****
+
+####  qixinno2  
+##### 81964#       发表于 2021-8-11 19:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 为什么 50抽妖崔 妖高 巴御前 童谣一样一个最后竟然还出了奥伯龙 我日服号今年肿么回事
+
+
+*****
+
+####  alucardcz  
+##### 81965#       发表于 2021-8-11 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52332163&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-11 19:27</a>
+
+艹 为什么 50抽妖崔 妖高 巴御前 童谣一样一个最后竟然还出了奥伯龙 我日服号今年肿么回事 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明你是真正的欧洲人 萌新只是个非萌
+
+
+*****
+
+####  selfcest  
+##### 81966#       发表于 2021-8-11 19:32
+
+
+八单一宝，没想到之前运气好的代价来得这么快<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81967#       发表于 2021-8-11 19:32
+
+
+收回前面的话，妖兰这套换人6加成挺靠谱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81968#       发表于 2021-8-11 19:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妖兰高宝才好使啊
+
+万一最后一面40w剑呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  在海岸  
+##### 81969#       发表于 2021-8-11 19:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽了110抽，泳装无了……除了今天寒碜的12石还有送吗
+
+
+*****
+
+####  areklose  
+##### 81970#       发表于 2021-8-11 19:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">妖兰120放入日程了。本来想给摩根
+
+
+*****
+
+####  qixinno2  
+##### 81971#       发表于 2021-8-11 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52332237&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 19:32</a>
+
+说明你是真正的欧洲人 萌新只是个非萌</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但你有我没有的摩根啊
+
+
+*****
+
+####  alucardcz  
+##### 81972#       发表于 2021-8-11 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52332434&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-11 19:45</a>
+
+但你有我没有的摩根啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王姐有什么用 给你 你把2拐给我
+
+
+*****
+
+####  霧谷藤乃  
+##### 81973#       发表于 2021-8-11 19:46
+
+
+这次玩倒是决定只抽女性角色…强力拐啥的就不考虑了，本身这初始号也没多少石头，狐狸还掏空了一半多……
+
+
+*****
+
+####  qixinno2  
+##### 81974#       发表于 2021-8-11 19:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52332444&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 19:45</a>
+
+王姐有什么用 给你 你把2拐给我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">没有英灵交换功能 话说今年日服各种欧 但我国服非到爆炸啊 感觉是把国服献祭了
+
+
+*****
+
+####  qixinno2  
+##### 81975#       发表于 2021-8-11 19:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这解锁三四破开面的关卡有点烦啊 GG之后用金钻头的对恶特攻爆杀
+
+
+*****
+
+####  xiongxingyu  
+##### 81976#       发表于 2021-8-11 20:05
+
+
+事实证明，计算器云游玩是打不了fgo的，那些云玩家嘲笑日服抽了机娘的玩家被大公二次宝具本背刺的时候又怎能想到的，机娘靠一手3T的强解耐性在2.6各种阴间主线里乱杀的时候，而这时大公还在忙着找他的拐呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81977#       发表于 2021-8-11 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52332716&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-11 20:05</a>
+
+事实证明，计算器云游玩是打不了fgo的，那些云玩家嘲笑日服抽了机娘的玩家被大公二次宝具本背刺的时候又怎 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迷惑 我多数都用大公打的 依然乱杀 也就兽神交了复活石
+
+
+*****
+
+####  xiongxingyu  
+##### 81978#       发表于 2021-8-11 20:15
+
+
+ 本帖最后由 xiongxingyu 于 2021-8-11 20:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52332824&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 20:10</a>
+
+迷惑 我多数都用大公打的 依然乱杀 也就兽神交了复活石</blockquote>
+毕竟是蓝王，找南丁啥借条拐的事情。只不过机娘面对2.6这一对堆破条强解甚至平A强解的真就是乱杀，反正伤害够，你把拐的强化给解了顺便a死还能帮我换人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81979#       发表于 2021-8-11 20:29
+
+
+这奥伯龙一堆新素材看的脑壳痛
+又要碎石刷材料了
+
+有没有人来体感一下2.6素材掉率怎么样
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81980#       发表于 2021-8-11 20:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">缺新的铜素材 妖兰二技能至今还是8 奥伯龙也要吃 好蛋疼
+
+
+*****
+
+####  alucardcz  
+##### 81981#       发表于 2021-8-11 20:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52333096&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-11 20:29</a>
+
+这奥伯龙一堆新素材看的脑壳痛
+
+又要碎石刷材料了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷了8万羁绊我把裁缝技能拉满了  还多了28个  （银的那个材料 铜的没刷不知道
+
+
+                                                 
