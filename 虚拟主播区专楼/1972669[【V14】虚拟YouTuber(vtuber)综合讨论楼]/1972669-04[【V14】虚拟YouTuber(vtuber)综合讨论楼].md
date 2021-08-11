@@ -15652,3 +15652,124 @@ https://youtu.be/4493CGfmgsU来看花花的儿童雨衣
 
 
                                                 
+
+*****
+
+####  ヒトニナル  
+##### 5763#       发表于 2021-8-11 20:47
+
+
+泥潭这个免费有没有打过枪啊，我开始好奇了
+
+
+*****
+
+####  rzrbtk  
+##### 5764#       发表于 2021-8-11 20:47
+
+
+甲斐田打的普通还不错吧，没原本那个好。
+是说这回黑黑间难得是叶师出错，好歹还是过去了，不然一哥二哥粉丝互殴也太…
+
+
+*****
+
+####  IDIDIDID  
+##### 5765#       发表于 2021-8-11 20:49
+
+
+宁可换个炎王也不换阿葵上，叶师傅真是世界第一温柔
+
+
+*****
+
+####  winda  
+##### 5766#       发表于 2021-8-11 20:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">kiss部&gt;后辈土人确信
+当初和叶师nrk联动的时候训练场solo结果是叶&gt;haru&gt;nrk，不过后面就在白金当家没冲过钻。
+
+
+*****
+
+####  Porsche  
+##### 5767#       发表于 2021-8-11 21:06
+
+
+<img src="https://img.saraba1st.com/forum/202108/11/210527tl4leyyvuly1xyet.png" referrerpolicy="no-referrer">
+
+
+<strong>ii9.PNG</strong> (4.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-11 21:05 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">心情复杂
+
+
+*****
+
+####  poipanchao  
+##### 5768#       发表于 2021-8-11 21:12
+
+
+所以她当初到底是为什么……
+
+
+*****
+
+####  lhawp  
+##### 5769#       发表于 2021-8-11 21:19
+
+
+【ラップバトル】MCトウヤVSキズナアイ
+[https://www.youtube.com/watch?v=rjrhRAaWyEY](https://www.youtube.com/watch?v=rjrhRAaWyEY)
+
+
+老爱的RAP挺不错的
+
+
+*****
+
+####  Porsche  
+##### 5770#       发表于 2021-8-11 21:40
+
+
+ 本帖最后由 Porsche 于 2021-8-11 21:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52333625&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-8-11 21:12</a>
+
+所以她当初到底是为什么……</blockquote>
+赶上了油管最抽风的时候，断了口粮一下子就压力大了没撑住
+
+
+*****
+
+####  Suny08  
+##### 5771#       发表于 2021-8-11 22:03
+
+
+又不带gamers女又不带gamers女，之前串里呼声最高的莉莉姆不是挺好的嘛，搞得现在gamers女都只能抱团取暖了
+
+
+*****
+
+####  hulaoda007  
+##### 5772#       发表于 2021-8-11 22:08
+
+
+21年女粉比19年过激的原因？（我瞎猜的）
+
+
+*****
+
+####  adcdqre  
+##### 5773#       发表于 2021-8-11 22:25
+
+
+虹女跟黑黑联动是在找死
+
+
+                                                 

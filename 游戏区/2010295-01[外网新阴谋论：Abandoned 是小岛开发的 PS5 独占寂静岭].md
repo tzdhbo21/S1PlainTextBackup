@@ -8644,3 +8644,52 @@ TMD赶快结束吧烦死了
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 678#       发表于 2021-8-11 21:42
+
+
+ 本帖最后由 luoyianwu 于 2021-8-11 21:51 编辑 
+
+Team Real最黑暗的一天，各坛网友纷纷炸锅投敌
+[https://twitter.com/BBGameStudios/status/1425410740534587396](https://twitter.com/BBGameStudios/status/1425410740534587396)
+
+Blue Box表示在修了
+[https://twitter.com/HIDEO_KOJIMA_EN/status/1425363709799534593](https://twitter.com/HIDEO_KOJIMA_EN/status/1425363709799534593)
+
+岛哥哥表示这本叫《<strong>周四</strong>杀人俱乐部》的小说不错，标题很像阿加沙作品，可惜<strong>不是周二</strong>（指《星期二晚间俱乐部》）
+
+
+*****
+
+####  Metropolis  
+##### 679#       发表于 2021-8-11 21:45
+
+
+现在team real的人都在等12日，因为pt是8.12发布的。我现在看abandoned推已经有看Qanon的感觉了，因为Q人也在等8月川皇入主白宫。
+
+
+*****
+
+####  谢俊豪  
+##### 680#       发表于 2021-8-11 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52333967&amp;ptid=2010295" target="_blank">Metropolis 发表于 2021-8-11 21:45</a>
+
+现在team real的人都在等12日，因为pt是8.12发布的。我现在看abandoned推已经有看Qanon的感觉了，因为Q人也 ...</blockquote>
+赎罪日行动是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿布都督  
+##### 681#       发表于 2021-8-11 21:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这营销也太弱智了，我看twitter下面很多人都失去耐心开始嘴臭了
+
+
+                                                 

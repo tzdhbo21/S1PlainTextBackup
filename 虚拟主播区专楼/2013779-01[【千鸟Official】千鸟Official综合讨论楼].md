@@ -2487,3 +2487,25 @@ https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web
 
 
                                                  
+
+*****
+
+####  本间日阳  
+##### 221#       发表于 2021-8-11 21:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">看了些艾白的切片，她这个傻子一样的声音是装出来的？御姐音才是本音吗？？
+
+
+*****
+
+####  夜之中道崩殂  
+##### 222#       发表于 2021-8-11 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52333702&amp;ptid=2013779" target="_blank">本间日阳 发表于 2021-8-11 21:19</a>
+看了些艾白的切片，她这个傻子一样的声音是装出来的？御姐音才是本音吗？？ ...</blockquote>
+看首播下播忘关麦的切片，那个是真本音，介于傻子音和御姐音中间，接近御姐音
+
+
+                                                 

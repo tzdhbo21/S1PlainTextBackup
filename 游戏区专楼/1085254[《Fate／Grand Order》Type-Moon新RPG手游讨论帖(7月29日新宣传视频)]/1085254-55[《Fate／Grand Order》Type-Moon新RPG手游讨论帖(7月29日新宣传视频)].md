@@ -12918,3 +12918,152 @@ WTM
 
 
                                                  
+
+*****
+
+####  sosgame67  
+##### 81982#       发表于 2021-8-11 20:45
+
+
+我就不刷铜材料，老实等活动送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新吾  
+##### 81983#       发表于 2021-8-11 20:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">450石项羽+1，看来又离卸载近了一天
+
+
+*****
+
+####  任天索尼子  
+##### 81984#       发表于 2021-8-11 20:53
+
+
+最后还是只能找淘宝代氪把账号里面的余额用掉，以后还是代充好了，傻逼谷歌。
+
+
+*****
+
+####  yangun22  
+##### 81985#       发表于 2021-8-11 21:14
+
+
+结晶完全不够啊，需求量多了一倍，应该多给点了吧
+
+
+*****
+
+####  LOLITA  
+##### 81986#       发表于 2021-8-11 21:14
+
+
+妈耶，1月弃坑上月回归的萌新吓到了，蘑菇怕不是把2.6当成毕生心血的杰作吧，从者全都强度爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  katun  
+##### 81987#       发表于 2021-8-11 21:24
+
+
+前两天被动技能点嗨了，2技都没结晶点了挂不出来
+
+话说是不是该多加个助战位了，ex阶里到时候道满卑弥呼这些有时候要用上的都借不到了咋整
+
+
+*****
+
+####  qixinno2  
+##### 81988#       发表于 2021-8-11 21:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">技能点满了 然而没有银芙芙的1宝伤害应该挺拉的
+
+
+*****
+
+####  angelooo  
+##### 81989#       发表于 2021-8-11 21:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52333758&amp;ptid=1085254" target="_blank">katun 发表于 2021-8-11 21:24</a>
+
+前两天被动技能点嗨了，2技都没结晶点了挂不出来
+
+话说是不是该多加个助战位了，ex阶里到时候道满卑弥呼这些 ...</blockquote>
+以后术阶没资格挂ALL了，要把位置让给EX<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然我也觉得应该改良EX阶助战了，厨力强度这阶里的都太多了
+
+
+*****
+
+####  alucardcz  
+##### 81990#       发表于 2021-8-11 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52333924&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-11 21:40</a>
+
+以后术阶没资格挂ALL了，要把位置让给EX
+
+当然我也觉得应该改良EX阶助战了，厨力强度这阶里的都太 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">区别不大 奥某人不能借 你借奥某人意味着你少一个拐
+
+
+
+
+*****
+
+####  angelooo  
+##### 81991#       发表于 2021-8-11 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52333953&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 21:43</a>
+
+区别不大 奥某人不能借 你借奥某人意味着你少一个拐</blockquote>
+我不借他，除了厨力，暴击队的选手没地放了要
+
+虽然好像这人一出，一大堆人都要抛弃暴击队了，这可如何是好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81992#       发表于 2021-8-11 22:01
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 81993#       发表于 2021-8-11 22:01
+
+
+再翻
+
+
+*****
+
+####  yangun22  
+##### 81994#       发表于 2021-8-11 22:03
+
+
+两个点了初始10np的大蛾子能够自己各自一发宝具，然后算上20Np衣服和20初始np的话第三个人只要可以自己冲20np就可以不换人3连宝具，虽然威力比较难说，但是宝具等级够高的话打上三和狂的话也有一定实用性啊
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81995#       发表于 2021-8-11 22:22
+
+
+幕间好像不影响技能 先留着了 以后减半再说
+
+
+                                                
