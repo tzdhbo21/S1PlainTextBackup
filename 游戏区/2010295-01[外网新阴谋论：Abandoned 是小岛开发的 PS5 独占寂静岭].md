@@ -8089,3 +8089,72 @@ Quick update: we are still working on it. We sincerely apologize for the inconve
 
 
                                                  
+
+*****
+
+####  ff2077  
+##### 630#       发表于 2021-8-11 07:39
+
+
+这个abandon也和光荣一样chaos了？
+
+
+
+
+*****
+
+####  Kazepollar  
+##### 631#       发表于 2021-8-11 07:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">越来越感觉最后可能就是个二流恐怖游戏demo，但是故弄玄虚的又加了一堆纸条啊照片啊，解读出来又可以碰瓷kojima了
+
+
+*****
+
+####  wujae  
+##### 632#       发表于 2021-8-11 07:51
+
+
+刚打开一看…这不还是come back soon
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ads147147  
+##### 633#       发表于 2021-8-11 08:09
+
+
+一大早就看到才这点回复就知道是耍猴了。太草了，比当年neil大前辈的花活还不尊重玩家群体。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ky怪  
+##### 634#       发表于 2021-8-11 08:23
+
+
+纯烂活，就算真的是bug一个demo跳了两次还能指望什么成品质量<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  筒井彩芽  
+##### 635#       发表于 2021-8-11 08:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蹭，就硬蹭。
+
+本来以为上一次知道自己玩过头了所以延期来平缓舆论压力，结果没想到期间更变本加厉。
+
+真要是什么mgs或者寂静岭，你索会不让他在发布会上公布？
+
+小岛也不会搞这么low的反反复复遛人玩。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

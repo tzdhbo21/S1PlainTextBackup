@@ -18770,3 +18770,37 @@ Kiara:I always have time for you
 
 
                                                  
+
+*****
+
+####  帆乃花  
+##### 1208#       发表于 2021-8-11 07:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52323639&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-8-11 03:31</a>
+创作力是在是太吓人了，不才过了几个小时？</blockquote>
+可能在直播前就开始画名场面了
+
+
+*****
+
+####  -みゆめ-  
+##### 1209#       发表于 2021-8-11 07:52
+
+
+有没有坛友可以介绍一下takamori这两位？
+
+
+*****
+
+####  wiig  
+##### 1210#       发表于 2021-8-11 09:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52324038&amp;ptid=1989758" target="_blank">-みゆめ- 发表于 2021-8-11 07:52</a>
+
+有没有坛友可以介绍一下takamori这两位？</blockquote>
+没头脑和不高兴
+
+
+                                                 
