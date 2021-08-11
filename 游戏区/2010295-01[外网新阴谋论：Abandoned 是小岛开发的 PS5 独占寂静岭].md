@@ -8382,3 +8382,156 @@ GamesRadar：在参加月底Gamescom的宣传片中提到“Abandon your plans, 
 
 
                                                  
+
+*****
+
+####  ads147147  
+##### 655#       发表于 2021-8-11 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52326279&amp;ptid=2010295" target="_blank">电磁炮233 发表于 2021-8-11 11:27</a>
+
+还是主机玩家善良，这要放有的圈子早被人肉开盒了。。。
+
+
+—— 来自 S1Fun ...</blockquote>
+不是早就被人肉过去看工作室发现没人才让这个阴谋论变得更可信了。
+
+
+结果都在耍猴。
+
+
+*****
+
+####  泉美  
+##### 656#       发表于 2021-8-11 11:37
+
+
+差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  谢俊豪  
+##### 657#       发表于 2021-8-11 11:49
+
+
+敲碗等直播<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  东英零  
+##### 658#       发表于 2021-8-11 11:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没出结果啊，搞毛呢？
+
+
+*****
+
+####  Metropolis  
+##### 659#       发表于 2021-8-11 11:58
+
+
+其实我觉得奥卡姆剃刀这里应该最合适。估计真实情况就是一个很会碰瓷且非常草台的骗子把索尼和玩家都骗了。索尼那边是想骗点独占费同时也吹了什么app宣传的新模式，然后用跟玩家碰瓷的办法把自己名声抬上去，这样才能跟索尼要钱。现在的情况是因为自己实在过于无能所以只能能骗一天是一天。最后结果估计就是躺尸。
+
+也别说索尼不出声是有什么阴谋论，最简单的解释就是堂堂大公司被一个傻逼骗了实在太丢人根本没办法说话。
+
+
+*****
+
+####  芷雅居  
+##### 660#       发表于 2021-8-11 11:59
+
+
+还没修复好啊，bullshit box<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  ssd  
+##### 661#       发表于 2021-8-11 11:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还在折腾是不是sb
+
+
+*****
+
+####  luoyianwu  
+##### 662#       发表于 2021-8-11 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52326671&amp;ptid=2010295" target="_blank">Metropolis 发表于 2021-8-11 11:58</a>
+
+其实我觉得奥卡姆剃刀这里应该最合适。估计真实情况就是一个很会碰瓷且非常草台的骗子把索尼和玩家都骗了。 ...</blockquote>
+对，所以现在reddit分三大派系，除了team real认为真有大作、team fake认为独立游戏骗关注以外，还有team fraud主张Hasan从头到尾就是骗子
+
+但这个理论不能解释Nuare Studio表态真的有在帮Hasan打工
+
+
+*****
+
+####  Metropolis  
+##### 663#       发表于 2021-8-11 12:04
+
+
+ 本帖最后由 Metropolis 于 2021-8-11 12:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52326731&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-11 12:01</a>
+
+对，所以现在reddit分三大派系，除了team real认为真有大作、team fake认为独立游戏骗关注以外，还有team ...</blockquote>
+吴签定律：Hasan拿了索尼的钱转手给了Naure一些做定金呗。也是受害者。
+
+把Hasan换成李某超，索尼换成吴亦凡，Nuare换成都美竹，吃瓜观众还是吃瓜观众，怎么看怎么觉得合适。
+
+
+*****
+
+####  luoyianwu  
+##### 664#       发表于 2021-8-11 12:08
+
+
+ 本帖最后由 luoyianwu 于 2021-8-11 12:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52326754&amp;ptid=2010295" target="_blank">Metropolis 发表于 2021-8-11 12:04</a>
+
+吴签定律：Hasan拿了索尼的钱转手给了Naure一些做定金呗。也是受害者。</blockquote>
+Hasan说过Abandoned预算50万元（还是25万？忘了）。即使索尼出了100%（索尼有出钱本身就值得商榷），就算50万全给Nuare，也很难让Nuare心甘情愿下场证明清白吧。
+
+何况Hasan说[请了七家外包公司](https://twitter.com/bbgamestudios/status/1404935953093853184)
+
+
+*****
+
+####  Metropolis  
+##### 665#       发表于 2021-8-11 12:10
+
+
+ 本帖最后由 Metropolis 于 2021-8-11 12:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52326800&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-11 12:08</a>
+
+Hasan说过Abandoned预算50万美元。即使索尼出了100%（索尼有出钱本身就值得商榷），50万也很难让Nuare心 ...</blockquote>
+他说的自相矛盾的话多了去了，除非给receipt，否则我是不信的。况且N那边还有可能是H骗S去要求发推背书的呢。
+
+
+*****
+
+####  acejoe  
+##### 666#       发表于 2021-8-11 12:11
+
+
+这不就是那个足球骗子么，一场没打却拿了十几年薪水。
+
+
+*****
+
+####  wujae  
+##### 667#       发表于 2021-8-11 12:16
+
+
+这贴里戏比这操蛋的玩意儿有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

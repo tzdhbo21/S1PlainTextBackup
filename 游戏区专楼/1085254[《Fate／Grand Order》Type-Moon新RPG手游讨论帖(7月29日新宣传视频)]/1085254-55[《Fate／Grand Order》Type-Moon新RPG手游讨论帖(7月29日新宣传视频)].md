@@ -11224,3 +11224,19 @@ yls说做一个妖兰花费的精力是正常从者的五倍，是至今最费�
 
 
                                                 
+
+*****
+
+####  exiaexa  
+##### 81846#       发表于 2021-8-11 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52326209&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-11 11:22</a>
+不是红眼黑龙吗？</blockquote>
+完美的时空龙配色啊
+说真红眼估计是因为看zexal的人相对少
+
+<img src="https://p.sda1.dev/2/d00aa63bee072caa4360e88f7f23618f/IMG_CMP_16855526.jpeg" referrerpolicy="no-referrer">
+
+
+                                                 
