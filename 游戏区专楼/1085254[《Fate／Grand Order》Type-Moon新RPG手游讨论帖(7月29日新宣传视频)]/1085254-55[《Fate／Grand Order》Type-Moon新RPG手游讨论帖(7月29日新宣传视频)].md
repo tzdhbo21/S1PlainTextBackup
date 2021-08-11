@@ -13067,3 +13067,136 @@ WTM
 
 
                                                 
+
+*****
+
+####  被子十三  
+##### 81996#       发表于 2021-8-11 22:31
+
+
+这真就一章开了四个限定池啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">吃相是不是有点难看？
+哪怕一个进剧限也好啊
+
+
+*****
+
+####  khxooo  
+##### 81997#       发表于 2021-8-11 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334410&amp;ptid=1085254" target="_blank">被子十三 发表于 2021-8-11 22:31</a>
+这真就一章开了四个限定池啊吃相是不是有点难看？
+哪怕一个进剧限也好啊 ...</blockquote>
+还有马上到来的泳装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81998#       发表于 2021-8-11 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334441&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-11 22:35</a>
+
+还有马上到来的泳装，今年好像只有一个5星和一个4星是常驻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该出5个限定池！ 村正这么活跃居然最后都没复课  合理吗 
+
+
+*****
+
+####  密特里奈斯  
+##### 81999#       发表于 2021-8-11 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334324&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-8-11 22:22</a>
+
+幕间好像不影响技能 先留着了 以后减半再说</blockquote>
+5AP，减半也就省3AP……你不至于吧……
+
+
+*****
+
+####  khxooo  
+##### 82000#       发表于 2021-8-11 22:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334464&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 22:38</a>
+应该出5个限定池！ 村正这么活跃居然最后都没复课  合理吗</blockquote>
+很合理啊，新年再复刻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  密特里奈斯  
+##### 82001#       发表于 2021-8-11 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52333096&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-11 20:29</a>
+
+这奥伯龙一堆新素材看的脑壳痛
+
+又要碎石刷材料了</blockquote>
+奥伯龙吃的又不多，没记错是36+45，本月签到送的还是新材料
+
+我奥伯龙比A狐都早310……离脱离火药地狱还有110个……
+
+
+*****
+
+####  黑上シグマ  
+##### 82002#       发表于 2021-8-11 22:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334410&amp;ptid=1085254" target="_blank">被子十三 发表于 2021-8-11 22:31</a>
+
+这真就一章开了四个限定池啊吃相是不是有点难看？
+
+哪怕一个进剧限也好啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">剧限进了啊，妖高和妖崔
+
+
+*****
+
+####  Jamaisvu  
+##### 82003#       发表于 2021-8-11 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334410&amp;ptid=1085254" target="_blank">被子十三 发表于 2021-8-11 22:31</a>
+
+这真就一章开了四个限定池啊吃相是不是有点难看？
+
+哪怕一个进剧限也好啊 ...</blockquote>
+剧限的话，大概莉姆艾可以当一下。虽然剧情里没战斗模组，但志度内也是直接落地的...
+
+
+*****
+
+####  zore  
+##### 82004#       发表于 2021-8-11 23:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四星这么多能拿出来玩玩的,来来去去都是那几个
+
+
+*****
+
+####  仰望神的括约肌  
+##### 82005#       发表于 2021-8-11 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334477&amp;ptid=1085254" target="_blank">密特里奈斯 发表于 2021-8-11 22:40</a>
+
+5AP，减半也就省3AP……你不至于吧……</blockquote>
+就没去看 以为也是20AP那类的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 82006#       发表于 2021-8-11 23:24
+
+
+讲真这2.6里那些脸熟的妖精都是皮套人，我个人认为姆莉安不会落地，就算落地那也是给樱五填坑的糖果蔓藤而不是她
+
+
+                                                 

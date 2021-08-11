@@ -18949,3 +18949,26 @@ Anya能不能把L2d修好啊</blockquote>
 
 
                                                  
+
+*****
+
+####  -みゆめ-  
+##### 1218#       发表于 2021-8-11 22:49
+
+
+火鸡是直女吗
+
+
+*****
+
+####  wiig  
+##### 1219#       发表于 2021-8-11 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334587&amp;ptid=1989758" target="_blank">-みゆめ- 发表于 2021-8-11 22:49</a>
+
+火鸡是直女吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">不知道你想要什么答案，也不知道你完整问题是啥，皮是gay couple，魂没出柜没结婚不知道是不是
+
+
+                                                 

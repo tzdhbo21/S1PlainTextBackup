@@ -1124,3 +1124,57 @@ https://www.amazon.co.jp/dp/B098T51T7X?tag=nataliecomic-22
 
 
                                                  
+
+*****
+
+####  Piano-Forest  
+##### 102#         楼主| 发表于 2021-8-11 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52333149&amp;ptid=2013091" target="_blank">Dreki 发表于 2021-8-11 20:32</a>
+
+这个字幕是所有地区都有中文么？我日亚还有点钱想直接日亚买了
+
+草，开了个免费会员看了一眼，这玩意是锁区 ...</blockquote>
+日亚的地址上是注明有中文字幕的：
+[https://www.amazon.co.jp/gp/video/detail/B098T4QYZ3/](https://www.amazon.co.jp/gp/video/detail/B098T4QYZ3/)
+
+
+之前的估计是需要日本IP观看？（这些也仅有日语字幕及配音）
+
+
+*****
+
+####  Dreki  
+##### 103#       发表于 2021-8-11 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334419&amp;ptid=2013091" target="_blank">Piano-Forest 发表于 2021-8-11 22:32</a>
+
+日亚的地址上是注明有中文字幕的：
+
+https://www.amazon.co.jp/gp/video/detail/B098T4QYZ3/</blockquote>
+我开了个梯子能看之前的了，IP检查只有点开播放器的时候，开始看了就可以关梯子了了，感觉还行吧
+
+
+*****
+
+####  火星飞船  
+##### 104#       发表于 2021-8-11 22:42
+
+
+羡慕各位不用爬梯就可以看得。
+
+
+*****
+
+####  hahahha  
+##### 105#       发表于 2021-8-11 23:10
+
+
+如无特殊说明应该是日本时间0:00吧
+
+突然发现可以开日亚prime免费体验一个月，明晚白嫖EVA美滋滋<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+                                                 

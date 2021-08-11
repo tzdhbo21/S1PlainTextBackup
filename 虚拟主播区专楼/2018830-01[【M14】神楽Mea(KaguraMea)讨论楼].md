@@ -6112,3 +6112,130 @@ syl，我就不一样了，我从来不嫌tc播的多（
 
 
                                                  
+
+*****
+
+####  makourisu-2  
+##### 566#       发表于 2021-8-11 22:56
+
+
+话说她有没有说过来家里的女人走了没？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 567#       发表于 2021-8-11 22:57
+
+
+没说
+
+
+*****
+
+####  雪风utopia  
+##### 568#       发表于 2021-8-11 23:09
+
+
+那今晚一定是在和野女人缠绵<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 569#       发表于 2021-8-11 23:16
+
+
+野女人？ 家养的！
+
+
+*****
+
+####  makourisu-2  
+##### 570#       发表于 2021-8-11 23:16
+
+
+难道说这两天跟野女人一直在<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+而且还被教会了用玩具，两人搞得房间里到处都是爱的痕迹，所以今天才必须请保洁阿姨来打扫。
+然后眼看着预定的保洁阿姨上门时间到了，两人也迎来分别的时刻，在门口依依不舍，四目相对，此时已不必多言，嘴唇便吻了上去再次开始了缠绵，正当意乱情迷之际，突然保洁阿姨敲门声传来，两人赶快分开，慌忙着红着脸整理衣服，心儿怦怦直跳，一如门外不耐烦的敲门声一样<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|再来十块钱的|
+
+
+查看全部评分
+
+
+
+
+*****
+
+####  Mr.shelter  
+##### 571#       发表于 2021-8-11 23:16
+
+
+是我捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1|来点麻照|
+
+
+查看全部评分
+
+
+*****
+
+####  JY要塞  
+##### 572#       发表于 2021-8-11 23:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">野男人在哪里，发挥点作用啊
+
+
+*****
+
+####  专业划水人员  
+##### 573#       发表于 2021-8-11 23:41
+
+
+男粉打不过女粉，野男人也打不过野女人！呜呜呜
+
+
+*****
+
+####  时间在我手中  
+##### 574#       发表于 2021-8-11 23:43
+
+
+野女人今天就走了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨晚说的
+
+
+*****
+
+####  T_Hb  
+##### 575#       发表于 2021-8-11 23:44
+
+
+没听清<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+昨晚还有人问一起洗澡了吗，她回答的是是还是不是啊
+
+
+                                                
