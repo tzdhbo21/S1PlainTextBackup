@@ -13338,3 +13338,94 @@ Muryan要落估计是纯AI版的了（菌借口：容貌是一样的）
 
 
                                                  
+
+*****
+
+####  AbigailWilliams  
+##### 82016#       发表于 2021-8-12 00:48
+
+
+菌皇要露那么大的纰漏才能让隔壁的意识到这公款追星大概率是写2.6期间突发的自由吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 82017#       发表于 2021-8-12 00:54
+
+
+你妹的谷歌账号被风控了，看来只能暂时放置这个谷歌号了，不幸中的万幸是只充了半单。
+
+
+*****
+
+####  AbigailWilliams  
+##### 82018#       发表于 2021-8-12 00:57
+
+
+不过确实有想到“梅林厨”（谁知道是不是）可能会破防反击，毕竟最近强度方面玩梗+剧情emmmm什么都没干？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  保罗赫伯特  
+##### 82019#       发表于 2021-8-12 01:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335118&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-11 23:48</a>
+
+Muryan要落估计是纯AI版的了（菌借口：容貌是一样的）
+
+
+后面要提防一下剧情里已经出现三种不同立绘+有两 ...</blockquote>
+感觉和大梅芙也没啥区别，除了立绘好看了不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  保罗赫伯特  
+##### 82020#       发表于 2021-8-12 01:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335153&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-11 23:53</a>
+
+很欣慰的看到NGA的大家终于发现蘑菇为了追星把剧情改的一团狗屎。大家是怎么发现的呢？因为有梅林厨忍不住 ...</blockquote>
+之前就有人发现c呆语音和剧情对不上的问题了，有些矛盾怎么也圆不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  ddr  
+##### 82021#       发表于 2021-8-12 01:32
+
+
+艹怎么要吃这么多悠久果实<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82022#       发表于 2021-8-12 01:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334509&amp;ptid=1085254" target="_blank">密特里奈斯 发表于 2021-8-11 22:43</a>
+奥伯龙吃的又不多，没记错是36+45，本月签到送的还是新材料
+
+我奥伯龙比A狐都早310……离脱离火药地狱还有 ...</blockquote>
+你是不是没抽到美露辛
+72x3哪儿还有铃铛
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 82023#       发表于 2021-8-12 01:33
+
+
+翻页
+
+
+                                                
