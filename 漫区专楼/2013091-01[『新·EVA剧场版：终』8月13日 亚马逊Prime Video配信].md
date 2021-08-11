@@ -1060,3 +1060,25 @@ https://www.amazon.co.jp/dp/B098T51T7X?tag=nataliecomic-22
 
 
                                                  
+
+*****
+
+####  20002000  
+##### 96#       发表于 2021-8-11 19:02
+
+
+还有两天就可以看到剑剑了<img src="https://static.saraba1st.com/image/smiley/carton2017/041.png" referrerpolicy="no-referrer">
+
+— from HMD Global Nokia 7 plus, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  何でやねん  
+##### 97#       发表于 2021-8-11 19:17
+
+
+难熬，最近几天又把老tv老剧场版新剧场版翻出来看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

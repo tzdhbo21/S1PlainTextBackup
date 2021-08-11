@@ -12253,3 +12253,474 @@ WTM
 
 
                                                 
+
+*****
+
+####  alucardcz  
+##### 81929#       发表于 2021-8-11 18:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁已经开始为1年后忧郁了  
+
+
+*****
+
+####  angelooo  
+##### 81930#       发表于 2021-8-11 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331443&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 18:32</a>
+
+隔壁已经开始为1年后忧郁了</blockquote>
+现在有没有人后悔抽C呆了，如果没有的话那应该还有得救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  rooarr  
+##### 81931#       发表于 2021-8-11 18:34
+
+标题也改掉
+
+
+ 本帖最后由 rooarr 于 2021-8-11 19:11 编辑 
+
+试试
+
+改改顺序
+
+
+都删掉再看看，感觉是有bug了
+
+
+47_995938.jpg
+(160 KB, 下载次数: )
+
+
+下载附件
+
+
+2006-8-15 10:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/pw/forumid_48/47_995938_QKY2FBbtum2U.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81932#       发表于 2021-8-11 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331453&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-11 18:33</a>
+
+现在有没有人后悔抽C呆了，如果没有的话那应该还有得救</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就不知道了 贴删的有点快 我来不及看 
+
+
+*****
+
+####  awp1111  
+##### 81933#       发表于 2021-8-11 18:36
+
+
+为什么忧郁，第3t的宝威拐蓝卡也能用啊
+
+
+*****
+
+####  任天索尼子  
+##### 81934#       发表于 2021-8-11 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331408&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-11 18:28</a>
+
+傻逼谷歌最近整的新幺蛾子 好像还要验证物理地址了</blockquote>
+这是逼我找代充了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81935#       发表于 2021-8-11 18:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331488&amp;ptid=1085254" target="_blank">awp1111 发表于 2021-8-11 18:36</a>
+
+为什么忧郁，第3t的宝威拐蓝卡也能用啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人犹豫的是又多了张必抽的卡
+
+
+*****
+
+####  KOBI  
+##### 81936#       发表于 2021-8-11 18:38
+
+
+ 本帖最后由 KOBI 于 2021-8-11 18:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">妖兰杀狐奥博龙这以后弓本还要怎么出。。
+
+12面15W血成标配么，3面那伤害太他妈夸张了
+
+然后感觉高宝奥博龙有成为上三泛用解的资质啊。。
+
+
+*****
+
+####  rooarr  
+##### 81937#       发表于 2021-8-11 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331463&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-11 18:34</a>
+
+6加成1宝妖兰的白字伤害打2面不太够啊</blockquote>
+咦，我发的这是啥，怎么自己带了图片还删不掉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81938#       发表于 2021-8-11 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331509&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-11 18:39</a>
+
+咦，我发的这是啥，怎么自己带了图片还删不掉的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用pc端编辑可以删掉 留给你的时间不多了
+
+
+*****
+
+####  rooarr  
+##### 81939#       发表于 2021-8-11 18:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331521&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 18:39</a>
+
+用pc端编辑可以删掉 留给你的时间不多了</blockquote>
+编辑不掉，我就是用pc试了也不行才发帖的
+
+
+*****
+
+####  alucardcz  
+##### 81940#       发表于 2021-8-11 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331530&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-11 18:40</a>
+
+编辑不掉，我就是用pc试了也不行才发帖的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以的啊 我这边可以删掉自己传的图 附件里  不过我图也是pc传的 其他端末就不知道了
+
+
+*****
+
+####  zore  
+##### 81941#       发表于 2021-8-11 18:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有啥好抑郁
+
+不整那些花里胡哨的,抽两张拐,白给的石头绰绰有余
+
+
+*****
+
+####  exiaexa  
+##### 81942#       发表于 2021-8-11 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331499&amp;ptid=1085254" target="_blank">任天索尼子 发表于 2021-8-11 18:37</a>
+
+这是逼我找代充了</blockquote>
+当然是用信用卡啊
+
+随时随地，想冲就冲
+
+
+就是一单贵50~70
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81943#       发表于 2021-8-11 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331540&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 18:41</a>
+
+可以的啊 我这边可以删掉自己传的图 附件里</blockquote>
+平常的可以的，这里这个不行不知道为啥，关键我发贴的时候也没带图啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 81944#       发表于 2021-8-11 18:44
+
+
+我擦，这楼开幕雷击，哥们你拿什么东西传的图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81945#       发表于 2021-8-11 18:46
+
+
+我没看懂他们犹豫个啥
+
+拐必抽的吧，抽完了不就是有什么用什么
+
+真就要一个套路用到死吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81946#       发表于 2021-8-11 18:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331594&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-11 18:46</a>
+
+我没看懂他们犹豫个啥
+
+拐必抽的吧，抽完了不就是有什么用什么
+
+真就要一个套路用到死吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会沉啊 你已经欧到忘记了这游戏没有保底了吗  看看萌新 现在什么都没啊（
+
+
+*****
+
+####  quanlix  
+##### 81947#       发表于 2021-8-11 18:47
+
+
+看人说这宝具增幅只取现在已有的幅度最高的一个buff进行加倍，也就那样吧，至于黑杯，我怎么觉得这应该算个bug？总之踏实攒石头等泳装了
+
+
+*****
+
+####  exiaexa  
+##### 81948#       发表于 2021-8-11 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331598&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 18:46</a>
+
+会沉啊 你已经欧到忘记了这游戏没有保底了吗  看看萌新 现在什么都没啊（ ...</blockquote>
+你看我上上上楼的建议
+
+解决一切问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81949#       发表于 2021-8-11 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331609&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-11 18:47</a>
+
+你看我上上上楼的建议
+
+解决一切问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这时候我建议你看大肠老师的遗作 除非个个都是大肠老师那样的重课 不然还真解决不了问题
+
+
+*****
+
+####  exiaexa  
+##### 81950#       发表于 2021-8-11 18:49
+
+
+用伊吹去试了下666的奥伯龙，T3能砍出190w/3的伤害……
+
+问题是按键太NM多了
+
+
+我选择宝石翁+幻想强化
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81951#       发表于 2021-8-11 18:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这泳装活动后面还能塞个wdl的活动吧,再来个超级印度人复刻
+
+
+*****
+
+####  angelooo  
+##### 81952#       发表于 2021-8-11 18:52
+
+
+大英雄好像进化成了超级大英雄，就算吃了三技能一样会退场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 81953#       发表于 2021-8-11 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331355&amp;ptid=1085254" target="_blank">任天索尼子 发表于 2021-8-11 18:23</a>
+
+充了半单想抽着玩玩 结果显示谷歌余额只能在日本使用 我明明挂了日本梯子还是不行。
+
+
+—— 来自 realme RMX ...</blockquote>
+关机重新挂梯看看
+
+
+还有上谷歌查ip地址在哪里
+
+
+*****
+
+####  alucardcz  
+##### 81954#       发表于 2021-8-11 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331674&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-11 18:52</a>
+
+大英雄好像进化成了超级大英雄，就算吃了三技能一样会退场</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这样奥波龙还不是占了一个位置 白给啊
+
+
+*****
+
+####  zakki  
+##### 81955#       发表于 2021-8-11 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331674&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-11 18:52</a>
+大英雄好像进化成了超级大英雄，就算吃了三技能一样会退场</blockquote>
+结算问题吧，宝具后自杀，回合结束后才赋予自身永久睡眠的效果
+
+
+*****
+
+####  シャル  
+##### 81956#       发表于 2021-8-11 18:54
+
+
+ 本帖最后由 シャル 于 2021-8-11 18:56 编辑 
+
+30连没出，马上护符单抽10张出了哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+6章就只有一位没抽到了
+
+
+微信图片_20210811185422.jpg
+(462.28 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-11 18:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/11/185435e6axqrq46btcx6ta.jpg" referrerpolicy="no-referrer">
+
+
+微信图片_20210811185615.jpg
+(408.24 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-11 18:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/11/185643esgpgsfwpnnqkr0b.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81957#       发表于 2021-8-11 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331716&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-11 18:54</a>
+30连没出，马上护符单抽10张出了哈哈
+
+
+6章就只有一位没抽到了</blockquote>
+常驻，终有一天抽到的。
+
+
+*****
+
+####  ddr  
+##### 81958#       发表于 2021-8-11 19:00
+
+
+仅剩的120抽的第118抽出了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  扑克脸军曹  
+##### 81959#       发表于 2021-8-11 19:05
+
+
+这拐很强？不是很想抽
+
+
+*****
+
+####  AbigailWilliams  
+##### 81960#       发表于 2021-8-11 19:09
+
+
+现在这情况，yls是不是要把盐川的40w黑呆再掏出来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  承尘  
+##### 81961#       发表于 2021-8-11 19:09
+
+
+这数据膨胀的越来越离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  任天索尼子  
+##### 81962#       发表于 2021-8-11 19:11
+
+
+余额还是没法氪金，烦死了。
+
+
+*****
+
+####  里村紅葉  
+##### 81963#       发表于 2021-8-11 19:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331768&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-11 18:58</a>
+
+常驻，终有一天抽到的。</blockquote>
+还以为你说奥伯龙常驻，吓我一大跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                               
