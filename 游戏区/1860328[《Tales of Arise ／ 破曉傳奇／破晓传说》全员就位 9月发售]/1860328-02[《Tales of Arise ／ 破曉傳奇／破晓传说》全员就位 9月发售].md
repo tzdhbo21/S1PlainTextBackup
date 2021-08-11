@@ -10530,3 +10530,28 @@ https://youtu.be/Cu4FvGClWBM
 
 
                                                  
+
+*****
+
+####  火红之眼  
+##### 2277#       发表于 2021-8-11 09:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52324504&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-11 09:03</a>
+仍然是强制锁定，对锁定敌人的方向动作吸附还在
+
+只是因为取消多人游戏后解放了右摇杆改变视角的功能而已（ ...</blockquote>
+锁定后还能在一条线上的话那应该还好，等demo实际看看了
+演示除了目标标记也没看出锁没锁的样子，韩版演示加的滚滚boss倒是各种视野外丢失目标，一对着砍就歪到了侧面<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zero12  
+##### 2278#       发表于 2021-8-11 10:21
+
+
+只能希望正式玩起来不要三步一黑屏了.......
+
+
+                                                 

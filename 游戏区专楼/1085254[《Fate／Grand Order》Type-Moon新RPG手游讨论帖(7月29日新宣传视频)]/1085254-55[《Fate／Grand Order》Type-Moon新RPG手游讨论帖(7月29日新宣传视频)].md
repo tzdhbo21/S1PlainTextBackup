@@ -11075,3 +11075,75 @@ Oberon某种意义上算是别的手游常见的那种偏设圈的角色了
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 81834#       发表于 2021-8-11 09:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52320483&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-10 21:32</a>
+我很现实,没充能就不抽了.</blockquote>
+1，2技能就是70充了，你肯定要抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 81835#       发表于 2021-8-11 09:43
+
+
+我就不想抽，这章最反感的角色
+
+
+*****
+
+####  zakki  
+##### 81836#       发表于 2021-8-11 09:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52318787&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-10 19:37</a>
+
+平心而论，我觉得妖兰更用心一点
+
+不知道DW和TM内部是怎么分配的</blockquote>
+yls说做一个妖兰花费的精力是正常从者的五倍，是至今最费时的从者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81837#       发表于 2021-8-11 09:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52324972&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-11 09:44</a>
+
+yls说做一个妖兰花费的精力是正常从者的五倍，是至今最费时的从者</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说太废物了 除了三技能的效果外剩下和普通从者没什么区别吧 难道那三个简易灵衣也算上了么
+
+
+*****
+
+####  里村紅葉  
+##### 81838#       发表于 2021-8-11 09:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52325058&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-11 09:51</a>
+
+只能说太废物了 除了三技能的效果外剩下和普通从者没什么区别吧 难道那三个简易灵衣也算上了么 ...</blockquote>
+可能码农搞不定双宝具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 81839#       发表于 2021-8-11 09:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52325075&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-11 09:53</a>
+
+可能码农搞不定双宝具</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看来各种角色的羁绊资料里的第二宝具通过强化本实装的可能性更低了
+
+
+                                                 

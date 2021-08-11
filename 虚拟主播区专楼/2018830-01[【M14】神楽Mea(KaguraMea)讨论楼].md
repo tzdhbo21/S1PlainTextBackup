@@ -5638,3 +5638,72 @@ ptr的嘉宾环节结束了，并没有你咩姐<img src="https://static.saraba1
 
 
                                                  
+
+*****
+
+####  T_Hb  
+##### 519#       发表于 2021-8-11 09:46
+
+
+肚子痛还播那么久，然后播完还去打游戏，年轻的肉体太强力了
+
+
+*****
+
+####  makourisu-2  
+##### 520#       发表于 2021-8-11 10:11
+
+
+昨晚播完又去打游戏了嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 521#       发表于 2021-8-11 10:15
+
+
+人生不如意之事十有九九，如果都要忍受何时是尽头，不如来一场硬碰硬，哪怕对手是自己
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 522#       发表于 2021-8-11 10:25
+
+
+今天晚上休息一下来个tc就完美了
+
+
+*****
+
+####  时间在我手中  
+##### 523#       发表于 2021-8-11 10:27
+
+
+昨晚竟然没TC我是比较意外的）
+
+
+*****
+
+####  T_Hb  
+##### 524#       发表于 2021-8-11 10:32
+
+
+昨天下那么晚，还忙着去打瓦罗，怎么会有TC<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那得凌晨开台了
+
+
+*****
+
+####  雪风utopia  
+##### 525#       发表于 2021-8-11 10:40
+
+
+都多久没有tc了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

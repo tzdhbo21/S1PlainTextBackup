@@ -8158,3 +8158,72 @@ Quick update: we are still working on it. We sincerely apologize for the inconve
 
 
                                                 
+
+*****
+
+####  Marsoy  
+##### 636#       发表于 2021-8-11 09:23
+
+
+什么玩意啊，一个demo都能折腾这么久？我看是压根没有吧，这个SB工作室见一次喷一次
+
+
+*****
+
+####  新八  
+##### 637#       发表于 2021-8-11 09:26
+
+
+还是我机智，直接睡了等着起来看结果 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ifeinano  
+##### 638#       发表于 2021-8-11 09:34
+
+
+围观社死现场
+
+
+*****
+
+####  heseran  
+##### 639#       发表于 2021-8-11 09:55
+
+
+笑死了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  小泉花陽  
+##### 640#       发表于 2021-8-11 10:01
+
+
+还没修好吗，这demo延期延了个寂寞啊
+
+
+*****
+
+####  mashav  
+##### 641#       发表于 2021-8-11 10:11
+
+
+这也太拉了吧
+
+
+*****
+
+####  Eadric  
+##### 642#       发表于 2021-8-11 10:14
+
+
+哄堂大笑了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

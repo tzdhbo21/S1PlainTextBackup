@@ -821,3 +821,14 @@ MB这玩意就凸出一个题材，很多人说价格太贵，但你真拿一个
 
 
                                                
+
+*****
+
+####  fuzzytuzi  
+##### 63#       发表于 2021-8-11 10:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就邪门，PB不是订多少生产多少，搞什么售罄？
+
+
+                                                 
