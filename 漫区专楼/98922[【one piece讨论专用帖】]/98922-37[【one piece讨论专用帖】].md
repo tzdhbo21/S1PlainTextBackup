@@ -17563,3 +17563,29 @@ BIG MOM那些儿女们还在海里漂着呢？
 
 
                                                  
+
+*****
+
+####  天使的日曜日  
+##### 55467#       发表于 2021-8-11 14:48
+
+
+实在不懂尾田不给主角团配霸气的理由，搞得六子都掉价成不用霸气不会霸气了，皇团高干就这？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sungoldy  
+##### 55468#       发表于 2021-8-11 15:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 海贼王这四皇是草台论的最佳体现吧，
+
+
+统治大海的一极就这样？ 
+
+
+就算不知道五老星和世界政府要如何表现出卧龙凤雏的实力了。
+
+
+                                                 
