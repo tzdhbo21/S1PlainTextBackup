@@ -11147,3 +11147,80 @@ yls说做一个妖兰花费的精力是正常从者的五倍，是至今最费�
 
 
                                                  
+
+*****
+
+####  angelooo  
+##### 81840#       发表于 2021-8-11 10:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52324972&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-11 09:44</a>
+
+yls说做一个妖兰花费的精力是正常从者的五倍，是至今最费时的从者</blockquote>
+然而什么时候能搞定开技能变三破穿的是灵衣啊，如果不解决这个我就默认那个红黑配色的灵衣是欺诈了
+
+
+
+
+*****
+
+####  angelooo  
+##### 81841#       发表于 2021-8-11 10:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52324961&amp;ptid=1085254" target="_blank">quanlix 发表于 2021-8-11 09:43</a>
+
+我就不想抽，这章最反感的角色</blockquote>
+说实在的，这章节实装的角色，我觉得就妖高和小裁缝塑造比较好，然而妖高不在我的xp范围内……
+
+
+*****
+
+####  exiaexa  
+##### 81842#       发表于 2021-8-11 10:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52325649&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-11 10:41</a>
+
+然而什么时候能搞定开技能变三破穿的是灵衣啊，如果不解决这个我就默认那个红黑配色的灵衣是欺诈了 ...</blockquote>
++1
+
+搓了条银河眼时空龙给我然后告诉我100充没了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 81843#       发表于 2021-8-11 11:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就对这种自我意识过足没什么B想法
+
+
+*****
+
+####  khxooo  
+##### 81844#       发表于 2021-8-11 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52325728&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-11 10:46</a>
++1
+
+搓了条银河眼时空龙给我然后告诉我100充没了</blockquote>
+不是红眼黑龙吗？
+
+
+*****
+
+####  里村紅葉  
+##### 81845#       发表于 2021-8-11 11:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52325649&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-11 10:41</a>
+
+然而什么时候能搞定开技能变三破穿的是灵衣啊，如果不解决这个我就默认那个红黑配色的灵衣是欺诈了 ...</blockquote>
+我怀疑他们搞不定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

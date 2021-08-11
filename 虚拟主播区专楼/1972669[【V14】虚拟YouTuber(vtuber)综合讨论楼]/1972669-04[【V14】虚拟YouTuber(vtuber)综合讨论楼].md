@@ -15306,3 +15306,31 @@ http://youtu.be/uJyr6V8W5JA
 
 
                                                  
+
+*****
+
+####  渡鸦骑士  
+##### 5737#       发表于 2021-8-11 11:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52322148&amp;ptid=1972669" target="_blank">-みゆめ- 发表于 2021-8-10 23:25</a>
+
+我也清楚是营业所以用的是“这两位”不是“这一对”
+
+
+mori看起来真的好直女，但是火鸡看起来又有点姬？ ...</blockquote>
+不知道你有没有看过以前的夏色吹雪。火鸡作为铁血holo人，这一套基本学的马自立的。核心就是一边疯狂贴，另一边半推半就。偶尔在对面出轨的时候吐槽生气展露点小在意。
+
+这种营业很单方面所以维持起来也基本只靠一边<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 5738#       发表于 2021-8-11 11:10
+
+
+其实这算anti发言吗...？不就只是普通文句嘛。
+
+
+                                                 

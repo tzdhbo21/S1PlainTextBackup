@@ -8227,3 +8227,158 @@ Quick update: we are still working on it. We sincerely apologize for the inconve
 
 
                                                  
+
+*****
+
+####  zris  
+##### 643#       发表于 2021-8-11 10:43
+
+
+说是上架了
+
+叫The Haunting？
+
+
+*****
+
+####  谢俊豪  
+##### 644#       发表于 2021-8-11 10:48
+
+
+《Abandoned》开发商BLUE BOX game studios新作早期体验版已上架PSN，steam已上架6个月
+
+目前游戏在steam为大多差评状态，steam版开发和发行商为CREATEQ interactive。
+
+The Haunting：Blood Water Curse
+
+
+*****
+
+####  zris  
+##### 645#       发表于 2021-8-11 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52325760&amp;ptid=2010295" target="_blank">谢俊豪 发表于 2021-8-11 10:48</a>
+
+《Abandoned》开发商BLUE BOX game studios新作早期体验版已上架PSN，steam已上架6个月
+
+目前游戏在steam为 ...</blockquote>
+这是什么鬼？
+
+玩尬的？
+
+
+*****
+
+####  DTCPSS  
+##### 646#       发表于 2021-8-11 10:54
+
+
+就是个旧 PC 游戏上 PS 吗
+
+
+*****
+
+####  FanKiE  
+##### 647#       发表于 2021-8-11 10:59
+
+
+整这么多活最后就是把一个多半差评的冷饭搬上来？？真的假的？<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新八  
+##### 648#       发表于 2021-8-11 11:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 不会吧，这活比我想象的最烂的程度还要烂吗
+
+
+*****
+
+####  luoyianwu  
+##### 649#       发表于 2021-8-11 11:08
+
+
+ 本帖最后由 luoyianwu 于 2021-8-11 11:14 编辑 
+
+[https://infinitestart.com/2021/0 ... e-box-game-studios/](https://infinitestart.com/2021/06/the-haunting-blood-water-curse-appears-on-playstation-5-leading-to-more-questions-about-blue-box-game-studios/)
+
+The Haunting: Blood Water Curse是Blue Box的旧作，不是新作。这个作品今年六月就因不明原因上架PSN了，是跟Abandoned本身没有关系的另一企划。
+
+Hasan说已经将其交由另一工作室制作，但这里面又涉及一些Hasan一人分饰多角的谜团，就不细谈了。
+
+一言蔽之，现在和Sony、寂静岭、岛哥哥、Nuare、Geoff Keighley、GamesRadar交缠不清的是Abandoned，不是The Haunting
+
+
+*****
+
+####  zris  
+##### 650#       发表于 2021-8-11 11:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+这藏着掖着
+
+
+不说以为是可以结束主机战争的大作
+
+
+*****
+
+####  C男  
+##### 651#       发表于 2021-8-11 11:20
+
+
+厂家钓鱼玩，一堆没事干的闲人抢着咬钩<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Young21  
+##### 652#       发表于 2021-8-11 11:26
+
+
+demo还没有演示？还在修？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  luoyianwu  
+##### 653#       发表于 2021-8-11 11:27
+
+
+ 本帖最后由 luoyianwu 于 2021-8-11 11:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52326027&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-11 11:08</a>
+[https://infinitestart.com/2021/0](https://infinitestart.com/2021/0) ... e-box-game-studios/
+
+The Haunting: Blood Water Curse是Blue Box的 ...</blockquote>
+补充：
+
+与Sony的关系：参加了Sony的独立游戏合作项目、在PS Blog发文、由吉田修平多次提起、明明是独立游戏却自称运用了PS5的各种新机能。Sony对Blue Box多次delay的行为从未表态
+
+Konami：Blue Box宣称Abandoned的正式名称S开头L结尾、一向最喜欢发寂静岭碰瓷游戏警告函的konami没有动作、konami shop同一时间大肆宣传寂静岭纪念周边、konami参加本月Gamescom并发表新游戏、很多人怀疑Abandoned会延到8/12，就是PT当年上线的日子
+
+岛哥哥：Blue Box宣称自己和岛哥哥没有半点关系，和幻痛那时如出一辙。岛哥哥工作室给Hasan说自己不是岛哥哥的视频点过赞。把Hasan的姓Kahramen丢进google翻译会变成Hideo。岛哥哥工作室前几年雇佣了ARG专家
+
+Nuare：参与Abandoned制作的大手外包公司CEO下场力挺Blue Box，宣传Blue Box是自己的朋友，尽管Abandoned制作经费只有50万。Nuare在推上把关注人清理了一遍，留下了十几个，里面就有Blue Box
+
+曾经帮岛哥哥演幻痛的老朋友Geoff Keighley：在阴谋论初期于neogaf论坛上发布Hasan私信记录，帮Abandoned炒热气氛，也自称被他放鸽子。
+
+GamesRadar：在参加月底Gamescom的宣传片中提到“Abandon your plans, this is the future of games（之类的）”，并随后确认Abandoned会参加Gamescom环节。Gamescom是岛哥哥经常发片的场合，幻痛及死亡搁浅都有上过
+
+
+*****
+
+####  电磁炮233  
+##### 654#       发表于 2021-8-11 11:27
+
+
+还是主机玩家善良，这要放有的圈子早被人肉开盒了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

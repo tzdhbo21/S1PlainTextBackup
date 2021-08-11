@@ -10555,3 +10555,37 @@ https://youtu.be/Cu4FvGClWBM
 
 
                                                  
+
+*****
+
+####  zhouzongxing  
+##### 2279#       发表于 2021-8-11 11:01
+
+
+试玩准备试试，年轻人第一款传说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+以前碰过仙乐，受不了那战斗系统和方框对话
+
+
+*****
+
+####  奈奈未喵  
+##### 2280#       发表于 2021-8-11 11:03
+
+
+已预购 ps5已就位 快点来吧
+
+
+
+
+*****
+
+####  iqeq  
+##### 2281#       发表于 2021-8-11 11:25
+
+
+传说系列必须支持的
+
+
+                                                
