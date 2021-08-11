@@ -8693,3 +8693,28 @@ Blue Box表示在修了
 
 
                                                  
+
+*****
+
+####  heseran  
+##### 682#       发表于 2021-8-12 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334019&amp;ptid=2010295" target="_blank">阿布都督 发表于 2021-08-11 21:50:50</a>
+这营销也太弱智了，我看twitter下面很多人都失去耐心开始嘴臭了</blockquote>猴被逗恼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  maiyunfei  
+##### 683#       发表于 2021-8-12 00:06
+
+
+第一次跳票就该痛骂他们了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

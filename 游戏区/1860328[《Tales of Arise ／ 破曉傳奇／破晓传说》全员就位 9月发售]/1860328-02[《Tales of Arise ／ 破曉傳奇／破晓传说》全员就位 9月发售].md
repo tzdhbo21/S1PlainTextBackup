@@ -10589,3 +10589,36 @@ https://youtu.be/Cu4FvGClWBM
 
 
                                                 
+
+*****
+
+####  LT_Harry  
+##### 2282#         楼主| 发表于 2021-8-12 00:11
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/001101a4m4nb4449tvot4o.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (110.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 00:11 上传
+
+
+用了副账号购买，希望发售当天能正常共享给其他账户使用。
+
+
+*****
+
+####  heseran  
+##### 2283#       发表于 2021-8-12 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52325393&amp;ptid=1860328" target="_blank">zero12 发表于 2021-08-11 10:21:50</a>
+只能希望正式玩起来不要三步一黑屏了.......</blockquote>没换硬盘的ps4已经在害怕了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+                                                 

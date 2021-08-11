@@ -13200,3 +13200,141 @@ WTM
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 82007#       发表于 2021-8-11 23:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334910&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-11 23:24</a>
+讲真这2.6里那些脸熟的妖精都是皮套人，我个人认为姆莉安不会落地，就算落地那也是给樱五填坑的糖果蔓藤而 ...</blockquote>
+我也这么认为，毕竟樱战队人气比她高太多了，你看看称姆利安屑AI的云玩家就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">，她和狐狸这次的剧情比其他人都让我喜欢。虽然狐狸搞事，但是在临终前对姆利安说的话真的很暖。
+
+
+*****
+
+####  白金口袋  
+##### 82008#       发表于 2021-8-11 23:33
+
+
+石头和护符全抽干都没出货，泳装再您麻的见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 82009#       发表于 2021-8-11 23:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334609&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-11 22:52</a>
+
+剧限的话，大概莉姆艾可以当一下。虽然剧情里没战斗模组，但志度内也是直接落地的... ...</blockquote>
+Muryan要落估计是纯AI版的了（菌借口：容貌是一样的）
+
+
+后面要提防一下剧情里已经出现三种不同立绘+有两整张单人CG的Knocknarea突然落地，毕竟剧情里莫名其妙卖了下ML总不可能是借机抬梅芙人气吧，搞个小梅芙不就是为了照顾某些阿宅的癖好吗
+
+
+*****
+
+####  cckuku  
+##### 82010#       发表于 2021-8-11 23:53
+
+
+很欣慰的看到NGA的大家终于发现蘑菇为了追星把剧情改的一团狗屎。大家是怎么发现的呢？因为有梅林厨忍不住出来骂街了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大家为了反驳魔怔梅林厨开始辩剧情，结果越辩越发现这剧情就是圆不上，只好理中客的说：不要骂角色，都是蘑菇的错，一切等蘑菇补完剧情<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 82011#       发表于 2021-8-11 23:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331861&amp;ptid=1085254" target="_blank">扑克脸军曹 发表于 2021-8-11 19:05</a>
+
+这拐很强？不是很想抽</blockquote>
+看使用条件的，必须是最后一击必杀，或者能自杀的
+
+
+奥伯龙3技能增幅爆炸，连黑圣杯都能增幅<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+捕获.JPG
+(103.37 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-11 23:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/11/235620bh54411cibgp44zj.jpg" referrerpolicy="no-referrer">
+
+
+捕获1.JPG
+(132.98 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-11 23:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/11/235621rto9qjj1ot1juzcj.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 82012#       发表于 2021-8-12 00:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334509&amp;ptid=1085254" target="_blank">密特里奈斯 发表于 2021-8-11 22:43</a>
+
+奥伯龙吃的又不多，没记错是36+45，本月签到送的还是新材料
+
+我奥伯龙比A狐都早310……离脱离火药地狱还有 ...</blockquote>
+奥伯龙的素材很友好，使用数量又少，手上的肯定够的
+
+
+*****
+
+####  シャル  
+##### 82013#       发表于 2021-8-12 00:01
+
+
+ 本帖最后由 シャル 于 2021-8-12 00:08 编辑 
+
+不愧是杀生院安徒生，一眼就看出奥伯龙的真实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+现在月之杀生院，安徒生，术呆，剑黑呆，摩根，杀狐狸对奥伯龙有特殊语音
+
+
+*****
+
+####  シャル  
+##### 82014#       发表于 2021-8-12 00:13
+
+
+双狐奥贝龙周回可行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 82015#       发表于 2021-8-12 00:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335338&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-11 10:13</a>
+
+双狐奥贝龙周回可行</blockquote>
+可以做到的吗？！对宝具有要求吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

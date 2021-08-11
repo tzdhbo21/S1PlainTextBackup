@@ -15784,3 +15784,30 @@ https://youtu.be/4493CGfmgsU来看花花的儿童雨衣
 
 
                                                  
+
+*****
+
+####  GT2  
+##### 5775#       发表于 2021-8-11 23:59
+
+
+ 本帖最后由 GT2 于 2021-8-12 00:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52329020&amp;ptid=1972669" target="_blank">free 发表于 2021-8-11 15:17</a>
+https://www.youtube.com/watch?v=eMwSNu1SRwo
+
+センシチブ作家だらけのお絵かき伝言ゲーム大会！#センシチ ...</blockquote>
+要我说上次请的阵容更强，这次主要都是画比较涩图的那种，不得不说画力高的来玩这个真的是赏心悦目
+顺便ぽち。老师的声音真好听<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+然后放出预告，下期阵容是几个管人妈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家熟悉的那几个都在
+
+
+*****
+
+####  GT2  
+##### 5776#       发表于 2021-8-12 00:01
+
+
+ライフ老师出了个简单粗暴的题目性感黄兔子，几位纷纷本领发挥，太强了
+
+
+                                                 
