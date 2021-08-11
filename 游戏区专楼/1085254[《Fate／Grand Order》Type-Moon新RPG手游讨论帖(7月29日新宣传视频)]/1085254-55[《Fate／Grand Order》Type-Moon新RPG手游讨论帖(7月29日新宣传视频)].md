@@ -11695,3 +11695,561 @@ c呆复刻 岳母 摩根 傻狐狸 又来个.</blockquote>
 
 
                                                 
+
+*****
+
+####  exiaexa  
+##### 81886#       发表于 2021-8-11 17:30
+
+
+吐了吐了，连续7个十连都是瞬间结束
+
+两宝跑路
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81887#       发表于 2021-8-11 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330563&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 17:19</a>
+哪里有妖兰 你怎么还能穿越抽卡的</blockquote>
+妖崔，打错了
+
+
+*****
+
+####  Jamaisvu  
+##### 81888#       发表于 2021-8-11 17:32
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-11 18:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330644&amp;ptid=1085254" target="_blank">suibiankk 发表于 2021-8-11 17:25</a>
+
+这个用完技能可以用衣服换人不</blockquote>
+梦之落幕 EX
+
+充能时间：10→9→8
+
+己方单体的Buster指令卡性能提升(1回合)
+
+30%        32%        34%        36%        38%
+
+40%        42%        44%        46%        50%
+
+付与宝具伤害提升增大状态&lt;宝具伤害提升状态的效果量暂时增大的状态·不可重复•与宝具威力提升效果乘算&gt;(1回合)
+
+50%        55%        60%        65%        70%
+
+75%        80%        85%        90%        100%
+
+付与「回合结束时解除自身的强化状态
+
+∅
+
+付与〔永久睡眠〕状态&lt;耐性无效·无法解除·无法被选为活祭·无法Order Change(交换)&gt;
+
+∅
+
+付与目标集中状态(3回合)」的状态(1次)&lt;耐性无效·无法解除&gt;【负面效果】
+
+
+不能哦，只能等他被对面打死...
+
+但是因为前两个技能可以充能70（赊20），三技能100宝威，作为拐的能力还是非常强的，决战用或者刷BUFF打伤害蛮强的。
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81889#       发表于 2021-8-11 17:33
+
+
+灵脉石它又双叒叕延长了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  awp1111  
+##### 81890#       发表于 2021-8-11 17:34
+
+
+这睡眠是给上了buff的打手还是他自己？
+
+
+*****
+
+####  Jamaisvu  
+##### 81891#       发表于 2021-8-11 17:35
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-11 17:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330696&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-11 17:29</a>
+
+这技能明显就是为了三面，毕竟用完就赖在场上不走了</blockquote>
+想起剧情里用奥伯龙的关卡，要等他被打死才能结束。（毕竟也打不过对面...）
+
+
+搞不好会出现奥伯龙抖M的梗了...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81892#       发表于 2021-8-11 17:36
+
+
+灵脉石这玩意儿就MD智障
+
+你当过图道具，每章结束给几个不就行了
+
+
+角神这种反人类BOSS一眼就知道是让大部分玩家消费灵脉石的，还非要藏着掖着显得多高贵一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 81893#       发表于 2021-8-11 17:39
+
+
+30连礼节性意思一下，没出，再见<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Jamaisvu  
+##### 81894#       发表于 2021-8-11 17:40
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-11 18:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330758&amp;ptid=1085254" target="_blank">awp1111 发表于 2021-8-11 17:34</a>
+
+这睡眠是给上了buff的打手还是他自己？</blockquote>
+打手睡眠。不同于换人拐陈宫，是传说中的废人拐。
+
+如果buff狂阶的话，三回合嘲讽换人还是挺快的...
+
+
+*****
+
+####  exiaexa  
+##### 81895#       发表于 2021-8-11 17:41
+
+
+WTM
+
+这个灵基解放任务
+
+进去就是三管血，第一条17w
+
+狗粮阵容直接把我吓跑了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 81896#       发表于 2021-8-11 17:41
+
+
+<img src="https://p.sda1.dev/2/a1c723ec7d289286e447475777aeec66/IMG_CMP_69508458.jpeg" referrerpolicy="no-referrer">
+一般
+能申请把其中一个换成妖兰吗<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 81897#       发表于 2021-8-11 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330846&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-11 17:41</a>
+
+WTM
+
+这个灵基解放任务
+
+进去就是三管血，第一条17w</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快点适应，说不定以后的周回就是这个形状了
+
+
+*****
+
+####  zakki  
+##### 81898#       发表于 2021-8-11 17:43
+
+
+沉了，4宝妖高1宝妖崔<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 81899#       发表于 2021-8-11 17:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥博龙这三技能，不出意外感觉最优解是卡70级当高难红卡插件绑定嘲讽礼装让对面一回合直接送下去吧，这赖着场上不走了还行
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  exiaexa  
+##### 81900#       发表于 2021-8-11 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330867&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-11 17:43</a>
+
+快点适应，说不定以后的周回就是这个形状了</blockquote>
+玩意儿打起来比剧情的奥伯龙恶心多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  angelooo  
+##### 81901#       发表于 2021-8-11 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330874&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-11 17:44</a>
+
+奥博龙这三技能，不出意外感觉最优解是卡70级当高难红卡插件绑定嘲讽礼装让对面一回合直接送下去吧 ...</blockquote>
+我没抽所以在云，看到他们说这技能用完赖场上的不是奥伯龙而是那个被他使用了技能的打手？那不只能三面或者柱子OTK了
+
+
+*****
+
+####  eden_hazard  
+##### 81902#       发表于 2021-8-11 17:54
+
+
+ 本帖最后由 eden_hazard 于 2021-8-11 17:59 编辑 
+
+6个十一连，1正版宝石翁1妖崔第五宝1奥伯龙，按出卡高兴程度排名。已经可以满破两张宝石翁了，不过第二张暂时不满破，再等一张牌
+
+
+*****
+
+####  qb0079  
+##### 81903#       发表于 2021-8-11 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330718&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-11 17:32</a>
+
+梦之落幕 EX
+
+充能时间：10→9→8
+
+己方单体的Buster指令卡性能提升(1回合)</blockquote>
+三技能不是100宝威，是宝威翻倍，包括黑杯给的宝威
+
+
+*****
+
+####  黑上シグマ  
+##### 81904#       发表于 2021-8-11 17:57
+
+
+<blockquote>引用第81901楼eden_hazard于2021-08-11 17:54发表的  :
+
+60个十一连，1正版宝石翁1妖崔1奥伯龙，按出卡高兴程度排名</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">……不是6是60？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  alucardcz  
+##### 81905#       发表于 2021-8-11 17:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330874&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-11 17:44</a>
+
+奥博龙这三技能，不出意外感觉最优解是卡70级当高难红卡插件绑定嘲讽礼装让对面一回合直接送下去吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">然而吃debuff的是打手
+
+
+*****
+
+####  alucardcz  
+##### 81906#       发表于 2021-8-11 17:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来萌新即将要成为本楼唯一一个即没有杀狐也没有奥某人的了（明天23点了最终决战 
+
+
+*****
+
+####  Jamaisvu  
+##### 81907#       发表于 2021-8-11 17:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330990&amp;ptid=1085254" target="_blank">qb0079 发表于 2021-8-11 17:54</a>
+
+三技能不是100宝威，是宝威翻倍，包括黑杯给的宝威</blockquote>
+原来如此，那就更强了，相当于是独立于“宝具威力提升”这个攻击buff的新增幅，不是加而是乘。
+
+
+*****
+
+####  exiaexa  
+##### 81908#       发表于 2021-8-11 18:00
+
+
+打完了，不难但是恶心
+
+你们记得带必中礼装
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 81909#       发表于 2021-8-11 18:00
+
+
+梦之落幕EX  ×
+
+
+八门夜凯A+++  ✓
+
+
+*****
+
+####  rooarr  
+##### 81910#       发表于 2021-8-11 18:00
+
+
+一单出了赶紧跑，等泳装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81911#       发表于 2021-8-11 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331080&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-11 18:00</a>
+
+一单出了赶紧跑，等泳装了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕 这次萌新估计是彻底无了
+
+
+*****
+
+####  eden_hazard  
+##### 81912#       发表于 2021-8-11 18:04
+
+
+ 本帖最后由 eden_hazard 于 2021-8-11 18:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331027&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-11 17:57</a>
+
+……不是6是60？
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+想着60连又想起来现在一次11连结果打错了，真60就要我命了
+
+
+*****
+
+####  rollingusagi  
+##### 81913#       发表于 2021-8-11 18:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331031&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-08-11 17:57:47</a>
+然而吃debuff的是打手</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这，那感觉就是五宝大佬刷伤害的玩具啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  xiongxingyu  
+##### 81914#       发表于 2021-8-11 18:06
+
+
+不错，第三发11连双黄了，不枉我妖兰4宝抽了700多发还歪了个小恩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81915#       发表于 2021-8-11 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331095&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 18:01</a>
+欧羡慕 这次萌新估计是彻底无了</blockquote>
+还有新年福袋双黄，不急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  v22325  
+##### 81916#       发表于 2021-8-11 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331070&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-11 18:00</a>
+
+打完了，不难但是恶心
+
+你们记得带必中礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用了三发令咒随便过了 反正不用白不用
+
+
+*****
+
+####  alucardcz  
+##### 81917#       发表于 2021-8-11 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331184&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-11 18:07</a>
+
+还有新年福袋双黄，不急
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我福袋除了伯爵就没中过我想要的
+
+
+*****
+
+####  当光停止  
+##### 81918#       发表于 2021-8-11 18:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小伙伴们纷纷表示明年fgo是不是要跑路了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也挺好奇就剩个2.7了，怎么再续下去。
+
+
+*****
+
+####  Jamaisvu  
+##### 81919#       发表于 2021-8-11 18:11
+
+
+奥卑龙：只有红魔放可以吗，不过宝威是致死量哦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+昏睡作成！虫龙化的妖精<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 81920#       发表于 2021-8-11 18:12
+
+
+礼貌性扔10个护符走人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 81921#       发表于 2021-8-11 18:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331226&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-8-11 18:11</a>
+
+小伙伴们纷纷表示明年fgo是不是要跑路了。
+
+我也挺好奇就剩个2.7了，怎么再续下去。 ...</blockquote>
+应该会不停地出各种支线吧，带圣杯那种...樱井东出星空轮番主笔，蘑菇当个特别嘉宾或者纯监制啥的...
+
+
+2.7完结是蘑菇说的，但六周年把养成上限抬这么高，我就很不解...估计是让氪佬倾泻资源吧，说不定以后金方块也能换圣杯了...
+
+
+*****
+
+####  都谷捻柏  
+##### 81922#       发表于 2021-8-11 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331053&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 17:59</a>
+
+看来萌新即将要成为本楼唯一一个即没有杀狐也没有奥某人的了（明天23点了最终决战 
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">250抽，什么都没有，我过了一个充实的六周年，充实到想删游戏了
+
+
+*****
+
+####  cckuku  
+##### 81923#       发表于 2021-8-11 18:17
+
+
+艾蕾强了有没有三天啊？就又被妖兰一拳打下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 81924#       发表于 2021-8-11 18:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还在充钱，索爹可不管菌爹答不答应关服
+
+
+*****
+
+####  alucardcz  
+##### 81925#       发表于 2021-8-11 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331277&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-11 18:15</a>
+
+250抽，什么都没有，我过了一个充实的六周年，充实到想删游戏了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天24点我大概就能来陪你了
+
+
+*****
+
+####  任天索尼子  
+##### 81926#       发表于 2021-8-11 18:23
+
+
+充了半单想抽着<img src="https://p.sda1.dev/2/120f2f85aed7638e4065a9c1e880a9e9/IMG_CMP_260166025.jpeg" referrerpolicy="no-referrer">玩玩 结果显示谷歌余额只能在日本使用 我明明挂了日本梯子还是不行。
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  eyeego  
+##### 81927#       发表于 2021-8-11 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330874&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-11 17:44</a>
+奥博龙这三技能，不出意外感觉最优解是卡70级当高难红卡插件绑定嘲讽礼装让对面一回合直接送下去吧 ...</blockquote>
+自带嘲讽 虽然只有1t<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eyeego  
+##### 81928#       发表于 2021-8-11 18:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331355&amp;ptid=1085254" target="_blank">任天索尼子 发表于 2021-8-11 18:23</a>
+充了半单想抽着玩玩 结果显示谷歌余额只能在日本使用 我明明挂了日本梯子还是不行。
+
+—— 来自 realme RMX ...</blockquote>
+傻逼谷歌最近整的新幺蛾子 好像还要验证物理地址了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                

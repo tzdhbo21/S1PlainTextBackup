@@ -17589,3 +17589,21 @@ BIG MOM那些儿女们还在海里漂着呢？
 
 
                                                  
+
+*****
+
+####  zxzx7753  
+##### 55469#       发表于 2021-8-11 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52329032&amp;ptid=98922" target="_blank">sungoldy 发表于 2021-8-11 15:18</a>
+海贼王这四皇是草台论的最佳体现吧，
+
+
+统治大海的一极就这样？ </blockquote>
+团庆的时候1/5人突然谋反   换哪个组织都顶不住吧
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

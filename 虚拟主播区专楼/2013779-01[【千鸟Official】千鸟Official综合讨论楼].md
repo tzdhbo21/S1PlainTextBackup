@@ -2461,3 +2461,18 @@ https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web
 
 
                                                  
+
+*****
+
+####  天邪鬼  
+##### 219#       发表于 2021-8-11 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52329557&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-8-11 16:04</a>
+鹅都女皇是什么?文静直播间大多数炸弹我都看不懂了，跟不上版本了</blockquote>
+红都女皇，江青啊。是不是之前林biao的有军衔所以不说，现在这个涉及到知识盲区，她以为是武则天啊
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
