@@ -13429,3 +13429,78 @@ Muryan要落估计是纯AI版的了（菌借口：容貌是一样的）
 
 
                                                 
+
+*****
+
+####  exiaexa  
+##### 82024#       发表于 2021-8-12 01:48
+
+
+ 本帖最后由 exiaexa 于 2021-8-12 01:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335153&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-11 23:53</a>
+很欣慰的看到NGA的大家终于发现蘑菇为了追星把剧情改的一团狗屎。大家是怎么发现的呢？因为有梅林厨忍不住 ...</blockquote>
+该来的总会来，隔壁流程高度相似的ff14 5.0本来全方位吹爆，最后5.3也绷不住了，垫脚垫得丧心病狂
+更何况2.6这坨全方位低配版
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不如说屎黄色作为国内最大的ff14玩家集中地，在二刺螈玩家如此容易重叠的情况下，居然到现在才有人出来骂这弱智的2.6，我也不知道该说什么好
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 82025#       发表于 2021-8-12 02:01
+
+
+大佬们有推荐靠谱的代充平台吗
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  AbigailWilliams  
+##### 82026#       发表于 2021-8-12 02:10
+
+
+ 本帖最后由 AbigailWilliams 于 2021-8-12 02:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335891&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 01:48</a>
+
+该来的总会来，隔壁流程高度相似的ff14 5.0本来全方位吹爆，最后5.3也绷不住了，垫脚垫得丧心病狂
+
+更何况 ...</blockquote>
+
+有没有可能是fgo版的人数在那边已经重叠不了多少了呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 82027#       发表于 2021-8-12 02:12
+
+
+ 本帖最后由 AbigailWilliams 于 2021-8-12 02:13 编辑 
+
+不过从结果来看，起码垫出来的成果菌皇应该是满意的，流水人气双丰收啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  cckuku  
+##### 82028#       发表于 2021-8-12 02:16
+
+
+2.6为了给蘑菇追星真的牺牲了太多，我一想到奥博龙有可能把妖兰的ml剧情给挤没了我就好不爽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stefanie张  
+##### 82029#       发表于 2021-8-12 02:31
+
+
+MD妖兰和奥伯龙我都不是喜欢的类型，但是宝具动画好帅啊。
+
+
+                                                 
