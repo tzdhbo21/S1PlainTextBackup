@@ -11263,3 +11263,435 @@ yls说做一个妖兰花费的精力是正常从者的五倍，是至今最费�
 
 
                                                  
+
+*****
+
+####  仰望神的括约肌  
+##### 81849#       发表于 2021-8-11 16:46
+
+
+手握数张呼符整装待发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81850#       发表于 2021-8-11 17:01
+
+
+奥某人来了。。
+
+什么活动才能入池 需要剧情才能入池 在yls眼里这算事？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 81851#       发表于 2021-8-11 17:03
+
+
+这妖高和妖崔复刻也太快了，没别的能放了应该，还不如把帕西瓦尔一起放进去算了……
+
+
+*****
+
+####  alucardcz  
+##### 81852#       发表于 2021-8-11 17:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前面的朋友脸疼吗 你们啊 这是太高看yls了  人家哪会想这么多 卡池还需要理由吗
+
+
+*****
+
+####  angelooo  
+##### 81853#       发表于 2021-8-11 17:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330285&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 17:01</a>
+
+奥某人来了。。
+
+什么活动才能入池 需要剧情才能入池 在yls眼里这算事？ ...</blockquote>
+什么，你对yls还有期待？当年252撕了武藏两张图鉴，之后还不是该up就up，该强化就强化
+
+恰饭比较要紧，剧情体验有个p关系？
+
+
+*****
+
+####  rooarr  
+##### 81854#       发表于 2021-8-11 17:04
+
+
+光速沉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81855#       发表于 2021-8-11 17:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330326&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-11 17:04</a>
+
+光速沉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是红拐哦  虽然只能做一发男
+
+
+*****
+
+####  alucardcz  
+##### 81856#       发表于 2021-8-11 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330319&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-11 17:04</a>
+
+什么，你对yls还有期待？当年252撕了武藏两张图鉴，之后还不是该up就up，该强化就强化
+
+恰饭比较要紧，剧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是回错人了 我一直都说卡池肯定直接来 哪需要什么铺垫
+
+
+*****
+
+####  rooarr  
+##### 81857#       发表于 2021-8-11 17:06
+
+
+好像是红拐啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 81858#       发表于 2021-8-11 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330285&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 17:01</a>
+
+奥某人来了。。
+
+什么活动才能入池 需要剧情才能入池 在yls眼里这算事？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">然而终破要打完2.6才行.....在恶心玩家这点上yls还是有一手的
+
+
+*****
+
+####  angelooo  
+##### 81859#       发表于 2021-8-11 17:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330351&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 17:06</a>
+
+你是不是回错人了 我一直都说卡池肯定直接来 哪需要什么铺垫</blockquote>
+我就是针对铺垫这种说法23333
+
+没事了，话说这满破姿势是不是和狂那撞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  当光停止  
+##### 81860#       发表于 2021-8-11 17:07
+
+
+日，这骗氪几连了。
+
+c呆复刻 岳母 摩根 傻狐狸 又来个.
+
+
+*****
+
+####  AbigailWilliams  
+##### 81861#       发表于 2021-8-11 17:07
+
+
+看样子拐力应该也是强但没c呆那种强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟伤害红卡我感觉不会缺。当然现在是云的，打脸再说
+
+
+*****
+
+####  rooarr  
+##### 81862#       发表于 2021-8-11 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330348&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 17:05</a>
+
+是红拐哦  虽然只能做一发男</blockquote>
+晚点来一单吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不能缺了拐
+
+
+*****
+
+####  阿提拉  
+##### 81863#       发表于 2021-8-11 17:08
+
+
+这3技能...该怎么用才好
+
+
+*****
+
+####  alucardcz  
+##### 81864#       发表于 2021-8-11 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330385&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-11 17:08</a>
+
+晚点来一单吧不能缺了拐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这3技能只有1回合放完直接废掉一个位置 不能换人 只能拿来打最面 感觉不太行
+
+
+*****
+
+####  白金口袋  
+##### 81865#       发表于 2021-8-11 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330375&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-8-11 03:07</a>
+
+日，这骗氪几连了。
+
+c呆复刻 岳母 摩根 傻狐狸 又来个.</blockquote>
+摩根狐狸中间还有个妖兰
+
+榨得实在有点狠，9月还有泳装在那摆着呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81866#       发表于 2021-8-11 17:10
+
+
+我吐了，我谷歌半天识别不出来更新版本
+
+最后硬是去找朋友发了个apk给我
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 81867#       发表于 2021-8-11 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330403&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 17:09</a>
+
+这3技能只有1回合放完直接废掉一个位置 不能换人 只能拿来打最面 感觉不太行 ...</blockquote>
+红卡本来就不在乎伤害啊，np跟上就行了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 81868#       发表于 2021-8-11 17:16
+
+
+战果汇报：6呼符，1妖崔，1蛾子
+完毕
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  exiaexa  
+##### 81869#       发表于 2021-8-11 17:16
+
+
+有句港剧，虽然有心理准备
+
+但是这大扑棱蛾子画风跳出来的一瞬间还是
+
+心脏骤停
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 81870#       发表于 2021-8-11 17:16
+
+
+妖兰get ，等妖高单up <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  alucardcz  
+##### 81871#       发表于 2021-8-11 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330487&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-11 17:15</a>
+
+红卡本来就不在乎伤害啊，np跟上就行了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换人的话3面伤害应该爆炸了  有30自充就能无脑3连了  
+
+
+*****
+
+####  黑上シグマ  
+##### 81872#       发表于 2021-8-11 17:18
+
+
+<blockquote>引用第81869楼khxooo于2021-08-11 17:16发表的  :
+
+妖兰get ，等妖高单up ，奥伯龙你不要过来求求你了</blockquote>
+醒醒，哪儿来妖兰
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  仰望神的括约肌  
+##### 81873#       发表于 2021-8-11 17:19
+
+
+11呼符+30石get 后面的卡面还要打完幕间才给<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 81874#       发表于 2021-8-11 17:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330514&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-11 17:16</a>
+
+妖兰get ，等妖高单up ，奥伯龙你不要过来求求你了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪里有妖兰 你怎么还能穿越抽卡的
+
+
+*****
+
+####  sosgame67  
+##### 81875#       发表于 2021-8-11 17:20
+
+
+90石头一宝，跑路跑路<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 81876#       发表于 2021-8-11 17:20
+
+
+奥伯龙这人气就离谱
+<img src="https://p.sda1.dev/2/d34872f291a32e96febd7b14cf577a1f/IMG_20210811_171939.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 81877#       发表于 2021-8-11 17:23
+
+
+奥伯龙这待遇，金皮卡该过来叫爷爷了
+
+神他吗灵基解放任务
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOBI  
+##### 81878#       发表于 2021-8-11 17:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大暴死，700石+20符才抽到
+
+狐狸欧的部分全吐回去了。。提前跟今年泳装说再见
+
+
+*****
+
+####  Jamaisvu  
+##### 81879#       发表于 2021-8-11 17:24
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-11 17:26 编辑 
+
+为什么非得把那身白沙发套当做一破立绘呢...就不能给点惊喜，额外做个新立绘当三破吗，大概是约稿时没多要吧......
+
+
+当然道满也是剧情里三个阶段的立绘全出了才落地的，奥卑龙用奈落虫形态当三破也能理解......
+
+
+不过技能名感觉怪怪的，一个虫子精用这么文艺的技能。如果三破形态技能名都换成阴森诡异版就更带感了，反正2.6主线里也各种换技能名字（加雷斯和帕西瓦尔）。可惜YLS偷懒了，蘑菇怎么有种管生不管养的既视感......
+
+
+总的来说不算太满意，新职业为了平衡，克制面也一般，传说中克制万物的三技能也不存在...如果三技能除了红放宝威，再加一个职业相性改为克制选定敌方就好了...
+
+
+另外虽然充电很快，宝威100很厉害，但是没法当炮台，用完技能就是拖油瓶活累赘...（要不给他一个骑士的矜持让其能快速被打死好啦）
+
+
+*****
+
+####  suibiankk  
+##### 81880#       发表于 2021-8-11 17:25
+
+
+这个用完技能可以用衣服换人不
+
+
+*****
+
+####  alucardcz  
+##### 81881#       发表于 2021-8-11 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330644&amp;ptid=1085254" target="_blank">suibiankk 发表于 2021-8-11 17:25</a>
+
+这个用完技能可以用衣服换人不</blockquote>
+不能
+
+
+*****
+
+####  v22325  
+##### 81882#       发表于 2021-8-11 17:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">70 奥伯龙1 妖崔2 妖高1 海贼1
+
+
+*****
+
+####  suibiankk  
+##### 81883#       发表于 2021-8-11 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52330651&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-11 17:26</a>
+
+不能</blockquote>
+那这东西实用吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 81884#       发表于 2021-8-11 17:27
+
+
+艹这池子，居然还有人类的高文和崔悲伤
+
+
+*****
+
+####  angelooo  
+##### 81885#       发表于 2021-8-11 17:29
+
+
+这技能明显就是为了三面，毕竟用完就赖在场上不走了
+
+
+                                                
