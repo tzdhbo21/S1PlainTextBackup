@@ -2413,3 +2413,17 @@ https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web
 
 
                                                  
+
+*****
+
+####  天邪鬼  
+##### 215#       发表于 2021-8-11 13:09
+
+
+别炸了别炸了，她怎么别的都看得出来，鹅都女皇看不出来
+我擦，我不好说。野心不小啊
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

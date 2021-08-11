@@ -5754,3 +5754,28 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 
 
                                                  
+
+*****
+
+####  yuugi  
+##### 412#       发表于 2021-8-11 12:55
+
+
+ 本帖最后由 yuugi 于 2021-8-11 12:57 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/11/125522nhhpxs38brfrlxdr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-11-13-53-34-479_game.qualiarts.idolypride.jpg</strong> (204.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-8-11 12:55 上传
+
+
+原来你游是有NPC的
+
+
+                                                 

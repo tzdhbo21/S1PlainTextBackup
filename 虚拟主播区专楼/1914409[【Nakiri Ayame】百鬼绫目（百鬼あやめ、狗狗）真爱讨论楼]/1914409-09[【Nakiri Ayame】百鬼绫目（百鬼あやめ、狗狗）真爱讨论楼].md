@@ -10184,3 +10184,34 @@ syl 不打LOL还有宝可梦集结<img src="https://static.saraba1st.com/image/s
 
 
                                                  
+
+*****
+
+####  stedckk  
+##### 12883#       发表于 2021-8-11 13:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家练好歹有点成果，阿绫练了跟没练一样，骗谁呢
+
+
+*****
+
+####  因为你不会  
+##### 12884#       发表于 2021-8-11 13:42
+
+
+绫总填腹亿饼，一定是老师有问题
+
+
+*****
+
+####  stmule  
+##### 12885#       发表于 2021-8-11 14:04
+
+
+绫楼都10000＋了，这是不是快第二楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
