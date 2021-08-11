@@ -10622,3 +10622,18 @@ https://youtu.be/Cu4FvGClWBM
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2284#         楼主| 发表于 2021-8-12 02:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335386&amp;ptid=1860328" target="_blank">heseran 发表于 2021-8-12 00:19</a>
+没换硬盘的ps4已经在害怕了
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+看演示视频，PS4 没坏的话各种载入淡入淡出时长都在勉强能忍受的水平，当然 PS5 版确实特别快。
+
+
+                                                 

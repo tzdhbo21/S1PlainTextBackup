@@ -8718,3 +8718,70 @@ Blue Box表示在修了
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 684#       发表于 2021-8-12 02:50
+
+
+[https://twitter.com/BBGameStudios/status/1425526737677467652](https://twitter.com/BBGameStudios/status/1425526737677467652) <blockquote>We are still working to resolve the issue we are facing. We wanted to remind you that we are a small studio without the wide resources to quickly resolve an issue. We want to deliver a highly polished product and a good representation of the game that functions as intended.
+
+We won't be delaying the patch to a specific date, but release it as soon as we have resolved it. On behalf of the BBGS Team and everyone involved with Abandoned, we thank you for the patience and apologize deeply for the inconvenience.</blockquote>
+大意：我们还在修。我们好穷，弄东西很慢的，谢谢耐心等待。我们修好一定立马上线，不会特意拖到某个日期
+
+
+*****
+
+####  920619lqy  
+##### 685#       发表于 2021-8-12 03:25
+
+
+感觉可以作为耍猴营销的失败案例了
+
+
+*****
+
+####  Metropolis  
+##### 686#       发表于 2021-8-12 03:32
+
+
+又开始卖惨说自己是小作坊，搞不定所以无限期延后了。不是之前还说有七家大公司制作支持么？散了吧。雾件无疑的。
+
+
+Screen Shot 2021-08-11 at 2.29.01 PM.png
+(185.43 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-12 03:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/032913kqyqcglclq6ffgqs.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Metropolis  
+##### 687#       发表于 2021-8-12 03:58
+
+
+BBGS之前众筹的游戏也是游戏预告遇到“技术性问题”拖延最后变雾件的。
+
+
+Screen Shot 2021-08-11 at 2.56.39 PM.png
+(163.9 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-12 03:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/035648eff90l02dkam92ll.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -13504,3 +13504,20 @@ MD妖兰和奥伯龙我都不是喜欢的类型，但是宝具动画好帅啊。
 
 
                                                  
+
+*****
+
+####  LOLITA  
+##### 82030#       发表于 2021-8-12 04:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335932&amp;ptid=1085254" target="_blank">任天索尼子 发表于 2021-8-12 02:01</a>
+
+大佬们有推荐靠谱的代充平台吗
+
+
+—— 来自 realme RMX2072, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+用过一阵子月下，不过8个月没在他家充过了，现在都是自己买ios礼品卡
+
+
+                                                 
