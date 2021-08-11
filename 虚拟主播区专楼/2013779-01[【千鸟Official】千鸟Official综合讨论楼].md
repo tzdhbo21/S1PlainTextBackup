@@ -2427,3 +2427,37 @@ https://www.bilibili.com/video/BV1KM4y1M7hu?share_source=copy_web
 
 
                                                  
+
+*****
+
+####  丢了五块钱  
+##### 216#       发表于 2021-8-11 15:43
+
+
+中午那高强度啥b，确实听不进去了
+
+
+*****
+
+####  夜潇箫  
+##### 217#       发表于 2021-8-11 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52327583&amp;ptid=2013779" target="_blank">天邪鬼 发表于 2021-8-11 13:09</a>
+别炸了别炸了，她怎么别的都看得出来，鹅都女皇看不出来
+我擦，我不好说。野心不小啊</blockquote>
+鹅都女皇是什么?文静直播间大多数炸弹我都看不懂了，跟不上版本了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  袜子  
+##### 218#       发表于 2021-8-11 16:21
+
+
+有些炸弹真的是很老了，而且属实底层文化，文静能集齐这么些炸弹也真是够难得的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
