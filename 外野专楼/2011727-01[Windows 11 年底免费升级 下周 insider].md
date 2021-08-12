@@ -6172,3 +6172,19 @@ Windows 8和8.1都是靠Classic Shell过的
 
 
                                                  
+
+*****
+
+####  V5Style  
+##### 512#       发表于 2021-8-13 01:18
+
+
+ 本帖最后由 V5Style 于 2021-8-13 01:20 编辑 
+
+132推送了，主要就是更新了内置的截图工具（之前的两个版本都被砍了）、计算器（多了绘图功能）、邮件和日历，然后修复了一些bug。
+[https://blogs.windows.com/window ... ers-for-windows-11/](https://blogs.windows.com/windows-insider/2021/08/12/first-set-of-windows-app-updates-rolling-out-to-windows-insiders-for-windows-11/)
+
+这版依然没有模拟器。
+
+
+                                                 

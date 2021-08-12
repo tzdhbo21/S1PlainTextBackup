@@ -9018,3 +9018,22 @@ Abandon all hope
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 708#       发表于 2021-8-13 01:23
+
+
+ 本帖最后由 luoyianwu 于 2021-8-13 01:24 编辑 
+
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p33z1e](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p33z1e)
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p34029](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p34029)
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p34cx9](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p34cx9)
+
+半小时前多名玩家在PSN接到Hasan私信，表示It's coming
+
+Hasan一直有在PSN上回复玩家私信的习惯
+
+
+                                                 
