@@ -15909,3 +15909,118 @@ kmm带人有一手的
 
 
                                                  
+
+*****
+
+####  huanshen  
+##### 5784#       发表于 2021-8-12 17:35
+
+
+ 本帖最后由 huanshen 于 2021-8-12 17:38 编辑 
+
+羽柴是一月诊断出失聪，按照医生建议治疗修养了一个多月。现在怕不是病情又复发了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+要我看774最大的问题就是没有杏那么丰厚的收入和偶像梦控脑文化，能让失聪的人强忍着病情排练上live，还能随便播啥都能收月供收到麻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 5785#       发表于 2021-8-12 17:42
+
+
+RKS堂堂复活！
+
+
+*****
+
+####  IDIDIDID  
+##### 5786#       发表于 2021-8-12 17:42
+
+
+辛苦兔姨为了饭碗忍了这么久了
+
+
+*****
+
+####  flyskywalker92  
+##### 5787#       发表于 2021-8-12 17:43
+
+
+rks复活还行
+
+
+*****
+
+####  alcoholic1000  
+##### 5788#       发表于 2021-8-12 17:47
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-12 17:54 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/174551gz26p6sz462is4im.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>【#しずりんソロイベント 開催決定！】.jpeg</strong> (482.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 17:45 上传
+
+
+补个图，凛前辈新3D
+
+全編3D但RKS不属于ライブパートゲスト，那3D大概是没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer"> 
+
+
+2021/9/11(土)Zepp Nagoyaにて、
+
+静凛(@ShizuRin23)初のソロイベント『Rin Shizuka Solo Event "Recollection"』開催決定！
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/174746cblquxqxx4nqy4uq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>Rin Shizuka Solo Event &amp;quot;Recollection&amp;quot;.jpeg</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 17:47 上传
+
+
+*****
+
+####  死体残留  
+##### 5789#       发表于 2021-8-12 17:49
+
+
+什么event 这么多嘉宾的么
+
+
+*****
+
+####  祸猫  
+##### 5790#       发表于 2021-8-12 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338465&amp;ptid=1972669" target="_blank">free 发表于 2021-8-12 10:55</a>
+你说的是 鷹森ツヅル？最近一段时间动的不多，偶尔有几次弹唱回
+
+
+https://www.youtube.com/channel/UCTNq ...</blockquote>
+嗯，是他
+
+
+
+
+*****
+
+####  FCCHua  
+##### 5791#       发表于 2021-8-12 18:09
+
+
+原来凛先辈在憋大的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+                                                

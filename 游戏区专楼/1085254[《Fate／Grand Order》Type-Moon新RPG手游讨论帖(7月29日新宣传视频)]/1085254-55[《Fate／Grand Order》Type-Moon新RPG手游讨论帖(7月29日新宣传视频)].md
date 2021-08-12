@@ -14959,3 +14959,198 @@ md我寻思第一部分灌水灌这么狠dw屁都没放一个，到大高潮了�
 
 
                                                  
+
+*****
+
+####  rollingusagi  
+##### 82137#       发表于 2021-8-12 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342838&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-08-12 16:37:03</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">按最新竹掃日记的说法，摩根就是个怀有美好梦想的个小公主，想要创造一个童话般美好的国度，但是现实就是一路吃瘪但为了理想始终没放弃，其实看托内利克时期她本来是没想当统治者的，是打算辅佐乌瑟成王后就回阿瓦隆了，结果戴冠式惨案留下严重心理阴影后直接破罐子破摔了，选择当暴君统治妖精国，但这小公主其实根本不会当暴君，或者说她不会和手下沟通，她之前巡礼时也是一股脑想到啥就上，然后队友们也被迫着跟她一起上，狗狗被策反，妖崔理解错她话的意思，完全就是她没好好沟通的证明
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  枪聆弹语  
+##### 82138#       发表于 2021-8-12 17:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">A-1 小太刀随便找一个拉，飞碟目测高攀不起了
+
+
+*****
+
+####  exiaexa  
+##### 82139#       发表于 2021-8-12 17:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343544&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-12 17:29</a>
+按最新竹掃日记的说法，摩根就是个怀有美好梦想的个小公主，想要创造一个童话般美好的国度，但是现 ...</blockquote>
+md怎么又是竹帚牌擦屁股纸
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这屁股还不如不擦，现在连公务员都当不了了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 82140#       发表于 2021-8-12 17:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343449&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-8-12 17:22</a>
+
+奶点未来的事，比如如果2.6动画化找谁背锅</blockquote>
+虽然我希望铁鱼复刻，但应该不太现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  森兰丸  
+##### 82141#       发表于 2021-8-12 17:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343544&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-12 17:29</a>
+
+按最新竹掃日记的说法，摩根就是个怀有美好梦想的个小公主，想要创造一个童话般美好的国度，但是现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">那么集奸诈阴险恶毒与一身的泛人类史摩根如果知道自己好不容易被召唤一次....以自身为代价给传输知识的异闻带的自己是个傻白甜会是什么想法呢
+
+
+*****
+
+####  rollingusagi  
+##### 82142#       发表于 2021-8-12 17:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343653&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-08-12 17:37:41</a>
+那么集奸诈阴险恶毒与一身的泛人类史摩根如果知道自己好不容易被召唤一次....以自身为代价给传输知识的异 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">反正本来就是三位一体，一句这个异闻带摩根只有薇薇安的一面就完事了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  exiaexa  
+##### 82143#       发表于 2021-8-12 17:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343449&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-8-12 17:22</a>
+奶点未来的事，比如如果2.6动画化找谁背锅</blockquote>
+那当然是找冈妈
+反正都一团乱麻了再整点刺激的炒股，反正只要保证奥伯龙不动就会有人吹
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82144#       发表于 2021-8-12 17:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">1。6动画做成这样你们还指望2。6？
+
+
+*****
+
+####  シャル  
+##### 82145#       发表于 2021-8-12 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343773&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 17:45</a>
+
+1。6动画做成这样你们还指望2。6？</blockquote>
+有小太刀参与不要指望有好货
+
+
+*****
+
+####  angelooo  
+##### 82146#       发表于 2021-8-12 17:55
+
+
+蘑菇自己都分三章了然后到时候整三个剧场版，全有小太刀，那可真是画美不看
+
+
+*****
+
+####  風卷豹  
+##### 82147#       发表于 2021-8-12 17:59
+
+
+想了一下，咕哒喊着“人类的觉悟”暴揍奥伯龙，奥伯龙和月厨一起露出好像吃到了X的表情，这场景太赞了（？
+
+
+*****
+
+####  exiaexa  
+##### 82148#       发表于 2021-8-12 17:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343681&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-12 17:39</a>
+
+反正本来就是三位一体，一句这个异闻带摩根只有薇薇安的一面就完事了
+
+
+  -- 来自 能搜索的 Stage1官 ...</blockquote>
+虽然老福这次已经敲定泛人类史的摩根也是三位一体，但是如果真的能再敲一次微微安确实是摩根的话
+
+
+旧剑在FP的故事就相当刺激了
+
+毕竟纱条姐妹老娘跟薇薇安就有关系
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 82149#       发表于 2021-8-12 18:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先来后到，建议先动画武藏那些破事先
+
+
+*****
+
+####  AbigailWilliams  
+##### 82150#       发表于 2021-8-12 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52344099&amp;ptid=1085254" target="_blank">枪聆弹语 发表于 2021-8-12 18:13</a>
+先来后到，建议先动画武藏那些破事先</blockquote>
+不是菌皇写的也配动画化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qb0079  
+##### 82151#       发表于 2021-8-12 18:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小太刀脚本+小山恭正的音效
+
+人类的觉悟，然后开始打铁、爆音、放鞭炮
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道有什么好期待的
+
+
+*****
+
+####  rollingusagi  
+##### 82152#       发表于 2021-8-12 18:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343961&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-08-12 17:59:28</a>
+虽然老福这次已经敲定泛人类史的摩根也是三位一体，但是如果真的能再敲一次微微安确实是摩根的话
+
+
+旧剑在 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fp算泛人类史的话，那应该还是三位一体那位吧，2.6的这位倒是实锤是薇薇安了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+                                                
