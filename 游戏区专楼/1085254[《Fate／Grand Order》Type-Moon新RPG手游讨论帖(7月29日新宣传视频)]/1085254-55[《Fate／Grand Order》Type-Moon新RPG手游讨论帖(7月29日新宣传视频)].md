@@ -15154,3 +15154,35 @@ md怎么又是竹帚牌擦屁股纸
 
 
                                                 
+
+*****
+
+####  森兰丸  
+##### 82153#       发表于 2021-8-12 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52344180&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-12 18:21</a>
+
+fp算泛人类史的话，那应该还是三位一体那位吧，2.6的这位倒是实锤是薇薇安了
+
+
+  -- 来自 能搜索的 S ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">然而这个薇薇安当初可是对诂哒放话说的明明白白的....要以自己的异闻带为起点侵略咕哒的泛人类史和别的世界
+
+
+当然现在我的想法就是就你也配？和咕哒交涉时就安安分分的满足于自己的异闻带那和加勒底也不会有矛盾....说不定还能继续再统治个几千年
+
+
+*****
+
+####  rollingusagi  
+##### 82154#       发表于 2021-8-12 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52344346&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-08-12 18:35:11</a>
+然而这个薇薇安当初可是对诂哒放话说的明明白白的....要以自己的异闻带为起点侵略咕哒的泛人类史和别的世 ...</blockquote>就是纯口嗨，现在来看摩根光是管理这个异闻带就已经拼了老命了，一离玉座整个妖精国直接崩，哪还有空去搞侵略
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+                                                 

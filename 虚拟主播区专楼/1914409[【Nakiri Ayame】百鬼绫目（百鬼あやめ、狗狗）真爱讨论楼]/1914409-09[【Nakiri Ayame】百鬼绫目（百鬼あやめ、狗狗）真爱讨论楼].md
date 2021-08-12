@@ -10345,3 +10345,45 @@ syl，再见宣言都八百万了，完全没想到这视频播放一路可以�
 
 
                                                  
+
+*****
+
+####  我不是很好  
+##### 12897#       发表于 2021-8-12 18:40
+
+
+800万确实有点吓人。
+
+
+*****
+
+####  一仙  
+##### 12898#       发表于 2021-8-12 18:47
+
+
+不知道可不可以建出一个千万播放的奇观出来，这才不到三个月
+
+
+*****
+
+####  stedckk  
+##### 12899#       发表于 2021-8-12 19:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次的新歌估计还不如King
+
+
+*****
+
+####  stedckk  
+##### 12900#       发表于 2021-8-12 19:09
+
+
+ 本帖最后由 stedckk 于 2021-8-12 19:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总推特转了个盗图的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始组装新电脑了
+
+
+                                                 
