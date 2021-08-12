@@ -1587,3 +1587,391 @@ Amazon  Prime Videoで本日24時（13日0時）から配信です
 
 
                                                  
+
+*****
+
+####  downfall  
+##### 143#       发表于 2021-8-12 12:42
+
+
+中文是4v，这是引进无望了？
+
+
+*****
+
+####  戏言学者  
+##### 144#       发表于 2021-8-12 12:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339984&amp;ptid=2013091" target="_blank">downfall 发表于 2021-8-12 12:42</a>
+
+中文是4v，这是引进无望了？</blockquote>
+这两件事有什么关系吗。。如果真要引进还是原版配音吧，而且国内重新做一套中文配音也没啥难度。
+
+
+*****
+
+####  notqiao  
+##### 145#       发表于 2021-8-12 12:47
+
+
+“你是笨蛋啦”
+
+
+听上头了
+
+
+*****
+
+####  索马里的小明  
+##### 146#       发表于 2021-8-12 12:51
+
+
+前几个月假药吃的有点多，现在有点害怕起来了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  戏言学者  
+##### 147#       发表于 2021-8-12 12:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52340052&amp;ptid=2013091" target="_blank">notqiao 发表于 2021-8-12 12:47</a>
+
+“你是笨蛋啦”
+
+
+听上头了</blockquote>
+“我就说我知道啦啦啦啦啦啦啦！！”
+
+
+*****
+
+####  huge_cat  
+##### 148#       发表于 2021-8-12 12:54
+
+
+希望其他区域能够跟日本同步放送
+
+
+*****
+
+####  onemoment  
+##### 149#       发表于 2021-8-12 12:55
+
+
+终于要来了
+
+
+*****
+
+####  LRS2376852435  
+##### 150#       发表于 2021-8-12 12:55
+
+
+草，弯弯配音有点上头，到时候看弯弯版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+*****
+
+####  戏言学者  
+##### 151#       发表于 2021-8-12 12:58
+
+
+整个预告片唯一能听的外语配音竟然是韩国的香香<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LLLLLuB  
+##### 152#       发表于 2021-8-12 12:59
+
+
+弯弯配音太对味了，要笑死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  戏言学者  
+##### 153#       发表于 2021-8-12 13:00
+
+
+<strong>剑剑我来啦！！</strong>
+
+<img src="https://img.saraba1st.com/forum/202108/12/125947upyprpjlr3qyevoz.png" referrerpolicy="no-referrer">
+
+
+<strong>111.png</strong> (85.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 12:59 上传
+
+
+*****
+
+####  Bojenkins  
+##### 154#       发表于 2021-8-12 13:04
+
+
+不管正片如何，终会有人被清算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  takitaki  
+##### 155#       发表于 2021-8-12 13:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">我先观望几天
+
+
+*****
+
+####  炮轰行星拳  
+##### 156#       发表于 2021-8-12 13:09
+
+
+ 本帖最后由 炮轰行星拳 于 2021-8-12 13:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339675&amp;ptid=2013091" target="_blank">重巡羊舰 发表于 2021-8-12 12:19</a>
+
+来了来了，吵了那么久，该见分晓了，是剑剑赢了，还是香党永不为奴，这回应该不能用你云电影懂个p来说了吧 ...</blockquote>
+决战！
+
+
+皇国兴亡在此一举！
+
+
+*****
+
+####  钱君  
+##### 157#       发表于 2021-8-12 13:25
+
+
+一般都有新加坡，有新加坡就有简中
+
+
+*****
+
+####  suhanblood  
+##### 158#       发表于 2021-8-12 13:31
+
+
+话说我买的中亚prime是不是一点用处都没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjk  
+##### 159#       发表于 2021-8-12 13:48
+
+
+感觉日亚即便调了画质选项也给我放低画质的，也不加载，只好等放流了
+
+
+*****
+
+####  fddf  
+##### 160#       发表于 2021-8-12 14:08
+
+
+等资源了，多少年的等待，就在这一刻
+
+
+*****
+
+####  h20020901  
+##### 161#       发表于 2021-8-12 14:10
+
+
+所以到底是北京时间几点能看 美亚prime能看吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Onelooker  
+##### 162#       发表于 2021-8-12 14:35
+
+
+整天剑剑
+
+属于还没看就被透一脸了
+
+
+*****
+
+####  ads147147  
+##### 163#       发表于 2021-8-12 14:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52340985&amp;ptid=2013091" target="_blank">h20020901 发表于 2021-8-12 14:10</a>
+所以到底是北京时间几点能看 美亚prime能看吗
+
+—— 来自 S1Fun</blockquote>
+今晚23点。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  liwangli1983  
+##### 164#       发表于 2021-8-12 15:01
+
+
+等资源了，周末看
+
+
+*****
+
+####  dropdead  
+##### 165#       发表于 2021-8-12 15:12
+
+
+惨了，新加坡梯子骗不过亚马逊prime不给看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 166#       发表于 2021-8-12 15:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/040.png" referrerpolicy="no-referrer">剑剑！
+
+
+*****
+
+####  emmer  
+##### 167#       发表于 2021-8-12 15:23
+
+
+妈个逼的为啥日亚不认我的信用卡啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  戏言学者  
+##### 168#       发表于 2021-8-12 15:30
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/152942vezggbvbdme4vyv4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210812152926.jpg</strong> (21.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 15:29 上传
+
+
+完了，美国梯子也骗不过，gg思密达。
+
+
+*****
+
+####  kira1988  
+##### 169#       发表于 2021-8-12 15:35
+
+
+只有日本能买吗，看来是不屑赚海外的臭钱
+
+
+*****
+
+####  downfall  
+##### 170#       发表于 2021-8-12 15:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52340049&amp;ptid=2013091" target="_blank">戏言学者 发表于 2021-8-12 12:46</a>
+
+这两件事有什么关系吗。。如果真要引进还是原版配音吧，而且国内重新做一套中文配音也没啥难度。 ...</blockquote>
+那就希望明年能上吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰箱研会长  
+##### 171#       发表于 2021-8-12 15:37
+
+
+ 本帖最后由 冰箱研会长 于 2021-8-12 15:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341970&amp;ptid=2013091" target="_blank">戏言学者 发表于 2021-8-12 15:30</a>
+
+完了，美国梯子也骗不过，gg思密达。</blockquote>
+你慌啥呢 打开别的视频看看
+
+<img src="https://img.saraba1st.com/forum/202108/12/153708v66vzhq6hexxq0x3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>firefox_L4eBbEoM3y.jpg</strong> (81.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 15:37 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/154100j3yy9lfofijf4l4x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>firefox_gBxfGiwPDo.jpg</strong> (56.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 15:41 上传
+
+
+*****
+
+####  asion617  
+##### 172#       发表于 2021-8-12 15:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341893&amp;ptid=2013091" target="_blank">emmer 发表于 2021-8-12 15:23</a>
+
+妈个逼的为啥日亚不认我的信用卡啊</blockquote>
+你随便填个日本的地址试试？我一开始用中国的地址也显示只接受日本信用卡，换了地址没换卡就过了
+
+
+*****
+
+####  戏言学者  
+##### 173#       发表于 2021-8-12 15:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342073&amp;ptid=2013091" target="_blank">冰箱研会长 发表于 2021-8-12 15:37</a>
+
+你慌啥呢 打开别的视频看看</blockquote>
+好吧，等11点了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ky怪  
+##### 174#       发表于 2021-8-12 16:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342073&amp;ptid=2013091" target="_blank">冰箱研会长 发表于 2021-8-12 15:37</a>
+你慌啥呢 打开别的视频看看</blockquote>
+港区的客户端搜不到eva啊，是11点以后才可以搜到么
+
+
+*****
+
+####  冰箱研会长  
+##### 175#       发表于 2021-8-12 16:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342657&amp;ptid=2013091" target="_blank">ky怪 发表于 2021-8-12 16:21</a>
+
+港区的客户端搜不到eva啊，是11点以后才可以搜到么</blockquote>
+不知道...我是日区...首页就有...
+
+
+                                                

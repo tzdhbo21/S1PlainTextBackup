@@ -868,3 +868,28 @@ MB这玩意就凸出一个题材，很多人说价格太贵，但你真拿一个
 
 
                                                  
+
+*****
+
+####  寂静桑  
+##### 65#       发表于 2021-8-12 14:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你硬要说性价比，那确实和30没任何可比性，但是近1/100的高达合金成品你除了大B还有得选吗，除了盗版
+
+
+*****
+
+####  ladiesman802  
+##### 66#       发表于 2021-8-12 15:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52325711&amp;ptid=2019211" target="_blank">fuzzytuzi 发表于 2021-8-11 10:44</a>
+
+就邪门，PB不是订多少生产多少，搞什么售罄？</blockquote>
+以前是这么说，现在疫情原因可能万代自己也没钱就搞饥饿营销，自己做倒爷。
+
+不然早就像手办厂那样，订多少出多少，大不了延期，炒不起来。万代很少延期，最多分批次生产
+
+
+                                                 

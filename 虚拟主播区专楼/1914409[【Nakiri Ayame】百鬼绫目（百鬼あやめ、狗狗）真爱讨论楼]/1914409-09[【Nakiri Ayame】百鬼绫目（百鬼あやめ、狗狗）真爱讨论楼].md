@@ -10279,3 +10279,47 @@ syl 不打LOL还有宝可梦集结<img src="https://static.saraba1st.com/image/s
 
 
                                                  
+
+*****
+
+####  stedckk  
+##### 12892#       发表于 2021-8-12 14:35
+
+
+ 本帖最后由 stedckk 于 2021-8-12 14:36 编辑 
+
+上课？声乐课啥的也不影响打游戏呀
+
+
+*****
+
+####  因为你不会  
+##### 12893#       发表于 2021-8-12 15:21
+
+
+转眼八月份就烂了三分之一了
+
+
+*****
+
+####  一仙  
+##### 12894#       发表于 2021-8-12 15:49
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/154511k00p8835b7raxrp8.png" referrerpolicy="no-referrer">
+
+
+<strong>20210812154424.png</strong> (13.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 15:45 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 
+
+
+syl，再见宣言都八百万了，完全没想到这视频播放一路可以冲到这个地步
+
+
+                                                 

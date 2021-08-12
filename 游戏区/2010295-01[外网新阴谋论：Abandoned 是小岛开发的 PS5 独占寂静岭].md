@@ -8858,3 +8858,57 @@ Screen Shot 2021-08-11 at 2.56.39 PM.png
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 695#       发表于 2021-8-12 13:05
+
+
+ 本帖最后由 luoyianwu 于 2021-8-12 13:11 编辑 
+
+<img src="https://p.sda1.dev/2/88d4c67cef9c86d044309292c1c0f75e/2C90F500-2004-434A-AD2E-D48041279E0B.jpeg" referrerpolicy="no-referrer">
+[https://twitter.com/Kojima_Hideo/status/1425678909891248134](https://twitter.com/Kojima_Hideo/status/1425678909891248134)
+
+岛哥哥半小时前投出的直球
+
+Abandoned要素✓ 
+
+Silent Hill要素✓ 
+
+
+今天8/12就是P.T.七周年纪念日，小岛一早非常少见地转发了P.T.的庆祝推，甚至有人怀疑是与Konami分手后第一次提及这款胎死腹中的作品。
+
+Blue Box阴谋论完结篇，敬请期待
+
+
+*****
+
+####  Eadric  
+##### 696#       发表于 2021-8-12 14:05
+
+
+反复横跳
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  920619lqy  
+##### 697#       发表于 2021-8-12 14:19
+
+
+现在西半球也已经开始进入8/12了，看看几个小时后这烂活还更新不更新
+
+
+*****
+
+####  新八  
+##### 698#       发表于 2021-8-12 14:44
+
+
+我很怀疑这活儿今天能不能完结 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -14269,3 +14269,565 @@ md我寻思第一部分灌水灌这么狠dw屁都没放一个，到大高潮了�
 
 
                                                 
+
+*****
+
+####  alucardcz  
+##### 82087#       发表于 2021-8-12 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339764&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 12:26</a>
+
+我这次对dw的好感都在妖兰身上了，几个boss战设计倒是比252用心了点，给的buff也算过了脑子
+
+
+菌类自己的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摩根 最菜最蠢b格最低的异闻带王
+
+
+*****
+
+####  angelooo  
+##### 82088#       发表于 2021-8-12 12:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339764&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 12:26</a>
+
+我这次对dw的好感都在妖兰身上了，几个boss战设计倒是比252用心了点，给的buff也算过了脑子
+
+
+菌类自己的 ...</blockquote>
+其他我忍了，就这个“章节缩减是dw要求的/dw产能跟不上蘑菇的剧本”实在太弱智了，dw在蘑菇面前能干什么？
+
+
+*****
+
+####  exiaexa  
+##### 82089#       发表于 2021-8-12 12:55
+
+
+ 本帖最后由 exiaexa 于 2021-8-12 12:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339953&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 12:40</a>
+摩根 最菜最蠢b格最低的异闻带王</blockquote>
+最艹的是，明明摩根和呆毛就是一个路子刻画的亲姐妹
+
+结果之前贴吧大战的时候有人非要杠一下，呆毛是fsn就塑造成圣人了，goa只能这么洗不能怪她，摩根就是才大志疏的小女人
+
+合着这菌鸽鸽原地踏步整出来的傻白甜姐妹你们都要分个高下的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOBI  
+##### 82090#       发表于 2021-8-12 13:28
+
+
+ 本帖最后由 KOBI 于 2021-8-12 14:03 编辑 
+
+说到产能我记得好像DW说过8月要干的事多所以泳装9月？
+
+接下来还有事要干么？
+
+虽然游戏里也看得出来但这竹帚真就钦定摩根是个小公主是吧。。那个人资料5最后是不是得改改了
+
+然后狗就真是两辈子摩根厨
+
+
+*****
+
+####  不垃圾屌丝  
+##### 82091#       发表于 2021-8-12 13:54
+
+
+只要菌哥哥补上幕间，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  当光停止  
+##### 82092#       发表于 2021-8-12 14:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339532&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 12:09</a>
+
+我是没想到还有人专门偷偷来看s1的专楼
+
+
+这楼里其实经常说话的大概也就10来个不到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">s1专楼发言被转到隔壁不都好几次了。
+
+坛友骂闪哈换cv还有其他林林总总一些事被转到隔壁当遗老典型。
+
+舰b专楼有过，fgo专楼再有一次不太正常了。
+
+
+*****
+
+####  zakki  
+##### 82093#       发表于 2021-8-12 14:12
+
+
+ 本帖最后由 zakki 于 2021-8-12 14:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339481&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-12 12:04</a>
+
+并没有赢麻，连着出肯定会互相影响的。只是好久没登顶持续四五天了看上去回光返照了而已
+
+
+跟自家横向对比 ...</blockquote>
+单看这个月不可能比不过19年，单就今年一月的骗氪连发就已经比得上19年了
+
+
+*****
+
+####  zakki  
+##### 82094#       发表于 2021-8-12 14:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339764&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 12:26</a>
+
+我这次对dw的好感都在妖兰身上了，几个boss战设计倒是比252用心了点，给的buff也算过了脑子
+
+
+菌类自己的 ...</blockquote>
+分三段蘑菇绝对有锅啊，想不懂一直抓着dw喷是什么意思，没看之前蘑菇日记里都写了，今年一月开始写，卡死线分段把剧情交给dw去制作，然后文本量还特别大，dw是烂但蘑菇这么操作不分段就怪了
+
+
+*****
+
+####  里村紅葉  
+##### 82095#       发表于 2021-8-12 14:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52340120&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-12 12:53</a>
+
+其他我忍了，就这个“章节缩减是dw要求的/dw产能跟不上蘑菇的剧本”实在太弱智了，dw在蘑菇面前能干什么 ...</blockquote>
+被甲方反复改要求折磨的乙方.gif<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倒是隔壁这样反而把蘑菇描述成了个巨婴爱豆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不垃圾屌丝  
+##### 82096#       发表于 2021-8-12 14:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341052&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-12 14:16</a>
+被甲方反复改要求折磨的乙方.gif
+
+倒是隔壁这样反而把蘑菇描述成了个巨婴爱豆 ...</blockquote>
+原来欧若拉是蘑菇自己<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  UNISONIA  
+##### 82097#       发表于 2021-8-12 14:39
+
+
+ 本帖最后由 UNISONIA 于 2021-8-12 14:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341001&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-12 14:12</a>
+
+单看这个月不可能比不过19年，单就今年一月的骗氪连发就已经比得上19年了 ...</blockquote>
+发力期跟19年不一样，拿19年的前二横向作比是因为19有两个石仓线下活动承认过卖的特别好的迦摩（史一）和水武（当年第二）。
+
+
+19的新年是没什么群众基础的小麻雀，虽然自己的活动剧情还行但是比村正还是差了点（而且单论新年卡池收入村正也没赢多少，1月在于后面直接复刻S伊斯塔，虽然效应同样也没有你想象中那么好）
+
+
+19的周年是当时被认为是打手，略大于等于R莫的小芬奇。因为当年2.4主线虽然跳票但是没拖到周年附近，8月只有当年第二的水武。其实还是赢在今年周年比过去两年好太多了
+
+
+*****
+
+####  森兰丸  
+##### 82098#       发表于 2021-8-12 14:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339953&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 12:40</a>
+
+摩根 最菜最蠢b格最低的异闻带王</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竹箒日記出来后我就在隔壁回复嘲笑了下摩根这下场完全是自己蠢的活该....结果被一群人追着骂了好几页....最后删帖了
+
+
+说真的还是太小看隔壁了
+
+
+*****
+
+####  alucardcz  
+##### 82099#       发表于 2021-8-12 14:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341522&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-12 14:55</a>
+
+竹箒日記出来后我就在隔壁回复嘲笑了下摩根这下场完全是自己蠢的活该....结果被一群人追着骂了好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁是什么地方你才知道吗（
+
+
+*****
+
+####  yangun22  
+##### 82100#       发表于 2021-8-12 15:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341522&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-12 14:55</a>
+
+竹箒日記出来后我就在隔壁回复嘲笑了下摩根这下场完全是自己蠢的活该....结果被一群人追着骂了好 ...</blockquote>
+你可以去日文wiki试试说同样的话，看看日本人有啥反应吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82101#       发表于 2021-8-12 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341309&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-12 14:39</a>
+
+发力期跟19年不一样，拿19年的前二横向作比是因为19有两个石仓线下活动承认过卖的特别好的迦摩（史一）和 ...</blockquote>
+目前为止除了一月和2.6，其他月确实比较拉，整体不一定比得过19年。迦摩卖的好意料之中，水武藏也卖的也这么好吗？毕竟三破和宝具动画都不太行。然后奥伯龙这波我觉得能超过18年的始皇，始皇当时也是一人拖起当月氪金量，比肩正月。
+
+
+*****
+
+####  exiaexa  
+##### 82102#       发表于 2021-8-12 15:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341522&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-12 14:55</a>
+
+竹箒日記出来后我就在隔壁回复嘲笑了下摩根这下场完全是自己蠢的活该....结果被一群人追着骂了好 ...</blockquote>
+只要你能接受阿瓦隆之庭，那呆毛姐妹就是被愚民拖后腿的傻白甜二愣子美少女啊，能有什么错呢
+
+
+上次爆破的那楼楼主，有句话我印象非常深刻
+
+“他们似乎认为阿瓦隆之庭写的不行”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 82103#       发表于 2021-8-12 15:13
+
+
+ 本帖最后由 UNISONIA 于 2021-8-12 15:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341634&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-12 15:03</a>
+
+目前为止除了一月和2.6，其他月确实比较拉，整体不一定比得过19年。迦摩卖的好意料之中，水武藏也卖的也 ...</blockquote>
+哎？始皇19开年的冬fes线下说卖的一般啊（后面对自选虞姬第一什么的调查也看出来了，抽始皇的人要是多怎么可能缺虞姬），当然在淡季出没什么对手登顶天数还是值得肯定的（同样情况还有后面主线的狂娜，也是总额不高的情况下登顶天数长脸，不过狂娜肯定好一点）
+
+
+第三方流水统计要确定到具体卡池还是蛮难的（当然，月度的也不准），大多数时候只有看官方自己说不说。像迦摩一样还特地发了一套三再临亚克力作为纪念的是少数（再前一年的TOP魔总也有特别出的谷子）
+
+
+*****
+
+####  zakki  
+##### 82104#       发表于 2021-8-12 15:16
+
+
+ 本帖最后由 zakki 于 2021-8-12 15:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341768&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-12 15:13</a>
+
+哎？始皇19开年的冬fes线下说卖的一般啊（后面对自选虞姬第一什么的调查也看出来了，抽始皇的人要是多怎么 ...</blockquote>
+我是看第三方统计的流水做判断的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来不高吗。。那当时fes线下怎么说的？就说迦摩第一，武藏第二吗，当年的宇宙凛怎么样。我记得有个game-i统计说fgo历来氪金量最多的池子是魔总池
+
+
+*****
+
+####  UNISONIA  
+##### 82105#       发表于 2021-8-12 15:20
+
+
+ 本帖最后由 UNISONIA 于 2021-8-12 15:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341800&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-12 15:16</a>
+
+我是看第三方统计的流水做判断的当时fes线下怎么说的？就说迦摩第一，武藏第二吗 ...</blockquote>
+迦摩和始皇不是同一年，迦摩是因为场贩的亚克力在卖的时候说了是超豪华规格的历史最佳纪念
+
+
+水武藏是20年的famitsu行业书上提过一嘴
+
+魔总在出的当年最强确实没问题，因为19年初也发过她主题的纪念谷子，只不过当时没说的很明白+没有迦摩那套亚克力立牌夸张
+
+
+*****
+
+####  ddr  
+##### 82106#       发表于 2021-8-12 15:29
+
+
+比起个别角色塑造，更想说明明日本史从古至今有这么丰富的政治斗争材料可供学习但是为啥这帮人的政治斗争描写都跟儿戏一样啊
+
+
+*****
+
+####  枪聆弹语  
+##### 82107#       发表于 2021-8-12 15:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能是单独这个作者有水平问题呢
+
+
+*****
+
+####  都谷捻柏  
+##### 82108#       发表于 2021-8-12 15:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338995&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-12 11:30</a>
+
+没事，现在还可以安慰自己菌哥哥其实早对fgo没热情了，这次全靠追星的动力写了2.6，那么自然全部角 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月姬故事发生的时间和地点都改掉了，还是原来那个月姬吗
+
+
+*****
+
+####  UNISONIA  
+##### 82109#       发表于 2021-8-12 15:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341966&amp;ptid=1085254" target="_blank">ddr 发表于 2021-8-12 15:29</a>
+
+比起个别角色塑造，更想说明明日本史从古至今有这么丰富的政治斗争材料可供学习但是为啥这帮人的政治斗争描 ...</blockquote>
+就算不参考日本史，轻小说界也有银英和TB俩zz斗争写的很好的范本了，甚至巴西人的NGNL这方面也还可以
+
+
+*****
+
+####  黑上シグマ  
+##### 82110#       发表于 2021-8-12 15:40
+
+
+才看到竹帚又更新了
+神TM前篇后篇崩坏篇
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+*****
+
+####  都谷捻柏  
+##### 82111#       发表于 2021-8-12 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338892&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 11:23</a>
+
+他们骂东出樱井盐川水濑的时候动作快得很啊
+
+什么擦屁股都是不存在的，写拉了就定在耻辱柱上给爷死，什么 ...</blockquote>
+都不需要等到2.6，我觉得武藏变成现在这种过街老鼠一样，蘑菇都要一起把锅背起来。
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 82112#       发表于 2021-8-12 15:41
+
+
+月姬肯定不是以前的月姬了啊，时间地点倒无所谓。现在来看至少学姐线应该会有不少改动
+
+还有最后两星期就能看见你菌现在的真实水平了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82113#       发表于 2021-8-12 15:42
+
+
+ 本帖最后由 exiaexa 于 2021-8-12 16:12 编辑 
+
+翻页
+
+
+*****
+
+####  quanlix  
+##### 82114#       发表于 2021-8-12 15:43
+
+
+是挺崩坏的，加个奥贝隆进去弄得前后剧情都圆不上
+
+
+*****
+
+####  yangun22  
+##### 82115#       发表于 2021-8-12 15:46
+
+
+剧情都出了一周了，昨天池子一出突然冒出几个所谓梅林厨子，我懂了，是没抽到或者没法抽的在找方向发泄吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82116#       发表于 2021-8-12 15:46
+
+
+ 本帖最后由 zakki 于 2021-8-12 15:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342129&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-12 15:41</a>
+
+都不需要等到2.6，我觉得武藏变成现在这种过街老鼠一样，蘑菇都要一起把锅背起来。 ...</blockquote>
+国服一帮人一边痛骂武藏一边又不得不攒石氪金抽高宝水武藏，还天天拉来加班就搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 82117#       发表于 2021-8-12 15:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗狗和摩根这对还真是好磕啊，甜甜的小公主和被她打败后虽然嘴上不愿意但实际一直在帮助她的骑士，结果最后暗恋的小公主看上别的男人了就一个人跑去西海岸生闷气，然后刚好错过戴冠式惨案，其实自己也很明白就算自己在场也什么都拯救不了但就是很后悔当时不在场，最后小公主黑化了但还是为她战到最后一刻和莫斯王同归于尽。正常的故事到这儿就结束了，然而妖精会转世，这和后面伍德沃斯的故事一连起来，就真的很有fate那味了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  alucardcz  
+##### 82118#       发表于 2021-8-12 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342263&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-12 15:51</a>
+
+狗狗和摩根这对还真是好磕啊，甜甜的小公主和被她打败后虽然嘴上不愿意但实际一直在帮助她的骑士， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可我就不这么想 满脑子摩根你是菜还是蠢？ 一点点脑子都没 连增援有没有真的到场也不知道？
+
+
+*****
+
+####  rollingusagi  
+##### 82119#       发表于 2021-8-12 16:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342384&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-08-12 16:00:58</a>
+可我就不这么想 满脑子摩根你是菜还是蠢？ 一点点脑子都没 连增援有没有真的到场也不知道？ ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她不是根本不在乎援军有没有到吗，派援军只是因为狗狗的请求而已，反正一人成军一个人就能单挑全部氏族，所以即使黑化了骨子里还是那个甜甜的小公主，根本不适合当统治者
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  alucardcz  
+##### 82120#       发表于 2021-8-12 16:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342476&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-12 16:07</a>
+
+她不是根本不在乎援军有没有到吗，派援军只是因为狗狗的请求而已，反正一人成军一个人就能单挑全部 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这不就是标准的傻白甜吗   能活那么久才是个奇迹
+
+
+*****
+
+####  不垃圾屌丝  
+##### 82121#       发表于 2021-8-12 16:10
+
+
+异闻带版的摩根就这样了，泛人类史的摩根怎么办啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+在老崔的幕间搞事的时候我还抱有过期待来着<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  exiaexa  
+##### 82122#       发表于 2021-8-12 16:12
+
+
+我尝试回答了一下，楼上那个问什么月球宫斗拉胯，应该不算键政，也希望后续讨论不要扯太多
+
+
+主要问题我觉得还是要反过去看GOA
+
+里面最明显的问题就是彻底否定了人民对于认知世界、改造世界的主观能动性。人民都是愚蠢愚昧目光短浅的，领导人拥有着超越时代的眼光，必须出来引导大众，最终整出了这种白眼狼+白莲花的模式
+
+当然我们说月球不列颠虽然有魔法，但终究是个公元500年的故事，你硬要说民众都吃的地球buff只有呆毛吃了月球buff那也行吧
+
+
+但是这妖精历可是发展了几千年了，还是被找了各种各样奇葩的理由给一口气彻底否定掉
+
+说白了就是他自己就不相信人民应该作为历史的主导者，所以只能去写所谓的高层内斗，所以最后一定会发展成少数精英高层吃鸡，变回仅作为一个gal作家能掌握的“高中生决定世界走向”这种流派
+
+
+那么问题来了，菌类他啥时候擅长过写勾心斗角这个事情，他的阴谋跟法老控轨迹的编剧压根就是是一个水平的，集中所有的锅找一个倒霉蛋扣上去完事儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 82123#       发表于 2021-8-12 16:13
+
+
+妖精本来就比人类傻白甜多了，妖兰也说了欧罗拉到泛人类史肯定混不下去的，但是在妖精国她就是能活3000年不被人戳破
+
+
+*****
+
+####  exiaexa  
+##### 82124#       发表于 2021-8-12 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342129&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-12 15:41</a>
+
+都不需要等到2.6，我觉得武藏变成现在这种过街老鼠一样，蘑菇都要一起把锅背起来。 ...</blockquote>
+252都不用，苍银就该背
+
+樱井帮蘑菇背了多少年忧郁王子旧剑和玛丽苏根源皇女的锅了
+
+到现在都还有人以为旧剑和爱歌是樱井整出来的角色
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 82125#       发表于 2021-8-12 16:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342494&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-08-12 16:09:03</a>
+所以这不就是标准的傻白甜吗   能活那么久才是个奇迹</blockquote>不奇怪，欧若拉那种都能当氏族长，摩根实力那么强当个王岂不是轻轻松松，所以在妖精国其实只要耍点手段哪怕是普通人类也能混个高等阶级，看看某资产家和佩佩就知道了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  不垃圾屌丝  
+##### 82126#       发表于 2021-8-12 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342595&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-12 16:17</a>
+不奇怪，欧若拉那种都能当氏族长，摩根实力那么强当个王岂不是轻轻松松，所以在妖精国其实只要耍点手段哪怕 ...</blockquote>
+你这么说让别处吹摩根怎么怎么强的情可以堪啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  rollingusagi  
+##### 82127#       发表于 2021-8-12 16:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342635&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-08-12 16:20:15</a>
+你这么说让别处吹摩根怎么怎么强的情可以堪啊 v2.4.4.1</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吹实力可以理解，但不会有人吹摩根执政水平的吧，摩根魔术实力还是能吹的，堪称魔法级别了，能纯靠自身实现灵子转移，吸干空想树魔力来固定记录带，这迦勒底还找个屁圣枪啊直接把王姐拉拢过来这第二部的问题不就直接解决了吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+                                                

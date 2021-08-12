@@ -17607,3 +17607,77 @@ BIG MOM那些儿女们还在海里漂着呢？
 
 
                                                  
+
+*****
+
+####  李剡s  
+##### 55470#       发表于 2021-8-12 12:42
+
+
+尾田，你也敌不过年纪吗
+
+
+
+
+*****
+
+####  fmchar  
+##### 55471#       发表于 2021-8-12 13:17
+
+
+倒不如说尾田现在只想快点完结享受生活，毕竟年纪也大了，赚了这么多钱放着干嘛
+
+
+*****
+
+####  火星飞船  
+##### 55472#       发表于 2021-8-12 14:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52233907&amp;ptid=98922" target="_blank">flyzzhj 发表于 2021-8-4 13:27</a>
+
+这还得多亏一辉的师傅吧，如果当时让他女儿和一辉跑路了，妥妥团灭的节奏啊 ...</blockquote>
+不是女儿吧，就是岛上农民买来的奴隶。
+
+
+*****
+
+####  flyzzhj  
+##### 55473#       发表于 2021-8-12 15:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341583&amp;ptid=98922" target="_blank">火星飞船 发表于 2021-8-12 14:59</a>
+
+不是女儿吧，就是岛上农民买来的奴隶。</blockquote>
+漫画不是，动画我记得是
+
+
+*****
+
+####  穆  
+##### 55474#       发表于 2021-8-12 15:27
+
+
+ 本帖最后由 穆 于 2021-8-12 15:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">耶。。。我都以为我进错楼了
+
+
+出情报了
+
+
+山治&amp;索隆 2V2 奎因 烬
+
+干完这票，路飞就是海贼王
+
+
+*****
+
+####  kknife  
+##### 55475#       发表于 2021-8-12 15:42
+
+
+赶紧完结吧
+
+
+                                                

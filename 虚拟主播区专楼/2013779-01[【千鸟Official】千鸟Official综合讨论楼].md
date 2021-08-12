@@ -2534,3 +2534,27 @@ co宝又是早班，虽然不是6点</blockquote>
 
 
                                                  
+
+*****
+
+####  莫洛骑士  
+##### 225#       发表于 2021-8-12 14:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">静姨本身就是个伤痛文学，太痛了太痛了
+
+
+*****
+
+####  袜子  
+##### 226#       发表于 2021-8-12 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52340885&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-8-12 14:01</a>
+静姨本身就是个伤痛文学，太痛了太痛了</blockquote>
+怎么，看了地下室北漂环节？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
