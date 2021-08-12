@@ -16055,3 +16055,43 @@ https://www.youtube.com/channel/UCTNq ...</blockquote>
 
 
                                                  
+
+*****
+
+####  winda  
+##### 5795#       发表于 2021-8-12 21:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿葵怎么又要休个一周了
+
+
+*****
+
+####  西瓜爆裂  
+##### 5796#       发表于 2021-8-12 21:41
+
+
+ 本帖最后由 西瓜爆裂 于 2021-8-12 21:43 编辑 
+
+这虹球就是虹甲爱工大名电位啊，等一个打线梦游被帝华打爆<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adcdqre  
+##### 5797#       发表于 2021-8-12 22:01
+
+
+虹甲真爆点还在king身上天黑请闭眼
+
+
+*****
+
+####  hulaoda007  
+##### 5798#       发表于 2021-8-12 22:22
+
+
+一直觉得天开这人真是又稳做MC有很适合啊。
+
+
+                                                 

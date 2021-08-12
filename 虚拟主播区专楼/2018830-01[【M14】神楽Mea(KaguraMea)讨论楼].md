@@ -6527,3 +6527,100 @@ E8llRkRVEAQ6FkG.jpg
 
 
                                                  
+
+*****
+
+####  makourisu-2  
+##### 601#       发表于 2021-8-12 21:54
+
+
+虽然和本楼无关了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本接种的是辉瑞吧，但看参考以色列的情况，辉瑞对德尔塔的防护效果不够好，况且日本人那草台程度，隔三差五有忘开冰箱和给人打生理盐水的报道，还是建议直接回老家蹲着别出门吧
+建议速速来中国和我住一起<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这样最安全
+
+
+*****
+
+####  Klience  
+##### 602#       发表于 2021-8-12 21:57
+
+
+ 本帖最后由 Klience 于 2021-8-12 21:59 编辑 
+
+她回老家但是她家里人也要出去打工赚钱啊 不工作哪有钱维持生活啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 603#       发表于 2021-8-12 22:10
+
+
+艹，DT率99.99999
+
+
+*****
+
+####  往世雷书  
+##### 604#       发表于 2021-8-12 22:12
+
+
+要是你们静静地等着，说不定我会觉得自己有一丝错误（来自迟到十分钟到主播发言）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yywzjsw  
+##### 605#       发表于 2021-8-12 22:12
+
+
+一进来就听到dt
+
+
+*****
+
+####  T_Hb  
+##### 606#       发表于 2021-8-12 22:15
+
+
+开场就这么欢快的歌，说好的催眠呢
+
+
+*****
+
+####  yywzjsw  
+##### 607#       发表于 2021-8-12 22:15
+
+
+好久没听到了
+
+
+*****
+
+####  Ky·Kiske  
+##### 608#       发表于 2021-8-12 22:16
+
+
+领导不在办公室，开听
+
+
+*****
+
+####  追风小星星  
+##### 609#       发表于 2021-8-12 22:19
+
+
+活力满满的 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 610#       发表于 2021-8-12 22:29
+
+
+这水袋轻轻的抖动，欲罢不能
+
+
+                                                 

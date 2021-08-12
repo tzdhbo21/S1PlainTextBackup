@@ -17692,3 +17692,25 @@ BIG MOM那些儿女们还在海里漂着呢？
 
 
                                                  
+
+*****
+
+####  saturnus  
+##### 55477#       发表于 2021-8-12 21:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52341583&amp;ptid=98922" target="_blank">火星飞船 发表于 2021-8-12 14:59</a>
+不是女儿吧，就是岛上农民买来的奴隶。</blockquote>
+动画设定是女儿，东映加戏的老传统了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JC_AR  
+##### 55478#       发表于 2021-8-12 21:44
+
+
+妮可罗宾为什么不去练武装色霸气？天天手被砍，会不会玩？
+
+
+                                                 

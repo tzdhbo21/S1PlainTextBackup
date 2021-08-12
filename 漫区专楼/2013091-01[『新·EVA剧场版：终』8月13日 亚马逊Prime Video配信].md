@@ -2290,3 +2290,726 @@ eva三观没啥大问题，最后肯定会上，就看是什么形式上还有�
 
 
                                                  
+
+*****
+
+####  越动天下  
+##### 206#       发表于 2021-8-12 21:42
+
+
+ 本帖最后由 越动天下 于 2021-8-12 21:44 编辑 
+
+明明是日本ip怎么也不让啊 昏了 还没到点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  
+
+
+*****
+
+####  lipo  
+##### 207#       发表于 2021-8-12 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52346668&amp;ptid=2013091" target="_blank">亚瑟邓特 发表于 2021-8-12 21:24</a>
+
+我发现我已经把序破q剧情忘干净了，只记得tv了
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 ...</blockquote>
+你是多么幸运的人啊
+
+
+*****
+
+####  QAQAQA11  
+##### 208#       发表于 2021-8-12 21:47
+
+
+我看有字幕组说有的区已经解锁了？
+
+
+*****
+
+####  ybtao  
+##### 209#       发表于 2021-8-12 21:49
+
+
+好像是出了在nyaa上看到了
+
+
+*****
+
+####  ads147147  
+##### 210#       发表于 2021-8-12 21:54
+
+
+nyaa已经有了还行。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  戏言学者  
+##### 211#       发表于 2021-8-12 21:57
+
+
+比官方还快，惊呆了。。。可惜完全没速度。。。
+
+
+*****
+
+####  Piano-Forest  
+##### 212#         楼主| 发表于 2021-8-12 21:58
+
+
+Evangelion.3.0+1.01.Thrice.Upon.a.Time.2021.1080p.AMZN.WEB-DL.DD+.5.1.H.264-RMB.mkv (5.8 GiB)
+
+
+magnet:?xt=urn:btih:381d952c0b3438ef0a06e76a4349eee92e066909
+
+
+*****
+
+####  霧亥  
+##### 213#       发表于 2021-8-12 21:59
+
+
+看了看前面的人也就下了不到30％，放心睡大觉
+
+—— 來自 samsung SM-T970, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  越动天下  
+##### 214#       发表于 2021-8-12 21:59
+
+
+ 本帖最后由 越动天下 于 2021-8-12 22:01 编辑 
+
+还真的有 不过100KB都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魔皇崩裂拳  
+##### 215#       发表于 2021-8-12 22:00
+
+
+求下载链接！
+
+
+生肉还是熟肉？
+
+
+*****
+
+####  wrnk  
+##### 216#       发表于 2021-8-12 22:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347185&amp;ptid=2013091" target="_blank">魔皇崩裂拳 发表于 2021-8-12 22:00</a>
+
+求下载链接！
+
+
+生肉还是熟肉？</blockquote>
+上面不是给了磁力链么
+
+MULTISUBS 肯定有繁体字幕
+
+
+*****
+
+####  chanrs2  
+##### 217#       发表于 2021-8-12 22:02
+
+
+我比特彗星现在以500多k速度下载，真的慢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shudushimo  
+##### 218#       发表于 2021-8-12 22:02
+
+
+芜湖起飞，明天迎接漫区最后的狂欢
+
+
+*****
+
+####  Freakyyu  
+##### 219#       发表于 2021-8-12 22:02
+
+
+简繁字幕都有，就是目前速度不给力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  越动天下  
+##### 220#       发表于 2021-8-12 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347217&amp;ptid=2013091" target="_blank">chanrs2 发表于 2021-8-12 22:02</a>
+
+我比特彗星现在以500多k速度下载，真的慢</blockquote>
+你怎么还有500KB<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  戏言学者  
+##### 221#       发表于 2021-8-12 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347232&amp;ptid=2013091" target="_blank">越动天下 发表于 2021-8-12 22:03</a>
+
+你怎么还有500KB</blockquote>
+迅雷上已经有2m了，加油鸭米娜桑~
+
+
+*****
+
+####  takayama  
+##### 222#       发表于 2021-8-12 22:04
+
+
+战略马克，正好回家下<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  owada  
+##### 223#       发表于 2021-8-12 22:04
+
+
+30kb/s龟速下载,行吧,明天看了
+
+
+*****
+
+####  野上由加奈  
+##### 224#       发表于 2021-8-12 22:04
+
+
+太慢了，得挂一晚上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  米德  
+##### 225#       发表于 2021-8-12 22:05
+
+
+下载中<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wrnk  
+##### 226#       发表于 2021-8-12 22:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347232&amp;ptid=2013091" target="_blank">越动天下 发表于 2021-8-12 22:03</a>
+
+你怎么还有500KB</blockquote>
+下的慢的挂个梯 子吧
+
+不过放流的估计就是小水管，目前最高进度才36%
+
+
+*****
+
+####  串行总线  
+##### 227#       发表于 2021-8-12 22:05
+
+
+急急急，看看11点之前能不能下完
+
+
+*****
+
+####  LLLLLuB  
+##### 228#       发表于 2021-8-12 22:06
+
+
+下载速度感人啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chanrs2  
+##### 229#       发表于 2021-8-12 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347268&amp;ptid=2013091" target="_blank">戏言学者 发表于 2021-8-12 22:04</a>
+
+迅雷上已经有2m了，加油鸭米娜桑~</blockquote>
+已经1.5m了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，争取在11点之前下完
+
+
+*****
+
+####  越动天下  
+##### 230#       发表于 2021-8-12 22:06
+
+
+迅雷这么快吗 我去下一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pj1244  
+##### 231#       发表于 2021-8-12 22:06
+
+
+有速度了，2点几M了
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  戏言学者  
+##### 232#       发表于 2021-8-12 22:06
+
+
+我感觉等到我亚马逊解锁它也下不完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  北冥有鱼  
+##### 233#       发表于 2021-8-12 22:06
+
+
+真的有了，下载试试
+
+
+*****
+
+####  栗悟饭与亀波功  
+##### 234#       发表于 2021-8-12 22:08
+
+
+用比特彗星能1.5m还行
+
+
+*****
+
+####  最低人间肥宅  
+##### 235#       发表于 2021-8-12 22:09
+
+
+好慢哦
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chanrs2  
+##### 236#       发表于 2021-8-12 22:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347362&amp;ptid=2013091" target="_blank">栗悟饭与亀波功 发表于 2021-8-12 22:08</a>
+
+用比特彗星能1.5m还行</blockquote>
+我i现在比特已经稳定9m了
+
+
+*****
+
+####  midearth  
+##### 237#       发表于 2021-8-12 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52346668&amp;ptid=2013091" target="_blank">亚瑟邓特 发表于 2021-8-12 21:24</a>
+
+我发现我已经把序破q剧情忘干净了，只记得tv了
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 ...</blockquote>
++1 今天专门去重看了破和q 感想如下：
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/221215ln71p17f1a117sqq.png" referrerpolicy="no-referrer">
+
+
+<strong>2021-8-13 0-10-35.png</strong> (9.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 22:12 上传
+
+
+*****
+
+####  螺纹  
+##### 238#       发表于 2021-8-12 22:12
+
+
+qbittorrent才开始下到6%，1MB速度还行吧
+
+
+*****
+
+####  白木あえか  
+##### 239#       发表于 2021-8-12 22:12
+
+
+正在重温旧EVA，刚看到第7集，然后是续破Q，不着急
+
+
+*****
+
+####  越动天下  
+##### 240#       发表于 2021-8-12 22:14
+
+
+看你们这么快 有点急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  野上由加奈  
+##### 241#       发表于 2021-8-12 22:14
+
+
+我急了，11点前能不能行
+
+
+*****
+
+####  南门二  
+##### 242#       发表于 2021-8-12 22:14
+
+
+下了42%，速度降到只有几百k了，先去看一遍Q吧
+
+
+*****
+
+####  takitaki  
+##### 243#       发表于 2021-8-12 22:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">各位探路者一路好走
+
+
+*****
+
+####  cybernetics31  
+##### 244#       发表于 2021-8-12 22:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为了剑剑难得熬个夜吧
+
+
+*****
+
+####  11116等  
+##### 245#       发表于 2021-8-12 22:16
+
+
+ 本帖最后由 11116等 于 2021-8-12 22:22 编辑 
+
+hi，这是我用百度网盘分享的文件~复制这段内容打开「百度网盘」APP即可获取。
+
+链接：[/img]https://pan.baidu.com/s/1SZ9Z59aBb6sX60KDb1s1og 
+
+提取码：Uk2H    是全的，可以看了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| shiji6666| + 1||
+
+
+查看全部评分
+
+
+*****
+
+####  戏言学者  
+##### 246#       发表于 2021-8-12 22:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347549&amp;ptid=2013091" target="_blank">11116等 发表于 2021-8-12 22:16</a>
+
+hi，这是我用百度网盘分享的文件~复制这段内容打开「百度网盘」APP即可获取。
+
+链接：https://pan.baidu.com ...</blockquote>
+哇哇哇，神仙！！
+
+
+*****
+
+####  downfall  
+##### 247#       发表于 2021-8-12 22:18
+
+
+草，这都什么神仙？
+
+
+*****
+
+####  11116等  
+##### 248#       发表于 2021-8-12 22:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347569&amp;ptid=2013091" target="_blank">戏言学者 发表于 2021-8-12 22:18</a>
+
+哇哇哇，神仙！！</blockquote>
+好像有点错误，我再看下
+
+
+*****
+
+####  Unlight  
+##### 249#       发表于 2021-8-12 22:18
+
+
+md，电脑显示器炸了，明天用三星电视看吧，Amazon Prime
+
+
+*****
+
+####  越动天下  
+##### 250#       发表于 2021-8-12 22:19
+
+
+怎么没了 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">还没看见
+
+
+*****
+
+####  Ichthy  
+##### 251#       发表于 2021-8-12 22:19
+
+
+[https://sharetxts.com/sharepage/6114d87caf32ec45fd62795d](https://sharetxts.com/sharepage/6114d87caf32ec45fd62795d) 已出
+
+
+*****
+
+####  戏言学者  
+##### 252#       发表于 2021-8-12 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347578&amp;ptid=2013091" target="_blank">11116等 发表于 2021-8-12 22:18</a>
+
+好像有点错误，我再看下</blockquote>
+比种子那个文件小2GB
+
+
+*****
+
+####  阿姆罗二世  
+##### 253#       发表于 2021-8-12 22:20
+
+
+看到剑剑出场<img src="https://static.saraba1st.com/image/smiley/carton2017/041.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chanrs2  
+##### 254#       发表于 2021-8-12 22:20
+
+
+还有8分钟下完，正好能在1点前看完<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  QAQAQA11  
+##### 255#       发表于 2021-8-12 22:22
+
+
+开看啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  11116等  
+##### 256#       发表于 2021-8-12 22:22
+
+
+刚发的度盘链接是全的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  污陨血红  
+##### 257#       发表于 2021-8-12 22:22
+
+
+资源出来了，好耶，下载！
+
+
+*****
+
+####  NaughtyFish  
+##### 258#       发表于 2021-8-12 22:23
+
+
+怎么速度从2m/s又掉回800kb/s了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  setree  
+##### 259#       发表于 2021-8-12 22:23
+
+
+下完！VR启动！
+
+
+*****
+
+####  亚瑟邓特  
+##### 260#       发表于 2021-8-12 22:23
+
+
+qb8mb/s
+
+
+*****
+
+####  ReginaldMorgan  
+##### 261#       发表于 2021-8-12 22:24
+
+
+刚那个5G的快下完了，50%之后怀疑上传者换了个水管突然就快起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aureliano  
+##### 262#       发表于 2021-8-12 22:24
+
+
+日语原声内嵌官方中字 （小体积版）[https://pan.baidu.com/s/1BY-TFdDOsBior6fHlcFFxg](https://pan.baidu.com/s/1BY-TFdDOsBior6fHlcFFxg) 提取码: yjnb   远鉴字幕组
+
+
+*****
+
+####  wddely  
+##### 263#       发表于 2021-8-12 22:25
+
+
+楼上的种子第一次把我的300m跑满，开心
+
+
+*****
+
+####  阿垃垃圾历  
+##### 264#       发表于 2021-8-12 22:26
+
+
+wuwuwu  我这边的速度好慢啊
+
+
+*****
+
+####  越动天下  
+##### 265#       发表于 2021-8-12 22:26
+
+
+有百度云真是太牛了
+
+
+*****
+
+####  Melisandre  
+##### 266#       发表于 2021-8-12 22:26
+
+
+怎么我qb只有200k<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chanrs2  
+##### 267#       发表于 2021-8-12 22:26
+
+
+终于下完了，花了25分钟
+
+
+*****
+
+####  Temori  
+##### 268#       发表于 2021-8-12 22:26
+
+
+怎么是3.0+1.0，说好的1.01呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  owada  
+##### 269#       发表于 2021-8-12 22:27
+
+
+qb有种子了,好好好,开始下!!!
+
+
+*****
+
+####  kilkilo  
+##### 270#       发表于 2021-8-12 22:27
+
+
+度盘的倒是下完了，但5g那个迅雷下不动，这两个画质有区别不
+
+
+
+
+*****
+
+####  5teven7in  
+##### 271#       发表于 2021-8-12 22:28
+
+
+百度云已经下完了
+
+
+*****
+
+####  Dystopia.  
+##### 272#       发表于 2021-8-12 22:28
+
+
+太慢了，先把Q复习一遍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  栗悟饭与亀波功  
+##### 273#       发表于 2021-8-12 22:29
+
+
+为啥度盘的时长是一小时啊
+
+
+                                              
