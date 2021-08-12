@@ -9104,3 +9104,67 @@ Shortly™
 
 
                                                  
+
+*****
+
+####  Dgnic_  
+##### 714#       发表于 2021-8-13 03:31
+
+
+想给一直跟踪的坛友加鹅了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  littlezoo  
+##### 715#       发表于 2021-8-13 04:04
+
+
+什么情况，结束了？
+
+
+*****
+
+####  luoyianwu  
+##### 716#       发表于 2021-8-13 04:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350219&amp;ptid=2010295" target="_blank">littlezoo 发表于 2021-8-13 04:04</a>
+
+什么情况，结束了？</blockquote>
+目前残存的信徒还剩下几派
+
+- 等soon的，因为Hasan到现在为止依然在回覆网友说在测试补丁快好了
+
+- 等荷兰时间23:59的（大约1小时50分钟后），因为P.T.中出现这个时间
+
+- 等Gamescom的，因为GamesRadar说Abandoned会上
+
+- 等PlayStation Experience、State of Play的
+
+- 等9/11的，因为上次登台时小岛一直提到
+
+
+*****
+
+####  920619lqy  
+##### 717#       发表于 2021-8-13 04:37
+
+
+<blockquote>luoyianwu 发表于 2021-8-12 11:58
+https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p29dwz/
+
+这边有个昨天网友重新汇整的时间轴，Bl ...</blockquote>
+这看起来是老惯犯了，原来前科累累啊
+
+
+*****
+
+####  whzfjk  
+##### 718#       发表于 2021-8-13 05:20
+
+
+SH 可能真的有，但跟这家没关系
+
+
+                                                 
