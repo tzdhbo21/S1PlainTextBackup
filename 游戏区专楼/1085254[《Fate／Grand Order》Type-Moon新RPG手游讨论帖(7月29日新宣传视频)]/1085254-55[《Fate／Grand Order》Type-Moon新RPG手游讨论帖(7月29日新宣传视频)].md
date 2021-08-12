@@ -15390,3 +15390,173 @@ fp算泛人类史的话，那应该还是三位一体那位吧，2.6的这位倒
 
 
                                                  
+
+*****
+
+####  森兰丸  
+##### 82171#       发表于 2021-8-12 23:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348246&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 23:09</a>
+
+萌新最后150石 。。。。全。。都。。出。。了！
+
+不枉费我刷了100万羁绊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说萌新就是萌新啊
+
+
+欧羡慕就完事了
+
+
+*****
+
+####  shimotsuki14  
+##### 82172#       发表于 2021-8-12 23:48
+
+
+看你们预测2部动画化就想起《迪亚哥布兰度似乎在挑战grand order的样子》……
+
+个人感觉有些章节凭着神奇的骰子运和作者包圆剧情的功夫写的比游戏剧情要好看……
+
+贴主说等2部完结再搞续作，真期待有朝一日另一条世界线的异闻带剧情。
+
+
+*****
+
+####  alucardcz  
+##### 82173#       发表于 2021-8-12 23:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下1宝狂娜3面伤害也爆炸了  
+
+
+*****
+
+####  newfaceryo  
+##### 82174#       发表于 2021-8-12 23:59
+
+
+2.6的摩根和goa呆毛完全两码事。
+
+goa的呆毛只是对fsn saber线的补充说明，精神完全是一脉相承。
+
+2.6的摩根其实是作为反派boss来写的，
+
+不会有人觉得最后给了她两个温情的镜头就认为摩根是真是作为救世主来描写的吧。
+
+按这么算那欧若拉死前那刻也可以算是彻底洗白了。
+
+
+2.6真要按goa的方式写，整个c呆主线也不会让人看着这么别扭。
+
+
+*****
+
+####  rooarr  
+##### 82175#       发表于 2021-8-13 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348755&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 23:51</a>
+试了下1宝狂娜3面伤害也爆炸了</blockquote>
+没有实战意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基本用不到
+
+
+*****
+
+####  alucardcz  
+##### 82176#       发表于 2021-8-13 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348954&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-13 00:11</a>
+
+没有实战意义基本用不到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少以后不用在想阴间本怎么打了
+
+
+*****
+
+####  rooarr  
+##### 82177#       发表于 2021-8-13 00:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348975&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 00:13</a>
+至少以后不用在想阴间本怎么打了</blockquote>
+不，你也会追求6加成的，然后老老实实用暴击队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 82178#       发表于 2021-8-13 00:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348246&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 23:09</a>
+萌新最后150石 。。。。全。。都。。出。。了！
+
+不枉费我刷了100万羁绊</blockquote>
+偶咩爹多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82179#       发表于 2021-8-13 00:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348987&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-13 00:14</a>
+
+不，你也会追求6加成的，然后老老实实用暴击队</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不 我不会有6加成的想法的
+
+
+*****
+
+####  rooarr  
+##### 82180#       发表于 2021-8-13 00:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349003&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 00:15</a>
+不 我不会有6加成的想法的</blockquote>
+看来我又要翻历史纪录了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82181#       发表于 2021-8-13 00:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349003&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 00:15</a>
+不 我不会有6加成的想法的</blockquote>
+现在看来双狐狸下芭娜娜伤害溢出挺严重的，不说6加成，技能少点一个是一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82182#       发表于 2021-8-13 00:28
+
+
+ 本帖最后由 alucardcz 于 2021-8-13 00:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349037&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-13 00:17</a>
+
+现在看来双狐狸下芭娜娜伤害溢出挺严重的，不说6加成，技能少点一个是一个
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">1宝芭娜娜 1面45万  2面75万 3面150万  （3技能还没点满）  爽是挺爽 按键的确多 还容易按错
+
+
+*****
+
+####  alucardcz  
+##### 82183#       发表于 2021-8-13 00:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349035&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-13 00:17</a>
+
+看来我又要翻历史纪录了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实活动只要有50np的礼装芭娜娜就能脑6加成了
+
+
+                                                 

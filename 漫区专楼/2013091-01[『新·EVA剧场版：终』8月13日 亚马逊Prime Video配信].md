@@ -3818,3 +3818,728 @@ Evangelion. ...</blockquote>
 
 
                                                
+
+*****
+
+####  RPG-7  
+##### 347#       发表于 2021-8-12 23:37
+
+
+等个高码率的源 周末慢慢看
+
+
+*****
+
+####  kaion111  
+##### 348#       发表于 2021-8-12 23:38
+
+
+蹲楼里等一个好的片源和字幕
+
+
+*****
+
+####  人生如戏  
+##### 349#       发表于 2021-8-12 23:40
+
+
+百度存了个5G多的，还是远鉴的字幕，看了点，这翻译，已经无法吐槽了。。。。。但是好想看完<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  头像测试1号机  
+##### 350#       发表于 2021-8-12 23:41
+
+
+说好的改情节改cp改结局呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  -Vanitas-  
+##### 351#       发表于 2021-8-12 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348629&amp;ptid=2013091" target="_blank">人生如戏 发表于 2021-8-12 23:40</a>
+
+百度存了个5G多的，还是远鉴的字幕，看了点，这翻译，已经无法吐槽了。。。。。但是好想看完 ...</blockquote>
+字幕是官方的啊，远鉴就压制一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  満月－夜  
+##### 352#       发表于 2021-8-12 23:43
+
+
+日亚居然上了，我还以为是除日本地区的都能看……
+
+刚好重温一遍，之前看生肉确实有点看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  人生如戏  
+##### 353#       发表于 2021-8-12 23:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348652&amp;ptid=2013091" target="_blank">-Vanitas- 发表于 2021-8-12 23:41</a>
+
+字幕是官方的啊，远鉴就压制一下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这是亚马逊的官方吗。。。。。。。
+
+
+*****
+
+####  兰开夏  
+##### 354#       发表于 2021-8-12 23:44
+
+
+下载完了
+
+
+却不是很想看
+
+
+*****
+
+####  -Vanitas-  
+##### 355#       发表于 2021-8-12 23:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348676&amp;ptid=2013091" target="_blank">人生如戏 发表于 2021-8-12 23:44</a>
+
+这是亚马逊的官方吗。。。。。。。</blockquote>
+是啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">官方自带中文字幕
+
+
+*****
+
+####  Unlight  
+##### 356#       发表于 2021-8-12 23:45
+
+
+官方字幕太烂了，明天再说了
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 357#       发表于 2021-8-12 23:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看到前情提要字幕组打广告直接关了，至于吗
+
+
+*****
+
+####  Yalbsd  
+##### 358#       发表于 2021-8-12 23:46
+
+
+这字幕就是机翻吧，没法看
+
+
+*****
+
+####  新月祥  
+##### 359#       发表于 2021-8-12 23:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348652&amp;ptid=2013091" target="_blank">-Vanitas- 发表于 2021-8-12 23:41</a>
+
+字幕是官方的啊，远鉴就压制一下</blockquote>
+宁可慢慢下载官方的版本，YJ这个塞满广告的东西没法看
+
+
+*****
+
+####  汝者  
+##### 360#       发表于 2021-8-12 23:48
+
+
+字幕别选简体 繁体还能凑合一下
+
+简体肯定吃回扣了
+
+<img src="https://img.saraba1st.com/forum/202108/12/234830vcd8ccjdg4zx74bu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210812234732.jpg</strong> (68.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 23:48 上传
+
+
+
+
+*****
+
+####  白徵明  
+##### 361#       发表于 2021-8-12 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348517&amp;ptid=2013091" target="_blank">名津流 发表于 2021-8-12 23:31</a>
+
+下了3.47G，远鉴字幕组的这个稍微看了一眼</blockquote>
+远鉴发的5GB版码率是4907k
+
+
+*****
+
+####  ky怪  
+##### 362#       发表于 2021-8-12 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348574&amp;ptid=2013091" target="_blank">名津流 发表于 2021-8-12 23:35</a>
+能麻烦看下参数吗，视频、音频码率什么的</blockquote>
+电脑关了懒得开，压的还凑合，瑕疵有点，不影响看
+
+
+*****
+
+####  APP  
+##### 363#       发表于 2021-8-12 23:51
+
+
+12点前能下载完！seeders/leechers 都上万了…<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shunfeng  
+##### 364#       发表于 2021-8-12 23:53
+
+
+链接：https://pan.baidu.com/s/156De5c7-dJSO5E-ED5vclw
+提取码：fszf
+外挂字幕web版，带鱼屏用户有救了
+
+
+*****
+
+####  cybernetics31  
+##### 365#       发表于 2021-8-12 23:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿姆罗二世  
+##### 366#       发表于 2021-8-12 23:58
+
+
+粗略看完了，观感最好的是黑丽剑剑真希波真嗣，明天起来再看一遍吧，睡了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  skives  
+##### 367#       发表于 2021-8-12 23:58
+
+
+我哭了
+
+
+*****
+
+####  鷇音子  
+##### 368#       发表于 2021-8-12 23:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">无法客观评价，十几年的情绪在翻滚
+
+
+*****
+
+####  -Vanitas-  
+##### 369#       发表于 2021-8-13 00:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348756&amp;ptid=2013091" target="_blank">白徵明 发表于 2021-8-12 23:51</a>
+ 远鉴发的5GB版码率是4907k</blockquote>
+nyaa那个5.77GB的是4660k
+
+
+*****
+
+####  duraa  
+##### 370#       发表于 2021-8-13 00:02
+
+
+我是真的挺喜欢这个结局的，小受也长大了
+
+
+所以我更觉得当时又剧透又带节奏的类似呆呆兽之流的妈死了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kilkilo  
+##### 371#       发表于 2021-8-13 00:02
+
+
+暂时不看了，等个好字幕
+
+
+*****
+
+####  Fuero  
+##### 372#       发表于 2021-8-13 00:03
+
+
+简中字幕怕是吃了回扣……
+
+
+*****
+
+####  阿姆罗二世  
+##### 373#       发表于 2021-8-13 00:04
+
+
+不行了，睡不着，心绪复杂，各种方面都贤者了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  arora  
+##### 374#       发表于 2021-8-13 00:04
+
+
+看到官方简中字幕一直在没有絆这个字的台词翻译里加羁绊这个词我拳头都硬了
+
+还有不少机翻可能都不至于会错的翻译和语气的翻译错误
+
+如果愿意等的不怎么会日语的坛友我建议还是等别的字幕……
+
+
+*****
+
+####  污陨血红  
+##### 375#       发表于 2021-8-13 00:08
+
+
+这官方简中真不行<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+蹲一个字幕组资源（）
+
+
+*****
+
+####  Brahmsin  
+##### 376#       发表于 2021-8-13 00:12
+
+
+有无坛友看了繁中的咋样
+
+—— 来自 OnePlus GM1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  阿姆罗二世  
+##### 377#       发表于 2021-8-13 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348969&amp;ptid=2013091" target="_blank">Brahmsin 发表于 2021-08-13 00:12:55</a>
+有无坛友看了繁中的咋样
+
+—— 来自 OnePlus GM1900, Android 11上的  v2.4.4.1</blockquote>比简中的要强一点
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  skives  
+##### 378#       发表于 2021-8-13 00:15
+
+
+说实话完全没看出来<img src="https://static.saraba1st.com/image/smiley/carton2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jietf  
+##### 379#       发表于 2021-8-13 00:15
+
+
+yj阿里那个 在线到一半看不了 的就我一个人吗
+
+
+*****
+
+####  editornya  
+##### 380#       发表于 2021-8-13 00:15
+
+
+种田丽可爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nekkihs  
+##### 381#       发表于 2021-8-13 00:15
+
+
+這垃圾簡中字幕 又方便樂子孤兒帶節奏了
+
+
+*****
+
+####  新月祥  
+##### 382#       发表于 2021-8-13 00:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348727&amp;ptid=2013091" target="_blank">汝者 发表于 2021-8-12 23:48</a>
+
+字幕别选简体 繁体还能凑合一下
+
+简体肯定吃回扣了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202108/13/001535zrnn1zxckrkkw00k.png" referrerpolicy="no-referrer">
+
+
+<strong>0VF1B]FJ@~R@VRZGYG_T~[X.png</strong> (138.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 00:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/001529dw75ww496t6tu7ty.png" referrerpolicy="no-referrer">
+
+
+<strong>4_{H1CD8KT@U6}T]T%R_Q[8.png</strong> (145.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 00:15 上传
+
+
+大佬，你确定繁体还能凑合？ 我还是慢慢等好一点的字幕吧
+
+
+*****
+
+####  ttoady  
+##### 383#       发表于 2021-8-13 00:19
+
+
+字幕太蛋疼了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+等字幕组的
+
+
+*****
+
+####  阿姆罗二世  
+##### 384#       发表于 2021-8-13 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348998&amp;ptid=2013091" target="_blank">skives 发表于 2021-08-13 00:15:01</a>
+说实话完全没看出来</blockquote>确实没感觉有啥恶心的，剑剑这么好一个人，信任他也很正常吧，没感觉到有啥牛的感觉
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  natmk  
+##### 385#       发表于 2021-8-13 00:26
+
+
+全篇看下来是真的好看 但是感官最差的部分就是长大的真嗣顶着这张脸说着油腻的台词让人不适<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ztl44  
+##### 386#       发表于 2021-8-13 00:26
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/002544ykq6odghe6g6cqcf.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (17.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 00:25 上传
+
+
+ 这官方繁体字幕也挺屎的
+
+
+*****
+
+####  NBGI  
+##### 387#       发表于 2021-8-13 00:26
+
+
+关字幕看舒服多了
+
+
+*****
+
+####  11116等  
+##### 388#       发表于 2021-8-13 00:26
+
+
+ 本帖最后由 11116等 于 2021-8-13 00:31 编辑 
+
+粗略看完了，因为有真嗣和司令对话那段，把前面觉得不是很行的地方大多都补回来一点，最后的实拍也还行吧(去掉真希波和真嗣谈话那段)，其他的不想评价。可能是不会再看第二遍的作品，虽然字幕很差劲
+由于先前放低评价，＋1
+
+
+*****
+
+####  补天士  
+##### 389#       发表于 2021-8-13 00:27
+
+
+<blockquote>阿姆罗二世 发表于 2021-8-13 00:19
+确实没感觉有啥恶心的，剑剑这么好一个人，信任他也很正常吧，没感觉到有啥牛的感觉
+
+
+  -- 来自 能看大图的 ...</blockquote>
+不是信任，很多细节恰恰相反。剑剑这个称呼是表示在式波眼里剑介犹如蝼蚁般存在的意思。等我眼睛好了，发图文解说到底剑香是什么关系。
+
+
+*****
+
+####  阿姆罗二世  
+##### 390#       发表于 2021-8-13 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349112&amp;ptid=2013091" target="_blank">natmk 发表于 2021-08-13 00:26:07</a>
+全篇看下来是真的好看 但是感官最差的部分就是长大的真嗣顶着这张脸说着油腻的台词让人不适 ...</blockquote>难道不是3D大白丽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">简直丑哭我，确定不是二十年前的3D脸
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+*****
+
+####  团结奋进碇真嗣  
+##### 391#       发表于 2021-8-13 00:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349016&amp;ptid=2013091" target="_blank">新月祥 发表于 2021-8-13 00:15</a>
+
+大佬，你确定繁体还能凑合？ 我还是慢慢等好一点的字幕吧</blockquote>
+这截图看着好像tv和序的结合体
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/003031tmc8w3c81dwumcuc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[YYDM-11FANS][Neon Genesis Evangelion][05][BDRIP][720P][X264-10bit_AAC][578B1476.jpg</strong> (71.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 00:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/003037ax6e5ux4rus66mto.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[YYDM-11FANS][Neon Genesis Evangelion][05][BDRIP][720P][X264-10bit_AAC][578B1476.jpg</strong> (75.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 00:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/003040q1fo4p1zh41t55f5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Evangelion 1.11 You Are (Not) Alone (BD 1280x720 AVC AACx3 [5.1 6.1 2.0]).mp4_sn.jpg</strong> (113.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 00:30 上传
+
+
+*****
+
+####  阿姆罗二世  
+##### 392#       发表于 2021-8-13 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349151&amp;ptid=2013091" target="_blank">团结奋进碇真嗣 发表于 2021-08-13 00:31:00</a>
+这截图看着好像tv和序的结合体</blockquote>就是回忆杀
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  七七見奈波  
+##### 393#       发表于 2021-8-13 00:33
+
+
+我已经放弃字幕了，要么日语要么简中配自己脑内修正吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">繁中也烂得一坨，而且错得莫名其妙
+
+
+*****
+
+####  Unlight  
+##### 394#       发表于 2021-8-13 00:33
+
+
+这字幕…算了，我还是等民间字幕出了再说吧
+
+
+QQ图片20210813003048.png
+(9.31 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-13 00:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/003257uxdzypzd4xr3ddrr.png" referrerpolicy="no-referrer">
+
+
+QQ图片20210813003052.png
+(12.23 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-13 00:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/003257tthjy5jzuyhjgo11.png" referrerpolicy="no-referrer">
+
+
+QQ图片20210813003143.jpg
+(18.89 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-13 00:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/003257pizp4a4xcaqhrqwh.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿姆罗二世  
+##### 395#       发表于 2021-8-13 00:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349163&amp;ptid=2013091" target="_blank">七七見奈波 发表于 2021-08-13 00:33:00</a>
+我已经放弃字幕了，要么日语要么简中配自己脑内修正吧繁中也烂得一坨，而且错得莫名其妙 ...</blockquote>看国内字幕组的吧，虽然感觉翻的也一般
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  kila31  
+##### 396#       发表于 2021-8-13 00:35
+
+
+那么英语字幕会好一些吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">下下来还没敢打开。
+
+— from Google Pixel 4, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  野上由加奈  
+##### 397#       发表于 2021-8-13 00:39
+
+
+等一个外挂字幕
+
+
+*****
+
+####  Amadeuszhao  
+##### 398#       发表于 2021-8-13 00:39
+
+
+看了的话，感觉香香剑介不是情侣关系，的的确确是父女关系至少是长辈那种，比较离谱和塞私货的地方在于整个真嗣和玛丽最后在一起感觉完全没有讲清楚，感觉就是私货。。。。
+
+还有老贼一如既往劝别人长大，然后自己还得屁颠屁颠做自己不爱做的eva套钱最后还因此得抑郁，这么一想，感觉观众赢麻了
+
+
+*****
+
+####  Unlight  
+##### 399#       发表于 2021-8-13 00:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349121&amp;ptid=2013091" target="_blank">补天士 发表于 2021-8-13 00:27</a>
+
+不是信任，很多细节恰恰相反。剑剑这个称呼是表示在式波眼里剑介犹如蝼蚁般存在的意思。等我眼睛好了，发 ...</blockquote>
+是类似轻小说《红》里开头部分九凤院紫根本不在乎在男主面前裸体那种？倒也谈不上吧……
+ <blockquote>以前真九郎曾经听银子说过，王族一类真正上流阶层的人，即使让身份卑微的下人看见裸体也毫无感觉，因为身份卑贱的下人和王族不同层次，所以他们不会有羞耻感，而紫的态度除了年幼不懂事以外，可能也含有这个原因。</blockquote>
+
+
+*****
+
+####  明0620  
+##### 400#       发表于 2021-8-13 00:41
+
+
+给爷整笑了<img src="https://p.sda1.dev/2/a1569ae0b903881d388639af672feb05/-764636683523ccb0.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL50, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  污陨血红  
+##### 401#       发表于 2021-8-13 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349225&amp;ptid=2013091" target="_blank">Amadeuszhao 发表于 2021-8-13 00:39</a>
+
+看了的话，感觉香香剑介不是情侣关系，的的确确是父女关系至少是长辈那种，比较离谱和塞私货的地方在于整个 ...</blockquote>
+痞子拍特摄圆梦去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哥斯拉，奥特曼，假面
+
+痞子赢麻了啊
+
+干脆以后让他去拍高达吧，绝对比大文豪好
+
+
+*****
+
+####  -Vanitas-  
+##### 402#       发表于 2021-8-13 00:45
+
+
+不会是英翻中吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  九十九忍  
+##### 403#       发表于 2021-8-13 00:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在看这套只觉得台词透着一股子爹味
+
+
+                                               
