@@ -9168,3 +9168,20 @@ SH 可能真的有，但跟这家没关系
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 719#       发表于 2021-8-13 06:11
+
+
+ 本帖最后由 luoyianwu 于 2021-8-13 06:15 编辑 
+
+[https://twitter.com/BBGameStudios/status/1425941976671739904](https://twitter.com/BBGameStudios/status/1425941976671739904)
+
+BBGS表示我们100%是真的；大部分测试都做完了，补丁快好了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+来都来了，干脆看完好了
+
+
+                                                 
