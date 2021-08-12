@@ -9037,3 +9037,59 @@ Hasan一直有在PSN上回复玩家私信的习惯
 
 
                                                  
+
+*****
+
+####  阿布都督  
+##### 709#       发表于 2021-8-13 01:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349528&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-13 01:23</a>
+ https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p33z1e https://www.reddit.com/r/TheBlueBoxCon ...</blockquote>
+Shortly这个词真的很微妙，看到这词就有一种还得等不少时间的预感<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  luoyianwu  
+##### 710#       发表于 2021-8-13 01:34
+
+
+ 本帖最后由 luoyianwu 于 2021-8-13 01:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349576&amp;ptid=2010295" target="_blank">阿布都督 发表于 2021-8-13 01:32</a>
+
+Shortly这个词真的很微妙，看到这词就有一种还得等不少时间的预感</blockquote>
+Shortly™
+
+根据[荷兰Drimble数据库](https://drimble.nl/bedrijf/leiden/32768710/blue-box-game-studios.html)，Blue Box是在2015年的今天成立的。而小岛在konami被解除职务发生在2015年三月
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 711#       发表于 2021-8-13 01:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349589&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-13 01:34</a>
+Shortly™
+
+根据荷兰Drimble数据库，Blue Box是在2015年的今天成立的。而小岛在konami被解除职务发生在2015 ...</blockquote>
+下一盘大旗?<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  luoyianwu  
+##### 712#       发表于 2021-8-13 01:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349717&amp;ptid=2010295" target="_blank">医生狼多 发表于 2021-8-13 01:51</a>
+
+下一盘大旗?</blockquote>
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p29dwz/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/p29dwz/)
+
+这边有个昨天网友重新汇整的时间轴，Blue Box或许更早就存在了，但是整个Blue Box的起点的确是2015年
+
+
+                                                 

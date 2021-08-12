@@ -5168,3 +5168,1596 @@ YJ这个字幕组可是字幕组之屑，翻译质量可以说是无，为了流
 
 
                                                
+
+*****
+
+####  m99999  
+##### 459#       发表于 2021-8-13 01:34
+
+
+<blockquote>woshenc 发表于 2021-8-13 01:16
+连夜看掉，发表下感想：
+
+这部终感情方面其实谈的不多，在有限的时间内算是把故事交代完了，最后三个人补完 ...</blockquote>
+在司令回忆的线稿不是反复出现玛丽吗，也算交待了
+
+
+*****
+
+####  LLLLLuB  
+##### 460#       发表于 2021-8-13 01:35
+
+
+庵野监督最后还是和世界和解了，おめでとう！
+预想中的结局路线，结构呼应上很过瘾 ​​​
+
+
+*****
+
+####  ads147147  
+##### 461#       发表于 2021-8-13 01:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349481&amp;ptid=2013091" target="_blank">和真克瓦尔 发表于 2021-8-13 01:15</a>
+老碇的部分很好，eva始于daddy issue，完结在治好daddy issue上已经配得上终了</blockquote>
+细想的话，开头那个至今为止的eva里，老碇的存在感也蜜汁很高，tv里被砍掉的几个使徒很多也是和老碇戏份不多就删了（比如某斑马）。
+
+妈的，痞子还说这剧本打算两小时拍完，结果这么赶还是两个多小时，完全是过去的天坑太多了。如果是daddy的主线应该做的更精炼点才对，怕不是临时起意用来堵嘴的。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  reekilynn  
+##### 462#       发表于 2021-8-13 01:35
+
+
+明日香：小鬼需要的不是恋人，是母亲。
+这句话套回明日香自己其实一样成立。
+
+—— 来自 OnePlus GM1917, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hvbr| + 1|好评加鹅|
+| asion617| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  污陨血红  
+##### 463#       发表于 2021-8-13 01:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349558&amp;ptid=2013091" target="_blank">hvbr 发表于 2021-8-13 01:29</a>
+
+不同的诠释，算是有始有终，不过太清楚了，清楚的不像EVA</blockquote>
+就像逆A于高达一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完全不高达
+
+不过终没有逆A那么艺术
+
+
+*****
+
+####  cybernetics31  
+##### 464#       发表于 2021-8-13 01:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">李安.jpg，看完就觉得这cp有啥好撕的啊
+
+
+*****
+
+####  onemoment  
+##### 465#       发表于 2021-8-13 01:36
+
+
+看完了，除了那3d大白丽让我出戏外，这结局可以了
+
+
+*****
+
+####  c030406  
+##### 466#       发表于 2021-8-13 01:36
+
+
+看完
+<img src="http://pic.yupoo.com/c030404/08426f87/983e5b22.jpg" referrerpolicy="no-referrer">
+
+<img src="http://pic.yupoo.com/c030404/09ce66e7/b12a11d5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://pic.yupoo.com/c030404/6db41e02/7dce43df.jpg" referrerpolicy="no-referrer">
+
+<img src="http://pic.yupoo.com/c030404/de688e61/cc9a0508.jpg" referrerpolicy="no-referrer">
+
+<img src="http://pic.yupoo.com/c030404/257fb283/153b4d5c.jpg" referrerpolicy="no-referrer">
+
+<img src="http://pic.yupoo.com/c030404/6d150da0/65b6928c.jpg" referrerpolicy="no-referrer">
+
+<img src="http://pic.yupoo.com/c030404/74051774/7ca0bdb7.jpg" referrerpolicy="no-referrer">
+
+<img src="http://pic.yupoo.com/c030404/3ddbd097/c8aa9184.jpg" referrerpolicy="no-referrer">
+
+<img src="http://pic.yupoo.com/c030404/d871f63a/994688e1.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hlazd  
+##### 467#       发表于 2021-8-13 01:36
+
+
+看了一会，感觉影院和家里差别是挺大的，有些地方电影院看挺自然的电脑上看就有点别扭了
+
+
+*****
+
+####  ads147147  
+##### 468#       发表于 2021-8-13 01:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349483&amp;ptid=2013091" target="_blank">woshenc 发表于 2021-8-13 01:16</a>
+连夜看掉，发表下感想：
+
+这部终感情方面其实谈的不多，在有限的时间内算是把故事交代完了，最后三个人补完 ...</blockquote>
+jzgg偷偷在玛丽出水的部分又画了次02（不
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  oniwarud  
+##### 469#       发表于 2021-8-13 01:36
+
+
+这一部应该是痞子最说人话的一部eva了，虽然一堆宗教术语往外冒但都解释得明明白白基本不谜语人，有时感觉是直白过头反而不像eva了。各种的对旧作的从剧情场景到分镜的致敬和呼应，还有狂塞的回忆杀也是能看出想把各种坑全部都给填上的想法在里面，可以看得出来痞子是真的不想再拍eva了，基本没留下什么可以讲的东西了。就是感觉这后面的剧情实在是在太赶了点，情感宣泄上感觉总是差那么一口气的感觉
+
+
+*****
+
+####  匶裫の0人  
+##### 470#       发表于 2021-8-13 01:36
+
+
+剑介的形象比想象的要靠谱，还算是完整的结局，故事上打感情牌多，最主要的问题是脱节了，从Q开始就已经感觉不到是eva了，三冲直接李林game over多好啊，至少能让能让观众在回味tv版时获得一些感动。
+
+
+*****
+
+####  TriSPD  
+##### 471#       发表于 2021-8-13 01:37
+
+
+老爹最后不还是没走出来吗，还是得去找老婆，这和哭了一整个三村的真嗣一模一样啊，就发泄了一通
+
+
+*****
+
+####  轮太  
+##### 472#       发表于 2021-8-13 01:37
+
+
+食毕
+
+终于结束了，看完完全是平静的解脱
+
+新奥特曼加油
+
+
+*****
+
+####  ddlsyo  
+##### 473#       发表于 2021-8-13 01:38
+
+
+最后玛丽阿姨和大人真嗣一起从幻想世界跑向现实世界，也不错吧
+
+
+*****
+
+####  何でやねん  
+##### 474#       发表于 2021-8-13 01:38
+
+
+圆满了，谢谢庵野大师。
+
+果然选胸大的一定赢到最后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kraoo  
+##### 475#       发表于 2021-8-13 01:38
+
+
+ 本帖最后由 kraoo 于 2021-8-13 01:39 编辑 
+
+听香亲口喊剑剑还是有点不适，不过最后确实更偏向长辈。玛丽还是全程看不懂，中间突然一句中文再见直接串戏唐可可<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">使徒来袭bgm跟最后美里散头发属实情怀加分，也算是有始有终吧
+
+
+*****
+
+####  downfall  
+##### 476#       发表于 2021-8-13 01:38
+
+
+真嗣：你应该多关心儿子
+
+元渡：是的
+
+
+真嗣：代我向剑介问好
+
+明日香：是的
+
+
+真嗣：你只考虑自己的幸福
+
+薰：是的
+
+
+真嗣：你应该去寻找其他的幸福
+
+丽：是的
+
+
+真嗣：大胸的好女人嗷！！
+<img src="https://static.saraba1st.com/image/smiley/carton2017/349.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小小陌路人  
+##### 477#       发表于 2021-8-13 01:38
+
+
+ 本帖最后由 小小陌路人 于 2021-8-13 01:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349367&amp;ptid=2013091" target="_blank">qianoooo 发表于 2021-8-13 00:59</a>
+90分钟以后作画和cg的水平急剧下降 感觉中间那段是疫情期间没办法赶制的</blockquote>
+朋友，请注意总作画监督
+<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tjshibc21  
+##### 478#       发表于 2021-8-13 01:39
+
+
+算是给一个看得过去的收尾了
+
+这么多年 也不追求其他了
+
+
+*****
+
+####  戏言学者  
+##### 479#       发表于 2021-8-13 01:39
+
+
+ 本帖最后由 戏言学者 于 2021-8-13 01:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349595&amp;ptid=2013091" target="_blank">reekilynn 发表于 2021-8-13 01:35</a>
+
+明日香：小鬼需要的不是恋人，是母亲。
+
+这句话套回明日香自己其实一样成立。</blockquote>
+我觉得那句台词是为了接下来引出美里的剧情的，不能单独看。你往下看看，下面立刻接上母亲这个话题的就是美里。
+
+
+*****
+
+####  ReginaldMorgan  
+##### 480#       发表于 2021-8-13 01:39
+
+
+熬夜看完了，千言万语难说出口。
+
+其实期待的应该是一场更宏大的结尾，但是这样子也不算差吧。
+
+
+
+
+*****
+
+####  ads147147  
+##### 481#       发表于 2021-8-13 01:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349603&amp;ptid=2013091" target="_blank">c030406 发表于 2021-8-13 01:36</a>
+看完</blockquote>
+说实话，老碇自白那段看的我也嫉妒老碇怎么就把到了唯这么个大美人还是知己级别的。冬月没暗地里宰了老碇真是对唯太柏拉图了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 482#       发表于 2021-8-13 01:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349618&amp;ptid=2013091" target="_blank">何でやねん 发表于 2021-8-13 01:38</a>
+圆满了，谢谢庵野大师。
+
+果然选胸大的一定赢到最后</blockquote>
+28岁香明明不比阿姨小。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 483#       发表于 2021-8-13 01:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼里反应大概可以归纳为“还可以吧”四个字
+
+我觉得对珠玉在前的翻拍片来说没有比这更尴尬的评价了
+
+
+*****
+
+####  Bojenkins  
+##### 484#       发表于 2021-8-13 01:41
+
+
+到最后已经直白得可笑了，但不装模作样直率地把想说的说出来才是痞子的救赎
+另外是时候把带剑剑节奏的人叉起来烧死了
+
+
+*****
+
+####  戏言学者  
+##### 485#       发表于 2021-8-13 01:41
+
+
+看完感受：我就觉得快~
+
+
+*****
+
+####  TriSPD  
+##### 486#       发表于 2021-8-13 01:42
+
+
+后面3d破模型乱甩是jzgg的锅吗，量产机什么鬼，隔壁盖塔眼看穷得揭不开锅都比你强。真的想骂人，还以为是学了三年动画，shift d狂按完成任务
+
+
+*****
+
+####  MONSTERS  
+##### 487#       发表于 2021-8-13 01:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349432&amp;ptid=2013091" target="_blank">oniwarud 发表于 2021-8-13 01:08</a>
+
+还有当初q的时候我就在想真嗣那个同步率零是不是其实是无限，当时想着这梗也太土了吧，没想到最后理由居然 ...</blockquote>
+
+
+第一次看到的时候就感觉你这同步率无限大吹的响，但感觉还不如破最后成神那段震撼啊。后面特摄的朴实打架就更加了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chronicle  
+##### 488#       发表于 2021-8-13 01:43
+
+
+关于香这段，和小受差了14岁，而且经历了3冲，心境差太多，没办法在一起太合理了。只不过q里观众没意识到这点，终里被点破了。
+
+
+*****
+
+####  Bojenkins  
+##### 489#       发表于 2021-8-13 01:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349643&amp;ptid=2013091" target="_blank">MONSTERS 发表于 2021-8-13 01:42</a>
+第一次看到的时候就感觉你这同步率无限大吹的响，但感觉还不如破最后成神那段震撼啊。后面特摄的朴实打 ...</blockquote>
+看这段的时候老是想到童帝的战力测试面具
+
+
+*****
+
+####  peshing  
+##### 490#       发表于 2021-8-13 01:45
+
+
+Cp的事我觉得没啥纠结的，但这剧场版明显前后质量不一样是咋回事？
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  wwddrte  
+##### 491#       发表于 2021-8-13 01:45
+
+
+剧终。
+
+长发绫波好
+
+
+*****
+
+####  重巡羊舰  
+##### 492#       发表于 2021-8-13 01:45
+
+
+ 本帖最后由 重巡羊舰 于 2021-8-13 02:04 编辑 
+
+看完了，趁着还在放片尾曲，吐槽几句，不喜随便喷，反正个人想法，做不得数
+
+
+剧情：没资格评论，我P都不懂，等泥潭E学家吧，智力和学历都不足以领会敬爱的庵野秀明同志的想法
+
+
+剑剑：的确，在村子的时候，肯定不是啥恋爱关系，顶多算是个同居多年老室友，恋爱未满都不好说，当然这个世界上存不存在纯洁的男女关系，请自由心证。但是后面这么明显的官方许配，车站一个人坐就想洗这也太扯淡了，这被香党炎上带节奏纯活该，要是周边卖不出去拍手叫好谢谢
+
+
+最后说几点
+
+1、我完全感受不到明日香在这十四年里有哪怕一点点的成长，在村子里的剧情特别的别扭，后面临终大战表白和13号机面前自我毁灭自我救赎算有一点点，真嗣反而在这部里强行成长一堆……这到底算啥，她除了有信息代差优势意外，有什么资格指指点点淀真嗣？
+
+2、日本人的3d水平都那么烂嘛，后半段3d动作戏看着好廉价啊，丽的3d头看的惊悚的一批，还不如真心为你里面的那个
+
+3、不是你们在Q里，哪怕说2分钟人话，碇真嗣都不会去开13号机，不开13号机，这剧情都不会这样下去，属实有大病，三冲全人类都患了不会说话综合征是吧？
+
+
+槽点好多，想到啥是啥，最最后，我觉得是烂片，痞子等没钱，一准又回来再搞eva，真没意思，总是被玩弄在故障件（然而还是会买周边）
+
+
+最最最后，序破和Q终是2部片，谢谢，不接受任何反驳，丽党再去看一遍破了（长发丽真好看，有周边嘛，想氪金）
+
+
+*****
+
+####  kiritokun  
+##### 493#       发表于 2021-8-13 01:45
+
+
+没啥问题，从95年tv到21年的现在大家都长大了。
+从meta现实来讲，确实也是这个道理，没必要梗着，该beautiful world了而不是在那里独自at field。
+能拍完就是好事<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  rubp羧化酶  
+##### 494#       发表于 2021-8-13 01:45
+
+
+看完了，eva结束了。这也是我看完唯一的感受。
+eva结束了，从二十多年前到现在
+释怀，解脱，放松，长舒一口气。
+就是这么一场结束，就是这么一场再见。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+然而我还是前几部的真嗣<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LichEnd  
+##### 495#       发表于 2021-8-13 01:46
+
+
+挺好的，所有人都有个好结局。
+
+
+该结束的也都结束了。
+
+
+再见了，所有的EVA。
+
+
+*****
+
+####  reekilynn  
+##### 496#       发表于 2021-8-13 01:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349627&amp;ptid=2013091" target="_blank">戏言学者 发表于 2021-8-13 01:39</a>
+我觉得那句台词是为了接下来引出美里的剧情的，不能单独看。你往下看看，下面立刻接上母亲这个话题的就是 ...</blockquote>
+你这个论述没问题，不过要我补充的话，这个“母亲”对应真希波也可以，毕竟（我没记错的话）真希波只比碇唯小…最多四岁？
+
+—— 来自 OnePlus GM1917, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  すみぺ  
+##### 497#       发表于 2021-8-13 01:47
+
+
+明日香使徒化那段真的是tmd太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yoboc  
+##### 498#       发表于 2021-8-13 01:48
+
+
+真嗣全剧大概是三次破除了心之壁，已经够可以了，最后连爹都拯救了，实在是最温柔结局。
+至于拉郎配的分量低的可以，除了对只喜欢这个的，没什么好讨论的。
+
+
+*****
+
+####  何でやねん  
+##### 499#       发表于 2021-8-13 01:48
+
+
+这次就真的可以不用再拘泥于过去了
+
+
+*****
+
+####  zhrs456  
+##### 500#       发表于 2021-8-13 01:49
+
+
+ 本帖最后由 zhrs456 于 2021-8-13 01:52 编辑 
+
+PART D拍的真的差强人意 拿出这个当结局只能说庵野确实不想干了 或者就真的是纪录片里说的要赶DEADLINE必须给个结局 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  eaglet_loki  
+##### 501#       发表于 2021-8-13 01:49
+
+
+3d部分可谓是灾难，绫波大头想起了冬奥会的那个气球，至于渚司令这个有点跟不上，谁来解释一下？
+
+
+*****
+
+####  hvbr  
+##### 502#       发表于 2021-8-13 01:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349669&amp;ptid=2013091" target="_blank">rubp羧化酶 发表于 2021-8-13 01:45</a>
+
+看完了，eva结束了。这也是我看完唯一的感受。
+
+eva结束了，从二十多年前到现在
+
+释怀，解脱，放松，长舒一口 ...</blockquote>
+是呀，连真嗣都成长了，我还是老样子
+
+
+今晚又打上了鸡血，估计只能持续到明早<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Temori  
+##### 503#       发表于 2021-8-13 01:49
+
+
+3d也背锅，jzgg太冤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+终这片3dcg有参与的部分达到了七成，相比前几作可以说是前所未有的比例。我个人是认为所谓的“劣质3d”，比如经常被提起的初号机和13号机对打，还有大白丽，基本都是有意做成这样，观感好不好另说。
+
+
+*****
+
+####  Fakerの幻影  
+##### 504#       发表于 2021-8-13 01:49
+
+
+只能说全怪q，q剧情不暴走
+
+
+*****
+
+####  zhrs456  
+##### 505#       发表于 2021-8-13 01:51
+
+
+ 本帖最后由 zhrs456 于 2021-8-13 01:56 编辑 
+
+还有3D转绘感觉不太自然的强制喂食那一段 有几句能听出一点鼻音 配的算是有感情了 可惜宫村嗓子确实被岁月糙磨了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  重巡羊舰  
+##### 506#       发表于 2021-8-13 01:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349699&amp;ptid=2013091" target="_blank">eaglet_loki 发表于 2021-8-13 01:49</a>
+
+3d部分可谓是灾难，绫波大头想起了冬奥会的那个气球，至于渚司令这个有点跟不上，谁来解释一下？ ...</blockquote>
+说是废案，当时Q剧情应该是源堂被废弃，加持和渚司令上位，大概是废案利用了下，毕竟那么多前几部作品的画面，用点废案也是可以理解的，反正没人看得懂，总有人会做出合理的分析的
+
+
+*****
+
+####  sd1055007  
+##### 507#       发表于 2021-8-13 01:51
+
+
+这次就是给所有人一个交代而已，看完就感觉该从eva毕业了
+
+
+*****
+
+####  m99999  
+##### 508#       发表于 2021-8-13 01:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349687&amp;ptid=2013091" target="_blank">yoboc 发表于 2021-8-13 01:48</a>
+
+真嗣全剧大概是三次破除了心之壁，已经够可以了，最后连爹都拯救了，实在是最温柔结局。
+
+至于拉郎配的分量 ...</blockquote>
+这部其实爹也是自救，真嗣的机会都是爹给的。包括剧情也说的很明白，seele的剧本就是把小受用完弃，和旧作一样
+
+
+*****
+
+####  共和政治文彦博  
+##### 509#       发表于 2021-8-13 01:53
+
+
+大白丽太太太烂了
+其他都很好，我能get到啊
+さよなら,所有的EVANGELION
+
+—— 来自 vivo V2025A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 510#       发表于 2021-8-13 01:53
+
+
+除了补全的部分里刻意重复的分镜，其他战斗故意neta过去tv部分的做法真的蛮多的，特别是mari8号机吃其他几个mark的时候，小力没承受的罪被其他人承受了一遍。太空下降作战的部分很不错，但是舰队作战比想象中的要少点，虽然也能理解。
+
+所以说，明日香的原型是谁，这个应该是永远的迷了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  何でやねん  
+##### 511#       发表于 2021-8-13 01:53
+
+
+从今天开始漫区又是血雨腥风，想想我就睡不着了<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wyjbnb  
+##### 512#       发表于 2021-8-13 01:53
+
+
+<blockquote>eaglet_loki 发表于 2021-8-13 01:49
+3d部分可谓是灾难，绫波大头想起了冬奥会的那个气球，至于渚司令这个有点跟不上，谁来解释一下？ ...</blockquote>
+轮回者呗，这么多次就想给小受带来幸福
+
+
+*****
+
+####  鹦与鹉  
+##### 513#       发表于 2021-8-13 01:53
+
+
+几个月没熬夜这次看完了，也没啥太多说的，结束了也算是一桩好事
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  m99999  
+##### 514#       发表于 2021-8-13 01:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349713&amp;ptid=2013091" target="_blank">重巡羊舰 发表于 2021-8-13 01:51</a>
+
+说是废案，当时Q剧情应该是源堂被废弃，加持和渚司令上位，大概是废案利用了下，毕竟那么多前几部作品的 ...</blockquote>
+其实剧情里也提到了一点，生命之书这个概念只有在薰的剧情里出现。他可能是不断轮回的总导演，加持实际也是在给他打工。
+
+
+*****
+
+####  ggrreen33  
+##### 515#       发表于 2021-8-13 01:54
+
+
+这收尾方法怎么跟翼神传说似的，到底谁先谁后啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bartholo4  
+##### 516#       发表于 2021-8-13 01:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349685&amp;ptid=2013091" target="_blank">すみぺ 发表于 2021-8-13 01:47</a>
+明日香使徒化那段真的是tmd太帅了</blockquote>
+串戏接下来就要大喊
+地球帝国宇宙軍太陽系直掩部隊直属・第六世代型恒星間航行決戦兵器！
+
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 517#       发表于 2021-8-13 01:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349699&amp;ptid=2013091" target="_blank">eaglet_loki 发表于 2021-8-13 01:49</a>
+3d部分可谓是灾难，绫波大头想起了冬奥会的那个气球，至于渚司令这个有点跟不上，谁来解释一下？ ...</blockquote>
+痞子说了破最后的预告就是没拍出来的失去的14年，因为真嗣没登场就不做了。期间发生了nevr权力变更，渚薰当司令加持副司令（所以加持才能搞到战舰和队伍给美里），后来老碇才重回nevr继续执行seele的任务。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  卡博雷z  
+##### 518#       发表于 2021-8-13 01:56
+
+
+看完了，一言难尽，最后那段太廉价了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  糖尔  
+##### 519#       发表于 2021-8-13 01:56
+
+
+看完感觉，我解脱了，痞子也解脱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+剧情就那么回事吧，能讲的也差不多了
+
+
+*****
+
+####  重巡羊舰  
+##### 520#       发表于 2021-8-13 01:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349742&amp;ptid=2013091" target="_blank">m99999 发表于 2021-8-13 01:54</a>
+
+其实剧情里也提到了一点，生命之书这个概念只有在薰的剧情里出现。他可能是不断轮回的总导演，加持实际也 ...</blockquote>
+我觉得自己没啥资格讨论剧情，实在看不懂到底想表现个啥，除了看出来最后所有人都被补完和幸福了以外，但是后面的真嗣上前线煽情剧情看的真让人反胃，你们但凡Q里面说2句人话，谁特么吃饱了会去开13号机啊……
+
+
+*****
+
+####  ReginaldMorgan  
+##### 521#       发表于 2021-8-13 01:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349747&amp;ptid=2013091" target="_blank">bartholo4 发表于 2021-8-13 01:55</a>
+串戏接下来就要大喊
+地球帝国宇宙軍太陽系直掩部隊直属・第六世代型恒星間航行決戦兵器！</blockquote>
+确实，那一段直接串戏到top2那段<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qrlfafner  
+##### 522#       发表于 2021-8-13 01:57
+
+
+最后算是给香香的感情点明了一点，突然跳出来的和绫波一样的人造设定，那几个画面想体现她潜意识里渴求的是父母的爱吧，在回忆里看到小受和父母互动的场面露出的表情也说明这一点，所以说人偶下面露出剑剑的脸，大概也是想表达她把剑剑当做父母长辈吧。不过那句提前一步成为大人的台词，恶意一点也可以解释成喜欢年上啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  chronicle  
+##### 523#       发表于 2021-8-13 01:58
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/015446nxjeieqtqiey0eeq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-13-01-53-26-041_com.flyersoft.moonreaderp.jpg</strong> (523.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 01:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/015758gd18aarbxk10r5kp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-13-01-57-40-464_com.flyersoft.moonreaderp.jpg</strong> (749.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 01:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/015805hon0iccpohsajcx7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-13-01-57-46-530_com.flyersoft.moonreaderp.jpg</strong> (435.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 01:58 上传
+
+
+新剧场版的架构应该完全参考了漫画
+
+
+*****
+
+####  Dreki  
+##### 524#       发表于 2021-8-13 01:58
+
+
+第三村和最后一part整体氛围还挺好的，就是最后除了和他爹的对话以外都太赶了，没两句话就完了。中间部分神棍浓度太高画面也不好看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+大白丽真的是败笔，你又不想做EOE那种震撼感了，就别搞大白丽了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  m99999  
+##### 525#       发表于 2021-8-13 01:59
+
+
+话说关于剧情上的理解：我觉得最后小受是走到了原世界。现实世界场景是直接接玛丽的，剧情上父母代替他实行了补完但没有覆盖旧世界，只是改写了一个没有eva的新世界，然后小受就被推到了那个空间外部。打破空间壁把他带走的只能是玛丽。现实场景预示的新世界安置的是薰丽香（原形）的灵魂。走出车站虽然是实写，但还是延续摄影棚的意识流场景，剧情上个人认为是和新世界告别。
+
+
+*****
+
+####  zhrs456  
+##### 526#       发表于 2021-8-13 01:59
+
+
+玛丽的设定肯定和贞本的一致
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  綾波ほむら  
+##### 527#       发表于 2021-8-13 02:00
+
+
+一切语言显得那么苍白
+
+
+*****
+
+####  贝利尔  
+##### 528#       发表于 2021-8-13 02:00
+
+
+恭喜抑郁症患者战胜病魔艹到初恋…
+
+拍EVA哪有拍特摄开心对吧…
+
+
+*****
+
+####  拉稀  
+##### 529#       发表于 2021-8-13 02:00
+
+
+补完这渚薰和拿父亲剧本的加持一起出现，再加上“渚司令”，之前的渚薰碇源堂说似乎可行？
+
+从只要开eva就行到剑剑安慰明日香就是明日香，再被真嗣强行送回替剑剑问好...明日香简直毫无成长，看不出哪先成为了大人，难道是说的先？？？
+
+
+*****
+
+####  m99999  
+##### 530#       发表于 2021-8-13 02:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349758&amp;ptid=2013091" target="_blank">重巡羊舰 发表于 2021-8-13 01:57</a>
+
+我觉得自己没啥资格讨论剧情，实在看不懂到底想表现个啥，除了看出来最后所有人都被补完和幸福了以外，但 ...</blockquote>
+确实q拍得非常差。终就是q的补完+大号的破。
+
+
+*****
+
+####  zhrs456  
+##### 531#       发表于 2021-8-13 02:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349787&amp;ptid=2013091" target="_blank">拉稀 发表于 2021-8-13 02:00</a>
+补完这渚薰和拿父亲剧本的加持一起出现，再加上“渚司令”，之前的渚薰碇源堂说似乎可行？
+
+从只要开eva就行 ...</blockquote>
+是模版化的傲娇了 破里和美里的那段电话不也这样 式波这角色模版化了不少
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  wpcc  
+##### 532#       发表于 2021-8-13 02:03
+
+
+作者已经解脱了，那你应许给观众的大胸妹呢？怎么发一个就你自己婚上了？
+
+
+*****
+
+####  darkddragon  
+##### 533#       发表于 2021-8-13 02:03
+
+
+ 本帖最后由 darkddragon 于 2021-8-13 02:10 编辑 
+
+从当年的小鬼从头到尾闹别扭给出的不是结尾的结尾，到现在正视自己的错误和成长回归现实，痞子也确实是跟自己和解了吧，个人的补完也从tv的儿子变成了终的老爹。
+
+每一个驾驶员最后都或多或少完成了成长和改变，也确实是个好结局了。
+
+3D的谜之使用不知道是不是疫情的锅了，这一点还是有点可惜。
+
+
+*****
+
+####  user_3399  
+##### 534#       发表于 2021-8-13 02:04
+
+
+等一个知乎蓝老师的更新
+
+
+*****
+
+####  Dreki  
+##### 535#       发表于 2021-8-13 02:05
+
+
+感觉现在再看Q真的卵用没有，整个Q就是一堆谜语人说真嗣你别开了，然后到终里面最后就成了我们应该谢谢你，你还是开吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kwg  
+##### 536#       发表于 2021-8-13 02:06
+
+
+前半段看得还比较舒服，后面完全没看懂，甚至比看完Q还要懵逼的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MONSTERS  
+##### 537#       发表于 2021-8-13 02:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349445&amp;ptid=2013091" target="_blank">阿姆罗二世 发表于 2021-8-13 01:10</a>
+
+Q和终明显是滥用3D，打斗没有了序和破里面的力量感 和巨大感，感觉就和高达差不多了，可以说是很没有灵魂了 ...</blockquote>
+
+
+开场真希波还不错的。只是真嗣好不容易振作了，结果像破里神化初号机毁天灭地的打戏后两部剧场版完全看不到就很可惜
+
+
+明日香使徒化本来挺帅气的，然后被13号机掏脖子秒了也是.......
+
+
+这憋屈感不亚于旧剧场版真嗣难得搞出开翅初号机，结果刚出来就被量产机锁喉当补完的架子，打戏都没有
+
+
+*****
+
+####  ads147147  
+##### 538#       发表于 2021-8-13 02:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349800&amp;ptid=2013091" target="_blank">wpcc 发表于 2021-8-13 02:03</a>
+作者已经解脱了，那你应许给观众的大胸妹呢？怎么发一个就你自己婚上了？ ...</blockquote>
+痞子：读书学生物，你就可以生产无数个大胸妹子了。
+
+21世纪果然是生物的世纪<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Freakyyu  
+##### 539#       发表于 2021-8-13 02:07
+
+
+官方字幕太TM拉跨了，还不如关了字幕我自己听。这版的大白丽太膈应人了……
+
+感受出来的就是庵野一种“我只想赶紧把EVA弄完然后再也不搭理这玩意，你们也别老惦记着看了”的情绪。CP都完全无关紧要了，我也不知道为啥最后渚薰会和丽站一块，真就随便一凑的吗。
+
+这种拖了很久之后一门心思想着“赶紧结束吧”，然后在最后完结的时候刻意致敬自己过去最高峰的内容来作为交代，上一个我看的叫春物，但好在庵野秀明不用为了捞钱还弄出恶心人的后续作品。
+
+另外最后塞一堆不讲人话的设定，换别的任何片都得被归进烂片的行列……
+
+我还是第一次发现有两个角色好像是致敬星际牛仔？
+
+
+*****
+
+####  Yinacona  
+##### 540#       发表于 2021-8-13 02:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349812&amp;ptid=2013091" target="_blank">Dreki 发表于 2021-08-13 02:05:54</a>
+感觉现在再看Q真的卵用没有，整个Q就是一堆谜语人说真嗣你别开了，然后到终里面最后就成了我们应该谢谢你， ...</blockquote>最后13号机和初号机打架那段笑出声了。虽然说这段重点是说打架不是解决问题的方法但是画出来的感觉就很emm
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+*****
+
+####  symnetry  
+##### 541#       发表于 2021-8-13 02:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bartholo4  
+##### 542#       发表于 2021-8-13 02:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349595&amp;ptid=2013091" target="_blank">reekilynn 发表于 2021-8-13 01:35</a>
+明日香：小鬼需要的不是恋人，是母亲。
+这句话套回明日香自己其实一样成立。</blockquote>
+就是说自己啦
+明日香明显是知道自己问题在哪的
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  pzk  
+##### 543#       发表于 2021-8-13 02:09
+
+
+ 本帖最后由 pzk 于 2021-8-13 02:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打败他爹我能理解是真嗣把他爹拉到了和他一样的水平上然后用丰富的废物经验取得了胜利，后面大家是在谢什么……
+
+那堆布景和皮套相当惊艳。
+
+
+最后我玛丽是什么变态炼铜屁，我要报警了！！！
+
+
+*****
+
+####  XIEGC  
+##### 544#       发表于 2021-8-13 02:09
+
+
+看完了，完结了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cen  
+##### 545#       发表于 2021-8-13 02:10
+
+
+我都记不清那个粉毛是哪来的了，先重看一遍3.33
+
+
+*****
+
+####  m99999  
+##### 546#       发表于 2021-8-13 02:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349835&amp;ptid=2013091" target="_blank">pzk 发表于 2021-8-13 02:09</a>
+
+打败他爹我能理解是真嗣把他爹拉到了和他一样的水平上然后用丰富的废物经验取得了胜利，后面大家是 ...</blockquote>
+他爹跟看过剧本似的，自己一直犹豫要不要让真嗣阻止自己。旧作他爹的误算就是把儿子当棋子，结果被老婆抛弃了，没能补完。这次是功德圆满
+
+
+*****
+
+####  evatrix  
+##### 547#       发表于 2021-8-13 02:11
+
+
+后面的3d打斗简直让我想起了贰瓶勉的那个什么骑士，廉价的物体碰撞感。
+
+
+痞子在机器人动画上是真江郎才尽了，当年那么多使徒翻着花样，现在就一场大战就只会战列舰互射了。
+
+
+对不关心cp的路人而言明日香在终里就没什么参与感，还是围绕q里上来隔着玻璃朝真嗣打一拳对当年的事讨个说法，在村子的戏份大黑丽竟然占这么多，除了结局拉郎配以外已经可以说丽党大胜利了
+
+
+*****
+
+####  pzk  
+##### 548#       发表于 2021-8-13 02:11
+
+
+话说为什么玛丽和flipflappers里的帕比卡同样都是主角的阿姨，我能接受帕比卡却无法接受玛丽呢？
+
+
+*****
+
+####  X9999  
+##### 549#       发表于 2021-8-13 02:11
+
+
+看完了
+
+剧情方面从q开始各个都是谜语人，所以根本不在呼所谓的剧情，只是为了情怀。
+
+“终”也只不过是给我对eva的感情画上一个句号。
+
+记得十几年前第一次看旧剧场版，看完我自己难过了很久很久，为什么结局会这样？为什么？！
+
+好几天晚上都做着eva相关的梦，持续了大概一两周，可以说是在我心中留下了深深的烙印。
+
+
+今年我也30岁了，是时候该长大成人面对现实，不能活在无止尽的幻想之中，该醒醒了。
+
+
+*****
+
+####  小小陌路人  
+##### 550#       发表于 2021-8-13 02:13
+
+
+从前有个otako运气爆表找到了一个好老婆，但因为自己是otako，所以生了个儿还是otako，后来老婆因为厌恶他是otako就跑了，于是他一直在找老婆，他老婆因为他是otako一直躲着他，直到后来他儿子帮助他解开了心结不再做otako，他老婆直接回到他身边，那么屏幕前的otako，你通过这件事，你学到了什么呢？
+
+
+*****
+
+####  污陨血红  
+##### 551#       发表于 2021-8-13 02:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349852&amp;ptid=2013091" target="_blank">pzk 发表于 2021-8-13 02:11</a>
+
+话说为什么玛丽和flipflappers里的帕比卡同样都是主角的阿姨，我能接受帕比卡却无法接受玛丽呢？
+
+ ...</blockquote>
+帕皮卡起码看起来不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（）
+
+
+*****
+
+####  setree  
+##### 552#       发表于 2021-8-13 02:13
+
+
+ 本帖最后由 setree 于 2021-8-13 02:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是念头不通达
+
+RNM庵野，你跟女人跑了还要专门拍一部电影来炫耀的吗！被你抛弃的旧朋友就不管了吗！顺带，庵野60年，他老婆71年，吃嫩草的死炼铜癖到底是谁啊！
+
+<img src="https://img.saraba1st.com/forum/202108/13/021155wppwvf08xrn7vemm.png" referrerpolicy="no-referrer">
+
+
+<strong>66S6{TH0Z0$(XLW{TT}WGGG.png</strong> (83.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 02:11 上传
+
+
+顺便
+
+我想当企鹅
+
+<img src="https://img.saraba1st.com/forum/202108/13/021941y1z75ac19rx2rd1r.png" referrerpolicy="no-referrer">
+
+
+<strong>N9]WH~9YSYE]_6[$S{B$YFG.png</strong> (32.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 02:19 上传
+
+
+*****
+
+####  游戏  
+##### 553#       发表于 2021-8-13 02:13
+
+
+冬月，贯穿始终的工具人
+
+
+*****
+
+####  Dreki  
+##### 554#       发表于 2021-8-13 02:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349852&amp;ptid=2013091" target="_blank">pzk 发表于 2021-8-13 02:11</a>
+话说为什么玛丽和flipflappers里的帕比卡同样都是主角的阿姨，我能接受帕比卡却无法接受玛丽呢？
+
+ ...</blockquote>
+可能因为痞子用了三部电影都没讲清楚到底是来干啥的吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我觉得这里面主要角色让人说印象都能说出不少来，这个玛丽给我的印象只有打架唱歌和说话夹一堆奇怪的口癖
+
+
+*****
+
+####  内裤假面  
+##### 555#       发表于 2021-8-13 02:14
+
+
+不知道痞子有没有和自己和解，反正我是原谅痞子了。也算有头有尾，最后一部有私货但还是能接受。
+
+—— 来自 meizu 16s, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  pzk  
+##### 556#       发表于 2021-8-13 02:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349848&amp;ptid=2013091" target="_blank">evatrix 发表于 2021-8-13 02:11</a>
+
+后面的3d打斗简直让我想起了贰瓶勉的那个什么骑士，廉价的物体碰撞感。
+
+
+痞子在机器人动画上是真江郎才尽了 ...</blockquote>
+那个3d打斗的廉价感明显是故意的啊，包括真嗣被打翻的时候直接扯下了背景的幕布，这整个场景就是特摄剧的录制场景
+
+
+*****
+
+####  astrayveller  
+##### 557#       发表于 2021-8-13 02:14
+
+
+我最后都没看懂冬月干了什么引发了什么后果
+以及真希波为什么最后会出现
+
+— from Xiaomi M2007J1SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  wwddrte  
+##### 558#       发表于 2021-8-13 02:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349852&amp;ptid=2013091" target="_blank">pzk 发表于 2021-8-13 02:11</a>
+
+话说为什么玛丽和flipflappers里的帕比卡同样都是主角的阿姨，我能接受帕比卡却无法接受玛丽呢？
+
+ ...</blockquote>
+帕皮卡是阿姨嘛，我都忘了，感觉更像狗狗吧
+
+
+*****
+
+####  ads147147  
+##### 559#       发表于 2021-8-13 02:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349872&amp;ptid=2013091" target="_blank">astrayveller 发表于 2021-8-13 02:14</a>
+我最后都没看懂冬月干了什么引发了什么后果
+以及真希波为什么最后会出现</blockquote>
+冬月让美里做的新枪可以送到负宇宙。算是最后还是背叛了老碇。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  糖醋里脊和果子  
+##### 560#       发表于 2021-8-13 02:16
+
+
+算是明白从EVA毕业了是什么意思。
+前半部分我最喜欢的部分其实是真嗣哭着吃压缩饼干，那种，屈辱感，无奈感，释怀，和解，等等等等。
+看到最后就感觉真是温柔啊庵野秀明！！！
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  darkddragon  
+##### 561#       发表于 2021-8-13 02:17
+
+
+话说终里的黑丽算是整个eva里最有感情和生命力的丽了吧，可惜最后社会化训练完人就没了
+
+明日香的话其实现在看当年三号机的事出了以后就和小受没希望了吧，最后两个人也确实都放下和成长了，也不算留下遗憾了
+
+
+*****
+
+####  Melpomenelost  
+##### 562#       发表于 2021-8-13 02:18
+
+
+问个非剧情的问题，新三村的人说的是方言还是某种奇怪的语调……
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  pzk  
+##### 563#       发表于 2021-8-13 02:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我一直在想，真嗣吃了那么多饼干，他这么多天是在哪拉屎的呢？明明很悲伤却不得不去拉屎，拉完是不是又要趁别人发现前跑回来继续蹲着。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ambition| + 1|欢乐多|
+| XIEGC| + 1|喷了|
+| 寅就一个字| + 1|欢乐多|
+| lintmx| + 1|思路广|
+| Dreki| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 564#       发表于 2021-8-13 02:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349848&amp;ptid=2013091" target="_blank">evatrix 发表于 2021-8-13 02:11</a>
+后面的3d打斗简直让我想起了贰瓶勉的那个什么骑士，廉价的物体碰撞感。
+
+
+痞子在机器人动画上是真江郎才尽了 ...</blockquote>
+看那段的时候的确感觉很搓，但是看到幕布就觉得是刻意为之，接下来也是在各个场景跳转
+
+
+*****
+
+####  茴香蚪的马甲  
+##### 565#       发表于 2021-8-13 02:20
+
+
+片尾字幕时长达到了好莱坞大片水准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  污陨血红  
+##### 566#       发表于 2021-8-13 02:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+最后想法就是
+
+痞子，你赶紧把奥特曼和假面交了！
+
+对了，以后能不能拍高达啊？
+
+
+*****
+
+####  一色彩羽的家人  
+##### 567#       发表于 2021-8-13 02:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349889&amp;ptid=2013091" target="_blank">pzk 发表于 2021-8-13 02:18</a>
+其实我一直在想，真嗣吃了那么多饼干，他这么多天是在哪拉屎的呢？明明很悲伤却不得不去拉屎，拉完 ...</blockquote>
+剑剑带他回屋之前给他指明厕所位置了
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  森下未散  
+##### 568#       发表于 2021-8-13 02:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">年纪大了，看点合家欢也不是不行
+
+
+*****
+
+####  Dreki  
+##### 569#       发表于 2021-8-13 02:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349889&amp;ptid=2013091" target="_blank">pzk 发表于 2021-8-13 02:18</a>
+其实我一直在想，真嗣吃了那么多饼干，他这么多天是在哪拉屎的呢？明明很悲伤却不得不去拉屎，拉完 ...</blockquote>
+明日香天天躲柱子后面看真嗣拉屎<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 好好好好好好好| + 1|欢乐多|
+| 戏言学者| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  bartholo4  
+##### 570#       发表于 2021-8-13 02:21
+
+
+虽然父子对打的违和感能看得出来是故意为之，但画面给人确实带来很强的不适
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  九十九忍  
+##### 571#       发表于 2021-8-13 02:21
+
+
+一言难尽，真的就是还行吧，对eva期待就是纯画面也是这感想，前几作的各具特色的使徒大战现在变成3D量产机海和你玩万花筒弹幕游戏
+
+排开画面动作他要表达的就是给自己几十年前的一堆内心感受做个收尾，问题是这么多年过去观众回头看也只觉得抑郁症记得吃药看不开喝几口了
+
+
+拍得像是领导退休前抓紧出书的感觉
+
+
+还有进反宇宙后明日香那画风多变得简直就是同人汇集
+
+
+*****
+
+####  pzk  
+##### 572#       发表于 2021-8-13 02:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349873&amp;ptid=2013091" target="_blank">wwddrte 发表于 2021-8-13 02:15</a>
+帕皮卡是阿姨嘛，我都忘了，感觉更像狗狗吧</blockquote>
+是可可娜妈妈的朋友，但可能是进入梦的世界后失忆了？
+
+靠我知道这其中的区别了，帕比卡至少表现得不知情，玛丽却什么都懂，有计划地泡朋友的儿子！<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  污陨血红  
+##### 573#       发表于 2021-8-13 02:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349902&amp;ptid=2013091" target="_blank">pzk 发表于 2021-8-13 02:21</a>
+
+是可可娜妈妈的朋友，但可能是进入梦的世界后失忆了？
+
+
+靠我知道这其中的区别了，帕比卡至少表现得不知情 ...</blockquote>
+ppk要是再不能得到ccn也太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+玛丽阿姨么。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ky怪  
+##### 574#       发表于 2021-8-13 02:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lipo  
+##### 575#       发表于 2021-8-13 02:28
+
+
+就是一坨屎，怕不是喝酒喝到失智写出来的剧本，两面包夹芝士。
+
+当然，鹭巢诗郎这么多年终于从死神的调调中恢复过来了，可喜可贺，可喜可贺。
+
+
+*****
+
+####  ddr  
+##### 576#       发表于 2021-8-13 02:28
+
+
+很难看。
+
+
+*****
+
+####  一色彩羽的家人  
+##### 577#       发表于 2021-8-13 02:34
+
+
+<img src="https://p.sda1.dev/2/02d9552cda635f47bd639fed2faa3ded/IMG_CMP_219849953.jpeg" referrerpolicy="no-referrer">我以为俩人被吊柱子上了
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ddr  
+##### 578#       发表于 2021-8-13 02:35
+
+
+这稀里糊涂的节奏，乱七八糟的绘柄，幼稚至极的boss，呵呵。
+
+
+*****
+
+####  滋啦球  
+##### 579#       发表于 2021-8-13 02:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">都结束了，痞子赶紧去拍特摄吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">感觉可以盖棺定论了，我觉得二号机大战量产机和雷天使炸山是整个eva的作画巅峰图
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                             
