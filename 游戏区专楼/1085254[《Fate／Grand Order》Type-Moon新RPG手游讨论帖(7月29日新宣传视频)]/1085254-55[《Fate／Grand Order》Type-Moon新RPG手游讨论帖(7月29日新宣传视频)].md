@@ -13521,3 +13521,46 @@ MD妖兰和奥伯龙我都不是喜欢的类型，但是宝具动画好帅啊。
 
 
                                                  
+
+*****
+
+####  Jamaisvu  
+##### 82031#       发表于 2021-8-12 07:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335118&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-11 23:48</a>
+
+Muryan要落估计是纯AI版的了（菌借口：容貌是一样的）
+
+
+后面要提防一下剧情里已经出现三种不同立绘+有两 ...</blockquote>
+麦布二世可能是菌皇为了抒发对妖女佐仓的爱意而整出来的角色，之前的梅芙本体一方面是青纯碧池（绿茶婊）的设定可能会让某些处女厨不爽，另一方面是对狗子们单箭头。（好像还是会让处女厨不爽）
+
+
+（蘑菇：我就是喜欢破鞋啦！）
+
+
+现在这个小梅芙，先是性格好，白富美闺蜜（铃木园子），剧情里有女王风格的ML表白（你输了就是我的人），而且与泛人类史的库丘林没关系，到迦的话就是个清清白白的女角色。
+
+虽说没有艾蕾魔总那么直球（毕竟要和C呆贴贴），但也足够当一些玩家的俺嫁了。
+
+
+*****
+
+####  Jamaisvu  
+##### 82032#       发表于 2021-8-12 07:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335932&amp;ptid=1085254" target="_blank">任天索尼子 发表于 2021-8-12 02:01</a>
+
+大佬们有推荐靠谱的代充平台吗
+
+
+—— 来自 realme RMX2072, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+请问一下，你之前是在ourplay上充的谷歌卡吗？充值时挂的是付费日本梯子吗？我就是这么充钱的...
+
+
+如果这个途径不行了，那我就只能两个手机（安卓+ios）来回引继充值......缺点是IOS礼品卡贵很多，而且每次要重下数据。更糟的是我IOS的梯子也不稳定，充完一次经常要封个十天半个月才放出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
