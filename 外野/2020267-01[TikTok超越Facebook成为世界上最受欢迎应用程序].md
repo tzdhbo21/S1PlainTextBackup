@@ -931,3 +931,111 @@ tiktok我还挺喜欢的，抖音我是真不行，听到声音都头晕
 
 
                                                
+
+*****
+
+####  turnyyy  
+##### 84#       发表于 2021-8-12 10:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52337022&amp;ptid=2020267" target="_blank">柔福帝姬 发表于 2021-8-12 09:06</a>
+亲不亲阶级分，美国人虽然是敌国，字节及其受众可是另一个阶级。</blockquote>
+联帝反修又来了？
+
+
+*****
+
+####  独钓寒江雪  
+##### 85#       发表于 2021-8-12 10:18
+
+
+TikTok事件后来怎么发展的？ 还要卖给老美吗？
+
+
+*****
+
+####  bubuyu  
+##### 86#       发表于 2021-8-12 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336179&amp;ptid=2020267" target="_blank">DFantasy 发表于 2021-8-12 04:57</a>
+
+话说感觉s1唱衰FB挺多年了，我也一直挺想不通到底靠什么这么厉害的，但是FB的股票好像一直非常好，而且它家 ...</blockquote>
+顶楼那个榜单2-4都是FB家的。
+
+
+*****
+
+####  clarkgao  
+##### 87#       发表于 2021-8-12 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52337888&amp;ptid=2020267" target="_blank">独钓寒江雪 发表于 2021-8-12 10:18</a>
+
+TikTok事件后来怎么发展的？ 还要卖给老美吗？</blockquote>
+张一鸣硬了（可能有国家给压力的原因，但我认为他不想被逼着卖掉自己最成功的产品也是主要因素），懂王软了，然后拜登来了，风格变了。
+
+
+*****
+
+####  nihilxp  
+##### 88#       发表于 2021-8-12 10:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52337323&amp;ptid=2020267" target="_blank">Lokad 发表于 2021-8-12 09:33</a>
+
+其它社交巨头纯属是在国内混的废物，外面出不去国内娱乐行业一把抓，相比之下tiktok算是最出息的了.
+
+还有 ...</blockquote>
+企鹅的微视都凉了
+
+
+*****
+
+####  石头少年忆无心  
+##### 89#       发表于 2021-8-12 10:33
+
+
+抖音是真的杀时间，昨天晚上 十点钟刷到凌晨两点，睡不着，继续刷到四点。 我。。。
+
+
+*****
+
+####  酷乐  
+##### 90#       发表于 2021-8-12 10:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336686&amp;ptid=2020267" target="_blank">天网 发表于 2021-8-12 08:28</a>
+
+俺猜一下原因
+
+
+FB有点类似朋友圈的生态位，熟人社交。而且不止于熟人社交，各类新闻和政府机构还可以开通F ...</blockquote>
+
+我也想看fb内容啊，但是那里大部分内容不登录不让看，而我07年注册的账号前年给永封了，怎么申诉递材料都不给过，一段时间后号都给删除了，而且手机号不让再注册。
+
+
+
+
+*****
+
+####  grantliu  
+##### 91#       发表于 2021-8-12 11:05
+
+
+撇开任何感情色彩，fb真的是个上古app，从设计到使用体验都是一塌糊涂，不知道老外为啥还那么爱用，虽然性质不一样，但是tw明显比他好用多了
+
+
+*****
+
+####  愿闻其翔  
+##### 92#       发表于 2021-8-12 11:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335993&amp;ptid=2020267" target="_blank">爱尔米娜 发表于 2021-8-12 02:23</a>
+
+泥潭一群刷批站不刷抖音的，算3G还是4G用户</blockquote>
+这年头还在刷论坛的都是小灵通时代的用户了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                

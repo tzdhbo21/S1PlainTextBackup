@@ -1220,3 +1220,106 @@ https://www.amazon.co.jp/gp/video/detail/B098T4QYZ3/</blockquote>
 
 
                                                  
+
+*****
+
+####  AC说君  
+##### 110#       发表于 2021-8-12 09:37
+
+
+好像说是北京时间8/13下午一点
+
+
+image.png
+(43.01 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-12 09:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/093532shg33lp9mbpcmp6p.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  minysun  
+##### 111#       发表于 2021-8-12 09:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331236&amp;ptid=2013091" target="_blank">LLLLLuB 发表于 2021-8-11 18:12</a>
+
+亚马逊的资源通常哪里会流出啊不懂求问</blockquote>
+蹲着nyaa就有，rarbg这种地方也可以看看
+
+
+*****
+
+####  tjshibc21  
+##### 112#       发表于 2021-8-12 10:13
+
+
+不会真是美国时区吧 
+
+
+*****
+
+####  shudushimo  
+##### 113#       发表于 2021-8-12 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52337379&amp;ptid=2013091" target="_blank">AC说君 发表于 2021-8-12 09:37</a>
+
+好像说是北京时间8/13下午一点</blockquote>
+美东时间零点？还行
+
+
+*****
+
+####  azbhg1  
+##### 114#       发表于 2021-8-12 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52337379&amp;ptid=2013091" target="_blank">AC说君 发表于 2021-8-12 09:37</a>
+好像说是北京时间8/13下午一点</blockquote>
+这个号发言全是日文的，这图P的吧
+
+
+*****
+
+####  AC说君  
+##### 115#       发表于 2021-8-12 10:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52337899&amp;ptid=2013091" target="_blank">azbhg1 发表于 2021-8-12 10:18</a>
+
+这个号发言全是日文的，这图P的吧</blockquote>
+我一开始也是截图，这个是我怕不对自己去推上截的
+
+
+*****
+
+####  password  
+##### 116#       发表于 2021-8-12 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52337899&amp;ptid=2013091" target="_blank">azbhg1 发表于 2021-8-12 10:18</a>
+
+这个号发言全是日文的，这图P的吧</blockquote>
+[https://twitter.com/PrimeVideo_JP/status/1425395396067696641](https://twitter.com/PrimeVideo_JP/status/1425395396067696641)
+
+
+*****
+
+####  emmer  
+##### 117#       发表于 2021-8-12 10:30
+
+
+淦
+
+还得再等一天
+
+
+                                                 

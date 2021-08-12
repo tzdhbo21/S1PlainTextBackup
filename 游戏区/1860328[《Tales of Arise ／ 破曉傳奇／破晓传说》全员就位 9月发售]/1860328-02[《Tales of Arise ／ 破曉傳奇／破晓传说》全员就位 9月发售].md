@@ -10678,3 +10678,36 @@ pc是不是没必要买上位的两个版本，看了下好像就是一堆衣服
 
 
                                                  
+
+*****
+
+####  wthall  
+##### 2288#       发表于 2021-8-12 09:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">steam版本多少钱？看到一个豪华版要400+的太贵了点，应该不会买这个版本。
+
+
+另外1070能爽玩嘛？
+
+
+*****
+
+####  qiyu1234  
+##### 2289#       发表于 2021-8-12 09:28
+
+
+好像这demo在7月初就更新过一个补丁了
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/092851ggnxs428r4gn742z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (56 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 09:28 上传
+
+
+                                                 

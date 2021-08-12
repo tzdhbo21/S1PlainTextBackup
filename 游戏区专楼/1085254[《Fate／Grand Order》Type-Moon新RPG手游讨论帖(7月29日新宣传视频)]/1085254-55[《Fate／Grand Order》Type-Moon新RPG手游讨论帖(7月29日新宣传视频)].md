@@ -13766,3 +13766,117 @@ MD妖兰和奥伯龙我都不是喜欢的类型，但是宝具动画好帅啊。
 
 
                                                  
+
+*****
+
+####  枪聆弹语  
+##### 82049#       发表于 2021-8-12 09:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么又开始1.7M的含金量了
+
+
+*****
+
+####  UNISONIA  
+##### 82050#       发表于 2021-8-12 09:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52337261&amp;ptid=1085254" target="_blank">枪聆弹语 发表于 2021-8-12 09:27</a>
+
+怎么又开始1.7M的含金量了</blockquote>
+1.7M不还是没删除掉代码和差分部分的大小，其实占的还不少的
+
+
+
+
+*****
+
+####  枪聆弹语  
+##### 82051#       发表于 2021-8-12 09:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">垫脚石不就是不赚钱了，来年改个担架（性别），还卖他。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过还是比较喜欢考哥，还是感觉像女频一样亲爹亲妈硬捧出来不香
+
+
+*****
+
+####  扑克脸军曹  
+##### 82052#       发表于 2021-8-12 09:46
+
+
+没抽到，泳装凉了咯
+
+
+*****
+
+####  zakki  
+##### 82053#       发表于 2021-8-12 10:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52337024&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-12 09:07</a>
+
+那让樱井来写？</blockquote>
+樱井已经写了三章了，不觉得她会再写了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 82054#       发表于 2021-8-12 10:13
+
+
+隔壁正式开始厨团大战了，可见什么东出什么樱井都弱爆了，要把事情搞大还是得蘑菇亲自来，蘑菇真是罪孽深重<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82055#       发表于 2021-8-12 10:21
+
+
+等两周后的月姬R，那才是真正蘑菇的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 82056#       发表于 2021-8-12 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336546&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-12 08:02</a>
+
+充值的ip必须日本，否则就打电话给苹果国际服吧</blockquote>
+谢谢，之前看楼上说必须物理位置（GPS定位？）是礼品卡所在地，吓我一跳。但是IP的话，我这边付费梯子用的还挺好的，应该没问题。
+
+
+唯一问题就是银根紧缩了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 82057#       发表于 2021-8-12 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336871&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-12 08:52</a>
+
+妖兰还是定义不了环境的，跟月杀一样是个三面给力（还是靠的奥伯龙）二面疲软的主，估计追求更泛用一点就 ...</blockquote>
+是的，现在主要是红拐给力，而且她那个130的充能很夸张。
+
+
+狂那的万物特攻目前还是无人匹敌的。
+
+
+*****
+
+####  Jamaisvu  
+##### 82058#       发表于 2021-8-12 10:31
+
+
+突然发现奥伯龙两个模式下的羁绊资料不一样啊，蘑菇这回可真是写了个爽<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+                                                
