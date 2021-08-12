@@ -15186,3 +15186,98 @@ fp算泛人类史的话，那应该还是三位一体那位吧，2.6的这位倒
 
 
                                                  
+
+*****
+
+####  都谷捻柏  
+##### 82155#       发表于 2021-8-12 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342191&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-12 15:46</a>
+
+国服一帮人一边痛骂武藏一边又不得不攒石氪金抽高宝水武藏，还天天拉来加班就搞笑不过有一说一，武 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">更可笑的是就武藏这屌待遇，隔壁还有人脑补她冠位剑归来，然后就开始疯狂的输出。
+
+
+*****
+
+####  zore  
+##### 82156#       发表于 2021-8-12 20:22
+
+
+快请飞碟桌老祖,快<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 82157#       发表于 2021-8-12 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52345004&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-12 05:42</a>
+
+更可笑的是就武藏这屌待遇，隔壁还有人脑补她冠位剑归来，然后就开始疯狂的输出。 ...</blockquote>
+我有种脑洞是不是guda最后是冠位剑？2.6花了整整一章弄了个圣剑给你，作为现在活着的人类，就差跟当年蓝傻一样握起来了
+
+决战6骑冠位都到了只有剑缺席，然后梅林告诉你最后的月牙天冲就是你自身化为斩月，哦不是化为冠位剑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82158#       发表于 2021-8-12 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52345622&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-12 20:23</a>
+
+我有种脑洞是不是guda最后是冠位剑？2.6花了整整一章弄了个圣剑给你，作为现在活着的人类，就差跟当年蓝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看行 所长食我咖喱棒啦
+
+
+*****
+
+####  LOLITA  
+##### 82159#       发表于 2021-8-12 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52345622&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-12 20:23</a>
+
+我有种脑洞是不是guda最后是冠位剑？2.6花了整整一章弄了个圣剑给你，作为现在活着的人类，就差跟当年蓝 ...</blockquote>
+所以终章卡池就是男女自己双UP？
+
+我抽我自己，那不得氪爆<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 82160#       发表于 2021-8-12 20:51
+
+
+ 本帖最后由 シャル 于 2021-8-12 20:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343961&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 17:59</a>
+
+虽然老福这次已经敲定泛人类史的摩根也是三位一体，但是如果真的能再敲一次微微安确实是摩根的话
+
+
+旧剑在 ...</blockquote>
+那么能出3个摩根啊，狂异闻带王，裁定正常版，？FP版，正好对应3个侧面<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOBI  
+##### 82161#       发表于 2021-8-12 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52345622&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-12 20:23</a>
+
+我有种脑洞是不是guda最后是冠位剑？2.6花了整整一章弄了个圣剑给你，作为现在活着的人类，就差跟当年蓝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">然后跟C呆一起去当守护者开始无尽的加班么
+
+真要说那圣剑不是被紫菀小奸商做成一次性用品拿起来的更可能是马修吧。
+
+更能体现马修的成长
+
+
+                                                 

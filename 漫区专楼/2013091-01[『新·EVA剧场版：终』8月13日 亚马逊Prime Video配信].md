@@ -2105,3 +2105,188 @@ prime开了，就是没日本ip<img src="https://static.saraba1st.com/image/smil
 
 
                                                  
+
+*****
+
+####  onemoment  
+##### 188#       发表于 2021-8-12 19:27
+
+
+准备好了，等晚上十一点了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ky怪  
+##### 189#       发表于 2021-8-12 19:36
+
+
+草你们都是日区吗？ 其他区的客户端里根本搜不到，网页上加清单了客户端里也看不见
+
+
+*****
+
+####  lawsherman  
+##### 190#       发表于 2021-8-12 19:45
+
+
+日区我也没搜到，0点才有吗
+
+
+*****
+
+####  kraoo  
+##### 191#       发表于 2021-8-12 19:48
+
+
+领了个会员能看推荐的明日之战，但是终显示所在地区没开放，是因为没到点？
+
+
+*****
+
+####  Dreki  
+##### 192#       发表于 2021-8-12 19:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52344829&amp;ptid=2013091" target="_blank">音無麻理亜 发表于 2021-8-12 19:25</a>
+
+怎么判断ip有没有骗过亚麻，播一下预告片吗？</blockquote>
+看一下之前的剧场版能不能看，都锁ip
+
+
+*****
+
+####  whzfjk  
+##### 193#       发表于 2021-8-12 19:55
+
+
+你们画质怎么样
+
+
+*****
+
+####  sunnyjee  
+##### 194#       发表于 2021-8-12 20:03
+
+
+美区能搜到  挂美国梯子能看锁ip的片子 现在的问题就是美区啥时候解锁了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  串行总线  
+##### 195#       发表于 2021-8-12 20:05
+
+
+不知道非日区prime挂日本tizi能和日本同步解锁吗？
+
+
+试了下能找到 序 破 Q，虽然简介页面显示有11种音频和30种字幕，但是现在点进去之后只有日语语音和字幕。
+
+
+*****
+
+####  Pz079  
+##### 196#       发表于 2021-8-12 20:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52345137&amp;ptid=2013091" target="_blank">Dreki 发表于 2021-8-12 19:55</a>
+看一下之前的剧场版能不能看，都锁ip</blockquote>
+回错了
+
+
+*****
+
+####  Pz079  
+##### 197#       发表于 2021-8-12 20:07
+
+
+什么时候能上rarbg?
+
+
+*****
+
+####  XIEGC  
+##### 198#       发表于 2021-8-12 20:09
+
+
+国内好像过段时间也会上，还不清楚指的是流媒体还是什么虚空的东西<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/7bfa0c3b334ce316ddd53aacb928dbe7/IMG_CMP_201179503.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shudushimo  
+##### 199#       发表于 2021-8-12 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52345360&amp;ptid=2013091" target="_blank">XIEGC 发表于 2021-8-12 20:09</a>
+
+国内好像过段时间也会上，还不清楚指的是流媒体还是什么虚空的东西
+
+ ...</blockquote>
+eva三观没啥大问题，最后肯定会上，就看是什么形式上还有什么时间上了
+
+
+*****
+
+####  音無麻理亜  
+##### 200#       发表于 2021-8-12 20:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52345137&amp;ptid=2013091" target="_blank">Dreki 发表于 2021-8-12 19:55</a>
+
+看一下之前的剧场版能不能看，都锁ip</blockquote>
+看样子只能先充钱再确定能不能看了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+感谢老哥解答
+
+
+*****
+
+####  redsibyl  
+##### 201#       发表于 2021-8-12 21:10
+
+
+不是,这个台配也太搞了,不行了我到时候要听台配版
+
+
+*****
+
+####  owada  
+##### 202#       发表于 2021-8-12 21:12
+
+
+丢,怎么才21点12分!
+
+
+*****
+
+####  owada  
+##### 203#       发表于 2021-8-12 21:13
+
+
+不是,我为什么只有日本语
+
+
+*****
+
+####  emmer  
+##### 204#       发表于 2021-8-12 21:16
+
+
+为啥不给选HD啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚瑟邓特  
+##### 205#       发表于 2021-8-12 21:24
+
+
+我发现我已经把序破q剧情忘干净了，只记得tv了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

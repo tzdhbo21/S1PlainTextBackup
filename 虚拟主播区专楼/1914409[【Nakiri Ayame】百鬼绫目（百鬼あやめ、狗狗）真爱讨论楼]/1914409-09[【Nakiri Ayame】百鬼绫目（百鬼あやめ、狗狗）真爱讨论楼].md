@@ -10387,3 +10387,68 @@ syl，再见宣言都八百万了，完全没想到这视频播放一路可以�
 
 
                                                  
+
+*****
+
+####  昆西昆希昆  
+##### 12901#       发表于 2021-8-12 19:58
+
+
+这就每天刷十遍再见宣言
+
+
+*****
+
+####  nian1538  
+##### 12902#       发表于 2021-8-12 20:19
+
+
+ 本帖最后由 nian1538 于 2021-8-12 20:22 编辑 
+
+电脑会限的时候早装好了
+
+现在在下LOL和改键
+
+
+*****
+
+####  Fami水  
+##### 12903#       发表于 2021-8-12 20:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">再真的流言也没官宣来的真实
+
+2021.5.22 再见宣言发布（暂定开始搬家）~2021.8.12 官宣新电脑组装完毕 
+
+历时83天 ，绫总终于搬家完毕<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 这是个值得庆祝的日子
+
+
+*****
+
+####  stedckk  
+##### 12904#       发表于 2021-8-12 20:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">系统软件啥的还得重装，电脑盾还能用，8月还能摆烂，让我们继续展望9月用什么理由
+
+
+*****
+
+####  stedckk  
+##### 12905#       发表于 2021-8-12 21:24
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/212229n0jjud3hav8zxv8o.png" referrerpolicy="no-referrer">
+
+
+<strong>D`OKZE2)%~AXN0F}3`MCEFX.png</strong> (37.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 21:22 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题来了，之前说没有成员来过她家，mio妈来的时候又说是最快混熟的，所以之前去她家跟吉尔玩的到底是。。。
+
+
+                                                 

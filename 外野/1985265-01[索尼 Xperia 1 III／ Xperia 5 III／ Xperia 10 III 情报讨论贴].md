@@ -11007,3 +11007,20 @@ Xperia 5III先行测评</blockquote>
 
 
                                                  
+
+*****
+
+####  jzsgtx  
+##### 771#       发表于 2021-8-12 20:48
+
+
+ 本帖最后由 jzsgtx 于 2021-8-12 21:15 编辑 
+
+问一下关于III的通知指示灯，这两天发现有通知的时候通知指示灯在关屏状态下点灭不是“不亮-亮-不亮-亮”的循环而是”暗-亮-暗-亮”，是有问题还是都是这样？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+顺便在価格.com上看到了这么个问答[https://bbs.kakaku.com/bbs/J0000035612/SortID=24257300/](https://bbs.kakaku.com/bbs/J0000035612/SortID=24257300/)
+
+这么看似乎不是问题，我多虑了？
+
+
+                                                 
