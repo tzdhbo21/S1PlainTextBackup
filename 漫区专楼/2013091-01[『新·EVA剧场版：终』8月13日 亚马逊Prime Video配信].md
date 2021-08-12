@@ -1975,3 +1975,52 @@ Amazon  Prime Videoで本日24時（13日0時）から配信です
 
 
                                                 
+
+*****
+
+####  emmer  
+##### 176#       发表于 2021-8-12 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342160&amp;ptid=2013091" target="_blank">asion617 发表于 2021-8-12 15:43</a>
+
+你随便填个日本的地址试试？我一开始用中国的地址也显示只接受日本信用卡，换了地址没换卡就过了 ...</blockquote>
+确实是日本地址，之前还买过东西呢
+
+
+妈的我找朋友借张卡再试试
+
+
+*****
+
+####  串行总线  
+##### 177#       发表于 2021-8-12 17:13
+
+
+麻了，是不是日区prime今晚11点就能看了，
+
+其他地区prime是美东时间8月13日00:00上？
+
+
+*****
+
+####  dropdead  
+##### 178#       发表于 2021-8-12 17:14
+
+
+终不是锁日亚吗？
+
+
+*****
+
+####  串行总线  
+##### 179#       发表于 2021-8-12 17:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343359&amp;ptid=2013091" target="_blank">dropdead 发表于 2021-8-12 17:14</a>
+
+终不是锁日亚吗？</blockquote>
+没锁，票房破百亿后就公布会在日亚上的消息了。
+
+
+                                                 

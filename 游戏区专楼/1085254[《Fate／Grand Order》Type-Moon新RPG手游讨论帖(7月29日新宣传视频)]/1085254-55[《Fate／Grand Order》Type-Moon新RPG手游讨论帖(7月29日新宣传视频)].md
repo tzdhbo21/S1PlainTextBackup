@@ -14831,3 +14831,131 @@ md我寻思第一部分灌水灌这么狠dw屁都没放一个，到大高潮了�
 
 
                                                 
+
+*****
+
+####  exiaexa  
+##### 82128#       发表于 2021-8-12 16:37
+
+
+ 本帖最后由 exiaexa 于 2021-8-12 16:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342748&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-12 16:29</a>
+
+吹实力可以理解，但不会有人吹摩根执政水平的吧，摩根魔术实力还是能吹的，堪称魔法级别了，能纯靠 ...</blockquote>
+执政水平都不算啥问题
+
+根本问题是我们至今都不知道摩根到底想干嘛
+
+
+你说她真的想拯救不列颠吧，她自己放弃了职责跑去当了个女王；
+
+你说她想当女王吧，自己养的最强战力屁用没有分分钟被个乐子人就策反了；
+
+你说她想用自己的方法拯救不列颠吧，结果唯一的后手继承王座的芙被人一波就送走了；
+
+你说她放弃治疗了吧，她偏偏坚持到了最后；
+
+你说她想当个乐子人吧，偏偏又真的在努力压制乱七八糟的破事儿，仿佛真的在拯救不列颠；
+
+
+难道蘑菇脑子里的摩根就是个混日子的公务员吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 82129#       发表于 2021-8-12 16:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342542&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-8-12 16:13</a>
+
+妖精本来就比人类傻白甜多了，妖兰也说了欧罗拉到泛人类史肯定混不下去的，但是在妖精国她就是能活3000年不 ...</blockquote>
+欧罗拉连奥伯龙都看穿不了，太菜了这种水平到泛人类史是找死
+
+
+*****
+
+####  LOLITA  
+##### 82130#       发表于 2021-8-12 16:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342838&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 16:37</a>
+
+执政水平都不算啥问题
+
+根本问题是我们至今都不知道摩根到底想干嘛</blockquote>
+低水平的成人童话是这样的啦<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 82131#       发表于 2021-8-12 16:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342051&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-12 15:36</a>
+
+月姬故事发生的时间和地点都改掉了，还是原来那个月姬吗</blockquote>
+按照废狗的逻辑怕不是平行世界
+
+
+*****
+
+####  angelooo  
+##### 82132#       发表于 2021-8-12 16:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342191&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-12 15:46</a>
+
+国服一帮人一边痛骂武藏一边又不得不攒石氪金抽高宝水武藏，还天天拉来加班就搞笑不过有一说一，武 ...</blockquote>国服我当时也骂了，虽然我主要骂的是那个弱智的撕图鉴操作以及之后光速进池子复刻&amp;强化，吃相过于难看
+
+
+*****
+
+####  yangun22  
+##### 82133#       发表于 2021-8-12 16:54
+
+
+摩根最大的问题不是交流么，估计前面几千年被人弄得怕了，都放弃直接交流了，能一句话说完绝不说第二句，就怕说多了被人坑呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82134#       发表于 2021-8-12 17:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343026&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-12 16:50</a>
+
+国服我当时也骂了，虽然我主要骂的是那个弱智的撕图鉴操作以及之后光速进池子复刻&amp;强化，吃相过于难看 ...</blockquote>
+不过代价就是自从那次强化后，武藏就彻底查无此人了，没上过礼装，周年纪念礼装，宣传绘，没第二次强化，没上嘉年华，没出现在任何活动剧情中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 82135#       发表于 2021-8-12 17:12
+
+
+ 本帖最后由 v22325 于 2021-8-12 17:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52342838&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 16:37</a>
+
+执政水平都不算啥问题
+
+根本问题是我们至今都不知道摩根到底想干嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实搞不好摩根就真的想妖精国就这样下去 毛茸茸醒了就用圣枪把再打睡了 妖精死光了也没关系身边几个活着就行 也没个什么执政方案 估计真就名义上来个不列颠过家家就满足了
+
+和他当救世主的时候一模一样的 哪里有战争就去调和 哪有灾厄就去解决 然后被迫害睡觉 起来再干活
+
+
+*****
+
+####  AbigailWilliams  
+##### 82136#       发表于 2021-8-12 17:22
+
+
+奶点未来的事，比如如果2.6动画化找谁背锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -8912,3 +8912,25 @@ Blue Box阴谋论完结篇，敬请期待
 
 
                                                  
+
+*****
+
+####  名字已被吃  
+##### 699#       发表于 2021-8-12 16:36
+
+
+惊了，怎么还没完啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ace8848  
+##### 700#       发表于 2021-8-12 16:50
+
+
+这会儿还在整活的我有绝对的理由怀疑是岛黑反串岛青
+
+
+                                                 
