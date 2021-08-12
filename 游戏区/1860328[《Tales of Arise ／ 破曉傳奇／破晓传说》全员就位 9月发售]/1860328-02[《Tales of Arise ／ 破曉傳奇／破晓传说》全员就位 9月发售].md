@@ -10772,3 +10772,114 @@ demo有ps5版吗？还是就ps4兼容的
 
 
                                                  
+
+*****
+
+####  qiyu1234  
+##### 2294#       发表于 2021-8-12 23:07
+
+
+ 本帖最后由 qiyu1234 于 2021-8-12 23:18 编辑 
+
+终极版所包含的SP相关的内容
+
+
+・【海水浴】
+
+・【校园生活】
+
+・【战国和装】
+
+这三个DLC包分别有全队每人300SP加成
+
+
+「旅游典藏组合包」
+
+内含全队每人1000SP加成
+
+
+加起来就是1900SP
+
+
+第一章演示里
+
+
+奥尔芬 一个炎之剑的角色称号就耗掉1740SP
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/230651vhqqiob8o3be3iis.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (110.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 23:06 上传
+
+
+希侬的荆之女称号点满要2240SP，也就是说单是终极版送的那点SP可能还点不满角色的一个称号
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/230651cpbwr7gzhhghyltp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.JPG</strong> (107.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 23:06 上传
+
+
+然后「道具典藏组合包」有个让 战斗获得SP增加20% 的文物
+
+
+第一章演示里，对战3剑1狼的野怪战斗结束后给了23点SP（战斗评价加成有52%），那么去掉加成就是15点SP左右，在这战斗基础上再加上前面说的20%的文物加成，四舍五入后也就26点SP，对比一下前面的称号解锁需求点数，emmm，很微妙
+
+<img src="https://img.saraba1st.com/forum/202108/12/230651j35lv1l8z3h53y9h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.JPG</strong> (61.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 23:06 上传
+
+
+刷刷刷不可避
+
+
+值得一提的就是传说系列的BUILD不只是数值上的变化，很多skill是跟追加动作，指令优化和实用性挂钩的
+
+点满以后才是这个角色的完全体，所以之前采访时说前期在称号技能上根据玩家不同的倾向会有些选择困难确实是存在的，只不过是一个RPG中必须经历的过程罢了
+
+
+*****
+
+####  godless2020  
+##### 2295#       发表于 2021-8-12 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348208&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-12 23:07</a>
+
+终极版所包含的SP相关的内容
+
+
+・【海水浴】</blockquote>
+这次不同难度，加成有区别没？？TOGF的C难度得点太爽了！！！
+
+
+*****
+
+####  qiyu1234  
+##### 2296#       发表于 2021-8-12 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348404&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-8-12 23:20</a>
+
+这次不同难度，加成有区别没？？TOGF的C难度得点太爽了！！！</blockquote>
+高难度得点高 这个应该一直会保留的吧，毕竟不同难度敌人强度不同，再去掉加成就真不合理了
+
+就是不知道这作的具体加成区别有多少
+
+
+                                                 

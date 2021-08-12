@@ -9177,3 +9177,26 @@ live结束后又要开摸吗？推特倒是有点赞
 
 
                                                  
+
+*****
+
+####  ylssb10438  
+##### 6746#       发表于 2021-8-12 22:38
+
+
+苹果什么时候关注的唐可可声优<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 6747#       发表于 2021-8-12 22:41
+
+
+今天已经是是第四年的第3天，不知道人跑哪去了，连污染tag的三无小号都冒出来了
+
+tc台，akukin建设，宝可梦集结，本来可以播的东西挺多的。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是看到海想列车的播放量拉了，不想面对这群臭crew了
+
+
+                                                 

@@ -15281,3 +15281,112 @@ fp算泛人类史的话，那应该还是三位一体那位吧，2.6的这位倒
 
 
                                                  
+
+*****
+
+####  里村紅葉  
+##### 82162#       发表于 2021-8-12 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52343653&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-12 17:37</a>
+
+那么集奸诈阴险恶毒与一身的泛人类史摩根如果知道自己好不容易被召唤一次....以自身为代价给传输 ...</blockquote>
+蘑菇：下次把泛人类史摩根也写成傻白甜就解决啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82163#       发表于 2021-8-12 23:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新最后150石 。。。。全。。都。。出。。了！
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不枉费我刷了100万羁绊
+
+
+*****
+
+####  LOLITA  
+##### 82164#       发表于 2021-8-12 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348246&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 23:09</a>
+
+萌新最后150石 。。。。全。。都。。出。。了！
+
+不枉费我刷了100万羁绊</blockquote>
+用苹果抽卡还行<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霧谷藤乃  
+##### 82165#       发表于 2021-8-12 23:13
+
+
+最终还是证明了欧洲人的血统啊
+
+
+*****
+
+####  alucardcz  
+##### 82166#       发表于 2021-8-12 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348304&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-12 23:13</a>
+
+用苹果抽卡还行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100个苹果换了150石 血赚啊
+
+
+*****
+
+####  exiaexa  
+##### 82167#       发表于 2021-8-12 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348246&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 23:09</a>
+萌新最后150石 。。。。全。。都。。出。。了！
+
+不枉费我刷了100万羁绊</blockquote>
+恭喜（鼓掌）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+刚好今天eva终上流媒体，就想起了这个梗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82168#       发表于 2021-8-12 23:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还剩60石还能战一把泳装（
+
+
+*****
+
+####  angelooo  
+##### 82169#       发表于 2021-8-12 23:23
+
+
+苹果抽卡太厉害了，这赚翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82170#       发表于 2021-8-12 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348246&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 23:09</a>
+
+萌新最后150石 。。。。全。。都。。出。。了！
+
+不枉费我刷了100万羁绊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是萌新 好豹啊
+
+
+                                                 

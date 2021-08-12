@@ -3013,3 +3013,808 @@ qb有种子了,好好好,开始下!!!
 
 
                                               
+
+*****
+
+####  奥古斯都  
+##### 274#       发表于 2021-8-12 22:31
+
+
+果断申请明天在家办公。剑剑，我的剑剑<img src="https://static.saraba1st.com/image/smiley/carton2017/041.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  戏言学者  
+##### 275#       发表于 2021-8-12 22:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347708&amp;ptid=2013091" target="_blank">kilkilo 发表于 2021-8-12 22:27</a>
+
+度盘的倒是下完了，但5g那个迅雷下不动，这两个画质有区别不</blockquote>
+应该有区别，我先看着度盘的，然后下载qb的，看半个小时估计能下好了就
+
+
+*****
+
+####  evatrix  
+##### 276#       发表于 2021-8-12 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347727&amp;ptid=2013091" target="_blank">栗悟饭与亀波功 发表于 2021-8-12 22:29</a>
+
+为啥度盘的时长是一小时啊</blockquote>
+用这个[https://www.aliyundrive.com/s/vGVvGWksBUF](https://www.aliyundrive.com/s/vGVvGWksBUF)
+
+百度的在线看加载有问题
+
+
+*****
+
+####  半点孤灯  
+##### 277#       发表于 2021-8-12 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347727&amp;ptid=2013091" target="_blank">栗悟饭与亀波功 发表于 2021-8-12 22:29</a>
+
+为啥度盘的时长是一小时啊</blockquote>
+网页的时长显示不全，下载完是两个多小时
+
+
+*****
+
+####  kilkilo  
+##### 278#       发表于 2021-8-12 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347749&amp;ptid=2013091" target="_blank">戏言学者 发表于 2021-8-12 22:31</a>
+应该有区别，我先看着度盘的，然后下载qb的，看半个小时估计能下好了就</blockquote>
+那得等等，迅雷反而下不动奇了怪了
+
+
+*****
+
+####  阿垃垃圾历  
+##### 279#       发表于 2021-8-12 22:33
+
+
+百度云的总算有速度了  11点前能下载完我就熬夜看完吧 
+
+
+*****
+
+####  11116等  
+##### 280#       发表于 2021-8-12 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347727&amp;ptid=2013091" target="_blank">栗悟饭与亀波功 发表于 2021-8-12 22:29</a>
+
+为啥度盘的时长是一小时啊</blockquote>
+这个时长会变，你下载就行了，可以用[https://www.aliyundrive.com/s/vGVvGWksBUF](https://www.aliyundrive.com/s/vGVvGWksBUF)，不限速
+
+
+*****
+
+####  镜言  
+##### 281#       发表于 2021-8-12 22:34
+
+
+我的天这偷跑绝绝子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+冲<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 282#       发表于 2021-8-12 22:35
+
+
+艹···这么快
+
+
+*****
+
+####  clamp07830  
+##### 283#       发表于 2021-8-12 22:40
+
+
+百度云不行...还是下了种子
+
+
+*****
+
+####  owada  
+##### 284#       发表于 2021-8-12 22:44
+
+
+还有16分钟下完,正好和线上同步播放<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暴走的饭团  
+##### 285#       发表于 2021-8-12 22:46
+
+
+百度云居然不到三分钟就下好了，第一次有这么快<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ky怪  
+##### 286#       发表于 2021-8-12 22:49
+
+
+不想看内嵌字幕的垃圾
+
+
+*****
+
+####  霧亥  
+##### 287#       发表于 2021-8-12 22:49
+
+
+醒了，下好了，看
+
+—— 來自 samsung SM-T970, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Pz079  
+##### 288#       发表于 2021-8-12 22:50
+
+
+nyaa那个种子已下完，速度挺快的啊
+
+
+*****
+
+####  音無麻理亜  
+##### 289#       发表于 2021-8-12 22:51
+
+
+种子用迅雷和比特彗星都下不动，辣鸡宽带<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  geekaven  
+##### 290#       发表于 2021-8-12 22:51
+
+
+迅雷肯定下不动啊，很多都屏蔽吸血雷了。换qb
+
+
+*****
+
+####  LRS2376852435  
+##### 291#       发表于 2021-8-12 22:52
+
+
+今天乏了，明天再说
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ky怪  
+##### 292#       发表于 2021-8-12 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347975&amp;ptid=2013091" target="_blank">Pz079 发表于 2021-8-12 22:50</a>
+nyaa那个种子已下完，速度挺快的啊</blockquote>
+字幕音轨全吗
+
+
+*****
+
+####  kraoo  
+##### 293#       发表于 2021-8-12 22:52
+
+
+官译果然不太行，凑合看
+
+
+*****
+
+####  Dreki  
+##### 294#       发表于 2021-8-12 22:53
+
+
+草，刚知道nyaa跑的快了，看是先下载完还是先到11点吧
+
+
+*****
+
+####  whzfjk  
+##### 295#       发表于 2021-8-12 22:55
+
+
+为什么都能有二次压制的内嵌字幕组了，亚马逊运营有内鬼？
+
+
+*****
+
+####  NaughtyFish  
+##### 296#       发表于 2021-8-12 22:56
+
+
+有没有看的说下翻译怎么样啊，比较担心这个
+
+
+*****
+
+####  Pz079  
+##### 297#       发表于 2021-8-12 22:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52347996&amp;ptid=2013091" target="_blank">ky怪 发表于 2021-8-12 22:52</a>
+字幕音轨全吗</blockquote>
+字幕全，只有日文语音
+
+
+*****
+
+####  duraa  
+##### 298#       发表于 2021-8-12 22:58
+
+
+感谢上面发阿里网盘的，瞬间下好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AZHT  
+##### 299#       发表于 2021-8-12 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348047&amp;ptid=2013091" target="_blank">NaughtyFish 发表于 2021-8-12 22:56</a>
+
+有没有看的说下翻译怎么样啊，比较担心这个</blockquote>
+能看，但是怪怪的
+
+
+*****
+
+####  meltingwhite  
+##### 300#       发表于 2021-8-12 23:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348047&amp;ptid=2013091" target="_blank">NaughtyFish 发表于 2021-8-12 22:56</a>
+
+有没有看的说下翻译怎么样啊，比较担心这个</blockquote>
+不太行，挺多错的很离谱的
+
+
+
+
+*****
+
+####  重巡羊舰  
+##### 301#       发表于 2021-8-12 23:00
+
+
+下载完毕，开看
+
+
+*****
+
+####  kraoo  
+##### 302#       发表于 2021-8-12 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348047&amp;ptid=2013091" target="_blank">NaughtyFish 发表于 2021-8-12 22:56</a>
+有没有看的说下翻译怎么样啊，比较担心这个</blockquote>
+把汪酱翻译成了坏小子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  baiducaonima  
+##### 303#       发表于 2021-8-12 23:01
+
+
+十年前那种下载的感觉又找到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  owada  
+##### 304#       发表于 2021-8-12 23:02
+
+
+好好好,开看,准时同步
+
+
+*****
+
+####  onemoment  
+##### 305#       发表于 2021-8-12 23:02
+
+
+开看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  X9999  
+##### 306#       发表于 2021-8-12 23:03
+
+
+下载完毕开看！
+
+
+*****
+
+####  hkguty  
+##### 307#       发表于 2021-8-12 23:03
+
+
+编辑
+
+
+*****
+
+####  hkguty  
+##### 308#       发表于 2021-8-12 23:03
+
+
+刚打开回顾就感觉字幕多处不对味·····
+
+
+*****
+
+####  阿姆罗二世  
+##### 309#       发表于 2021-8-12 23:04
+
+
+被3D大白丽丑哭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真的丑，一点美感都没有，彻底的劣质3D
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  冀人燕南天  
+##### 310#       发表于 2021-8-12 23:04
+
+
+梦回2012
+
+
+*****
+
+####  HGCG2  
+##### 311#       发表于 2021-8-12 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348133&amp;ptid=2013091" target="_blank">kraoo 发表于 2021-8-12 23:01</a>
+
+把汪酱翻译成了坏小子</blockquote>
+英字是怎样的
+
+
+*****
+
+####  siyu  
+##### 312#       发表于 2021-8-12 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348047&amp;ptid=2013091" target="_blank">NaughtyFish 发表于 2021-8-12 22:56</a>
+
+有没有看的说下翻译怎么样啊，比较担心这个</blockquote>
+一塌糊涂。
+
+
+*****
+
+####  kddawang  
+##### 313#       发表于 2021-8-12 23:08
+
+
+3g那个翻译，吐了。
+
+都严重影响观看了。
+
+
+*****
+
+####  18991413544  
+##### 314#       发表于 2021-8-12 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348220&amp;ptid=2013091" target="_blank">siyu 发表于 2021-8-12 23:07</a>
+一塌糊涂。</blockquote>
+那我先不看了，蹲到明天<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+*****
+
+####  阿姆罗二世  
+##### 315#       发表于 2021-8-12 23:09
+
+
+剑剑确实是个好人<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">粉了粉了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  NaughtyFish  
+##### 316#       发表于 2021-8-12 23:09
+
+
+被你们说的我也不想看了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。。。。等个好点的字幕，也不差这几天
+
+
+*****
+
+####  体质的错  
+##### 317#       发表于 2021-8-12 23:09
+
+
+居然不是全球同步
+
+
+*****
+
+####  再买自检星剁手  
+##### 318#       发表于 2021-8-12 23:10
+
+
+nyaa的速度飘忽不定，还有15分钟<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ztl44  
+##### 319#       发表于 2021-8-12 23:11
+
+
+想在亚马逊 prime 上支持一下，目前添加了美国地址，用美国IP，日本IP都试过了 显示锁区，有没有成功的大佬说一下要怎么弄，添加日本地址行吗
+
+
+*****
+
+####  susan28  
+##### 320#       发表于 2021-8-12 23:12
+
+
+繁中 翻译如何？？
+
+
+*****
+
+####  KuonjiClara  
+##### 321#       发表于 2021-8-12 23:13
+
+
+远鉴的内嵌是真的SB,带鱼屏根本没法看,字体还丑.
+
+
+*****
+
+####  复杂梦境  
+##### 322#       发表于 2021-8-12 23:13
+
+
+[http://www.yy.com/1382682621](http://www.yy.com/1382682621) 日亚源，播下试试
+
+
+*****
+
+####  qianoooo  
+##### 323#       发表于 2021-8-12 23:14
+
+
+痞子 混蛋啊
+
+
+*****
+
+####  蛇头  
+##### 324#       发表于 2021-8-12 23:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/040.png" referrerpolicy="no-referrer">你们都关心的那个，在23分40秒开始
+
+
+*****
+
+####  阿垃垃圾历  
+##### 325#       发表于 2021-8-12 23:15
+
+
+yj的字幕这么垃圾的么 
+
+
+*****
+
+####  requiem116  
+##### 326#       发表于 2021-8-12 23:16
+
+
+直奔结局
+
+我只能说我不但不能接受真嗣和真希波搞到一起也不能接受真嗣说话这么轻佻
+
+
+*****
+
+####  11116等  
+##### 327#       发表于 2021-8-12 23:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348337&amp;ptid=2013091" target="_blank">阿垃垃圾历 发表于 2021-8-12 23:15</a>
+yj的字幕这么垃圾的么</blockquote>
+官方字幕<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuo9  
+##### 328#       发表于 2021-8-12 23:20
+
+
+qb可以啊，后半段能到12m/s，可惜明天害得上班<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 329#       发表于 2021-8-12 23:24
+
+
+官方这字幕是真的垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">比不孝子的还要垃圾多了
+
+
+*****
+
+####  kddawang  
+##### 330#       发表于 2021-8-12 23:25
+
+
+这翻译，不知道会带偏多少人。
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  zet  
+##### 331#       发表于 2021-8-12 23:27
+
+
+内嵌字幕还隐藏不了，算了明天再看。
+
+
+*****
+
+####  Onelooker  
+##### 332#       发表于 2021-8-12 23:28
+
+
+ 本帖最后由 Onelooker 于 2021-8-12 23:33 编辑 
+
+nyaa下种的太多了，速度起不来<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+建议还是用阿里的网盘[https://www.aliyundrive.com/s/vGVvGWksBUF](https://www.aliyundrive.com/s/vGVvGWksBUF)
+
+
+idm速度能稳定跑到1m，差不多十多分钟
+
+我还试了一下迅雷，速度巨慢
+
+
+*****
+
+####  hkguty  
+##### 333#       发表于 2021-8-12 23:29
+
+
+已经可以想象到贴吧人拿着这个垃圾字幕一字一字，咬文嚼字地分析然后发表1千字论文的样子了·············
+
+
+*****
+
+####  三度音  
+##### 334#       发表于 2021-8-12 23:30
+
+
+剑剑真是好人啊
+
+
+*****
+
+####  红都剧院24排4号  
+##### 335#       发表于 2021-8-12 23:30
+
+
+5年后看心情考虑要不要看
+
+
+*****
+
+####  名津流  
+##### 336#       发表于 2021-8-12 23:31
+
+
+下了3.47G，远鉴字幕组的这个稍微看了一眼
+
+<img src="https://img.saraba1st.com/forum/202108/12/232532ucyqcocrbqqpy3jp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>111.jpg</strong> (183.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 23:25 上传
+
+
+画面动态较多，色彩较丰富的地方细节都被压糊了吧？就跟TV动画经常被压糊的OP画面似的
+
+码率3187K，音频码率192K（虽然不适合拿BD来比，但我还是看了一下N年前收藏的破是8371K和640K）
+
+
+而且我记得从Q开始，EVA的画幅就是长画幅了吧？
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/232933x8fze4mt4rmahz44.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210812232922.png</strong> (32.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 23:29 上传
+
+
+远鉴字幕组这个是手动加了上下黑边硬压成了1080P的16:9啊，字幕都跨在画面和黑边上了。虽然说作为内嵌硬字幕，这种做法也算常见...
+
+
+*****
+
+####  ky怪  
+##### 337#       发表于 2021-8-12 23:31
+
+
+115已经秒完了，就是啥比115限速到6M有点恶心
+[https://115.com/s/swny1xp33pt?password=xaf7&amp;#](https://115.com/s/swny1xp33pt?password=xaf7&amp;#)
+
+Evangelion.3.0+1.01.Thrice.Upon.a.Time.2021.1080p.AMZN.WEB-DL.DD+.5.1.H.264-RMB.mkv
+
+访问码：xaf7
+
+
+*****
+
+####  白徵明  
+##### 338#       发表于 2021-8-12 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348517&amp;ptid=2013091" target="_blank">名津流 发表于 2021-8-12 23:31</a>
+下了3.47G，远鉴字幕组的这个稍微看了一眼</blockquote>
+还隔一会儿就贴狗皮膏药广告，很烦。
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Onelooker  
+##### 339#       发表于 2021-8-12 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348517&amp;ptid=2013091" target="_blank">名津流 发表于 2021-8-12 23:31</a>
+
+下了3.47G，远鉴字幕组的这个稍微看了一眼</blockquote>
+阿哲
+
+刚放的源就有第三方字幕了吗
+
+
+*****
+
+####  baiducaonima  
+##### 340#       发表于 2021-8-12 23:33
+
+
+5.8g的是内挂字幕
+
+
+*****
+
+####  名津流  
+##### 341#       发表于 2021-8-12 23:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348531&amp;ptid=2013091" target="_blank">白徵明 发表于 2021-8-12 23:32</a>
+
+还隔一会儿就贴狗皮膏药广告，很烦。
+
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+先不说都在诟病的翻译问题，就远鉴这个用shanaEncoder压出来的画质...
+
+
+我还是先等等吧
+
+
+看到群里好像还有人发5G大小的版本，不知道那个压的质量如何
+
+
+*****
+
+####  ybtao  
+##### 342#       发表于 2021-8-12 23:34
+
+
+有中配的吗
+
+
+*****
+
+####  -Vanitas-  
+##### 343#       发表于 2021-8-12 23:35
+
+
+nyaa那个用比特彗星下载完了，最后速度飙到30mb/s
+
+
+*****
+
+####  christiny  
+##### 344#       发表于 2021-8-12 23:35
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/233511wlegbm6fz7vl5z7g.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210812233433.png</strong> (56.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 23:35 上传
+
+
+要个勾八的BT软件，浏览器下载YYDS，差点没把我笑死。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zljzhj  
+##### 345#       发表于 2021-8-12 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348360&amp;ptid=2013091" target="_blank">requiem116 发表于 2021-8-12 23:16</a>
+
+直奔结局
+
+我只能说我不但不能接受真嗣和真希波搞到一起也不能接受真嗣说话这么轻佻 ...</blockquote>
+不光是お○ぱいが大きい女这一句台词的事情了，直到跑出车站那一段都让人感到恶心
+
+
+*****
+
+####  名津流  
+##### 346#       发表于 2021-8-12 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348524&amp;ptid=2013091" target="_blank">ky怪 发表于 2021-8-12 23:31</a>
+
+115已经秒完了，就是啥比115限速到6M有点恶心
+
+https://115.com/s/swny1xp33pt?password=xaf7&amp;#
+
+Evangelion. ...</blockquote>
+能麻烦看下参数吗，视频、音频码率什么的
+
+
+                                               

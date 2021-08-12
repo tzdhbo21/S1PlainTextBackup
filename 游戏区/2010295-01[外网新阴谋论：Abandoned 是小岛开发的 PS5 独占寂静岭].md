@@ -8945,3 +8945,47 @@ Blue Box阴谋论完结篇，敬请期待
 
 
                                                  
+
+*****
+
+####  死体旅行  
+##### 702#       发表于 2021-8-12 22:51
+
+
+有趣
+
+
+snipaste20210812_225115.jpg
+(126.55 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-12 22:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/225129oddwtdqd01qd9ezo.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kazepollar  
+##### 703#       发表于 2021-8-12 23:03
+
+
+日本已经过12点了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉没啥可看的了
+
+
+*****
+
+####  luoyianwu  
+##### 704#       发表于 2021-8-12 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348170&amp;ptid=2010295" target="_blank">Kazepollar 发表于 2021-8-12 23:03</a>
+日本已经过12点了吧感觉没啥可看的了</blockquote>
+Blue Box活动时间多为日本时间凌晨
+
+
+                                                 
