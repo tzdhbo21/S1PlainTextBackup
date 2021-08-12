@@ -1450,3 +1450,140 @@ ww配音太搞了
 
 
                                                 
+
+*****
+
+####  体质的错  
+##### 130#       发表于 2021-8-12 11:35
+
+
+hype！
+
+
+*****
+
+####  N-Time  
+##### 131#       发表于 2021-8-12 11:38
+
+
+一晃，就要来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 132#       发表于 2021-8-12 11:47
+
+
+刚好今天搬家，大半夜还要放炮什么的，干脆看完eva再去睡（要不干脆请假算了）
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Nyaaarlathotep  
+##### 133#       发表于 2021-8-12 11:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来了来了
+
+
+*****
+
+####  sunnyjee  
+##### 134#       发表于 2021-8-12 12:01
+
+
+啊 不知道我美亚的prime会员能不能看
+
+
+*****
+
+####  Nieriltasinwa  
+##### 135#       发表于 2021-8-12 12:04
+
+
+大的要来了
+
+
+*****
+
+####  魔皇崩裂拳  
+##### 136#       发表于 2021-8-12 12:06
+
+
+网上什么时候能有熟肉？
+
+
+*****
+
+####  姜小羊的  
+##### 137#       发表于 2021-8-12 12:06
+
+
+啥时候有资源啊<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  戏言学者  
+##### 138#       发表于 2021-8-12 12:08
+
+
+ 本帖最后由 戏言学者 于 2021-8-12 12:11 编辑 
+
+上美亚为什么好多视频都显示地区无法播放，挂梯都不行的吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 139#         楼主| 发表于 2021-8-12 12:15
+
+
+【11言語版 名場面集】『ヱヴァンゲリヲン新劇場版』シリーズ｜Amazonプライムビデオ
+
+[https://youtu.be/VKA3OtTCuME](https://youtu.be/VKA3OtTCuME)
+
+
+[https://twitter.com/khara_inc2/status/1425635666684112902](https://twitter.com/khara_inc2/status/1425635666684112902)
+
+映画館でご鑑賞いただいた皆様、本当にありがとうございました
+
+
+Amazon  Prime Videoで本日24時（13日0時）から配信です
+
+
+*****
+
+####  重巡羊舰  
+##### 140#       发表于 2021-8-12 12:19
+
+
+来了来了，吵了那么久，该见分晓了，是剑剑赢了，还是香党永不为奴，这回应该不能用你云电影懂个p来说了吧
+
+
+*****
+
+####  owada  
+##### 141#       发表于 2021-8-12 12:22
+
+
+このビデオは、現在、
+
+お住まいの地域では視聴できません
+
+开了prime,发现不能看.挂梯子也GG,完,等下载
+
+
+*****
+
+####  emmer  
+##### 142#       发表于 2021-8-12 12:25
+
+
+今晚11点？好耶！！
+
+
+                                                 

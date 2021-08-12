@@ -14083,3 +14083,189 @@ typemoon可以任何人背锅，但蘑菇是最后的底线啊<img src="https://
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 82074#       发表于 2021-8-12 11:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338905&amp;ptid=1085254" target="_blank">枪聆弹语 发表于 2021-8-12 11:24</a>
+
+平稳落地PTSD了</blockquote>
+那你该庆幸你月还没被平稳落地侵蚀
+
+
+大部分还停留在，还行，可以接受，基本过关这类的，我用平稳落地只是方便归纳
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82075#       发表于 2021-8-12 11:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339014&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 11:31</a>
+
+那你该庆幸你月还没被平稳落地侵蚀
+
+
+大部分还停留在，还行，可以接受，基本过关这类的，我用平稳落地只是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">我想说这次2。6 dw做的游戏部分进化幅度远超剧本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话在隔壁说肯定要被喷 只能在这里说说
+
+
+*****
+
+####  miro112233  
+##### 82076#       发表于 2021-8-12 11:45
+
+
+看了眼这次263破防的，有不少是在我262在泥潭指出摩根的塑造就是搞GOA的那套白莲花统治者，都是刁民的错的时候把我踩爆的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 82077#       发表于 2021-8-12 11:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁已经开始转向流水赢麻了，看着完全看不懂的术语，再下去就要进化成批字辈了
+
+
+*****
+
+####  sosgame67  
+##### 82078#       发表于 2021-8-12 11:54
+
+
+nga不就是饭圈那套么，你去饭圈骂人家蘑菇giegie这不是自己找不自在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 82079#       发表于 2021-8-12 11:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339205&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-8-12 11:45</a>
+
+看了眼这次263破防的，有不少是在我262在泥潭指出摩根的塑造就是搞GOA的那套白莲花统治者，都是刁民的错的 ...</blockquote>
+因为看了263发现摩根原本可能有的高光因为加了奥伯龙所以直接没了吧，然后觉得摩根成为了受害者？
+
+讲真262摩根作为统治者的塑造就是不行，当然这本身也是他们的菌皇的锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那些指责各路来围剿的厨子说你们要不就把原本的剧本拿出来证明奥伯龙抢了戏，可菌皇自己在访谈里承认了奥伯龙就是新加进去的角色啊这还要看原剧本干什么，又到了我最喜欢的粉丝被背刺的环节<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+当然很多人好像根本无视了蘑菇说的这段话<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 82080#       发表于 2021-8-12 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339354&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-8-12 11:54</a>
+
+nga不就是饭圈那套么，你去饭圈骂人家蘑菇giegie这不是自己找不自在</blockquote>
+nga这种满屏流毒的地方还真有人回跳进去啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  exiaexa  
+##### 82081#       发表于 2021-8-12 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339205&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-8-12 11:45</a>
+看了眼这次263破防的，有不少是在我262在泥潭指出摩根的塑造就是搞GOA的那套白莲花统治者，都是刁民的错的 ...</blockquote>
+上次我在楼里骂goa大型复刻的时候，还导致这专楼还被对面开了个楼，虽然最后爆破掉了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 82082#       发表于 2021-8-12 12:02
+
+
+奥伯龙说不知道加雷斯，其实是反话嘛，他还是很关心加雷斯的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 82083#       发表于 2021-8-12 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339337&amp;ptid=1085254" target="_blank">枪聆弹语 发表于 2021-8-12 11:53</a>
+
+隔壁已经开始转向流水赢麻了，看着完全看不懂的术语，再下去就要进化成批字辈了 ...</blockquote>
+并没有赢麻，连着出肯定会互相影响的。只是好久没登顶持续四五天了看上去回光返照了而已
+
+
+跟自家横向对比也完全比不过2019年的第一第二
+
+
+*****
+
+####  alucardcz  
+##### 82084#       发表于 2021-8-12 12:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339441&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 12:01</a>
+
+上次我在楼里骂goa大型复刻的时候，还导致这专楼还被对面开了个楼，虽然最后爆破掉了
+
+ ...</blockquote>
+我是没想到还有人专门偷偷来看s1的专楼
+
+
+这楼里其实经常说话的大概也就10来个不到
+
+
+(好气啊 没看到那贴
+
+
+*****
+
+####  任天索尼子  
+##### 82085#       发表于 2021-8-12 12:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339481&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-12 12:04</a>
+
+并没有赢麻，连着出肯定会互相影响的。只是好久没登顶持续四五天了看上去回光返照了而已
+
+
+跟自家横向对比 ...</blockquote>
+主要还是DW产能太拉了，去年新卡那么少母猪想花钱都没地方。
+
+
+*****
+
+####  exiaexa  
+##### 82086#       发表于 2021-8-12 12:26
+
+
+ 本帖最后由 exiaexa 于 2021-8-12 12:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339202&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 11:44</a>
+我想说这次2。6 dw做的游戏部分进化幅度远超剧本
+
+这话在隔壁说肯定要被喷 只能在这里说说 ...</blockquote>
+我这次对dw的好感都在妖兰身上了，几个boss战设计倒是比252用心了点，给的buff也算过了脑子
+
+菌类自己的话，c呆整体上还是菌类自己那套，她这么苦还在努力，你们快哭啊的路子；摩根就是阿瓦隆之庭屎量加倍版；奥伯龙才算是他给自己做了突破
+
+
+不过反正dw都已经是万能背锅侠了，没人在乎的，还有人说第三部分太短是因为dw要求缩减
+
+md我寻思第一部分灌水灌这么狠dw屁都没放一个，到大高潮了让菌鸽鸽缩剧本，按他们这想法这得是啥样的脑回路才干得出来
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                

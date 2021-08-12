@@ -2742,3 +2742,43 @@ http://b23.tv/jmbMN4
 
 
                                                  
+
+*****
+
+####  capcomcc  
+##### 185#       发表于 2021-8-12 11:58
+
+
+好看！被朋友拉入坑，闲着汉化了几篇得奖的作品，凑活读<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/read/readlist/rl438118](https://www.bilibili.com/read/readlist/rl438118)
+
+
+*****
+
+####  18991413544  
+##### 186#       发表于 2021-8-12 12:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52339396&amp;ptid=2013210" target="_blank">capcomcc 发表于 2021-8-12 11:58</a>
+好看！被朋友拉入坑，闲着汉化了几篇得奖的作品，凑活读
+
+https://www.bilibili.com/read/readlist/r ...</blockquote>
+大佬辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+*****
+
+####  フリーレン  
+##### 187#         楼主| 发表于 2021-8-12 12:15
+
+
+<blockquote>capcomcc 发表于 2021-8-12 11:58
+好看！被朋友拉入坑，闲着汉化了几篇得奖的作品，凑活读
+
+https://www.bilibili.com/read/readlist/r ...</blockquote>
+大佬辛苦了
+
+
+                                                 
