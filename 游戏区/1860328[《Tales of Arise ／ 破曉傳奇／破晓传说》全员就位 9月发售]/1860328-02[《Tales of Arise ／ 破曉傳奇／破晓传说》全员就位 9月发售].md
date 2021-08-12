@@ -10648,3 +10648,33 @@ pc是不是没必要买上位的两个版本，看了下好像就是一堆衣服
 
 
                                                  
+
+*****
+
+####  司马千晶  
+##### 2286#       发表于 2021-8-12 08:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">新的凤凰天驱太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+暴气应该不用担心，“50或者100-HITS后短时间暴气” 或者盾妹“格挡成功XX次自动暴”这种词条肯定少不了
+
+
+*****
+
+####  laoz  
+##### 2287#       发表于 2021-8-12 08:59
+
+
+<img src="https://img.saraba1st.com/forum/202108/12/085755kyfivpx8s6tztldp.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (34.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-12 08:57 上传
+
+
+                                                 

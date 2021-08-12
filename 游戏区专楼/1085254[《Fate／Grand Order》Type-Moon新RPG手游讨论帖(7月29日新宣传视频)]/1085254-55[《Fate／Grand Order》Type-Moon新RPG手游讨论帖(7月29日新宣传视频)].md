@@ -13564,3 +13564,205 @@ Muryan要落估计是纯AI版的了（菌借口：容貌是一样的）
 
 
                                                  
+
+*****
+
+####  Jamaisvu  
+##### 82033#       发表于 2021-8-12 07:30
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-12 07:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336010&amp;ptid=1085254" target="_blank">stefanie张 发表于 2021-8-12 02:31</a>
+
+MD妖兰和奥伯龙我都不是喜欢的类型，但是宝具动画好帅啊。</blockquote>
+这两个家伙一个开了双宝具的先河，自带最大130NP的直充；一个是新职阶一次性宝具拐。同时都有蘑菇厨力放出（妖兰画师choco，奥伯龙画师羽海野千花），保不齐以后还有戏份或强化。
+
+
+个人感觉是狂那级别的，定义环境的卡<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不过枪阶的优势区间没有狂阶广，而奥伯龙只适合短期爆发，不能长线作战。如果不想玩妖兰、杀狐x2、奥伯龙的红卡换人周回队，抽不抽都行。
+
+
+最主要的是还有半个多月就泳装了，量力而行吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+（玩手游不就看个卡面和厨力嘛...还有强度）
+
+
+*****
+
+####  シャル  
+##### 82034#       发表于 2021-8-12 07:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335847&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 01:33</a>
+
+你是不是没抽到美露辛
+
+72x3哪儿还有铃铛</blockquote>
+萝兰1，2技能放8就行，这不就是省下来了嘛
+
+
+*****
+
+####  シャル  
+##### 82035#       发表于 2021-8-12 07:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335773&amp;ptid=1085254" target="_blank">保罗赫伯特 发表于 2021-8-12 01:16</a>
+
+之前就有人发现c呆语音和剧情对不上的问题了，有些矛盾怎么也圆不了 ...</blockquote>
+但是情人节剧情能对上啊
+
+
+*****
+
+####  exiaexa  
+##### 82036#       发表于 2021-8-12 08:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336502&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-12 07:53</a>
+
+萝兰1，2技能放8就行，这不就是省下来了嘛</blockquote>
+早就点满了，甚至还点了个通用2
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 82037#       发表于 2021-8-12 08:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336403&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-12 07:23</a>
+
+请问一下，你之前是在ourplay上充的谷歌卡吗？充值时挂的是付费日本梯子吗？我就是这么充钱的...
+
+
+如果这 ...</blockquote>
+充值的ip必须日本，否则就打电话给苹果国际服吧
+
+
+*****
+
+####  zore  
+##### 82038#       发表于 2021-8-12 08:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萝兰一宝能冲吗,我怕狗屎dw道中塞剑阶怪
+
+
+*****
+
+####  angelooo  
+##### 82039#       发表于 2021-8-12 08:08
+
+
+虽然那个梅林厨是个毒唯，但能让大家发现蘑菇瞎搞的本质也是好的嘛，其实之前反感贝屑是个low比也有个高楼，然后就被部分人打成贝屑厨子的垂死挣扎，卧槽他们产生了什么错觉，哪来那么多贝屑的厨？不就是蘑菇公款追星导致一堆角色塑造都烂了？
+
+
+*****
+
+####  areklose  
+##### 82040#       发表于 2021-8-12 08:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我最近用礼品卡挂日本节点充FGO和GBF买傻逼都没事。。所以不知道那个你们怎样触发。刷材料还是要刷的。毕竟铜材料需求太多了。活动送得太少。
+
+
+*****
+
+####  シャル  
+##### 82041#       发表于 2021-8-12 08:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336588&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-12 08:10</a>
+
+我最近用礼品卡挂日本节点充FGO和GBF买傻逼都没事。。所以不知道那个你们怎样触发。刷材料还是要刷 ...</blockquote>
+他那个日本梯子有问题，被检测出不是在日本了
+
+
+*****
+
+####  zakki  
+##### 82042#       发表于 2021-8-12 08:40
+
+
+ 本帖最后由 zakki 于 2021-8-12 08:41 编辑 
+
+看昨晚推特上那人气和讨论度，下次2.7要是蘑菇写，他还这么玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想看纯剧情没有空降厨放的只能是终章了
+
+
+*****
+
+####  UNISONIA  
+##### 82043#       发表于 2021-8-12 08:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336421&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-12 07:30</a>
+
+这两个家伙一个开了双宝具的先河，自带最大130NP的直充；一个是新职阶一次性宝具拐。同时都有蘑菇厨力放出 ...</blockquote>
+妖兰还是定义不了环境的，跟月杀一样是个三面给力（还是靠的奥伯龙）二面疲软的主，估计追求更泛用一点就得投额外资源了，因为是常规职阶（枪阶）投了以后的结果也是不如泛用那几个。优点还是连发的方法足够硬核了
+
+
+*****
+
+####  都谷捻柏  
+##### 82044#       发表于 2021-8-12 09:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336757&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-12 08:40</a>
+
+看昨晚推特上那人气和讨论度，下次2.7要是蘑菇写，他还这么玩想看纯剧情没有空降厨放的只能是终章了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那让樱井来写？
+
+
+*****
+
+####  angelooo  
+##### 82045#       发表于 2021-8-12 09:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334983&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-11 23:33</a>
+
+我也这么认为，毕竟樱战队人气比她高太多了，你看看称姆利安屑AI的云玩家就知道了，她和狐狸这次 ...</blockquote>
+那段我也挺喜欢的
+
+
+*****
+
+####  exiaexa  
+##### 82046#       发表于 2021-8-12 09:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52337024&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-12 09:07</a>
+那让樱井来写？</blockquote>
+如果默认两个人都会写崩的话我还真想选樱井
+起码短啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SAGA0Arcueid  
+##### 82047#       发表于 2021-8-12 09:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335977&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-12 02:16</a>
+
+2.6为了给蘑菇追星真的牺牲了太多，我一想到奥博龙有可能把妖兰的ml剧情给挤没了我就好不爽 ...</blockquote>
+妖兰妖高和摩根三个落地的语音都有点倒贴的意思，怎么看都是原来有什么剧情被砍了吧
+
+
+*****
+
+####  密特里奈斯  
+##### 82048#       发表于 2021-8-12 09:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335847&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 01:33</a>
+
+你是不是没抽到美露辛
+
+72x3哪儿还有铃铛</blockquote>
+我就没抽……日服福袋党不敢在周年前用石头……
+
+
+                                                 

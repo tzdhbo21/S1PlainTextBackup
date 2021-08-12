@@ -18972,3 +18972,33 @@ Anya能不能把L2d修好啊</blockquote>
 
 
                                                  
+
+*****
+
+####  PureIllusion  
+##### 1220#       发表于 2021-8-12 09:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52334027&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-8-11 21:51</a>
+
+Anya能不能把L2d修好啊</blockquote>
+lol no
+<img src="https://p.sda1.dev/2/462c212b7ede516292f491fc33b38151/1628676781655.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 1|🥲|
+
+
+查看全部评分
+
+
+                                                 
