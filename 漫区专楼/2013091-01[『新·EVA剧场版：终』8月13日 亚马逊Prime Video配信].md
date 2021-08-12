@@ -1323,3 +1323,130 @@ image.png
 
 
                                                  
+
+*****
+
+####  Temori  
+##### 118#       发表于 2021-8-12 10:51
+
+
+映画館でご鑑賞いただいた皆様、本当にありがとうございました
+
+Amazon  Prime Videoで本日24時（13日0時）から配信です
+
+今晚11点就有了，二号机发推了
+
+
+*****
+
+####  shudushimo  
+##### 119#       发表于 2021-8-12 10:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338398&amp;ptid=2013091" target="_blank">Temori 发表于 2021-8-12 10:51</a>
+
+映画館でご鑑賞いただいた皆様、本当にありがとうございました
+
+
+Amazon  Prime Videoで本日24時（13日0時） ...</blockquote>
+确定是日本时间吗
+
+
+*****
+
+####  妖精桑  
+##### 120#       发表于 2021-8-12 10:54
+
+
+可以啊 亚马逊
+
+
+
+
+*****
+
+####  Temori  
+##### 121#       发表于 2021-8-12 10:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338426&amp;ptid=2013091" target="_blank">shudushimo 发表于 2021-8-12 10:54</a>
+确定是日本时间吗</blockquote>
+直接日语发推，而且感谢了去电影院看的观众，基本上就是了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 122#       发表于 2021-8-12 10:59
+
+
+反正也得明天下班才能看了，估计到时已经有资源了吧
+
+
+*****
+
+####  XIEGC  
+##### 123#       发表于 2021-8-12 11:00
+
+
+距离剑剑还差12小时！<img src="https://static.saraba1st.com/image/smiley/carton2017/041.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朗姆酒hentai  
+##### 124#       发表于 2021-8-12 11:06
+
+
+ww配音太搞了
+
+
+*****
+
+####  奥古斯都  
+##### 125#       发表于 2021-8-12 11:14
+
+
+流媒体永远的神！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MONSTERS  
+##### 126#       发表于 2021-8-12 11:18
+
+
+233正片出来你们说泥潭这次要刷屏几天？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  何でやねん  
+##### 127#       发表于 2021-8-12 11:26
+
+
+今晚能看最好，省得明天一天魂不守舍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  镜言  
+##### 128#       发表于 2021-8-12 11:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338935&amp;ptid=2013091" target="_blank">何でやねん 发表于 2021-8-12 11:26</a>
+
+今晚能看最好，省得明天一天魂不守舍</blockquote>
+太乐观了，只怕看了之后ptsd发作明天依旧魂不守舍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  和真克瓦尔  
+##### 129#       发表于 2021-8-12 11:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/047.png" referrerpolicy="no-referrer">要来力！
+
+
+                                                

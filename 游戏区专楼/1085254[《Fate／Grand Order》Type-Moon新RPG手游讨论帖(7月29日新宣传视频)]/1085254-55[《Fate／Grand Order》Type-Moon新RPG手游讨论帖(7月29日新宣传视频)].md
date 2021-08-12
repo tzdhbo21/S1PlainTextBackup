@@ -13880,3 +13880,206 @@ MD妖兰和奥伯龙我都不是喜欢的类型，但是宝具动画好帅啊。
 
 
                                                 
+
+*****
+
+####  密特里奈斯  
+##### 82059#       发表于 2021-8-12 10:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338076&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-12 10:31</a>
+
+突然发现奥伯龙两个模式下的羁绊资料不一样啊，蘑菇这回可真是写了个爽 ...</blockquote>
+3破的是剧透内容，跟C呆类似的模式
+
+
+*****
+
+####  Jamaisvu  
+##### 82060#       发表于 2021-8-12 10:39
+
+
+ 本帖最后由 Jamaisvu 于 2021-8-12 10:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52336578&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-8-12 08:08</a>
+
+虽然那个梅林厨是个毒唯，但能让大家发现蘑菇瞎搞的本质也是好的嘛，其实之前反感贝屑是个low比也有个高楼 ...</blockquote>
+贝利尔是我感觉本章最可惜的角色，本来以为背刺队长后能看到一个有趣的愉悦犯角色，没想到是个low逼舔狗（还是物理舔狗）
+
+
+点一首老歌《求佛》送给贝屑吧：
+
+为了你 我变成狼人模样为了你 染上了疯狂为了你 穿上厚厚的伪装为了你 换了心肠我们还能不能再见面我在佛前苦苦求了几千年愿意用几世换我们一世情缘希望可以感动 上天我们还能不能能不能再见面我在佛前苦苦求了几千年当我在踏过这条奈何桥之前让我再吻一吻你的脸
+
+换了心肠：指排热大公的狼心狗肺
+
+
+佛：指异星神
+
+
+伪装：指和摩根形婚
+
+
+你：指马修
+
+
+*****
+
+####  Jamaisvu  
+##### 82061#       发表于 2021-8-12 10:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338158&amp;ptid=1085254" target="_blank">密特里奈斯 发表于 2021-8-12 10:35</a>
+
+3破的是剧透内容，跟C呆类似的模式</blockquote>
+谢谢，刚发现C呆也多了一套羁绊资料...量大管饱啊，不知道设定集里面还能补充啥...
+
+
+感觉蘑菇没说清楚的东西有点多，这章节奏好乱，菌皇把锅背好。
+
+
+*****
+
+####  Jamaisvu  
+##### 82062#       发表于 2021-8-12 10:43
+
+
+妖崔这个三破到底还能不能解释了，如果兽神被打出神核后，看到三破妖崔融合在上面，然后讲两句打一顿，也就翻过去了。现在压根没提...
+
+
+搞不好会变成2.6.5的重要角色？（瞎猜的）
+
+
+*****
+
+####  exiaexa  
+##### 82063#       发表于 2021-8-12 10:52
+
+
+你们说隔壁开战了我去看了一眼，合着都这逼样了还想着把蘑菇当亲爹供着，等着擦屁股纸来解决问题
+
+能不能有点骨气艹
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 82064#       发表于 2021-8-12 10:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338406&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 10:52</a>
+你们说隔壁开战了我去看了一眼，合着都这逼样了还想着把蘑菇当亲爹供着，等着擦屁股纸来解决问题
+
+能不能有 ...</blockquote>
+typemoon可以任何人背锅，但蘑菇是最后的底线啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 82065#       发表于 2021-8-12 11:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">立月之根本动摇不得
+
+
+*****
+
+####  漆黑之花  
+##### 82066#       发表于 2021-8-12 11:10
+
+
+这就是新时代的月㕑？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  usoda  
+##### 82067#       发表于 2021-8-12 11:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不急 还有2个礼拜才到菌厨的真正考验时刻
+
+
+*****
+
+####  都谷捻柏  
+##### 82068#       发表于 2021-8-12 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338406&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-08-12 10:52:22</a>
+你们说隔壁开战了我去看了一眼，合着都这逼样了还想着把蘑菇当亲爹供着，等着擦屁股纸来解决问题
+
+能不能有 ...</blockquote>有骨气，废狗能有今天？早就洗完了好吧。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  exiaexa  
+##### 82069#       发表于 2021-8-12 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338797&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-12 11:18</a>
+
+有骨气，废狗能有今天？早就洗完了好吧。
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+他们骂东出樱井盐川水濑的时候动作快得很啊
+
+什么擦屁股都是不存在的，写拉了就定在耻辱柱上给爷死，什么小细节都是不存在的
+
+近期的经典案例就是居然有人问奥丁为什么不管2.2异闻带
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+到了菌类这边就是，相信哥哥一定会解释的，哥哥平稳落地你们还有什么不满意的
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 82070#       发表于 2021-8-12 11:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">平稳落地PTSD了
+
+
+*****
+
+####  cckuku  
+##### 82071#       发表于 2021-8-12 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338406&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 10:52</a>
+ 你们说隔壁开战了我去看了一眼，合着都这逼样了还想着把蘑菇当亲爹供着，等着擦屁股纸来解决问题 能不能有 ...</blockquote>
+这不就是饭圈的那套？“不信谣不传谣，等giegie回应，giegie没说话之前什么都不要信”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 82072#       发表于 2021-8-12 11:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52338406&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-12 10:52</a>
+
+你们说隔壁开战了我去看了一眼，合着都这逼样了还想着把蘑菇当亲爹供着，等着擦屁股纸来解决问题
+
+能不能有 ...</blockquote>
+对啊我笑死了，看到有人说2.6本身有口皆碑，就是你们这些厨不满意在跳23333
+
+
+*****
+
+####  rollingusagi  
+##### 82073#       发表于 2021-8-12 11:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事，现在还可以安慰自己菌哥哥其实早对fgo没热情了，这次全靠追星的动力写了2.6，那么自然全部角色都为偶像画的奥伯龙垫脚了，到月姬r一定会变回那个正常水平的菌哥哥的
+
+
+                                                 

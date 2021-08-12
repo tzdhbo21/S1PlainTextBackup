@@ -15848,3 +15848,31 @@ kmm带人有一手的
 
 
                                                  
+
+*****
+
+####  free  
+##### 5780#       发表于 2021-8-12 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52333201&amp;ptid=1972669" target="_blank">祸猫 发表于 2021-8-11 20:37</a>
+
+问一下以前那个子弹自唱伪声八美肉的视频有人有还有么，强强MV都是自己做的，后面基本不播的那位 ...</blockquote>
+你说的是 鷹森ツヅル？最近一段时间动的不多，偶尔有几次弹唱回
+
+[https://www.youtube.com/channel/UCTNqdmisGoH93iyTLDV1J5A](https://www.youtube.com/channel/UCTNqdmisGoH93iyTLDV1J5A)
+
+
+*****
+
+####  Suny08  
+##### 5781#       发表于 2021-8-12 11:12
+
+
+之前看到b这边赤おば组的切片讲遇到身边的虹人和她聊天结果不认识她，感觉还挺现实的，她也说那孩子看虹男人看的比较多，估计现在很多虹女都接受曝光度不如虹男的情况了，现在入坑的很多黑黑新参估计也不认识月之吧
+
+
+另外感觉赤おば一直全程在说那孩子什么什么，还说和她家长聊了，感觉应该就是声乐老师吧
+
+
+                                                 

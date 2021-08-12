@@ -1039,3 +1039,33 @@ FB有点类似朋友圈的生态位，熟人社交。而且不止于熟人社交
 
 
                                                 
+
+*****
+
+####  再买自检星剁手  
+##### 93#       发表于 2021-8-12 11:19
+
+
+抖音超过微信，成为我国最受欢迎的APP
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  叶夜青  
+##### 94#       发表于 2021-8-12 11:22
+
+
+ 本帖最后由 叶夜青 于 2021-8-12 11:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52335993&amp;ptid=2020267" target="_blank">爱尔米娜 发表于 2021-8-12 02:23</a>
+泥潭一群刷批站不刷抖音的，算3G还是4G用户</blockquote>
+抖音又不是不会玩，只要划一下划一下，字面意思的狗🐶都会玩，我们这儿现在村里的文盲老太太们都在玩抖音，极大丰富了文盲们的娱乐生活。
+
+普通人现在在外面能遇到的最多的傻逼也都是抖音外放的，其它种类的傻逼都不至于随便每次坐长时间公共交通工具或公共场合都能遇到（而且无一例外全是那种被乘务员提醒了附近有婴儿请放低音量但仍大声外放明显听力和智力一样有问题的），可以说几乎垄断了现实傻逼界了。
+
+
+—— 来自 HUAWEI DUK-AL20, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
