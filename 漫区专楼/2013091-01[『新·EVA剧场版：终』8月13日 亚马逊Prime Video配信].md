@@ -13655,3 +13655,56 @@ one last kiss 响起的时候还是有点唏嘘的
 
 
                                                 
+
+*****
+
+####  Asukalangley33  
+##### 1115#       发表于 2021-8-14 02:38
+
+
+不想说太多了，就3字——不太行
+
+
+真心为你9分，序 破8.5的话，终也就及格6分吧
+
+Q我给3分
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1116#       发表于 2021-8-14 02:42
+
+
+哦以及在想明白上面那一层之后，我在看完终之后的党争身份已经变成真樱党了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+本来是美里党，但是美里停留在大人的吻就挺好的，她到底还是加持的。樱的寥寥数笔反而比真希波更得我心
+
+
+*****
+
+####  玩吗？  
+##### 1117#       发表于 2021-8-14 02:47
+
+
+看完感觉十几个人围着我说奥美得多而我坐在中间一脸懵逼<img src="https://static.saraba1st.com/image/smiley/carton2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  plok201  
+##### 1118#       发表于 2021-8-14 03:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363689&amp;ptid=2013091" target="_blank">mishidexieyu 发表于 2021-8-14 01:47</a>
+
+我总感觉这个式波克隆人被克隆的节点是破里明日香被使徒感染之后</blockquote>
+眼罩香眼睛里封印的就是破那使徒，所以就是破那个香
+
+
+克隆香和克隆丽都一样，属于一开始就准备好的计划，台词里这个计划准备了14年为的是做三冲的扳机
+
+
+                                                 
