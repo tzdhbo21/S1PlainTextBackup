@@ -13500,3 +13500,158 @@ one last kiss 响起的时候还是有点唏嘘的
 
 
                                                  
+
+*****
+
+####  oyss  
+##### 1102#       发表于 2021-8-14 01:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363542&amp;ptid=2013091" target="_blank">mishidexieyu 发表于 2021-8-14 01:19</a>
+
+香香到底啥时候开始是复制人的啊？不是一直在新剧场里都是式波吗？咋回事啊 ...</blockquote>
+一直就是,整个系列就剩一个.应该是其他的淘汰了,不是凌波那种随便复制的.还特意提童年阴影+14年没长大.说明一直就是同一个人.
+
+
+*****
+
+####  mishidexieyu  
+##### 1103#       发表于 2021-8-14 01:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363646&amp;ptid=2013091" target="_blank">oyss 发表于 2021-8-14 01:38</a>
+一直就是,整个系列就剩一个.应该是其他的淘汰了,不是凌波那种随便复制的.还特意提童年阴影+14年没长大.说 ...</blockquote>
+意思是这次剧场版的明日香其实是没有妈的？
+那为什么负宇宙会有成年的原型灵魂？
+
+
+*****
+
+####  EdSheeran  
+##### 1104#       发表于 2021-8-14 01:44
+
+
+哎，等老婆孩子睡了才看，刚看完有点失落， 总觉得这辈子再也看不到这种横跨10年的企划作品了。
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
+
+
+*****
+
+####  oyss  
+##### 1105#       发表于 2021-8-14 01:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363674&amp;ptid=2013091" target="_blank">mishidexieyu 发表于 2021-8-14 01:43</a>
+
+意思是这次剧场版的明日香其实是没有妈的？
+
+那为什么负宇宙会有成年的原型灵魂？ ...</blockquote>
+那原型到底是啥大家都在问....没明说的东西都是靠大家发挥的<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mishidexieyu  
+##### 1106#       发表于 2021-8-14 01:46
+
+
+感觉观感差的还有一个原因是为了一些象征的东西都影响到事物底层逻辑了。可能是来不及了，像“这竟然是xxx，nerv把它做出来了么！？”的句式似乎出现了很多次了，甚至出现了角色代替旁白的情节，比如律子说美里的丝巾是加持的象征，台词有些多余，完全可以用画面之类的来代替
+
+
+*****
+
+####  mishidexieyu  
+##### 1107#       发表于 2021-8-14 01:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363679&amp;ptid=2013091" target="_blank">oyss 发表于 2021-8-14 01:44</a>
+那原型到底是啥大家都在问....没明说的东西都是靠大家发挥的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我总感觉这个式波克隆人被克隆的节点是破里明日香被使徒感染之后
+
+
+*****
+
+####  PLANETDANCE  
+##### 1108#       发表于 2021-8-14 01:53
+
+
+看完最大的感想就是弯弯翻译真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+严重影响观影体验
+
+
+*****
+
+####  oyss  
+##### 1109#       发表于 2021-8-14 01:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363689&amp;ptid=2013091" target="_blank">mishidexieyu 发表于 2021-8-14 01:47</a>
+
+我总感觉这个式波克隆人被克隆的节点是破里明日香被使徒感染之后</blockquote>
+[https://non-stopadventure.com/shinevaasuka-clone/](https://non-stopadventure.com/shinevaasuka-clone/)
+
+
+普遍认为新剧场版叫式波开始就是克隆,因为特意提到了"式波系列"
+
+
+后面回想明日香童年的时候是从式波系列名单一个一个减少到就剩一个,然后回忆说自己没爹妈被孤立努力练习什么的.主要她记忆全是连续的,你说中途换人了那跟没换也没区别.
+
+
+*****
+
+####  406129465  
+##### 1110#       发表于 2021-8-14 01:58
+
+
+总归是给这部作品打上了个句号。
+
+
+
+
+*****
+
+####  BigLittle1999  
+##### 1111#       发表于 2021-8-14 02:01
+
+
+加的设定部分太多，过于影响观感了。最后那段有人能讲讲一下薰和丽、真嗣和真希波的关系怎么解读吗？这结局给我一种痞子“既然我给每个角色都做了最后告别了，那结局我就爱咋拍咋拍，懒得给你们交代为啥是这样的了”的巨魔感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  1165wm989845  
+##### 1112#       发表于 2021-8-14 02:02
+
+
+结合《终》的结局和NGE的原案，感觉痞子一开始只是像复刻《蓝宝石之谜》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 1113#       发表于 2021-8-14 02:03
+
+
+终于看完了
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1114#       发表于 2021-8-14 02:31
+
+
+沉淀了一天之后还是没有什么想说的，所有的意难平停留在“我曾经喜欢过你”。但其实虽然我期待的是一个更宏大的结尾，但对于这个结尾却没什么意见。
+
+唯一也是最大的不满是：为什么最后需要去亲手终结一切的还是只有真嗣。明明口口声声说着大人的世界，然而承担责任的从过去到现在还是只有那一个人。二十六年了，依旧逃不掉那句“逃げちゃ駄目だ”。明明所有的问题都不是自己造成的，却偏偏所有人都在怪罪自己，到头来所有问题还都要自己去解决。**的，何苦来哉？
+
+所以其实我这片同感很深的片段之一是真嗣踏入反宇宙前的那段戏。樱说的对，算了吧别去了，这一切明明跟你一点关系都没有，你明明没有任何义务再次坐上初号机的。
+
+嗯我就是虚无主义摆烂选手，干**现实世界，你要我拥抱的现实前方是什么呢？这个烂污的世界真的你所描述的那个beautiful world吗？
+
+当然，虽然上面骂了这么多，我在某站还是给了8/10<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                

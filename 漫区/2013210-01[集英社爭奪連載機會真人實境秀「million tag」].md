@@ -2882,3 +2882,16 @@ https://www.bilibili.com/read/readlist/r ...</blockquote>
 
 
                                                  
+
+*****
+
+####  最强惠酱  
+##### 197#       发表于 2021-8-14 02:12
+
+
+希望藤本出镜能让这企划多点人看吧，怪兽8号虽然能卖本身剧情就难以言喻还经常休刊跟前两个漫画家奖励对比起来总觉得怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+老实说真不想xp姐赢，她的风格喜欢不起来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 
