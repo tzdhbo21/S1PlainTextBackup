@@ -8556,3 +8556,523 @@ Q也是十年前的作品了
 
 
                                                 
+
+*****
+
+####  zkwd169  
+##### 699#       发表于 2021-8-13 07:35
+
+
+没旧版好。
+
+
+*****
+
+####  内鬼来干我呀  
+##### 700#       发表于 2021-8-13 07:38
+
+
+父子对打后这片 就变回意识流  太TM跳跃了...
+
+
+*****
+
+####  20002000  
+##### 701#       发表于 2021-8-13 07:45
+
+
+不是所以使徒到底是什么玩意从哪跑来的？？
+
+怎么明日香什么时候眼睛里还进了使徒
+
+初号机就是真嗣他妈不是早就知道的事 怎么司令到最后才发现
+
+??
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 702#       发表于 2021-8-13 07:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350471&amp;ptid=2013091" target="_blank">Redis 发表于 2021-8-13 06:50</a>
+
+怎么说呢。。。
+
+
+半本无聊的邦画，半本用力过猛的同人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说实话，序开始就没人求他出啊？
+
+难道不是为了多卖几十年周边？
+
+
+*****
+
+####  mazin001  
+##### 703#       发表于 2021-8-13 07:48
+
+
+冷知识 khara资金独立自主
+
+
+*****
+
+####  qtk9599  
+##### 704#       发表于 2021-8-13 07:49
+
+
+四部新剧场版，前两部看的荡气回肠，史诗动画，后两部看的昏昏欲睡，一杯白水。前两部可以回味五遍十遍，后两部不太会看第二遍。对于eva这样的现象级作品而言，这么个温吞水结局，我觉得，是搞砸了。或者说，q和终是砸了。为什么砸了，估计是人家也老了，想不出旧世纪福音战士那么荡气回肠的故事了。
+
+
+*****
+
+####  LLLLLuB  
+##### 705#       发表于 2021-8-13 07:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350648&amp;ptid=2013091" target="_blank">20002000 发表于 2021-8-13 07:45</a>
+不是所以使徒到底是什么玩意从哪跑来的？？
+
+怎么明日香什么时候眼睛里还进了使徒
+
+初号机就是真嗣他妈不是早 ...</blockquote>
+使徒这玩意就是世界的基本设定，吃了生命之果的物种，注定和吃智慧之果的人类一站的，这个序就有的设定。
+使徒就是三号机的时候感染的，这个从破到q都有暗示的
+最后这段建议你重新看一遍
+
+
+*****
+
+####  冰箱研会长e-3M  
+##### 706#       发表于 2021-8-13 08:04
+
+
+我觉得之前发的诅咒解析贴大方向把握住了
+
+
+*****
+
+####  owada  
+##### 707#       发表于 2021-8-13 08:21
+
+
+碇司令脑子被打烂后恢复成原样是不是少了一段?被剪了?
+
+
+*****
+
+####  utakata  
+##### 708#       发表于 2021-8-13 08:22
+
+
+这不就是TV版结局么……区别是TV版你看到的全是意识片段，每个人和自己/世界和解，最后大家一起鼓掌；终你看到的是更容易理解的剧情化的“每个人的和解”，最后我都想给它补一个全体站圈圈鼓掌的画面了。
+
+
+*****
+
+####  utakata  
+##### 709#       发表于 2021-8-13 08:24
+
+
+以及剑剑已经不是剑剑了，是全新版本。他在这片里完全可以当做一个新角色新人设。
+这么说香党们有没有好过一点？<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fzlong  
+##### 710#       发表于 2021-8-13 08:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">说起来美里的塑造还是不太能接受Q毁的太厉害了
+
+
+*****
+
+####  Toby_dak  
+##### 711#       发表于 2021-8-13 08:33
+
+
+<blockquote>引用第591楼V宇宙的守夜人Z于2021-08-13 03:54发表的  :
+
+我听到了中文的“再见”？ 一小时十分</blockquote>
+真希波说的就是中文“再见”。
+
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  NANA1Komatsu  
+##### 712#       发表于 2021-8-13 08:35
+
+
+父子打斗和大白丽的3d做的太烂了，积攒下来的情绪被毁了大半，痞子你想搞个真心为你2.0好歹把建模做好看一点行吗。不过还是被感动到，特别是摄影棚那段，算是痞子在给过去的自己作真正的道别吧。
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/083513yvmzzi0ye102wi92.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-13-02-12-33-667_com.baidu.netdisk.jpg</strong> (125.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-8-13 08:35 上传
+
+
+*****
+
+####  霧亥  
+##### 713#       发表于 2021-8-13 08:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350648&amp;ptid=2013091" target="_blank">20002000 发表于 2021-8-13 07:45</a>
+不是所以使徒到底是什么玩意从哪跑来的？？
+
+怎么明日香什么时候眼睛里还进了使徒
+
+初号机就是真嗣他妈不是早 ...</blockquote>
+眼睛里应该是她的核心，插进去那个是小型的反l力场发生器，用来抑制核心的
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  owada  
+##### 714#       发表于 2021-8-13 08:40
+
+
+1打13这段..我的天<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LLLLLuB  
+##### 715#       发表于 2021-8-13 08:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">对比全片的其他3d画面，我觉得1对13和大白梨的3d质感是故意这么做的，也多亏了粗糙的3d大白梨起码没真心为你的掉san感，不影响我入眠
+
+
+*****
+
+####  wincle  
+##### 716#       发表于 2021-8-13 08:44
+
+
+前面背景画得越精致，人物细节就越觉得粗糙，整出来的效果就很违和。还是后半段好，都很粗糙（
+
+—— 来自 HUAWEI OXF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kraoo  
+##### 717#       发表于 2021-8-13 08:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350939&amp;ptid=2013091" target="_blank">Toby_dak 发表于 2021-8-13 08:33</a>
+真希波说的就是中文“再见”。
+
+
+----发送自 Sony J9110,Android 11</blockquote>
+为啥突然蹦出来一句中文，串戏唐可可好几分钟
+
+
+*****
+
+####  Redis  
+##### 718#       发表于 2021-8-13 08:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349848&amp;ptid=2013091" target="_blank">evatrix 发表于 2021-8-13 02:11</a>
+
+后面的3d打斗简直让我想起了贰瓶勉的那个什么骑士，廉价的物体碰撞感。
+
+
+痞子在机器人动画上是真江郎才尽了 ...</blockquote>
+当年那些使徒也不完全是痞子一个人的点子
+
+
+不过q+终感觉的确就是他一个人的点子了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Redis  
+##### 719#       发表于 2021-8-13 08:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349956&amp;ptid=2013091" target="_blank">ddr 发表于 2021-8-13 02:35</a>
+
+这稀里糊涂的节奏，乱七八糟的绘柄，幼稚至极的boss，呵呵。</blockquote>
+我也觉得纳闷儿
+
+
+不应该是作画真国家队么
+
+
+结果一点儿稳定性都没有。。。
+
+
+*****
+
+####  blood_iron  
+##### 720#       发表于 2021-8-13 08:55
+
+
+吐槽一下，看EVA不是看你痞子的人生感悟，
+
+痞子在作品里面倒垃圾填私货恶心人真几把贱
+
+痞子你的人生历程我一点都不关心不在乎，但你痞子自己发病不好也要观众一起跟着不好，太恶心了
+
+
+
+
+*****
+
+####  暗黑能乐  
+##### 721#       发表于 2021-8-13 09:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351137&amp;ptid=2013091" target="_blank">blood_iron 发表于 2021-8-13 08:55</a>
+
+吐槽一下，看EVA不是看你痞子的人生感悟，
+
+痞子在作品里面倒垃圾填私货恶心人真几把贱
+
+痞子你的人生历程我 ...</blockquote>
+难道旧的eva就不是私货了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  污陨血红  
+##### 722#       发表于 2021-8-13 09:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351137&amp;ptid=2013091" target="_blank">blood_iron 发表于 2021-8-13 08:55</a>
+
+吐槽一下，看EVA不是看你痞子的人生感悟，
+
+痞子在作品里面倒垃圾填私货恶心人真几把贱
+
+痞子你的人生历程我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">旧版私货也不少，这家伙就是这个尿性
+
+
+*****
+
+####  Redis  
+##### 723#       发表于 2021-8-13 09:04
+
+
+还有一个很不咋地的地方
+
+
+为啥这么多关于设定的掉书袋子的地方？
+
+
+老eva的设定都是给了充足的剧情去阐释的，终里面就跟填鸭一样丢各种名词，马不停蹄接着扔下一批
+
+
+感觉在看某新型邪教的创世纪设定一样，甚至听着听着就发笑了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  linkin9999  
+##### 724#       发表于 2021-8-13 09:07
+
+
+日文字幕先看过了，等中文字幕再看一遍
+
+
+*****
+
+####  枪聆弹语  
+##### 725#       发表于 2021-8-13 09:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">观影体验的确不如鬼灭
+
+
+*****
+
+####  镜言  
+##### 726#       发表于 2021-8-13 09:10
+
+
+看过之后的第一感觉是，与其说是新剧场版的终章，更像是旧tv版的终结。痞子这次终于有钱有闲做出了旧tv版的真结局。
+
+特别是父子对战后真嗣与每个人的和解与救赎，实际上是在还旧tv版结束时的欠债。
+
+我对终章最大的不满是，无论是旧tv版还是新剧场版接这个结局的话，碇唯与初号机融合这件事究竟怎么解释？难道是预见到了未来的冲击而决定藉此保护真嗣？
+
+
+*****
+
+####  银弹  
+##### 727#       发表于 2021-8-13 09:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351223&amp;ptid=2013091" target="_blank">Redis 发表于 2021-8-13 09:04</a>
+
+还有一个很不咋地的地方
+
+
+为啥这么多关于设定的掉书袋子的地方？</blockquote>
+你应该记错了，EOE一样是各种乱七八糟的名词甩一脸
+
+
+*****
+
+####  quadrozeke  
+##### 728#       发表于 2021-8-13 09:12
+
+
+<blockquote>Redis 发表于 2021-8-13 09:04
+还有一个很不咋地的地方
+
+
+为啥这么多关于设定的掉书袋子的地方？
+</blockquote>
+旧的部分趣味在于挖坑不填，现在打定主意要填坑了，其实就没有新设定了，进入了说啥就是啥的阶段。希望啊绝望啊，通通明牌摆在面上，其他都是纸壳子设定，摆在那里占个位置。
+
+
+这种作品，前面挖坑不填是最快乐的，填坑就要破坏自己那些引而不发悬而未决的空想，落到思想内核上。要是内核太low那真的是彻底完蛋。
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 729#       发表于 2021-8-13 09:13
+
+
+这个3D放在日本都算不上多好啊。
+
+感觉是特摄脑入魔了，机械变性结构那么好玩的东西不爱用。
+
+他的中国野儿子都用的炉火纯青了。
+
+
+*****
+
+####  baoer  
+##### 730#       发表于 2021-8-13 09:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350137&amp;ptid=2013091" target="_blank">一色彩羽的家人 发表于 2021-8-13 03:22</a>
+
+剧透其中一个人我认识，就nm泥潭的，纯钓鱼
+
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+真几把恶心  不是我说
+
+
+*****
+
+####  chenflyyy  
+##### 731#       发表于 2021-8-13 09:14
+
+
+当时上映大部分人还没看的时候讨论度高得离谱秒杀外野，结果资源出来了讨论度就这吗，看来漫区是真的不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 11116等| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  屡败屡战阿巴顿  
+##### 732#       发表于 2021-8-13 09:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349889&amp;ptid=2013091" target="_blank">pzk 发表于 2021-8-13 02:18</a>
+
+其实我一直在想，真嗣吃了那么多饼干，他这么多天是在哪拉屎的呢？明明很悲伤却不得不去拉屎，拉完 ...</blockquote>
+大概是进了penpen的肚子吧（口区）
+
+
+*****
+
+####  shudushimo  
+##### 733#       发表于 2021-8-13 09:16
+
+
+话说没人吐槽东治的关西腔吗？他之前几部是这么说话的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blood_iron  
+##### 734#       发表于 2021-8-13 09:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351217&amp;ptid=2013091" target="_blank">污陨血红 发表于 2021-8-13 09:03</a>
+
+旧版私货也不少，这家伙就是这个尿性</blockquote>
+旧版至少从开头到最后都是一个格调，
+
+现在序破和Q终根本联系不起来，完全两套作品
+
+
+*****
+
+####  baoer  
+##### 735#       发表于 2021-8-13 09:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350369&amp;ptid=2013091" target="_blank">炫彩紫光 发表于 2021-8-13 06:03</a>
+
+看完了，鹤卷快点摆脱痞子自己搞吧，陪痞子自嗨实在太浪费了</blockquote>
+我是真的心疼鹤卷  如果没有那几场打戏可能这破片都不配叫个eva
+
+
+*****
+
+####  shudushimo  
+##### 736#       发表于 2021-8-13 09:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351387&amp;ptid=2013091" target="_blank">blood_iron 发表于 2021-8-13 09:17</a>
+
+旧版至少从开头到最后都是一个格调，
+
+现在序破和Q终根本联系不起来，完全两套作品 ...</blockquote>
+旧版前半段和后半段也不是一个基调吧
+
+
+*****
+
+####  1096beam  
+##### 737#       发表于 2021-8-13 09:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351297&amp;ptid=2013091" target="_blank">镜言 发表于 2021-8-13 09:10</a>
+
+看过之后的第一感觉是，与其说是新剧场版的终章，更像是旧tv版的终结。痞子这次终于有钱有闲做出了旧tv版的 ...</blockquote>
+旧版普遍的共识是唯不想seele实现人类补完计划同时又想拯救人类，借机控制人类补完计划的关键素材初号机。
+
+哪怕最后真嗣自暴自弃要补完也就认了
+
+
+                                                
