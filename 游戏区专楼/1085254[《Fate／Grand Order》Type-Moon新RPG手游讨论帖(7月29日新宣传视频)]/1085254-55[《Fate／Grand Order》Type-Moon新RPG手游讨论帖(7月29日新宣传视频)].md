@@ -16126,3 +16126,131 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 82228#       发表于 2021-8-13 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52357308&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-13 16:13</a>
+
+快去快去，等着看猴戏呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就丢了个视频 说现在c狗带黑杯随便冲  有个人回我这不够泛用 我就溜了  
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过回在长贴里估计后面都没什么人看
+
+
+*****
+
+####  exiaexa  
+##### 82229#       发表于 2021-8-13 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52358164&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 17:15</a>
+我就丢了个视频 说现在c狗带黑杯随便冲  有个人回我这不够泛用 我就溜了  
+
+不过回在长贴里 ...</blockquote>
+在默认人手一杀狐的情况下，怎么还会有人觉得骑阶是问题的
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  在海岸  
+##### 82230#       发表于 2021-8-13 17:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题来了c狗怎么来，我好像只有3宝
+
+
+
+
+*****
+
+####  alucardcz  
+##### 82231#       发表于 2021-8-13 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52358521&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-13 17:43</a>
+
+在默认人手一杀狐的情况下，怎么还会有人觉得骑阶是问题的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">视频贴他脸上了 这伤害还不够泛用 我觉得蓝绿统统都得死（那边说的还是5加成）
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后来这人又回了我一句 我说的不够泛用意思是指这套操作只能用c狗完成  然后我满脸问号 你们用吹陈宫的时候可不是这么说的
+
+
+*****
+
+####  alucardcz  
+##### 82232#       发表于 2021-8-13 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52358564&amp;ptid=1085254" target="_blank">在海岸 发表于 2021-8-13 17:46</a>
+
+问题来了c狗怎么来，我好像只有3宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叫你不抽王姐
+
+
+*****
+
+####  alucardcz  
+##### 82233#       发表于 2021-8-13 17:48
+
+
+翻页
+
+
+*****
+
+####  在海岸  
+##### 82234#       发表于 2021-8-13 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52358582&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 17:47</a>
+
+叫你不抽王姐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可是我有王姐啊
+
+
+*****
+
+####  alucardcz  
+##### 82235#       发表于 2021-8-13 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52358600&amp;ptid=1085254" target="_blank">在海岸 发表于 2021-8-13 17:49</a>
+
+可是我有王姐啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧极必反！
+
+
+*****
+
+####  在海岸  
+##### 82236#       发表于 2021-8-13 17:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了送的那个好像还是某年福袋来的，我不要去抽剧情池啊
+
+
+*****
+
+####  exiaexa  
+##### 82237#       发表于 2021-8-13 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52358600&amp;ptid=1085254" target="_blank">在海岸 发表于 2021-8-13 17:49</a>
+可是我有王姐啊</blockquote>
+当时抽五个王姐你就不会有这种问题了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82238#       发表于 2021-8-13 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有五宝C狗却没有摩根的非洲人无话可说
+
+
+                                                
