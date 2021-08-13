@@ -16021,3 +16021,84 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 82219#       发表于 2021-8-13 13:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来隔壁是因为奥某人那被动导致梅林不能同上场而觉得变相削弱了梅林 所以破防了？   太精彩了
+
+
+*****
+
+####  alucardcz  
+##### 82220#       发表于 2021-8-13 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354723&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-13 13:18</a>
+
+我想了想，放弃了萌新的建议
+
+
+还剩15个结晶</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结晶会送的！ 怕什么
+
+
+*****
+
+####  sosgame67  
+##### 82221#       发表于 2021-8-13 13:31
+
+
+结晶只剩下7个了我奥博隆技能都没点，安心等活动送小钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82222#       发表于 2021-8-13 13:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还剩10个结晶 除了妖兰二技能外 应该没什么能吃结晶得了
+
+
+*****
+
+####  alucardcz  
+##### 82223#       发表于 2021-8-13 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354938&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-13 13:34</a>
+
+还剩10个结晶 除了妖兰二技能外 应该没什么能吃结晶得了</blockquote>
+你不是咸鱼吗？为什么结晶还能用这么多
+
+难道是咸到结晶都不拿的那种？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82224#       发表于 2021-8-13 13:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354961&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 13:36</a>
+
+你不是咸鱼吗？为什么结晶还能用这么多
+
+难道是咸到结晶都不拿的那种？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日服玩的晚啊 而且因为咸开始那会主线没推 有几个要过主线的活动都没法打 最主要的是今年抽到的五星比往年多
+
+
+*****
+
+####  alucardcz  
+##### 82225#       发表于 2021-8-13 13:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天可以摸鱼　该去隔壁煽风点火　带带节奏了
+
+
+                                                 

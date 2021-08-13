@@ -16399,3 +16399,52 @@ Kr组发挥神勇啊，夜见妹妹逆转再见安了
 
 
                                                 
+
+*****
+
+####  FCCHua  
+##### 5825#       发表于 2021-8-13 13:39
+
+
+什么控分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真飞鸟i  
+##### 5826#       发表于 2021-8-13 14:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来点棒球<img src="https://p.sda1.dev/2/bb773fbd568f9a218e79461277349839/6c347ce19ecedb93.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  FCCHua  
+##### 5827#       发表于 2021-8-13 14:17
+
+
+熊猫人翻盘赢了，精彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  死体残留  
+##### 5828#       发表于 2021-8-13 14:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">德龙，被逆转的神
+
+
+*****
+
+####  poipanchao  
+##### 5829#       发表于 2021-8-13 14:25
+
+
+德龙，完美的背景板，专业被翻盘
+
+
+                                                 

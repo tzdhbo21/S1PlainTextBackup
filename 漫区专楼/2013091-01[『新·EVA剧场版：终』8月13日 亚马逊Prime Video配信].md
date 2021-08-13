@@ -10800,3 +10800,270 @@ executive officer，大副，赤木律子</blockquote>
 
 
                                                
+
+*****
+
+####  一色彩羽的家人  
+##### 883#       发表于 2021-8-13 13:31
+
+
+说下我对结局的理想，大家帮我看看有没有问题
+
+我的理解是新世界就是新的轮回，真嗣强行终止了旧世界，让世界进入新的轮回中去，至于第三村船员还有明日香她们虽然回到了旧世界，但也只是短暂停留，最终还是会同补完回归的人们一起步入真嗣的新世界。 
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  briareos  
+##### 884#       发表于 2021-8-13 13:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  全员NPC剧本朗诵大赛 动作场面堪比野鸡动画班 感谢痞子 省老钱了 再看一遍算我输
+
+
+*****
+
+####  妖精桑  
+##### 885#       发表于 2021-8-13 13:37
+
+
+唉 明日香啊
+
+
+*****
+
+####  fzlong  
+##### 886#       发表于 2021-8-13 13:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354880&amp;ptid=2013091" target="_blank">一色彩羽的家人 发表于 2021-8-13 13:31</a>
+
+说下我对结局的理想，大家帮我看看有没有问题
+
+
+我的理解是新世界就是新的轮回，真嗣强行终止了旧世界，让世 ...</blockquote>
+没有轮回吧 是旧世界去除eva就继续的
+
+
+*****
+
+####  guardian5  
+##### 887#       发表于 2021-8-13 13:40
+
+
+看完。很好很棒很满意，伟大的系列终章，反对的声音越多越坚定我的想法
+
+
+*****
+
+####  一色彩羽的家人  
+##### 888#       发表于 2021-8-13 13:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354981&amp;ptid=2013091" target="_blank">fzlong 发表于 2021-8-13 13:38</a>
+没有轮回吧 是旧世界去除eva就继续的</blockquote>
+那抛开轮回不讲，之前在旧世界安居乐业的人，还包括香和获救船员，也一样重新进入新世界从一开始就改写人生了吗
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  zljzhj  
+##### 889#       发表于 2021-8-13 13:44
+
+
+<blockquote>Cloudslin 发表于 2021-8-13 12:28
+父子对殴那段可以看出是想做出特摄感，但看起来还是怪怪的，明明协力里有圆谷制作，现在全CG制作的奥特曼战 ...</blockquote>
+我就感觉从特设角度看那段也说不上好看
+
+
+*****
+
+####  blood_iron  
+##### 890#       发表于 2021-8-13 13:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354194&amp;ptid=2013091" target="_blank">苍雨夜寐 发表于 2021-8-13 12:40</a>
+
+你心里最理解觉得最靠谱的人搞砸了最重要的一件事，你不会生气？美里才是最理解真嗣的那个女人 ...</blockquote>
+当时破里面美里可是大喊让真嗣随便干的啊？
+
+现在因为姘头死了翻脸不认帐了？
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 891#       发表于 2021-8-13 13:48
+
+
+终大概是我看过最烂的痞子作品，Q里面还靠云里雾里的设定和剧情让人不好评价，终里面是终于原形毕露了。通篇充斥着按着头说教味，一股大龄巨婴的气息扑面而来，终里面这个low出天际的司令大概就是痞子的真实写照吧，就这还好意思来说教观众。cp问题刚开始剧透的人根本没有说错，反倒那些洗地明日香赢麻了的人实在是看不懂，最后和赶集一样一个个送走，明日香这完全就是化作路人，然后按着头让人接受一个来路不明的真希波。还有画面感觉也是四部曲里最差的，中间父子对局那段的3d打斗做得都是些啥啊？都赶得上三年动画了，看完不敢相信这竟然是eva的战斗画面<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Litccc  
+##### 892#       发表于 2021-8-13 13:56
+
+
+呆呆兽可以安息了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ranqI  
+##### 893#       发表于 2021-8-13 13:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看完再也不想看第二遍了，谢谢痞子
+
+
+*****
+
+####  asion617  
+##### 894#       发表于 2021-8-13 13:59
+
+
+说战斗没意思我同意，但中间那段故意做出特摄感的3d也能黑成三年动画我是没想到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 895#       发表于 2021-8-13 14:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我就不知道用垃圾3d做特摄场景有什么好处和演出效果，既没有真微缩模型的物理细节也没有精细cg的华丽
+
+
+*****
+
+####  soniccc  
+##### 896#       发表于 2021-8-13 14:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354199&amp;ptid=2013091" target="_blank">AR971GP04 发表于 2021-8-13 12:41</a>
+
+问下那个像是摄像机绑着ps4手柄一样的东西是什么?</blockquote>
+看NHK纪录片，那个就是在片场实时找镜头的道具，动画那个片场和纪录片都是一样的
+
+
+*****
+
+####  亚特  
+##### 897#       发表于 2021-8-13 14:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354331&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-13 12:49</a>
+
+这次突兀设定也挺多的，比如渚司令。大概率是有没公开的死海文书外典（
+
+
+—— 来自 Xiaomi Mi 10 Pro, An ...</blockquote>
+把EVA终剧场版2号机那个楼的某个回复复制过来，渚司令是Q之前14年发生的
+
+
+破でニアサー発動→ゲンドウ失脚→ゲンドウ失脚中にカヲルと加持が司令代理、補佐でネルフを維持しミサトたちを保護→ゲンドウなんらかの方法でネルフ司令として復帰→ゲンドウはゼーレを利用、または共闘でサードを起こす→加持はサードを止めるため死亡→ヴィレ始動→Qへなら、この話是非見たい!
+
+
+有个疑问，加持Jr.今年14岁，也就是真嗣刚被封印的时候出生的，加持也是那个时候没的，美里因为怀了加持Jr.没有跟着去，所以是不是近三冲和三冲之间的时间间隔其实很短？
+
+
+*****
+
+####  qtk9599  
+##### 898#       发表于 2021-8-13 14:20
+
+
+楼上几位兄弟，剧情也别多研究了，人家也没想让你看懂不是。。。但是q和终里各个人物塑造的说是工具人都是客气了，可以说都是纸片人了，那让观众情绪怎么起来，感动从何而起？
+
+
+*****
+
+####  markztl  
+##### 899#       发表于 2021-8-13 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353173&amp;ptid=2013091" target="_blank">hashire.owl 发表于 2021-08-13 11:24:26</a>
+抄袭兰斯系列</blockquote>巴顿跟汉蒂吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  rp1993  
+##### 900#       发表于 2021-8-13 14:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52355528&amp;ptid=2013091" target="_blank">qtk9599 发表于 2021-8-13 14:20</a>
+
+楼上几位兄弟，剧情也别多研究了，人家也没想让你看懂不是。。。但是q和终里各个人物塑造的说是工具人都是 ...</blockquote>
+终单独作为一部剧场版动画当然是拉跨的，但让我感动的是痞子，是EVA的存在，是26年和EVA相处的日子，是我自己把我自己感动了····
+
+
+
+
+*****
+
+####  断裂的歌谣  
+##### 901#       发表于 2021-8-13 14:27
+
+
+痞子被EVA这东西捆绑了三十年
+
+三十年啊，人生有几个三十年
+
+当他一遍遍写着“亚当”“莉莉丝”“ATfield”这些东西，一遍又一遍重复“战斗”“拯救”“逃避”这些东西时，会是什么心情呢
+
+总之就这样吧，就这样吧
+
+
+*****
+
+####  Heero_Z  
+##### 902#       发表于 2021-8-13 14:31
+
+
+看到粉毛妹出来阻止上初号机那段蚌埠住了，大家都是熟人聊天交代后事你寄吧谁啊拿把枪指着别人😅。鉴于痞子都能做出Q这种拧巴玩意，终章剧情咋样也无所谓了。大和解那段确实不错，观感上流畅很多，也想不出比这更好的收尾了。
+
+
+—— 来自 Sony XQ-AT51, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  shiko  
+##### 903#       发表于 2021-8-13 14:37
+
+
+看完虽然不是特别激动但也挺满意的，不过还是比较迷惑的一点就是冬治的妹妹跟小受才讲过几句话啊？为什么这么死心塌地？要是当年就有这么一号人物全方位倒贴，小受到也不至于还得纠结丽香美里这些别扭的女人XD
+
+
+*****
+
+####  kraoo  
+##### 904#       发表于 2021-8-13 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52355073&amp;ptid=2013091" target="_blank">zljzhj 发表于 2021-8-13 13:44</a>
+我就感觉从特设角度看那段也说不上好看</blockquote>
+建筑被摔到就滑开了都不带碎的，哪家特摄这样拍啊，说实话挺出戏的
+
+
+*****
+
+####  SRyeB  
+##### 905#       发表于 2021-8-13 14:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52355768&amp;ptid=2013091" target="_blank">shiko 发表于 2021-8-13 14:37</a>
+
+看完虽然不是特别激动但也挺满意的，不过还是比较迷惑的一点就是冬治的妹妹跟小受才讲过几句话啊？为什么这 ...</blockquote>
+全方位倒贴在哪里，开枪肾击吗
+
+
+                                                
