@@ -16202,3 +16202,87 @@ selen的这个try not to laugh 还挺软妹
 
 
                                                  
+
+*****
+
+####  影山银  
+##### 5806#       发表于 2021-8-13 09:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349673&amp;ptid=1972669" target="_blank">我不是很好 发表于 2021-8-13 01:46</a>
+
+ollie最近在韩国很火，几十万播放的切片和下饺子一样。神奇</blockquote>
+ollie和韩国相关的就是一期学韩语吧，今天早上一看和几个虹KR的主播都有互动了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  西瓜爆裂  
+##### 5807#       发表于 2021-8-13 10:02
+
+
+天助虹也啊，夏甲还要再停一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 5808#       发表于 2021-8-13 10:38
+
+
+最近bora还说了，怎么我这的韩国观众多了好多
+从selly他们cr一条路，towa这holo一条路流了不少过来吧
+
+
+*****
+
+####  毛头小希  
+##### 5809#       发表于 2021-8-13 10:42
+
+
+虹社蓝毛新人开了新出道直播的待机室，北京时间下午六点开播
+
+然后现在待机室已经有人刷起红SC了
+
+讨论群的姑娘们好早之前就兴致勃勃地筹划起什么怪名字让他念
+
+可 怕
+
+
+*****
+
+####  Suny08  
+##### 5810#       发表于 2021-8-13 11:06
+
+
+看样子虹棒今天数字要被明天爆杀了，king不来同接之鬼不来，今天明天的数字差距就是虹男虹女的差距了
+
+
+*****
+
+####  越动天下  
+##### 5811#       发表于 2021-8-13 11:15
+
+
+第一把就要惨案了
+
+
+*****
+
+####  Sacko9  
+##### 5812#       发表于 2021-8-13 11:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这就已经3分了
+
+
+*****
+
+####  西瓜爆裂  
+##### 5813#       发表于 2021-8-13 11:18
+
+
+比前天17-4的惨案还过分，一表打线已经轮一遍了。
+
+
+                                                 

@@ -15584,3 +15584,221 @@ goa的呆毛只是对fsn saber线的补充说明，精神完全是一脉相承�
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 82186#       发表于 2021-8-13 09:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349133&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 00:28</a>
+
+1宝芭娜娜 1面45万  2面75万 3面150万  （3技能还没点满）  爽是挺爽 按键的确多 还容易按错
+
+ ...</blockquote>
+是不是触发杀狐特攻了，一般来说一宝不会这么高吧
+
+
+*****
+
+####  alucardcz  
+##### 82187#       发表于 2021-8-13 09:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351596&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-13 09:34</a>
+
+是不是触发杀狐特攻了，一般来说一宝不会这么高吧</blockquote>
+没有 我2技能都没开
+
+banana是百级的
+
+
+*****
+
+####  exiaexa  
+##### 82188#       发表于 2021-8-13 10:29
+
+
+ 本帖最后由 exiaexa 于 2021-8-13 10:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351596&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-13 09:34</a>
+
+是不是触发杀狐特攻了，一般来说一宝不会这么高吧</blockquote>
+问题不大，我用4宝摩根/空骑+双狐狸+7106的残废奥伯龙+鹤
+
+打狗粮本0特攻都能打出
+
+48.8w、64.3w、45.9*3（137.7）的伤害
+
+
+倒是去252东边刷果实的时候，触发人特攻伤害爆炸（300w）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82189#       发表于 2021-8-13 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352328&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-13 10:29</a>
+
+问题不大，我用4宝摩根/空骑+双狐狸+7106的残废奥伯龙+鹤
+
+打狗粮本0特攻都能打出
+
+48.8w、64.3w、45.9*3（1 ...</blockquote>
+你这阵容操作量爆表啊，打一局得点多少个技能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82190#       发表于 2021-8-13 10:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352389&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-13 10:33</a>
+
+你这阵容操作量爆表啊，打一局得点多少个技能羡慕你们有钱氪高宝，我一个奥伯龙沉了都不敢氪[f:14 ...</blockquote>
+他本来就是全技能点下去的嘛
+
+所以我前面才跟他说，伤害溢出了，技能少点一个是一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 82191#       发表于 2021-8-13 10:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52348246&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-08-12 23:09:22</a>
+不枉费我刷了100万羁绊</blockquote>欧，羡慕
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  alucardcz  
+##### 82192#       发表于 2021-8-13 10:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么谁用过c狗  伤害如何  有必要去拉满c狗技能吗  
+
+
+*****
+
+####  alucardcz  
+##### 82193#       发表于 2021-8-13 10:54
+
+
+ 本帖最后由 alucardcz 于 2021-8-13 10:55 编辑 
+
+钱多任性拉满了试了下 黑杯c狗奥伯龙a狐不借人不换人cd服 白字 27万 36万 75万。。。
+
+要点的技能不算多   而且我银副副用光了 c狗还没喂满 已经这样了  
+
+
+真的麻了。。这不是把王姐吊起来打了。。。顺便蓝卡也全灭了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 82194#       发表于 2021-8-13 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352534&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-12 20:43</a>
+
+那么谁用过c狗  伤害如何  有必要去拉满c狗技能吗</blockquote>
+你居然还能拉满的吗？最近摩根杀狐奥伯龙这一套组合拳下来我结晶都飞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82195#       发表于 2021-8-13 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352534&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 10:43</a>
+
+那么谁用过c狗  伤害如何  有必要去拉满c狗技能吗</blockquote>
+没硬币，没结晶，告辞
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82196#       发表于 2021-8-13 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352741&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-13 10:55</a>
+
+没硬币，没结晶，告辞</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我拉满了 不需要硬币开被动 黑杯c狗已经把蓝卡灭绝了  
+
+
+*****
+
+####  exiaexa  
+##### 82197#       发表于 2021-8-13 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352715&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 10:54</a>
+
+钱多任性拉满了试了下 黑杯c狗奥伯龙a狐不借人不换人cd服 白字 27万 36万 75万。。。
+
+要点的技能不算多    ...</blockquote>
+摩根现在就是没人不上啊
+
+对面有人或者妖精就出门欺负人
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82198#       发表于 2021-8-13 11:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352753&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 10:56</a>
+
+我拉满了 不需要硬币开被动 黑杯c狗已经把蓝卡灭绝了</blockquote>
+说真的，现在红卡按键真的太多了，灭绝不了的
+
+到时候肯定哪种颜色按键少用哪种
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82199#       发表于 2021-8-13 11:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352755&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-13 10:56</a>
+
+摩根现在就是没人不上啊
+
+对面有人或者妖精就出门欺负人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">c狗这伤害挺夸张 主要我平时经常为了爽不带加成礼装带黑杯的  这波蓝绿可以说全灭了  （除了打骑
+
+
+*****
+
+####  alucardcz  
+##### 82200#       发表于 2021-8-13 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352817&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-13 11:00</a>
+
+说真的，现在红卡按键真的太多了，灭绝不了的
+
+到时候肯定哪种颜色按键少用哪种
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">c狗奥博龙a狐10键 我水武藏双c呆9键  问题不大！
+
+
+                                                 

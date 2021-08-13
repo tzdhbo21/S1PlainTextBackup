@@ -9076,3 +9076,983 @@ Q也是十年前的作品了
 
 
                                                 
+
+*****
+
+####  blood_iron  
+##### 738#       发表于 2021-8-13 09:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351424&amp;ptid=2013091" target="_blank">shudushimo 发表于 2021-8-13 09:19</a>
+
+旧版前半段和后半段也不是一个基调吧</blockquote>
+但能看出人物发展的逐渐灰暗崩溃啊
+
+这里Q开始就让你自己脑补
+
+
+*****
+
+####  桧川直巳  
+##### 739#       发表于 2021-8-13 09:24
+
+
+字幕做的啥玩意啊……还不如机翻
+
+
+*****
+
+####  kaion111  
+##### 740#       发表于 2021-8-13 09:25
+
+
+现在字幕还都是官方的那个哈皮字幕吗，有点等不及了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天涯夹心人  
+##### 741#       发表于 2021-8-13 09:25
+
+
+纯路人的话体验感觉应该一般吧，没有那种外行人也能看热闹的一些大场景，片长也对路人不友好，这也能磨到百亿也不知道是老粉太厉害还是宣发真吸到路人了？
+
+
+没有药性但这也够了，了却了不少旧版遗憾。
+
+EVA这个ip拖了太久，也投入了太多的感情。
+
+记得刚出的一个评论：“身旁一个大叔带着笔记本看，一开始还在记记剧情的样子，但后面看到一直在哭。”
+
+我个人连看到最后连青叶和日向互相绑缎带都十分触动，虽然看片时还是带着不少设定疑惑的，但是看完之后第一个涌的还是感情呀。
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 742#       发表于 2021-8-13 09:26
+
+
+中文字幕基本可以确定是英文机翻，把喜欢翻译成一样，后半段更是一堆错翻漏翻来自: iPhone客户端
+
+
+*****
+
+####  LLLLLuB  
+##### 743#       发表于 2021-8-13 09:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351377&amp;ptid=2013091" target="_blank">shudushimo 发表于 2021-8-13 09:16</a>
+话说没人吐槽东治的关西腔吗？他之前几部是这么说话的吗</blockquote>
+一直这个调调啊
+
+
+*****
+
+####  shudushimo  
+##### 744#       发表于 2021-8-13 09:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351499&amp;ptid=2013091" target="_blank">LLLLLuB 发表于 2021-8-13 09:27</a>
+
+一直这个调调啊</blockquote>
+好吧，可能之前说话太少，没听出来
+
+
+*****
+
+####  Redis  
+##### 745#       发表于 2021-8-13 09:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351377&amp;ptid=2013091" target="_blank">shudushimo 发表于 2021-8-13 09:16</a>
+
+话说没人吐槽东治的关西腔吗？他之前几部是这么说话的吗</blockquote>
+我也记得东治没这么严重的关西腔啊
+
+
+老tv不是挺正常的？
+
+
+*****
+
+####  yaxiuser  
+##### 746#       发表于 2021-8-13 09:35
+
+
+故事的内核是希腊悲剧(弑父，恋母...)+日式青春(无疾而终的初恋=明日香和shinji都以爱过作为告白，幼年时两人的对视，女方比男方更早长大)+最终选择长大成人融入社会的御宅族的结局（与玛丽相恋结婚，过上了社会人的生活），痞子最后还是夹了大量私货，整个新剧场版，乃至整个作品俨然都成为他的人生自传了吧。
+
+ps，感觉薰和丽本质上应该都是母亲的化身，薰代表母亲和神结合的部分，丽则代表其在现实世界的部分。
+
+通宵看完早上起来回味，突然意识到假如没有过去25年时间的积淀，以及恰好在10岁的年纪跟着EVA成长起来，这就是一部制作还算精良的院线动画。
+
+看到痞子只是总监督，实际执行监督一大串，不禁感慨天才对于文化产业的重要性，人才你给他命题作文，做出来的东西也不会脱离市场平均水平太远。
+
+
+*****
+
+####  Redis  
+##### 747#       发表于 2021-8-13 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351481&amp;ptid=2013091" target="_blank">天涯夹心人 发表于 2021-8-13 09:25</a>
+
+纯路人的话体验感觉应该一般吧，没有那种外行人也能看热闹的一些大场景，片长也对路人不友好，这也能磨到百 ...</blockquote>
+有丽的剧情都不错
+
+
+虽然丽在这里太工具，但是不妨碍我感动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Redis  
+##### 748#       发表于 2021-8-13 09:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351467&amp;ptid=2013091" target="_blank">桧川直巳 发表于 2021-8-13 09:24</a>
+
+字幕做的啥玩意啊……还不如机翻</blockquote>
+可以看看繁体
+
+
+繁体还ok，虽然也很拉垮，但是至少能看下去
+
+
+简体啥玩意儿。。。
+
+
+*****
+
+####  越动天下  
+##### 749#       发表于 2021-8-13 09:38
+
+
+虽然和我想的有点远 但还是只能说够了
+
+
+*****
+
+####  qtk9599  
+##### 750#       发表于 2021-8-13 09:39
+
+
+<blockquote>chenflyyy 发表于 2021-8-13 09:14
+当时上映大部分人还没看的时候讨论度高得离谱秒杀外野，结果资源出来了讨论度就这吗，看来漫区是真的不行了 ...</blockquote>
+我觉得，是q和终真不行。序和破好评如潮到飞起到天际。为什么好，因为剧情是旧世纪福音战士。某人老了，就退了吧。让某个看着eva长大进入动画界当上知名监督的eva粉丝来拍的话，我觉得应该会拍的更好看些，如果有这么个人的话。
+
+
+
+
+*****
+
+####  blood_iron  
+##### 751#       发表于 2021-8-13 09:39
+
+
+真希波。这个女人从登场开始的一切谜团一个都没有解开。
+
+是克隆人么？是使徒么？是人类么？为什么对真嗣如此执着？
+
+和加持什么关系？对于加持的计划知道多少？
+
+人类补完、eva、NERV、SEELE等等对于她意味着什么？ 
+
+没有全都没有，从头到尾卖了波人设卖了个萌推进下 剧情没了？ 没了？嗯，没了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qtk9599  
+##### 752#       发表于 2021-8-13 09:42
+
+
+ 本帖最后由 qtk9599 于 2021-8-13 09:45 编辑 
+<blockquote>blood_iron 发表于 2021-8-13 09:39
+真希波。这个女人从登场开始的一切谜团一个都没有解开。
+
+是克隆人么？是使徒么？是人类么？为什么对真嗣如 ...</blockquote>
+从喜欢小受妈的蕾丝发展到喜欢小受的直女，母子通吃，如果真是这么个设定，痞子还是牛逼的。。。
+
+
+*****
+
+####  diyihaoshitu  
+##### 753#       发表于 2021-8-13 09:43
+
+
+看完了，总的来说，新剧场系列算是狗尾续貂吧……
+
+序是最好的，剩下的三部是一部不如一部，真是虎头蛇尾啊
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 754#       发表于 2021-8-13 09:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351590&amp;ptid=2013091" target="_blank"> Redis 发表于 2021-8-13 09:34</a> 引用:shudushimo 发表于 2021-8-13 09:16 话说没人吐槽东治的关西腔吗？他之前几部是这么说话的吗 我也记得东治没这么严重的关西腔啊  老tv不是挺正常的？ </blockquote>
+建议重看TV，口音挺明显的来自: iPhone客户端
+
+
+*****
+
+####  blood_iron  
+##### 755#       发表于 2021-8-13 09:46
+
+
+花了十几年说个故事，到最后结尾时候，剧情和人物叙事依旧极度不完整和敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  舰姬绝唱明日香  
+##### 756#       发表于 2021-8-13 09:46
+
+
+看完，明明应该拍四个小时才对<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">妇联都三个多小时
+
+
+*****
+
+####  Chia  
+##### 757#       发表于 2021-8-13 09:49
+
+
+我只觉得不带劲<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+回头看首映的那波宅宅崩溃的节奏莫名其妙的
+
+
+*****
+
+####  diyihaoshitu  
+##### 758#       发表于 2021-8-13 09:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351347&amp;ptid=2013091" target="_blank">chenflyyy 发表于 2021-8-13 09:14</a>
+
+当时上映大部分人还没看的时候讨论度高得离谱秒杀外野，结果资源出来了讨论度就这吗，看来漫区是真的不行了 ...</blockquote>
+心累了……
+
+
+*****
+
+####  JustW  
+##### 759#       发表于 2021-8-13 09:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351815&amp;ptid=2013091" target="_blank">Chia 发表于 2021-8-13 09:49</a>
+
+我只觉得不带劲
+
+回头看首映的那波宅宅崩溃的节奏莫名其妙的</blockquote>
+感觉之前闹最欢的在正片里根本不是最重要的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  downnote  
+##### 760#       发表于 2021-8-13 09:55
+
+
+ 本帖最后由 downnote 于 2021-8-13 10:04 编辑 
+
+不行。对剧场版的需求有啥，一个是视听盛宴，二个是剧情好好完结。现在看起来第一点是完全失败，不知道折腾这么久做了些什么，这样有创作性吗；后者非常勉强，就像是大号的TV版结局，没什么特别感觉。虽然还没到星战九那么烂的程度，勉强当作一个完结未尝不可，像是打折后的东京奥运会开幕式吧。
+
+
+看之前以为前期宣传放了好几遍的开头的战斗量产机设计就够怪了，打斗也和前两部感觉差不离，后面也许好一些吧。接着是第三村的剧情，非常日剧（？）味，我还想如果以后多看几遍的话可能会快进这部分吧，只是没想到后面更差，第三村时的作画稳定剧情也算流畅明快，但在登上企鹅号以后，在某个不明确节点剧情和作画就一泻千里了，战斗也没有好起来，先是单调的舰炮追逃，然后是枯燥无比的量产机对战，丑陋的无身体量产机纠缠，老碇出场后更是没有起色，从单调的纯色背景变成简陋3D的摄影棚尬演，这就是战斗戏的全部了，让我疑心Xara请不到什么业界帮手只是在纯锻炼大四毕业生。后面的大丽脑袋和全员无头丽就更别说了，这个水平什么叫指导业界啊。
+
+至于剧情也极不稳定，从黑波以后就急转直下。我以为庵野说NHK没拍到什么好东西，是指精彩的都在后面，谁知道又是前面堆料后面稀松。也不像反复思量的结果，大约实在决定不了方案算了就拿最早的，复刻一下TV和旧剧场版的路数，两个混搭得了。所以打爹又变成电车谈天，还挨个把人送走，不知道的还以为这不是电车，是在拍银河铁道物语吧。
+
+至于配对我兴趣乏乏，倒很讨厌之前不停上蹿下跳的配对人。但不得不说配对既不是重点，也没什么意思，对配对的营造太不充分了以至于缺乏实感，非要说的话黑波和明日香和真嗣的交流还足一些。话说黑波在Q里不是对真嗣的积极出动都不怎么回应么，为啥终里一转变成“设定里就植入了对真嗣的好感”，究竟是哪里出了差错？
+
+
+*****
+
+####  ads147147  
+##### 761#       发表于 2021-8-13 09:56
+
+
+与其说吐槽痞子加私货，看大家的不满更多是对痞子现在太圆滑不想惹事。毕竟上次又是手冲又是秃鹫吃人的，破和q又虚晃一枪。
+
+反正我觉得现在的痞子挺好的，这次补全明显处处都在弄的和上次不一样，而且是偷偷破坏掉上次那种美丽而残酷的艺术表现，毕竟痞子现在估计是真不想死了。
+
+所谓病好了就是这么回事吧，估计新假面骑士也会是一个很温馨，可能死人都不会有的片子。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  高龙  
+##### 762#       发表于 2021-8-13 09:57
+
+
+其实都说清楚了，但是就是真希波的背景还是不明，我认为作为一个如此重要的带路角色，这点是个缺陷。
+
+结尾部分的新世界，车站对面除了薰、丽确实还是香。
+
+
+*****
+
+####  拉稀  
+##### 763#       发表于 2021-8-13 09:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美里弃养还真没啥人说，这是怕被指认成呆呆兽？
+给了原因但不足以说服人，甚至连巨婴碇源堂都不如，看到有人说小加持和真嗣有点像很难绷得住<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  高龙  
+##### 764#       发表于 2021-8-13 09:59
+
+
+核心问题还是中间少一部，Q前面的那段剧情被跳过了，虽然这部里面补充了一些，但是节奏上没时间去过多描写，能补完心路历程只有美里，加持的牺牲和真希波的背景，以及EVA战争时代的过度等等都不明晰。虽然这是表现手法，但是还是让人难受，多拍一部剧场版把这些部分表现了就痛快了。
+
+
+*****
+
+####  暗黑能乐  
+##### 765#       发表于 2021-8-13 10:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351924&amp;ptid=2013091" target="_blank">高龙 发表于 2021-8-13 09:57</a>
+
+其实都说清楚了，但是就是真希波的背景还是不明，我认为作为一个如此重要的带路角色，这点是个缺陷。
+
+结尾 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">背景，知道是喜欢唯的正常人就够了，感觉没了她根本没法翻盘，有点机械降神了其实
+
+
+*****
+
+####  shudushimo  
+##### 766#       发表于 2021-8-13 10:02
+
+
+话说序破上映的时候真的好评如潮吗，破我能理解，序就一个TV的高清重置版，还是炒12年前的冷饭，07年的时候真的能好评如潮？我表示怀疑
+
+
+*****
+
+####  lovcavil  
+##### 767#       发表于 2021-8-13 10:03
+
+
+实在不行再remake 拍汉字版的急和终
+
+
+*****
+
+####  XSK小龙王  
+##### 768#       发表于 2021-8-13 10:04
+
+
+ 本帖最后由 XSK小龙王 于 2021-8-13 10:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351987&amp;ptid=2013091" target="_blank">shudushimo 发表于 2021-8-13 10:02</a>
+
+话说序破上映的时候真的好评如潮吗，破我能理解，序就一个TV的高清重置版，还是炒12年前的冷饭，07年的时候 ...</blockquote>
+那个年代就流行这个，而且yysy序的画面确实强
+
+
+*****
+
+####  quadrozeke  
+##### 769#       发表于 2021-8-13 10:05
+
+
+<blockquote>高龙 发表于 2021-8-13 09:59
+核心问题还是中间少一部，Q前面的那段剧情被跳过了，虽然这部里面补充了一些，但是节奏上没时间去过多描写 ...</blockquote>
+Q浪费篇幅。整体上新剧场版在回避残酷性，最残酷的部分这次都留白了。
+
+
+*****
+
+####  asion617  
+##### 770#       发表于 2021-8-13 10:05
+
+
+昨天看的偷跑版，刚刚上prime video看了一下你们说的还可以的繁中字幕，发现甚至跟台配都完全对不上，这也太拉了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oniwarud  
+##### 771#       发表于 2021-8-13 10:06
+
+
+<blockquote>shudushimo 发表于 2021-8-13 10:02
+话说序破上映的时候真的好评如潮吗，破我能理解，序就一个TV的高清重置版，还是炒12年前的冷饭，07年的时候 ...</blockquote>
+序算是中规中矩，小雷的改动很惊艳，最大的爆点是下集预告，真要论人气引爆还是破上映之后了
+
+
+*****
+
+####  gundam0010  
+##### 772#       发表于 2021-8-13 10:07
+
+
+剧场版看完了，更加搞不清当初首映的骚动是咋回事。
+
+明日香怎么可能跟碇真嗣一起，两个人是同种性格只是分了男女。
+
+粉丝脑补的有点过了。
+
+
+*****
+
+####  kraoo  
+##### 773#       发表于 2021-8-13 10:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352021&amp;ptid=2013091" target="_blank">asion617 发表于 2021-8-13 10:05</a>
+昨天看的偷跑版，刚刚上prime video看了一下你们说的还可以的繁中字幕，发现甚至跟台配都完全对不上，这也 ...</blockquote>
+感觉中文字幕很多是二次加工，从日语到其他语言再到中文，味都不一样了
+
+
+*****
+
+####  高龙  
+##### 774#       发表于 2021-8-13 10:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351933&amp;ptid=2013091" target="_blank">拉稀 发表于 2021-8-13 09:57</a>
+
+美里弃养还真没啥人说，这是怕被指认成呆呆兽？
+
+给了原因但不足以说服人，甚至连巨婴碇源堂都不如， ...</blockquote>
+主要是美里要主导和司令的战争，没法养孩子吧。
+
+
+*****
+
+####  Temori  
+##### 775#       发表于 2021-8-13 10:11
+
+
+这么多吐槽制作的，认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  高龙  
+##### 776#       发表于 2021-8-13 10:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351967&amp;ptid=2013091" target="_blank">暗黑能乐 发表于 2021-8-13 10:00</a>
+
+背景，知道是喜欢唯的正常人就够了，感觉没了她根本没法翻盘，有点机械降神了其实 ...</blockquote>
+没她的话，真嗣会用自己做素材创造新世界，不过是没有真嗣和EVA的新世界。
+
+不过我觉得，应该这样一下，那结局至少也有小圆的高度。
+
+
+*****
+
+####  重巡羊舰  
+##### 777#       发表于 2021-8-13 10:12
+
+
+ 本帖最后由 重巡羊舰 于 2021-8-13 10:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早上醒来想想，实在懒得吐槽了，社畜那么久了还需要你庵野秀明来教？只能说日本人大概都躺的太平了
+
+对了，立木文彦拿着剧本给司令配音的时候，是怎么做到把一堆狗屁不通的话说的说的那么声情并茂的，这就是职业人嘛，可敬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霧亥  
+##### 778#       发表于 2021-8-13 10:13
+
+
+明日香到还算给拉了个剑剑当垫背的，丽更倒霉，说我要去寻找可能性就直接踹了
+
+
+*****
+
+####  何でやねん  
+##### 779#       发表于 2021-8-13 10:13
+
+
+睡醒了现在感觉就是各位老演员为了照顾长久以来粉丝的那点心心念念最后演一出，最后站台解散各各回各家的戏码<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 780#       发表于 2021-8-13 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352103&amp;ptid=2013091" target="_blank">高龙 发表于 2021-8-13 10:12</a>
+
+没她的话，真嗣会用自己做素材创造新世界，不过是没有真嗣和EVA的新世界。
+
+不过我觉得，应该这样一下，那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没她，最后枪也送不进去的，连拯救世界都做不到
+
+
+
+
+*****
+
+####  高龙  
+##### 781#       发表于 2021-8-13 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352019&amp;ptid=2013091" target="_blank">quadrozeke 发表于 2021-8-13 10:05</a>
+
+Q浪费篇幅。整体上新剧场版在回避残酷性，最残酷的部分这次都留白了。</blockquote>
+我认为回避残酷性是个缺陷。应该播放最残酷的部分，然后让真嗣扛起最大的责任，自我献祭达成终极的“自我负责”，从而实现角色成长的重点。只让他展示自我牺牲的觉悟是不够的，成果不是建构在角色的牺牲上就没那个味儿。
+
+
+*****
+
+####  Dreki  
+##### 782#       发表于 2021-8-13 10:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350309&amp;ptid=2013091" target="_blank">一色彩羽的家人 发表于 2021-8-13 05:29</a>
+你们都是真看懂了吗，为啥没几个人对剧情提出问题的
+
+就比如冬月为啥知道玛丽的计划，他那反应是啥意思？</blockquote>
+已经没指望看懂了，看到中间那么多神棍内容不好好说话我就放弃思考这些细节了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dragon_dusts  
+##### 783#       发表于 2021-8-13 10:19
+
+
+算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thecatnie  
+##### 784#       发表于 2021-8-13 10:19
+
+
+我看老有人说eva是庵野让人脱宅回归现实，庵野秀明自己就是全日本最大的宅男头子，快六十岁的人了天天不是奥特曼就是假面骑士，他还能好意思让别人回归现实，合着“EVA都是假的，但奥特曼是真的”
+
+
+*****
+
+####  轮太  
+##### 785#       发表于 2021-8-13 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352213&amp;ptid=2013091" target="_blank">thecatnie 发表于 2021-8-13 10:19</a>
+
+我看老有人说eva是庵野让人脱宅回归现实，庵野秀明自己就是全日本最大的宅男头子，快六十岁的人了天天不是 ...</blockquote>
+因为知道EVA是作者一边YY美少女一边画的所以是假的
+
+但是奥特曼肯定是真的！<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚瑟邓特  
+##### 786#       发表于 2021-8-13 10:31
+
+
+所以当初那混乱场面呆呆兽分几成锅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kraoo  
+##### 787#       发表于 2021-8-13 10:33
+
+
+话说没人关心最后美里没了么，渚薰跟加持最后去找美里是阴间相会？呆呆兽呢救一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pzk  
+##### 788#       发表于 2021-8-13 10:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350457&amp;ptid=2013091" target="_blank">a12885084 发表于 2021-8-13 06:44</a>
+
+再多聊两句
+
+
+所谓的EVA鉴赏/分析/感悟，大抵就是三个层次：①场内剧情设定层次，包括第几次冲击始末、各 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对某些cp入脑的人来说，从明日香说第一句“剑剑”开始，就化身怀疑被老婆带了绿帽的老公，开始疯狂关注一些蛛丝马迹来玩侦探游戏，片子里的其他东西都不再重要了
+
+
+*****
+
+####  Kojimaru  
+##### 789#       发表于 2021-8-13 10:39
+
+
+明日香就是明日香，真嗣也有自己的大胸美女，这不都挺好
+
+
+*****
+
+####  舰姬绝唱明日香  
+##### 790#       发表于 2021-8-13 10:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350105&amp;ptid=2013091" target="_blank">左凉川 发表于 2021-8-13 03:14</a>
+自己喜欢什么样的作品，就自己创作什么样的作品。谁也不会来救你，谁也不会对你温柔，尤其是好为人师喜欢训 ...</blockquote>
+如果你觉得新版eva终不好，你就去重做它；如果你觉得剧情不行，你就去成为编剧；如果你觉得3D做的不好，你就去自己制作一段3D。 它有缺点就一起修正，而不是一昧的谩骂、 抱怨、 逃离。
+
+横眉冷对千夫指，俯首甘为孺子牛。你所制作下载/观看的，正是你的eva；你怎么样，eva便怎么样。
+
+
+*****
+
+####  暗黑能乐  
+##### 791#       发表于 2021-8-13 10:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352388&amp;ptid=2013091" target="_blank">kraoo 发表于 2021-8-13 10:33</a>
+
+话说没人关心最后美里没了么，渚薰跟加持最后去找美里是阴间相会？呆呆兽呢救一下啊 ...</blockquote>
+凉了的人都是新世界相会，没凉的旧世界接着过
+
+
+*****
+
+####  白鲸之影  
+##### 792#       发表于 2021-8-13 10:45
+
+
+玛丽到底是为了谁在行动？为了唯妈还是为了真嗣？
+
+或者说玛丽到底是什么角色？是代替母亲还是代替爱人？
+
+
+*****
+
+####  阿姆罗二世  
+##### 793#       发表于 2021-8-13 10:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352557&amp;ptid=2013091" target="_blank">白鲸之影 发表于 2021-08-13 10:45:10</a>
+玛丽到底是为了谁在行动？为了唯妈还是为了真嗣？
+
+或者说玛丽到底是什么角色？是代替母亲还是代替爱人？ ...</blockquote>目前看就一纯工具人，看日后能不能补剧情了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Phoenix_0592  
+##### 794#       发表于 2021-8-13 10:46
+
+
+看完了，有坛友能告诉我最开始巴黎那段在剧情上有什么必要吗？
+还有nerv方机体真的丑…
+
+
+*****
+
+####  thecatnie  
+##### 795#       发表于 2021-8-13 10:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352502&amp;ptid=2013091" target="_blank">暗黑能乐 发表于 2021-8-13 10:41</a>
+
+凉了的人都是新世界相会，没凉的旧世界接着过</blockquote>
+凉了的人到繁华的新世界吃香的喝辣的，没凉的在荒芜的旧世界白手起家，大家都有光明的前途，真是可喜可贺，可喜可贺<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  StarScreaM  
+##### 796#       发表于 2021-8-13 10:49
+
+
+看完签到了，果然选胸大的没错 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qtk9599  
+##### 797#       发表于 2021-8-13 10:50
+
+
+<blockquote>shudushimo 发表于 2021-8-13 10:02
+话说序破上映的时候真的好评如潮吗，破我能理解，序就一个TV的高清重置版，还是炒12年前的冷饭，07年的时候 ...</blockquote>
+你看看序的画质，再看看终的画质，我就不多说什么了
+
+
+*****
+
+####  ads147147  
+##### 798#       发表于 2021-8-13 10:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352579&amp;ptid=2013091" target="_blank">Phoenix_0592 发表于 2021-8-13 10:46</a>
+看完了，有坛友能告诉我最开始巴黎那段在剧情上有什么必要吗？
+还有nerv方机体真的丑…
+ ...</blockquote>
+从后面冬月给玛丽放水来看，巴黎作战是故意给wille送装备的。
+
+从制作的角度看，是炫技。顺便卖下ja的情怀
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  旺角卡门  
+##### 799#       发表于 2021-8-13 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351402&amp;ptid=2013091" target="_blank">baoer 发表于 2021-8-13 09:18</a>
+
+我是真的心疼鹤卷  如果没有那几场打戏可能这破片都不配叫个eva</blockquote>
+说起来2号机使徒化又被吞掉那个有点FLCL
+
+
+*****
+
+####  高龙  
+##### 800#       发表于 2021-8-13 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352579&amp;ptid=2013091" target="_blank">Phoenix_0592 发表于 2021-8-13 10:46</a>
+
+看完了，有坛友能告诉我最开始巴黎那段在剧情上有什么必要吗？
+
+还有nerv方机体真的丑…
+
+ ...</blockquote>
+上一部两个机体都废了，拿补给是有必要的，而且后面一大段文戏，不塞一场打戏在开头太闷。我觉得一开始没有巴黎那段，而是后面的氛围一直持续到丽白爆那段，没准我能看的很受刺激。
+
+所以这个节奏的安排是，“痞子的温柔”（类似宫琦英高在魂3的制作中，最终放弃了篝火兽这个设计）
+
+
+*****
+
+####  琦玉  
+##### 801#       发表于 2021-8-13 10:54
+
+
+现在有没有哪个靠谱点的字幕可以看？
+
+
+*****
+
+####  downnote  
+##### 802#       发表于 2021-8-13 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352579&amp;ptid=2013091" target="_blank">Phoenix_0592 发表于 2021-8-13 10:46</a>
+
+看完了，有坛友能告诉我最开始巴黎那段在剧情上有什么必要吗？
+
+还有nerv方机体真的丑…
+
+ ...</blockquote>
+没有的话这次剧场版就完全没有合格打戏了吧
+
+虽然这部分按EVA标准也只是及格而已
+
+
+*****
+
+####  woshenc  
+##### 803#       发表于 2021-8-13 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351967&amp;ptid=2013091" target="_blank">暗黑能乐 发表于 2021-8-13 10:00</a>
+
+背景，知道是喜欢唯的正常人就够了，感觉没了她根本没法翻盘，有点机械降神了其实 ...</blockquote>
+觉得她不算正常人，那张照片里唯一的正常人是冬月教授
+
+最后与其说是玛丽翻盘，不如说是冬月老师手下留情了
+
+
+*****
+
+####  Caa  
+##### 804#       发表于 2021-8-13 11:10
+
+
+现在有字幕靠谱的版本了吗
+
+
+*****
+
+####  EXplus  
+##### 805#       发表于 2021-8-13 11:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351776&amp;ptid=2013091" target="_blank">舰姬绝唱明日香 发表于 2021-8-13 09:46</a>
+看完，明明应该拍四个小时才对妇联都三个多小时</blockquote>
+你这是要庵野再次抑郁<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rp1993  
+##### 806#       发表于 2021-8-13 11:10
+
+
+Q拉跨得太严重，搞得痞子憋了九年，最后想塞的东西太多，把终也带垮了。
+
+要说终的缺点那是多了去了，莫名其妙的3D打斗，铺垫不足的人物转变，还有很多还来不及说的设定剧情就直接放弃说了。
+
+不过这仍旧是超过我想象与EVA说再见的方式，个人表达甚至盖过了作品本身，看完了我也能彻底放下EVA了。
+
+
+*****
+
+####  暗黑能乐  
+##### 807#       发表于 2021-8-13 11:11
+
+
+ 本帖最后由 暗黑能乐 于 2021-8-13 11:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352763&amp;ptid=2013091" target="_blank">woshenc 发表于 2021-8-13 10:56</a>
+
+觉得她不算正常人，那张照片里唯一的正常人是冬月教授
+
+最后与其说是玛丽翻盘，不如说是冬月老师手下留情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">冬月要正常还会支持司令的吗，他显然是想装的中立点两边都帮，但实际上是偏司令这边的，所以才会叫真希波“背信者”
+
+
+*****
+
+####  乃木坂裕人  
+##### 808#       发表于 2021-8-13 11:15
+
+
+世上还是只有妈妈好，这轮还送老婆
+
+
+*****
+
+####  SRyeB  
+##### 809#       发表于 2021-8-13 11:15
+
+
+ROE所有的人物塑造，全都基于TV和EOE，是旧世界的延伸。ROE没有篇幅没有能力去重新塑造新的人物，便默认观众是看过旧系列的，让观众在旧系列理解上重新理解。不相信有人单看roe，能看明白人物逻辑动机。
+
+终就是一份陈情书，表达了痞子现在对于eva态度，而制作eva又给痞子带来什么，改变了他的什么。制作eva的过程中，对于痞子来说可能只有痛苦，尤其在制作EOE的时候，就是报复社会吗。但是到了最后，到了最后的最后，eva和痞子达成了和解。
+
+观众能不能和解那就是看自己了，反正痞子自己和解跑路了。
+
+
+*****
+
+####  恶意之刃  
+##### 810#       发表于 2021-8-13 11:18
+
+
+我申请邀请呆呆兽阁下回归s1参加狂欢。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Redis| + 1|欢乐多|
+
+
+查看全部评分
+
+
+
+
+*****
+
+####  shudushimo  
+##### 811#       发表于 2021-8-13 11:21
+
+
+一个个嘴上说着一般般，bgm评分还是一夜暴涨0.5<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  默逍  
+##### 812#       发表于 2021-8-13 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52350106&amp;ptid=2013091" target="_blank">qtk9599 发表于 2021-8-13 03:14</a>
+
+看完鸟。。。理论太高深，不懂。只想提一个问题，为什么这部里明日香除了作战穿作战服之外,生活里永远赤膊 ...</blockquote>
+自我认知稀薄，已经不觉得自己是人类了，不用保持人类的公序良俗。不恰当类比一下，你在一群宠物狗周围会在乎他们怎么看你吗
+
+
+*****
+
+####  shunfeng  
+##### 813#       发表于 2021-8-13 11:24
+
+
+grandending没那味，跟旧作一样还是瑕疵作品
+
+
+*****
+
+####  hashire.owl  
+##### 814#       发表于 2021-8-13 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351725&amp;ptid=2013091" target="_blank">qtk9599 发表于 2021-8-13 09:42</a>
+从喜欢小受妈的蕾丝发展到喜欢小受的直女，母子通吃，如果真是这么个设定，痞子还是牛逼的。。。 ...</blockquote>
+抄袭兰斯系列<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moekyo  
+##### 815#       发表于 2021-8-13 11:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353052&amp;ptid=2013091" target="_blank">SRyeB 发表于 2021-8-13 11:15</a>
+
+ROE所有的人物塑造，全都基于TV和EOE，是旧世界的延伸。ROE没有篇幅没有能力去重新塑造新的人物，便默认观 ...</blockquote>
+我怎么觉得赶紧弄个结局跑路才是最重要的
+
+
+*****
+
+####  unclea  
+##### 816#       发表于 2021-8-13 11:29
+
+
+美里居然让自己崽妈都不认识，丢给别人养。律子都说了当初没留下陪加持就是因为怀上了。
+
+我只能理解为她知道这下半辈子都要献给革命事业没有精力当一个好母亲。跟在自己身边环境不好疏于照顾又整出个小受这别扭性格的崽那还不如丢乡下。
+
+整个q里对小受摆黑脸不说人话。到了终战之前才想起来原来让小受不计后果放手去干的人是自己啊。。。挨了一枪才开始疯狂护崽。
+
+
+—— 来自 vivo Xplay6, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  咸鱼咸又咸  
+##### 817#       发表于 2021-8-13 11:35
+
+
+想问一下，现在这个片源如果组织到电影院观影(先补考虑是否合规)，清晰度是否足够？
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                              
