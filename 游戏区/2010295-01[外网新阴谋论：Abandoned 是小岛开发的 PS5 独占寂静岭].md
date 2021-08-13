@@ -9583,3 +9583,55 @@ app画面如上，UI还挺精美的
 
 
                                                 
+
+*****
+
+####  体质的错  
+##### 752#       发表于 2021-8-14 05:38
+
+
+这裤子和鞋子尼玛不是跟那个弩哥SH teaser一样的牛仔裤加黄色单鞋？
+
+
+*****
+
+####  acropolis  
+##### 753#       发表于 2021-8-14 05:51
+
+
+牛bluebox牛
+
+
+*****
+
+####  KOPKOM  
+##### 754#       发表于 2021-8-14 05:56
+
+
+笑死
+
+
+*****
+
+####  luoyianwu  
+##### 755#       发表于 2021-8-14 05:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364124&amp;ptid=2010295" target="_blank">体质的错 发表于 2021-8-14 05:38</a>
+
+这裤子和鞋子尼玛不是跟那个弩哥SH teaser一样的牛仔裤加黄色单鞋？</blockquote>
+有说Harry的James的Ethan Winters的
+
+穿这身太平庸了
+
+
+*****
+
+####  acropolis  
+##### 756#       发表于 2021-8-14 06:02
+
+
+不过这种水准的伪开发者也能出来搞事情，索尼是不是得背个锅
+
+
+                                                 
