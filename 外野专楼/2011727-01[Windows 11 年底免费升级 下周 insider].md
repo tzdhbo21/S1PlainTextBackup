@@ -6188,3 +6188,16 @@ Windows 8和8.1都是靠Classic Shell过的
 
 
                                                  
+
+*****
+
+####  dragrass  
+##### 513#       发表于 2021-8-13 07:18
+
+
+我怀疑微软打算最后一版再加模拟器<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 
