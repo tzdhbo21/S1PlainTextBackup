@@ -6917,3 +6917,49 @@ yysy 有点馋tc了
 
 
                                                  
+
+*****
+
+####  gongge666  
+##### 638#       发表于 2021-8-13 15:20
+
+
+再看看吧，如果这段时间tc真的减少，那大概率是犬山给她吹耳边风了，本来对于一个主播来说tc这种不赚钱的平台花太多时间就是没必要的
+
+
+*****
+
+####  往世雷书  
+##### 639#       发表于 2021-8-13 15:31
+
+
+别加戏了，给她身边的人揽功的习惯还是别继承了。犬山对她的帮助够多，不需要这种无根据的猜测锦上添花
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  时间在我手中  
+##### 640#       发表于 2021-8-13 15:33
+
+
+fnndp呢，犬山自己有时候不照样没事TC吐黑泥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么云人
+
+
+你以为庄司自己肥芒果的批话是她在哪里的评论区扯得，找的谁扯得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 641#       发表于 2021-8-13 15:35
+
+
+ 本帖最后由 T_Hb 于 2021-8-13 15:37 编辑 
+
+我觉得可能是不手机tc延伸到了不tc
+忙工作，没时间tc<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -11067,3 +11067,278 @@ executive officer，大副，赤木律子</blockquote>
 
 
                                                 
+
+*****
+
+####  霧亥  
+##### 906#       发表于 2021-8-13 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52355803&amp;ptid=2013091" target="_blank">SRyeB 发表于 2021-8-13 14:39</a>
+全方位倒贴在哪里，开枪肾击吗</blockquote>
+我妻由乃有话要说<img src="https://static.saraba1st.com/image/smiley/carton2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ltype  
+##### 907#       发表于 2021-8-13 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52351223&amp;ptid=2013091" target="_blank">Redis 发表于 2021-8-13 09:04</a>
+
+还有一个很不咋地的地方
+
+
+为啥这么多关于设定的掉书袋子的地方？</blockquote>
+以前是只丢名字要么就是只给张图
+
+现在还带解说
+
+这片做出来就一个目的了
+
+画过，看过
+
+
+*****
+
+####  GJRstone  
+##### 908#       发表于 2021-8-13 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52355803&amp;ptid=2013091" target="_blank">SRyeB 发表于 2021-8-13 14:39</a>
+全方位倒贴在哪里，开枪肾击吗</blockquote>
+那段情绪非常不对<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没有铺垫没有承接，就突然突然全员认可了引发了近三冲和三冲的真嗣，就算有赌气和斯德哥尔摩也太强行了
+
+
+*****
+
+####  舰姬绝唱明日香  
+##### 909#       发表于 2021-8-13 14:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352960&amp;ptid=2013091" target="_blank">EXplus 发表于 2021-8-13 11:10</a>
+你这是要庵野再次抑郁</blockquote>
+痞子：我做roe都是被你们逼的！
+观众：逼的？那再多逼点吧！终分上下两部！每部2.5小时！顺便补一个破和Q之间的一小时ova！
+
+
+*****
+
+####  moekyo  
+##### 910#       发表于 2021-8-13 14:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52355628&amp;ptid=2013091" target="_blank">rp1993 发表于 2021-8-13 14:27</a>
+
+终单独作为一部剧场版动画当然是拉跨的，但让我感动的是痞子，是EVA的存在，是26年和EVA相处的日子，是我 ...</blockquote>
+能展开说说那些相处的日子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shiko  
+##### 911#       发表于 2021-8-13 14:46
+
+
+<blockquote>SRyeB 发表于 2021-8-13 14:39
+全方位倒贴在哪里，开枪肾击吗</blockquote>
+终里一共就见了真嗣两次两次都失控，还被吐槽你是他老婆吗，反正我觉得挺离谱的。
+
+
+你要说是被真嗣几次搞事吓出斯德哥尔摩了我都信。
+
+
+*****
+
+####  FMIC  
+##### 912#       发表于 2021-8-13 14:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52355871&amp;ptid=2013091" target="_blank">GJRstone 发表于 2021-8-13 14:43</a>
+那段情绪非常不对没有铺垫没有承接，就突然突然全员认可了引发了近三冲和三冲的真嗣，就算有赌气 ...</blockquote>
+近三冲是的，三冲真嗣已经昏古七了不要甩锅哦
+
+
+*****
+
+####  亚瑟邓特  
+##### 913#       发表于 2021-8-13 14:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52355690&amp;ptid=2013091" target="_blank">Heero_Z 发表于 2021-8-13 14:31</a>
+看到粉毛妹出来阻止上初号机那段蚌埠住了，大家都是熟人聊天交代后事你寄吧谁啊拿把枪指着别人😅。鉴于痞子 ...</blockquote>
+对，那人谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qtk9599  
+##### 914#       发表于 2021-8-13 14:53
+
+
+<blockquote>rp1993 发表于 2021-8-13 14:27
+终单独作为一部剧场版动画当然是拉跨的，但让我感动的是痞子，是EVA的存在，是26年和EVA相处的日子，是我 ...</blockquote>
+95年就看上eva首播？
+
+
+*****
+
+####  Temori  
+##### 915#       发表于 2021-8-13 14:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">樱确实有病（褒义）
+
+
+*****
+
+####  静哮苍穹  
+##### 916#       发表于 2021-8-13 14:59
+
+
+这终章就好像一顿丰盛的洋快餐里吃到最后剩下的一块凉了的翅根，虽然不难吃，但无论从哪个角度评价也说不上特别香了。
+
+不过只有吃完这一块，EVA这一餐才能算正式结束了，所以也没什么可抱怨的。
+
+
+*****
+
+####  plok201  
+##### 917#       发表于 2021-8-13 15:01
+
+
+<blockquote>亚特 发表于 2021-8-13 14:05
+把EVA终剧场版2号机那个楼的某个回复复制过来，渚司令是Q之前14年发生的
+
+
+</blockquote>
+确实很短吧，破那个近三冲是大事，从预告和终的回忆来看，后面估计和eoe差不多发展了，撑死因为准备开打所以和平几个月吧
+
+
+*****
+
+####  ky怪  
+##### 918#       发表于 2021-8-13 15:01
+
+
+我爱疯女人
+
+
+*****
+
+####  GJRstone  
+##### 919#       发表于 2021-8-13 15:03
+
+
+算了长求总了，在终里，一冲、二冲、近三冲、三冲、另冲（another impact）、四冲、附冲（additional impact）都具体指什么玩意儿
+
+
+*****
+
+####  Aisuti  
+##### 920#       发表于 2021-8-13 15:08
+
+
+在我看明日香最后跟剑介了  挺好的
+
+
+*****
+
+####  oniwarud  
+##### 921#       发表于 2021-8-13 15:13
+
+
+真要表现特摄感的话为什么不直接让真人穿皮套在那打架，特摄也没这种跟推倒积木一样的场景破坏吧
+
+
+*****
+
+####  saintsimpler  
+##### 922#       发表于 2021-8-13 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52356196&amp;ptid=2013091" target="_blank">Aisuti 发表于 2021-8-13 15:08</a>
+在我看明日香最后跟剑介了  挺好的</blockquote>
+是啊，太明显了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">剑介一开口，我就知道输了
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  忧郁的lc  
+##### 923#       发表于 2021-8-13 15:15
+
+
+进来问一句，有能看的字幕了吗？
+
+
+*****
+
+####  kangkangsama  
+##### 924#       发表于 2021-8-13 15:16
+
+
+玛丽埃菲尔铁塔突击也说了法语，就是这个人设。
+
+
+*****
+
+####  DKD  
+##### 925#       发表于 2021-8-13 15:20
+
+
+看完没什么太大的感觉，不好不坏，看得出来痞子很想拍特摄了。所有人都和解了，没有eva的世界还是要往前走，至少有大胸阿姨陪着真嗣。
+
+还有就是看到长大的香香和真嗣，感觉痞子在说：“完结了！大家都长大点。”
+
+
+*****
+
+####  Chinacaii  
+##### 926#       发表于 2021-8-13 15:20
+
+
+看完了，作为最后一部也算是个结局吧，三对CP也能接受
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 927#       发表于 2021-8-13 15:23
+
+
+ 本帖最后由 灼眼的夏娜酱 于 2021-8-13 15:25 编辑 
+
+看完了，感觉我设定上搞不明白的地方像山一样多，很多地方都云里雾里的，弃疗了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就问一下最后的地方吧，最后真嗣怎么送走明日香、丽还有渚薰的哇？他们三个我还以为都领了便当了怎么都又活过来了。还有最后站台上怎么又出现的三人，不是送回第三村了吗？
+
+
+*****
+
+####  Aisuti  
+##### 928#       发表于 2021-8-13 15:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353730&amp;ptid=2013091" target="_blank">hypnossz86 发表于 2021-8-13 12:04</a>
+
+据说官方字幕翻译有点烂？
+
+请问现在有好点的字幕了吗？</blockquote>
+我看的是B站的一个UP主翻的 也是很烂 还是需要等待一个更了解EVA的字幕组
+
+
+*****
+
+####  nailuo1993  
+##### 929#       发表于 2021-8-13 15:25
+
+
+没有eoe那种狂气啊，最后都坐下来将将话就happy end，家庭伦理剧吗
+
+
+                                                 

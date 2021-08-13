@@ -17725,3 +17725,23 @@ BIG MOM那些儿女们还在海里漂着呢？
 
 
                                                  
+
+*****
+
+####  sungoldy  
+##### 55480#       发表于 2021-8-13 15:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331371&amp;ptid=98922" target="_blank">zxzx7753 发表于 2021-8-11 18:24</a>
+
+团庆的时候1/5人突然谋反   换哪个组织都顶不住吧
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 ...</blockquote>
+团庆的时候1/5人突然谋反 ——这本身就是草台的一部分了
+
+
+世界政府和五老星里面不知道会有多少二五仔来展示卧龙凤雏的实力了的
+
+
+                                                 
