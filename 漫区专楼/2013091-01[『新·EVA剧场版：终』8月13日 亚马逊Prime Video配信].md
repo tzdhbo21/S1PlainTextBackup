@@ -13320,3 +13320,183 @@ one last kiss 响起的时候还是有点唏嘘的
 
 
                                                 
+
+*****
+
+####  1899milan  
+##### 1086#       发表于 2021-8-14 00:49
+
+
+再见了，所有的Evangelion<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakuace  
+##### 1087#       发表于 2021-8-14 00:53
+
+
+父子大战突然就一转谈心了(有种看刃牙和勇伯父子和解的感觉)，你俩能不能在多打会儿啊，还卖不卖玩具了(
+
+
+*****
+
+####  clamp07830  
+##### 1088#       发表于 2021-8-14 00:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">还是挺感动的，虽然平淡了些
+
+
+*****
+
+####  1899milan  
+##### 1089#       发表于 2021-8-14 00:54
+
+
+与自己和解吧
+
+我完全确信，这才是痞子心中eva原本的结局，虽然旧剧场版的病态我也很喜欢，但这次eva真的在我心里画了一个圆满的句号。
+
+
+*****
+
+####  新月祥  
+##### 1090#       发表于 2021-8-14 01:02
+
+
+请问各位大佬们，现在靠谱的字幕有了吗
+
+
+*****
+
+####  妄想中毒  
+##### 1091#       发表于 2021-8-14 01:06
+
+
+还是没弄懂玛丽到底啥来头，怎么司令的自白回忆里也有她啊
+
+
+*****
+
+####  Temori  
+##### 1092#       发表于 2021-8-14 01:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363453&amp;ptid=2013091" target="_blank">妄想中毒 发表于 2021-8-14 01:06</a>
+还是没弄懂玛丽到底啥来头，怎么司令的自白回忆里也有她啊</blockquote>
+大概率就是司令和唯的同辈人，贞本漫画有一话番外讲这个的可以看看，但跟新剧场版的设定应该不完全一样，实际上信息量也没有多出多少
+
+
+*****
+
+####  kddawang  
+##### 1093#       发表于 2021-8-14 01:09
+
+
+ 本帖最后由 kddawang 于 2021-8-14 01:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363201&amp;ptid=2013091" target="_blank">AliceCrazy 发表于 2021-8-14 00:32</a>
+
+最后只有明日香逃生舱逃走了 感觉绫波和熏是幻觉</blockquote>
+几乎所有人都被鸽子骗了，鸽子起飞后车因为惯性往前又开了点才停的。
+
+了解车站结构的就知道这是障眼法，为了让你误解车后的视野范围。
+
+给你实际标一下范围吧，大叔因为坐着所以看不到，痞子高中的jk被车头挡住了。
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/010801sx6755gko5o6jn7x.png" referrerpolicy="no-referrer">
+
+
+<strong>视野.png</strong> (249.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 01:08 上传
+
+
+*****
+
+####  chronicle  
+##### 1094#       发表于 2021-8-14 01:11
+
+
+<blockquote>妄想中毒 发表于 2021-8-14 01:06
+还是没弄懂玛丽到底啥来头，怎么司令的自白回忆里也有她啊</blockquote>
+请看贞本义行的eva漫画最后一卷最后一节
+
+冬月的学生，和碇原堂和唯同辈，应该也是受到了eva的影响，时间停滞
+
+
+*****
+
+####  lenin  
+##### 1095#       发表于 2021-8-14 01:13
+
+
+我只是很好奇  为啥最后都到山口的宇部去了   不是原来都是箱根人吗？
+
+
+*****
+
+####  kddawang  
+##### 1096#       发表于 2021-8-14 01:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363496&amp;ptid=2013091" target="_blank">lenin 发表于 2021-8-14 01:13</a>
+
+我只是很好奇  为啥最后都到山口的宇部去了   不是原来都是箱根人吗？</blockquote>
+因为宇部是司令和痞子的老家。
+
+
+*****
+
+####  gwchobit  
+##### 1097#       发表于 2021-8-14 01:17
+
+
+再见了,所有的福音战士.单看只是还行,主要是战斗不及以前.但作为完结篇剧情和情怀足够了,这年头能活着把坑填了人要珍惜,且这人烧这么多长的动画就为了讲一个父子为了已故母亲和解的戏码,简直神经病啊.
+
+
+*****
+
+####  mishidexieyu  
+##### 1098#       发表于 2021-8-14 01:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">香香到底啥时候开始是复制人的啊？不是一直在新剧场里都是式波吗？咋回事啊
+
+
+*****
+
+####  冰寒之月  
+##### 1099#       发表于 2021-8-14 01:20
+
+
+不过话说回来AT立场效果也太闪了
+
+这么搞不怕什么癫痫患者告吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mishidexieyu  
+##### 1100#       发表于 2021-8-14 01:21
+
+
+总的来说，看完之后稍微对痞子有了些情感和气氛的共鸣和理解，然后回过头来思考剧情的时候产生了巨大的迷惑，这些问题多的就和3d的白色量产机一样多。来到泥潭之后我得到了部分问题在“这些代表着什么象征着什么”上得到了答案，但是在作品宇宙里的逻辑仍然迷惑
+
+
+*****
+
+####  冰寒之月  
+##### 1101#       发表于 2021-8-14 01:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363359&amp;ptid=2013091" target="_blank">zakuace 发表于 2021-8-14 00:53</a>
+
+父子大战突然就一转谈心了(有种看刃牙和勇伯父子和解的感觉)，你俩能不能在多打会儿啊，还卖不卖玩具了( ...</blockquote>
+我现在就在想万代到底准备怎么在RG上设计4个可折叠收纳式手臂
+
+
+                                                 
