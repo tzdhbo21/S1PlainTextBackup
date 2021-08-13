@@ -9313,3 +9313,273 @@ BBGS表示我们100%是真的；大部分测试都做 ...</blockquote>
 
 
                                                  
+
+*****
+
+####  SpaceCowboy  
+##### 728#       发表于 2021-8-14 03:55
+
+
+补丁上线了
+
+
+*****
+
+####  luoyianwu  
+##### 729#       发表于 2021-8-14 03:55
+
+
+<blockquote>BLUE BOX Game Studios
+
+1m
+
+The patch is now live. Please check the update availability on your console. This patch introduces the following:
+
+
+-Access to the app
+
+-A short introduction teaser for the app along with it's announcements.
+[https://twitter.com/BBGameStudios/status/1426270646917545989](https://twitter.com/BBGameStudios/status/1426270646917545989)</blockquote>
+速报　补丁上线了
+
+这不是演习
+
+
+*****
+
+####  SpaceCowboy  
+##### 730#       发表于 2021-8-14 03:57
+
+
+。。。但实际上还没更新<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SpaceCowboy  
+##### 731#       发表于 2021-8-14 03:59
+
+
+补丁5.146g
+
+
+*****
+
+####  luoyianwu  
+##### 732#       发表于 2021-8-14 04:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364017&amp;ptid=2010295" target="_blank">SpaceCowboy 发表于 2021-8-14 03:59</a>
+
+补丁5.146g</blockquote>
+草
+
+我这还没
+
+
+*****
+
+####  luoyianwu  
+##### 733#       发表于 2021-8-14 04:02
+
+
+来了！
+
+还有五分钟下好，先不看剧透了
+
+
+*****
+
+####  Samak  
+##### 734#       发表于 2021-8-14 04:02
+
+
+更新了，5个g！
+
+
+*****
+
+####  luoyianwu  
+##### 735#       发表于 2021-8-14 04:03
+
+
+值更新放出，顺便一嘴
+
+今天是13号星期五！
+
+Abandoned主角叫Jason！
+
+什么意思！
+
+
+*****
+
+####  阿布都督  
+##### 736#       发表于 2021-8-14 04:07
+
+
+好戏要登场了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SpaceCowboy  
+##### 737#       发表于 2021-8-14 04:08
+
+
+太搞了， app里的东西是前几天更新在twitter上的
+
+
+*****
+
+####  泡桐  
+##### 738#       发表于 2021-8-14 04:09
+
+
+油管看了一眼，目前就一个Twitter上一样的那个走路的短篇，没了，剩下的都是soon<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  luoyianwu  
+##### 739#       发表于 2021-8-14 04:10
+
+
+HASAAAAAAAAAAAAAAAAAN！我要杀了你！
+
+
+*****
+
+####  阿布都督  
+##### 740#       发表于 2021-8-14 04:10
+
+
+ 本帖最后由 阿布都督 于 2021-8-14 04:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绝了
+
+所以这5个G究竟更新了个啥<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cloudfarron  
+##### 741#       发表于 2021-8-14 04:11
+
+
+哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+
+*****
+
+####  Samak  
+##### 742#       发表于 2021-8-14 04:12
+
+
+我操nm
+
+
+*****
+
+####  luoyianwu  
+##### 743#       发表于 2021-8-14 04:14
+
+
+就算选了其他语言，进去看片还是英语<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cloudfarron  
+##### 744#       发表于 2021-8-14 04:14
+
+
+这太绝了，我要是个B站讲游戏的up主，就立刻出一期视频介绍一整件事的来龙去脉，这个哈桑绝对是我这么多年见过的最巨魔的游戏开发者
+
+
+*****
+
+####  luoyianwu  
+##### 745#       发表于 2021-8-14 04:17
+
+
+ 本帖最后由 luoyianwu 于 2021-8-14 05:13 编辑 
+
+<img src="https://p.sda1.dev/2/4e2953a3f68f26e59aaac148c734912a/vgc.png" referrerpolicy="no-referrer">
+
+有网友指出五秒trailer的BGM神似寂静岭，究竟是幻听，还是
+
+HASAAAAAAAAAAAaN！我要杀了你！！！！
+
+破案了，是一首叫I Saw Stars的曲子
+
+
+*****
+
+####  喵喵叫的猫  
+##### 746#       发表于 2021-8-14 04:24
+
+
+操nm<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  920619lqy  
+##### 747#       发表于 2021-8-14 04:35
+
+
+这活烂得我笑清醒了
+
+
+*****
+
+####  littlezoo  
+##### 748#       发表于 2021-8-14 04:40
+
+
+是可操作的5秒Demo吗？还是就一个视频文件？
+
+
+*****
+
+####  Cloudfarron  
+##### 749#       发表于 2021-8-14 04:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364079&amp;ptid=2010295" target="_blank">littlezoo 发表于 2021-8-14 04:40</a>
+
+是可操作的5秒Demo吗？还是就一个视频文件？</blockquote>
+不可操作的
+
+
+*****
+
+####  luoyianwu  
+##### 750#       发表于 2021-8-14 05:03
+
+
+ 本帖最后由 luoyianwu 于 2021-8-14 05:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364079&amp;ptid=2010295" target="_blank">littlezoo 发表于 2021-8-14 04:40</a>
+
+是可操作的5秒Demo吗？还是就一个视频文件？</blockquote>
+<img src="https://p.sda1.dev/2/32589ffb710d44122c0a3f1b677dd896/1628886379812.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/adeec86faddee63fca84444e42925761/1628886715773.jpg" referrerpolicy="no-referrer">
+
+画面五秒，前后文字音频加起来一共三十秒吧。
+
+app画面如上，UI还挺精美的
+
+
+
+
+*****
+
+####  矢量路比  
+##### 751#         楼主| 发表于 2021-8-14 05:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">刚爬起来要开 PS5
+
+
+                                                

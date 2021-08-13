@@ -16423,3 +16423,20 @@ c5441ae8c2a344b00c7899de58f08077.jpg
 
 
                                                  
+
+*****
+
+####  森兰丸  
+##### 82247#       发表于 2021-8-14 04:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363375&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-14 00:55</a>
+
+竟然...竟然
+
+
+秋の森の王女は恋をした。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">奥伯龙再临4的语音听到他喊ブランカ时还以为是狼王罗伯的老婆.....没想到还有这么一段
+
+
+                                                 
