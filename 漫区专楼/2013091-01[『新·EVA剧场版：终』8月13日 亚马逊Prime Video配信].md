@@ -10056,3 +10056,747 @@ ROE所有的人物塑造，全都基于TV和EOE，是旧世界的延伸。ROE没
 
 
                                               
+
+*****
+
+####  blood_iron  
+##### 818#       发表于 2021-8-13 11:40
+
+
+美里黑脸真嗣真的莫名其妙，凭什么？
+
+
+*****
+
+####  asion617  
+##### 819#       发表于 2021-8-13 11:48
+
+
+跟不认崽一个原因啊，为了自己承担
+
+
+*****
+
+####  桧川直巳  
+##### 820#       发表于 2021-8-13 11:52
+
+
+看完了，唯一留下的印象是东治妹妹钩子好翘，而且老给特写
+
+
+*****
+
+####  SRyeB  
+##### 821#       发表于 2021-8-13 11:54
+
+
+真嗣和小加持其实都是美里的孩子，美里没有做好成为他们亲人的准备，是以司令官的姿态保护自己，跟碇司令如出一辙，同时整个舰对于真嗣的敌对情绪还时挺多的，美里介于司令官位置采取了冷漠的态度。
+
+最后说自己是真嗣的监护人还是挺感慨的，毕竟eoe最后美里也无法自己认同。不过这个转变的过程描绘太少了，也就是律子说了几句，美里看了看孩子合影。
+
+
+*****
+
+####  briareos  
+##### 822#       发表于 2021-8-13 11:54
+
+
+连看第二遍整理吐槽点的想法都没有的烂
+
+
+*****
+
+####  すみぺ  
+##### 823#       发表于 2021-8-13 11:56
+
+
+sakura真的很棒，很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  在星空中坠落  
+##### 824#       发表于 2021-8-13 11:56
+
+
+我以为怎样的结局我都可以接受，大团圆也可以。但不会是这种。如果庵野还在真嗣那个年纪，我要把他从地上拉起来，对他说“这样真的就可以了吗，这样真的一切就都要结束了”，我要等他说出真嗣的台词，“ぼくは、エヴァンゲリオン初号机のパイロット碇シンジです”。然而庵野已经61岁了，制作EVA对他可能只是纯粹的痛苦了。我很理解。
+
+所以这就是End of Lilin吧。Lilith的孩子们终于不再做梦。
+
+
+*****
+
+####  hypnossz86  
+##### 825#       发表于 2021-8-13 12:04
+
+
+据说官方字幕翻译有点烂？
+
+请问现在有好点的字幕了吗？
+
+
+*****
+
+####  普罗茶  
+##### 826#       发表于 2021-8-13 12:06
+
+
+<blockquote>Redis 发表于 2021-8-13 08:53
+我也觉得纳闷儿
+
+
+不应该是作画真国家队么
+</blockquote>
+稳定性（大抵是指绘柄类似，作画风格一致吧）和作画好又不是绑定的，比如锦织有些地方修得太アイマス了（脸颊到下巴的画法偏短与眼睛在面部的位置），中间有段很脱力嘎的作画也是不懂为什么一定要这样
+
+
+*****
+
+####  普罗茶  
+##### 827#       发表于 2021-8-13 12:07
+
+
+<blockquote>Redis 发表于 2021-8-13 08:53
+我也觉得纳闷儿
+
+
+不应该是作画真国家队么
+</blockquote>
+而且作画确实很好啊，幸存者村落的一些演技作画还是很大饱眼福的
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 828#       发表于 2021-8-13 12:10
+
+
+这个是专楼吗？前面一些剧情记不清了，边看边问<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">东治说剑介救真嗣是什么时候（哪一部）的事情哇？
+
+
+*****
+
+####  普罗茶  
+##### 829#       发表于 2021-8-13 12:11
+
+
+<blockquote>Redis 发表于 2021-8-13 06:58
+真的是老了
+
+
+老成自己越来看不起的宫崎家的接班人了
+</blockquote>
+能不能不要乱用小农经济这个词。。。
+
+
+*****
+
+####  霧亥  
+##### 830#       发表于 2021-8-13 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353812&amp;ptid=2013091" target="_blank">灼眼的夏娜酱 发表于 2021-8-13 12:10</a>
+这个是专楼吗？前面一些剧情记不清了，边看边问东治说剑介救真嗣是什么时候（哪一部）的事情哇？ ...</blockquote>
+就这部，三人走到附近后那个开车过来的就是剑剑
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  霧亥  
+##### 831#       发表于 2021-8-13 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353812&amp;ptid=2013091" target="_blank">灼眼的夏娜酱 发表于 2021-8-13 12:10</a>
+这个是专楼吗？前面一些剧情记不清了，边看边问东治说剑介救真嗣是什么时候（哪一部）的事情哇？ ...</blockquote>
+就这部，三人走到附近后那个开车过来的就是剑剑
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  霧亥  
+##### 832#       发表于 2021-8-13 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353812&amp;ptid=2013091" target="_blank">灼眼的夏娜酱 发表于 2021-8-13 12:10</a>
+这个是专楼吗？前面一些剧情记不清了，边看边问东治说剑介救真嗣是什么时候（哪一部）的事情哇？ ...</blockquote>
+就这部，三人走到附近后那个开车过来的就是剑剑
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  MASKA-1  
+##### 833#       发表于 2021-8-13 12:15
+
+
+所以玛丽为啥要用汉语说一句“再见。”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 834#       发表于 2021-8-13 12:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353849&amp;ptid=2013091" target="_blank">霧亥 发表于 2021-8-13 12:12</a>
+
+就这部，三人走到附近后那个开车过来的就是剑剑
+
+
+—— 来自 samsung SM-F9160, Android 11上的 S1Next-鹅 ...</blockquote>
+多谢！
+
+
+*****
+
+####  Cloudslin  
+##### 835#       发表于 2021-8-13 12:28
+
+
+父子对殴那段可以看出是想做出特摄感，但看起来还是怪怪的，明明协力里有圆谷制作，现在全CG制作的奥特曼战斗也很自然了。也许电影院里看会好些。
+
+
+*****
+
+####  ads147147  
+##### 836#       发表于 2021-8-13 12:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353890&amp;ptid=2013091" target="_blank">MASKA-1 发表于 2021-8-13 12:15</a>
+所以玛丽为啥要用汉语说一句“再见。”
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+看霓虹金自己解析是：日语撒由那拉永别的味道大于再见的意味。所以要刻意用中文的再见表达会再次相见的意味。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qtk9599  
+##### 837#       发表于 2021-8-13 12:32
+
+
+<blockquote>默逍 发表于 2021-8-13 11:23
+自我认知稀薄，已经不觉得自己是人类了，不用保持人类的公序良俗。不恰当类比一下，你在一群宠物狗周围会 ...</blockquote>
+哦，要照你这么说，剑剑还能和她搞男女关系吗。。。。
+
+
+*****
+
+####  苍雨夜寐  
+##### 838#       发表于 2021-8-13 12:34
+
+
+<blockquote>白鲸之影 发表于 2021-8-13 10:45
+玛丽到底是为了谁在行动？为了唯妈还是为了真嗣？
+
+或者说玛丽到底是什么角色？是代替母亲还是代替爱人？ ...</blockquote>
+不长岁数的干妈
+
+
+*****
+
+####  qtk9599  
+##### 839#       发表于 2021-8-13 12:36
+
+
+<blockquote>ads147147 发表于 2021-8-13 12:31
+看霓虹金自己解析是：日语撒由那拉永别的味道大于再见的意味。所以要刻意用中文的再见表达会再次相见的意 ...</blockquote>
+玛丽会外语，小受会外语吗？
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 840#       发表于 2021-8-13 12:36
+
+
+真嗣这俩基友真是让人刮目相看，一个比一个靠谱。
+
+
+
+
+*****
+
+####  ads147147  
+##### 841#       发表于 2021-8-13 12:37
+
+
+第三村那种哪怕是这种条件也要坚持生活下去的意象居然会被解读成歌颂小农经济，这届观众是真不行么。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kraoo  
+##### 842#       发表于 2021-8-13 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354081&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-13 12:31</a>
+看霓虹金自己解析是：日语撒由那拉永别的味道大于再见的意味。所以要刻意用中文的再见表达会再次相见的意 ...</blockquote>
+用马达什么什么不行吗，玛丽设定上有啥中国元素？话说前面班长刚给黑丽解释撒由那拉是再次相见，到这就不行了
+
+
+*****
+
+####  ads147147  
+##### 843#       发表于 2021-8-13 12:37
+
+
+ 本帖最后由 ads147147 于 2021-8-13 12:39 编辑 
+
+剑介带着真嗣去逛遍第三村的各个地方，颇有当年铃木说让痞子去干活养病的意思，总得找事做。
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 844#       发表于 2021-8-13 12:38
+
+
+黑丽好可爱，被萌到了。
+
+
+*****
+
+####  苍雨夜寐  
+##### 845#       发表于 2021-8-13 12:40
+
+
+<blockquote>blood_iron 发表于 2021-8-13 11:40
+美里黑脸真嗣真的莫名其妙，凭什么？</blockquote>
+你心里最理解觉得最靠谱的人搞砸了最重要的一件事，你不会生气？美里才是最理解真嗣的那个女人
+
+
+*****
+
+####  N-Time  
+##### 846#       发表于 2021-8-13 12:40
+
+
+这样的结束还挺满意的
+蛮喜欢第三村那段的
+
+
+*****
+
+####  AR971GP04  
+##### 847#       发表于 2021-8-13 12:41
+
+
+问下那个像是摄像机绑着ps4手柄一样的东西是什么?
+
+
+*****
+
+####  ads147147  
+##### 848#       发表于 2021-8-13 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354159&amp;ptid=2013091" target="_blank">kraoo 发表于 2021-8-13 12:37</a>
+用马达什么什么不行吗，玛丽设定上有啥中国元素？话说前面班长刚给黑丽解释撒由那拉是再次相见，到这就不 ...</blockquote>
+不够正式吧。
+
+黑丽这次被赋予了很多很童话一样的台词，换人用会削弱黑丽的重要性。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  N-Time  
+##### 849#       发表于 2021-8-13 12:41
+
+
+这样的结束还挺满意的
+蛮喜欢第三村那段的
+
+
+*****
+
+####  SRyeB  
+##### 850#       发表于 2021-8-13 12:41
+
+
+TV里的明日香是自我意识过剩，而这里的明日香则是反面。精神与身体的不一致，对肉体产生了剥离感，不觉的是自己的身体吧。
+
+在反宇宙里，破除诅咒恢复大人身体的明日香，就是变得会害羞了。
+
+
+*****
+
+####  默逍  
+##### 851#       发表于 2021-8-13 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354090&amp;ptid=2013091" target="_blank">qtk9599 发表于 2021-8-13 12:32</a>
+
+哦，要照你这么说，剑剑还能和她搞男女关系吗。。。。</blockquote>
+认真看了一遍的人不会有这种问题，是我上钩了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  旺角卡门  
+##### 852#       发表于 2021-8-13 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354159&amp;ptid=2013091" target="_blank">kraoo 发表于 2021-8-13 12:37</a>
+用马达什么什么不行吗，玛丽设定上有啥中国元素？话说前面班长刚给黑丽解释撒由那拉是再次相见，到这就不 ...</blockquote>
+玛丽饱读全书，秀点外语怎么了
+
+
+*****
+
+####  N-Time  
+##### 853#       发表于 2021-8-13 12:42
+
+
+这样的结束还挺满意的
+蛮喜欢第三村那段的
+
+
+*****
+
+####  N-Time  
+##### 854#       发表于 2021-8-13 12:42
+
+
+这样的结束还挺满意的
+蛮喜欢第三村那段的
+
+
+*****
+
+####  MASKA-1  
+##### 855#       发表于 2021-8-13 12:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354081&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-08-13 12:31:54</a>
+看霓虹金自己解析是：日语撒由那拉永别的味道大于再见的意味。所以要刻意用中文的再见表达会再次相见的意 ...</blockquote>感觉挺突兀的，玛丽之前倒是经常来两句英语，反而没啥中国要素<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  任天索尼子  
+##### 856#       发表于 2021-8-13 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354199&amp;ptid=2013091" target="_blank">AR971GP04 发表于 2021-8-13 12:41</a>
+
+问下那个像是摄像机绑着ps4手柄一样的东西是什么?</blockquote>
+好像就是用PS4手柄做遥控器
+
+
+*****
+
+####  qtk9599  
+##### 857#       发表于 2021-8-13 12:48
+
+
+<blockquote>MASKA-1 发表于 2021-8-13 12:42
+感觉挺突兀的，玛丽之前倒是经常来两句英语，反而没啥中国要素
+
+
+  -- 来自 能手机投票的 Stage1官方 ...</blockquote>
+就是，还不如说see you呢
+
+
+*****
+
+####  patema  
+##### 858#       发表于 2021-8-13 12:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 859#       发表于 2021-8-13 12:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354237&amp;ptid=2013091" target="_blank">MASKA-1 发表于 2021-8-13 12:42</a>
+感觉挺突兀的，玛丽之前倒是经常来两句英语，反而没啥中国要素
+
+  -- 来自 能手机投票的 Stage1官方 ...</blockquote>
+这次突兀设定也挺多的，比如渚司令。大概率是有没公开的死海文书外典（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 860#       发表于 2021-8-13 12:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354326&amp;ptid=2013091" target="_blank">patema 发表于 2021-8-13 12:48</a>
+看完之后再来看你楼各种牢骚，我确定这部终味道特别纯正，很痞子，给满分了
+
+—— 来自 moto ...</blockquote>
+还没到庵野shine的程度，也没到台长的把香香还给我的程度。只能说痞子这次太圆滑了，把人气的骂他怎么不尖锐点。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  任天索尼子  
+##### 861#       发表于 2021-8-13 12:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354331&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-13 12:49</a>
+
+这次突兀设定也挺多的，比如渚司令。大概率是有没公开的死海文书外典（
+
+
+—— 来自 Xiaomi Mi 10 Pro, An ...</blockquote>
+渚薰司令那个就是Q的废案，空白14年。
+
+
+*****
+
+####  ads147147  
+##### 862#       发表于 2021-8-13 12:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354345&amp;ptid=2013091" target="_blank">任天索尼子 发表于 2021-8-13 12:50</a>
+渚薰司令那个就是Q的废案，空白14年。</blockquote>
+所以才叫未公开的死海文书外典，等设定集吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  downnote  
+##### 863#       发表于 2021-8-13 12:59
+
+
+玛丽说中文你们觉得奇怪只是因为大家都是中国人而已，对日本人来说啥不是外语啊，中文英文都是外语。
+
+但我也好奇说中文的理由。
+
+
+*****
+
+####  superkidx  
+##### 864#       发表于 2021-8-13 12:59
+
+
+Q非常不喜欢 也完全不记得了 请问还能看、有必要看终吗？
+
+
+*****
+
+####  qtk9599  
+##### 865#       发表于 2021-8-13 13:02
+
+
+ 本帖最后由 qtk9599 于 2021-8-13 13:03 编辑 
+
+下午稍微整理一下头绪，说几句。这个终看完，用三个字很可以表达我的心情，意难平。当初的g社，是很能不经意间给老粉一些感动的，甚至是惊天动地的感动。最典型的例子，ova飞跃巅峰第一部和第二部的结尾，看过的自然懂我在说什么。那么说到这部终来，尽管也有不少老粉哭天喊地被感动的怎么怎么样了，可我两个多小时看下来，不夸张的说内心几乎没有一丝波动。尽管这个新剧场版不是g社做了，但看完还是那三个字，意难平。。。一部白开水似的作品，够资格当上现象级动画eva的终点吗？我觉得这种遗憾的感觉会伴随多年。01年看的evaTV，多少也算个老粉吧。。。
+
+
+*****
+
+####  kddawang  
+##### 866#       发表于 2021-8-13 13:02
+
+
+q的设定集马上就出了，终的话按速度来说明年夏秋差不多能出来。
+
+玛丽是不是给唯打工的，是否是明日香制造意义上的妈所以能在负世界找到明日香的电波信号做出告别，到时候就知道了。
+
+
+*****
+
+####  ads147147  
+##### 867#       发表于 2021-8-13 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354462&amp;ptid=2013091" target="_blank">superkidx 发表于 2021-8-13 12:59</a>
+Q非常不喜欢 也完全不记得了 请问还能看、有必要看终吗？</blockquote>
+个人觉得，至少在前半部分ab两个part是很值得看的。
+
+cd的部分，d里老碇的独白很好，其他你看这楼里发病的情况自己估量（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  rkSan  
+##### 868#       发表于 2021-8-13 13:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">对于不少人来说，让痞子来宣布“EVA结束了”的仪式意义更大吧。
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 869#       发表于 2021-8-13 13:04
+
+
+XO前辈是哪位啊？
+
+
+*****
+
+####  1096beam  
+##### 870#       发表于 2021-8-13 13:05
+
+
+说中文不就是单纯的舔一下大中华市场么
+
+
+
+
+*****
+
+####  qtk9599  
+##### 871#       发表于 2021-8-13 13:06
+
+
+<blockquote>灼眼的夏娜酱 发表于 2021-8-13 13:04
+XO前辈是哪位啊？</blockquote>
+副舰长的意思，你说哪位呢？
+
+
+*****
+
+####  桧川直巳  
+##### 872#       发表于 2021-8-13 13:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354525&amp;ptid=2013091" target="_blank">灼眼的夏娜酱 发表于 2021-8-13 13:04</a>
+XO前辈是哪位啊？</blockquote>
+executive officer，大副，赤木律子
+
+
+*****
+
+####  滋啦球  
+##### 873#       发表于 2021-8-13 13:08
+
+
+ 本帖最后由 滋啦球 于 2021-8-13 13:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">在想开头的巴黎作战是不是原计划在奥运时候上映给下一届法国一个面子
+玛丽前面就时不时蹦出法语英语，说一句中文也没什么问题吧
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  FMIC  
+##### 874#       发表于 2021-8-13 13:08
+
+
+说再见和说ciao差不多
+表达一下阿姨人老心不老，调皮
+
+
+*****
+
+####  qtk9599  
+##### 875#       发表于 2021-8-13 13:10
+
+
+<blockquote>桧川直巳 发表于 2021-8-13 13:08
+executive officer，大副，赤木律子</blockquote>
+大副是民船的说法，军船叫副长的。一般还不叫副舰长
+
+
+*****
+
+####  暗黑能乐  
+##### 876#       发表于 2021-8-13 13:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实是痞子对中国的EVA观众说再见呢
+
+
+*****
+
+####  qtk9599  
+##### 877#       发表于 2021-8-13 13:11
+
+
+<blockquote>暗黑能乐 发表于 2021-8-13 13:11
+其实是痞子对中国的EVA观众说再见呢</blockquote>
+痞子您走好。。。
+
+
+*****
+
+####  moekyo  
+##### 878#       发表于 2021-8-13 13:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354590&amp;ptid=2013091" target="_blank">滋啦球 发表于 2021-8-13 13:08</a>
+
+在想开头的巴黎作战是不是原计划在奥运时候上映给下一届法国一个面子
+
+玛丽前面就时不时蹦出法语英语 ...</blockquote>
+没成想自己的搞得这么阴间？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫将军  
+##### 879#       发表于 2021-8-13 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353890&amp;ptid=2013091" target="_blank">MASKA-1 发表于 2021-8-13 12:15</a>
+所以玛丽为啥要用汉语说一句“再见。”
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+玛丽住所不全是书么，说明博学多才啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大喇叭花田  
+##### 880#       发表于 2021-8-13 13:15
+
+
+看完，泪流满面，这么神的最终章竟然当初被黑得那么惨。
+
+
+*****
+
+####  Temori  
+##### 881#       发表于 2021-8-13 13:15
+
+
+玛丽不就这么个人设，感觉她飙啥外语都不违和
+
+
+*****
+
+####  soniccc  
+##### 882#       发表于 2021-8-13 13:25
+
+
+看哪个老牌字幕组做完再看一遍，这翻译是有点拉跨，虽不完美但也满足了
+
+
+                                               

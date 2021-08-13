@@ -15802,3 +15802,222 @@ banana是百级的
 
 
                                                  
+
+*****
+
+####  areklose  
+##### 82201#       发表于 2021-8-13 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352817&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-13 11:00</a>
+
+说真的，现在红卡按键真的太多了，灭绝不了的
+
+到时候肯定哪种颜色按键少用哪种
+
+ ...</blockquote>
+不是有啥用啥吗。
+
+
+*****
+
+####  exiaexa  
+##### 82202#       发表于 2021-8-13 11:40
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 82203#       发表于 2021-8-13 11:40
+
+
+翻页
+
+
+*****
+
+####  exiaexa  
+##### 82204#       发表于 2021-8-13 11:40
+
+
+再翻
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 82205#       发表于 2021-8-13 11:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52352534&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 10:43</a>
+
+那么谁用过c狗  伤害如何  有必要去拉满c狗技能吗</blockquote>
+我拉了，用处不大，伤害太低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82206#       发表于 2021-8-13 11:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353161&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-13 11:23</a>
+
+不是有啥用啥吗。</blockquote>
+看个人BOX区别吧
+
+我自己基本过了有啥用啥的阶段了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千叶铁矢  
+##### 82207#       发表于 2021-8-13 12:33
+
+
+为啥我大英雄都满绊了才80硬币，开不了充能呀
+
+
+*****
+
+####  alucardcz  
+##### 82208#       发表于 2021-8-13 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52353517&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-13 11:48</a>
+
+我拉了，用处不大，伤害太低</blockquote>
+[https://www.bilibili.com/video/BV1xA411w7Zi/](https://www.bilibili.com/video/BV1xA411w7Zi/)
+
+
+你骗我 萌新录了个视频 这伤害吊打同样5加成不换人的王姐
+
+而且c狗甚至都不用借人 再也不用担心礼装不对位 技能没点满被坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82209#       发表于 2021-8-13 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354101&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-13 12:33</a>
+
+为啥我大英雄都满绊了才80硬币，开不了充能呀</blockquote>
+友情池请（
+
+
+*****
+
+####  alucardcz  
+##### 82210#       发表于 2021-8-13 12:41
+
+
+风怒编辑
+
+
+*****
+
+####  rooarr  
+##### 82211#       发表于 2021-8-13 12:52
+
+
+ 本帖最后由 rooarr 于 2021-8-13 12:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354192&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 12:40</a>
+https://www.bilibili.com/video/BV1xA411w7Zi/
+
+
+你骗我 萌新录了个视频 这伤害吊打同样5加成不换人的王 ...</blockquote>
+你带黑杯当然不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不带黑杯6加成我试了的，1面5万，2面7w，3面12万
+
+
+*****
+
+####  alucardcz  
+##### 82212#       发表于 2021-8-13 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354371&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-13 12:52</a>
+
+你带黑杯当然不一样了不带黑杯6加成我试了的，1面5万，2面7w，3面12万 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不借人不换人3t无视配置的人 仅此一个啊？ 还要什么6加成
+
+
+*****
+
+####  rooarr  
+##### 82213#       发表于 2021-8-13 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354508&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 13:03</a>
+能不借人不换人3t无视配置的人 仅此一个啊？ 还要什么6加成</blockquote>
+干嘛不借人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82214#       发表于 2021-8-13 13:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354560&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-13 13:06</a>
+
+干嘛不借人这个限定条件莫名其妙啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看我被好友坑掉2条令咒了 狐狸礼装难刷就算了 技能都不点点满
+
+
+*****
+
+####  rooarr  
+##### 82215#       发表于 2021-8-13 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354582&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 13:08</a>
+你看我被好友坑掉2条令咒了 狐狸礼装难刷就算了 技能都不点点满</blockquote>
+这种时候只能建议你删好友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82216#       发表于 2021-8-13 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354606&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-13 13:09</a>
+
+这种时候只能建议你删好友我就没遇到这种情况，各位大佬挂出来的都是满宝满技能的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">越自由当然越好啊    现在就等一个5星女的c狗allin了   
+
+
+*****
+
+####  exiaexa  
+##### 82217#       发表于 2021-8-13 13:18
+
+
+我想了想，放弃了萌新的建议
+
+
+还剩15个结晶
+
+奥伯龙2美露辛1卡莲3，泳装再来两个人我原地破产，养不起养不起
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 82218#       发表于 2021-8-13 13:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354677&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 13:14</a>
+越自由当然越好啊    现在就等一个5星女的c狗allin了</blockquote>
+你这是毫无意义的自由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还是喜欢抱大腿
+
+
+                                                 
