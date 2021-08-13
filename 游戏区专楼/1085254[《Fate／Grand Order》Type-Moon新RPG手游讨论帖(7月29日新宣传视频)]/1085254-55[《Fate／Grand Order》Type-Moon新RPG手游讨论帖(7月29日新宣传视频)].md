@@ -16332,3 +16332,14 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 
                                                  
+
+*****
+
+####  zore  
+##### 82245#       发表于 2021-8-13 22:22
+
+
+手机玩还得黏着充电器,而且部分场景会卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要不怕掉号我也用模拟器了
+
+
+                                                 

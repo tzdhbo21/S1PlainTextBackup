@@ -7130,3 +7130,61 @@ fnndp呢，犬山自己有时候不照样没事TC吐黑泥<img src="https://stat
 
 
                                                  
+
+*****
+
+####  Klience  
+##### 659#       发表于 2021-8-13 21:53
+
+
+哦 不打了 有可能突击<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 660#       发表于 2021-8-13 22:17
+
+
+我觉得没可能，洗洗睡了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  Klience  
+##### 661#       发表于 2021-8-13 22:57
+
+
+那确实 刚发完这句话过一会又开始了 估计这人打算通宵了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 662#       发表于 2021-8-13 22:58
+
+
+101民赢麻了
+
+
+*****
+
+####  Klience  
+##### 663#       发表于 2021-8-13 23:06
+
+
+赢个寄吧 玩的两把上单波比全都输了 这下路吴E凡被对面打麻了
+
+
+*****
+
+####  T_Hb  
+##### 664#       发表于 2021-8-13 23:47
+
+
+有的看不错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                

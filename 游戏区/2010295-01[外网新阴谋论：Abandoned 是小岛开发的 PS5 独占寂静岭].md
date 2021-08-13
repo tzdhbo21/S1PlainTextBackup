@@ -9265,3 +9265,40 @@ BBGS表示我们100%是真的；大部分测试都做 ...</blockquote>
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 726#       发表于 2021-8-13 21:54
+
+
+ 本帖最后由 luoyianwu 于 2021-8-13 21:57 编辑 
+
+<img src="https://p.sda1.dev/2/5f57101f66ee95696d858d997160f5bc/kj6.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/d00671998c80a5d7e56586f0f2c47485/abd.png" referrerpolicy="no-referrer">
+
+
+- 小岛今天召开机密会议，被网友指出戴面罩像傻子一样
+
+- Blue Box官网宣称app修好了，patch马上出
+
+今天再不来点什么，我也不看了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 屌拿星人| + 2|辛苦了|
+| 当光停止| + 1|辛苦了|
+
+
+查看全部评分
+
+
+                                                 

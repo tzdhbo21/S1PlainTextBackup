@@ -12589,3 +12589,479 @@ Jet和Spike吧，而且像jet的那个角色的配音是鹦鹉螺号的船长，
 
 
                                                 
+
+*****
+
+####  银翼的维罗西  
+##### 1032#       发表于 2021-8-13 21:37
+
+
+艹，看完了，痞子花了二十多年原来讲的就是个老巨婴自闭阿宅想要毁灭世界的故事，真有你的，庵野秀明
+
+
+*****
+
+####  lwflwf  
+##### 1033#       发表于 2021-8-13 21:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52361355&amp;ptid=2013091" target="_blank">银翼的维罗西 发表于 2021-8-13 21:37</a>
+
+艹，看完了，痞子花了二十多年原来讲的就是个老巨婴自闭阿宅想要毁灭世界的故事，真有你的，庵野秀明 ...</blockquote>
+想见妻子见不着的madao<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  57042711  
+##### 1034#       发表于 2021-8-13 21:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52361355&amp;ptid=2013091" target="_blank">银翼的维罗西 发表于 2021-8-13 21:37</a>
+
+艹，看完了，痞子花了二十多年原来讲的就是个老巨婴自闭阿宅想要毁灭世界的故事，真有你的，庵野秀明 ...</blockquote>
+谜语了这么久突然化繁为简也还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 1035#       发表于 2021-8-13 21:52
+
+
+看完了，之前的IMAX新版《Q》的情报来看，原来有不少是为了《新》而做出的修改啊，例如IMAX版在三冲爆心地的直升机上加上了wille的标志，是为了对应加持在《新》里的回忆片段，也就是他最后驾驶阵亡的直升机。
+
+IMAX的《Q》还给13号机双肩加上了新的紫色星云特效也是为了对应《新》里双枪觉醒的13号机（一样的紫色星云特效）。
+
+反过来说，制作的《Q》的时候明显还没决定加持到底死了没死。
+
+当时预告PV看了几十遍所以记得很清楚，为了不剧透，跟对应的实际片中镜头相比确实是P掉了很多东西。
+
+使用了很多前几部的分镜，十分的情怀，1VS13虽然对冲N次有点影响观感，但场景切换还是蛮有趣的，特别是初号机撞上背景墙的那一段，只是痞子这些苦思冥想出来的“有趣的点子”我觉得百分之九十的观众其实根本就不在意。
+
+香党当时说的“再见”代表希望再次相见的咒语，看起来好像确实有这么回事，因为真嗣送走渚薰的时候使用了另一个“希望与他人友好相处”的手势的咒语，然后送走2号丽的时候，丽对真嗣说“谢谢你”也同样对应得上一句咒语········不知道前面老爹和后面跟玛丽重逢有没有哪句话对得上咒语的？
+
+不过看完觉得确实最后一部的总体基调来说，痞子确实压根可能就没怎么在意CP，后面确实有点赶，最后众人补完阶段已经是最后的10-20分钟的剧情了，不知有没有为了片长压缩了部分剧情。
+
+
+*****
+
+####  Dreki  
+##### 1036#       发表于 2021-8-13 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52360619&amp;ptid=2013091" target="_blank">冻僵的机械 发表于 2021-8-13 20:39</a>
+
+不停的闪烁画面观感很糟糕，没什么像样的战斗... CG也太廉价了</blockquote>
+昨天半夜关灯看差点把我闪瞎了，我觉得他应该有那个触发癫痫的警告
+
+
+*****
+
+####  勾心豆角  
+##### 1037#       发表于 2021-8-13 22:12
+
+
+<blockquote>Phoenix_0592 发表于 2021-8-13 10:46
+看完了，有坛友能告诉我最开始巴黎那段在剧情上有什么必要吗？
+
+还有nerv方机体真的丑…
+
+ ...</blockquote>
+骗钱，把人骗进电影院杀
+
+
+*****
+
+####  linkin9999  
+##### 1038#       发表于 2021-8-13 22:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52360977&amp;ptid=2013091" target="_blank">GJRstone 发表于 2021-8-13 21:04</a>
+亚马逊简体疑似日译英译中，繁体是日译中，能等的话还是等字幕组出片</blockquote>
+不用疑似
+amazon NF HBO 都是英译中
+
+
+*****
+
+####  kraoo  
+##### 1039#       发表于 2021-8-13 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52361527&amp;ptid=2013091" target="_blank">Dreki 发表于 2021-8-13 21:52</a>
+昨天半夜关灯看差点把我闪瞎了，我觉得他应该有那个触发癫痫的警告</blockquote>
+确实我也是关灯看，有一段蓝光闪闪闪我感觉再不闭眼我就瞎了，不知道影院观感啥样
+
+
+*****
+
+####  勾心豆角  
+##### 1040#       发表于 2021-8-13 22:16
+
+
+<blockquote>MASKA-1 发表于 2021-8-13 12:15
+所以玛丽为啥要用汉语说一句“再见。”
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+别想太多，既有可能是痞子一时脑抽就想加，然后现编理由
+
+
+*****
+
+####  ads147147  
+##### 1041#       发表于 2021-8-13 22:16
+
+
+<img src="https://p.sda1.dev/2/655d59dad1498240cd5c3e4022f5b91b/IMG_CMP_225342076.jpeg" referrerpolicy="no-referrer">
+
+第三村车站的建造日期是12001年（现实车站里这里是2001年），结合龙骨的建造日期是11805年，eva这个时间线其实非常有趣。如果是两千年一轮回，至少这次是6周目了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  X(iaolw)S  
+##### 1042#       发表于 2021-8-13 22:17
+
+
+nyaa上有9g的多国语言版了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  勾心豆角  
+##### 1043#       发表于 2021-8-13 22:19
+
+
+<blockquote>mqnwbeebwnqm 发表于 2021-8-13 14:02
+我就不知道用垃圾3d做特摄场景有什么好处和演出效果，既没有真微缩模型的物理细节也没有精细cg的华 ...</blockquote>
+快，省钱
+
+
+*****
+
+####  18991413544  
+##### 1044#       发表于 2021-8-13 22:21
+
+
+有字幕组出了没，今天中午nyaa上没搜到字幕组的
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+*****
+
+####  sakouta  
+##### 1045#       发表于 2021-8-13 22:21
+
+
+one last kiss 响起的时候还是有点唏嘘的
+
+故事里的人和故事外的人终于解脱了的感觉
+
+真嗣也变得阳光了，手牵手拥抱新生活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+但是父子那段真的有点拉
+
+开始讲人话以后就变low
+
+
+*****
+
+####  X(iaolw)S  
+##### 1046#       发表于 2021-8-13 22:24
+
+
+ 本帖最后由 X(iaolw)S 于 2021-8-13 22:39 编辑 
+
+玛丽和漫画版的人设还不一样，不是病娇百合唯厨了，看起来更像是元堂的朋友，元堂和唯还是她撮合的
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/222404yyz63ucxzcv3vqlc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210813222206.JPG</strong> (385.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 22:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/223708lnbi5noxurhmnen7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210813223600.JPG</strong> (415.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 22:37 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/223722tb2nm6cz64p2p6b7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210813223617.JPG</strong> (363.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 22:37 上传
+
+
+*****
+
+####  Carta_Issue  
+##### 1047#       发表于 2021-8-13 22:25
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/222434xomvlktbg9otbtbo.png" referrerpolicy="no-referrer">
+
+
+<strong>图片.png</strong> (180.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 22:24 上传
+
+
+ 真嗣爹故意没调整好的 就是要让真嗣体验自己失去唯的感受，真TMD恶心啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  X(iaolw)S  
+##### 1048#       发表于 2021-8-13 22:27
+
+
+ 本帖最后由 X(iaolw)S 于 2021-8-13 22:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52361316&amp;ptid=2013091" target="_blank">Carta_Issue 发表于 2021-8-13 21:33</a>
+
+这个第三村到底在哪里？
+
+天上看得到那个黑之月，又说北面湖区废墟是旧NERV总部所在地
+
+那Q里面闹得这么爽的 ...</blockquote>
+有结界挡着啊，四冲的人浪照挡不误
+
+
+*****
+
+####  Tehebe  
+##### 1049#       发表于 2021-8-13 22:36
+
+
+算了，和解吧，时间会结束一切的，谁都不可能一直活在回忆里，就这样完结也没什么不好
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hypnossz86  
+##### 1050#       发表于 2021-8-13 22:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看完了，这战斗感觉是真的拉稀
+场面看着挺大，但是除了第一战后面的打斗都是什么玩意儿...
+完全没有旧版和前几部新剧场那种行云流水的感觉了
+看起来就是乱打一气
+
+
+
+
+*****
+
+####  银弹  
+##### 1051#       发表于 2021-8-13 22:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52361828&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-13 22:16</a>
+
+第三村车站的建造日期是12001年（现实车站里这里是2001年），结合龙骨的建造日期是11805年，eva这个时间 ...</blockquote>
+这个日期会不会是映射现实中某艘战舰？
+
+
+*****
+
+####  hypnossz86  
+##### 1052#       发表于 2021-8-13 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52358629&amp;ptid=2013091" target="_blank">Schwftyyyyy 发表于 2021-8-13 17:52</a>
+司令太幼稚了吧，漫画里的司令我觉得是真的硬汉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">半斤八两吧
+漫画居然嫉妒儿子抢走了唯的爱
+简直让人折服...
+
+不过单手开at立场挡子弹倒是看起来比终里面这个裂脸的造型帅多了...
+
+
+*****
+
+####  Anaheim  
+##### 1053#       发表于 2021-8-13 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52358205&amp;ptid=2013091" target="_blank">quadrozeke 发表于 2021-8-13 17:19</a>
+
+前三部有很厉害的特效字幕。</blockquote>
+啊这
+
+
+刚刚专门跑prime video上看了下，简中字幕翻的还可以
+
+
+发现前三部剧情都忘的七七八八了……
+
+
+*****
+
+####  桧川直巳  
+##### 1054#       发表于 2021-8-13 22:48
+
+
+其实关于真希波懂哥的坑太好填了，新剧场版是无限流剧本世界，真希波是封印能力进来做任务的，最后逆天改命把位面之子收入后宫不是很合理吗，就差一张人物卡了
+
+
+*****
+
+####  Sissii  
+##### 1055#       发表于 2021-8-13 22:53
+
+
+最后真嗣送走丽那段，背景是从第一话到终的闪回，还有最后ONE LAST KISS放完接上一首BEAUTIFUL WORLD太加分。
+
+另外，全员唯粉的设定不应该早就深入人心了？司令搞事的目的除了见到唯还能是什么呢？
+
+
+*****
+
+####  HedyL  
+##### 1056#       发表于 2021-8-13 22:59
+
+
+看了一个小时差不多才感觉正片开始，前面节奏太慢，中间香和真希波进去杀13号机这里算是正常的节奏，然后到了碇父子相残又节奏太快
+
+最后到变大人了真嗣这是根本被他妈换了个人吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wrsyd  
+##### 1057#       发表于 2021-8-13 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52361828&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-13 22:16</a>
+
+第三村车站的建造日期是12001年（现实车站里这里是2001年），结合龙骨的建造日期是11805年，eva这个时间 ...</blockquote>
+额新剧场版之前没有出现过年份么，我以为跟原版一样也是发生在21世纪呢...
+
+
+*****
+
+####  jilly0124  
+##### 1058#       发表于 2021-8-13 23:11
+
+
+这段太令人心疼了。
+
+
+明日香唯粉们应该行动起来，生个女孩打扮成小明日香的样子，再自己扮演元渡和唯抱着她。
+
+羡慕死homo shinji！
+
+
+微信图片_20210813230845.png
+(49.8 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-13 23:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/230858t0ioz8n8z97gamf8.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 1059#       发表于 2021-8-13 23:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要是司令醒悟的也太他妈快了.....
+
+在执念的驱动下一意孤行这么多年...这说醒悟就醒悟了....
+
+真嗣甚至都没说几句宽心的话
+
+
+*****
+
+####  zljzhj  
+##### 1060#       发表于 2021-8-13 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52355795&amp;ptid=2013091" target="_blank">kraoo 发表于 2021-8-13 14:38</a>
+
+建筑被摔到就滑开了都不带碎的，哪家特摄这样拍啊，说实话挺出戏的</blockquote>
+讲真我特摄看的不多，感觉要是那段真能做个特立加第一集的那个感觉也没啥可挑的，但那段真的就不好看。也是单单一句刻意为之没法开脱的。
+
+
+*****
+
+####  未来起航  
+##### 1061#       发表于 2021-8-13 23:19
+
+
+话说庵野是不是目前还没儿女<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看源堂自白无能的父亲那段觉着挺怪味儿的
+类似"真嗣天天恨爹但想着以后自个儿也要当这个爹顿时惊恐无比"的感觉是有的，但这种恐慌后面没得到(比如来自家庭的）抚慰……
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  nsevit  
+##### 1062#       发表于 2021-8-13 23:23
+
+
+看完，总算是给将近30年的系列划上了个还算可以的句号吧
+
+
+后半段整个突出一个工期没救了， 初号机和13号对打那段简直是灾难，但前面突入作战的地方就还不错。最大的不爽大概是最后的敌人全是杂鱼量产一点没有看点，明明Q里面几段打戏和开篇的巴黎都能做出来看起来很强的敌人，大概后半段实在是没力气再去设计了吧。
+
+
+打穿摄影棚布景这个设计还是挺有趣的。后面真嗣送其他人离开摄影棚的场景也很棒。
+
+
+另外总算是在最后的最后想起来要刻画一下司令的动机了，等了多少年等来的父子和解，虽然转的有点生硬但也总算把作业交上了。
+
+
+最后，剑介多好的人啊，有什么可不满的！<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  可知歌者也奈何  
+##### 1063#       发表于 2021-8-13 23:29
+
+
+只要我不看剧场版eva就没有完结
+
+
+*****
+
+####  银光猹  
+##### 1064#       发表于 2021-8-13 23:30
+
+
+问下，奇迹号脊柱那里一滩滩红色的，是什么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+说真的新剧场版的战斗复杂又难懂，一堆新名词，经费都砸这了
+
+
+                                                
