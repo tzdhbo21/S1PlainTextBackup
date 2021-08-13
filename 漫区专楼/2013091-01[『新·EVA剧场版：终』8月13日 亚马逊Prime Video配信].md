@@ -12171,3 +12171,421 @@ wiki上的evangelion词条就总结的挺清楚的
 
 
                                                 
+
+*****
+
+####  Ichthy  
+##### 996#       发表于 2021-8-13 18:35
+
+
+有哪几个字幕组打算做吗 下了还没看
+
+
+*****
+
+####  中野梓  
+##### 997#       发表于 2021-8-13 18:41
+
+
+下班了，有好点的字幕了吗
+
+
+*****
+
+####  GJRstone  
+##### 998#       发表于 2021-8-13 18:52
+
+
+ 本帖最后由 GJRstone 于 2021-8-13 18:54 编辑 
+
+在b站回看了一下破，饱受诟病的拉出一个大光蛋给改掉了
+
+
+总结了一下就是破结尾被薰打断的是近三冲，破到Q之间以加持牺牲为节点真正的三冲开始并被暂停，直到Q真嗣被骗拔枪完成了三冲、并紧接着引发四冲并被打断，终里完成了四冲、异冲、附冲？
+
+
+*****
+
+####  Temori  
+##### 999#       发表于 2021-8-13 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52359257&amp;ptid=2013091" target="_blank">GJRstone 发表于 2021-8-13 18:52</a>
+在b站回看了一下破，饱受诟病的拉出一个大光蛋给改掉了
+
+
+总结了一下就是破结尾被薰打断的是近三冲，破到Q之 ...</blockquote>
+q里面被骗的就是四冲了，但是没有完成，渚薰被爆头+真嗣的插入栓弹出之后被打断了
+
+
+*****
+
+####  hyz3203  
+##### 1000#       发表于 2021-8-13 18:59
+
+
+给个7分，胸の大きいいい女+0.5分，总分7.5
+
+
+*****
+
+####  1165wm989845  
+##### 1001#       发表于 2021-8-13 19:06
+
+
+eoe这种东西，有一部就够了
+
+
+*****
+
+####  戏言物语  
+##### 1002#       发表于 2021-8-13 19:13
+
+
+你要说片子水平，那当然eoe更好，也值得多次回味，但要问我更喜欢哪个，这次的终我更喜欢。我当然喜欢eoe，也深受震撼，但我也觉得整个片子都太偏执和异样了，这事有好有坏，我很欣赏但是终究觉得这个结局留有遗憾。终成片质量没eoe好，但是给人的感觉就是更有希望和与偏执的和解，eoe无论最后怎么样，全片绝望的感觉太多了。就像最后旧剧场版的插曲甜蜜的死亡和这次新剧场版的最后的插曲，算是绝望和希望的呼应了。
+
+这楼里大部分人对终不满，想要看到和eoe一样水平的结局，可惜的是时代不同了，观众和制作人员也是在变化了，痞子做出这样的结局算是顺应自己内心和大部分观众想法，这个结局大概也算是在父子和解下的命题作文了，痞子平稳的和eva告别了。
+
+
+*****
+
+####  skives  
+##### 1003#       发表于 2021-8-13 19:20
+
+
+我想知道那个3D大白丽 是故意做成那样的吗<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GJRstone  
+##### 1004#       发表于 2021-8-13 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52359521&amp;ptid=2013091" target="_blank">skives 发表于 2021-8-13 19:20</a>
+
+我想知道那个3D大白丽 是故意做成那样的吗</blockquote>
+那肯定是故意的，故意在影院大屏上放人皮纹理恶心人玩
+
+
+*****
+
+####  NaughtyFish  
+##### 1005#       发表于 2021-8-13 19:22
+
+
+庵野真能再拍一部eoe那样的片建议k社把赚的钱给庵野盖个精神病院吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">顺便还能收容一下粉丝
+
+
+*****
+
+####  kaion111  
+##### 1006#       发表于 2021-8-13 19:26
+
+
+庵野能不能把空白14年具体发生了啥透露出来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，靠细节脑补好累啊
+
+
+*****
+
+####  川陀  
+##### 1007#       发表于 2021-8-13 19:48
+
+
+一整篇看下来，总的来说目的还是去完结整个EVA系列，最后所有的那些之前旧剧场版、旧TV的致敬和相似画面都说明了这一点。（尤其是莉莉丝从十字架上下来那一段，应该就是eoe的原段）
+大家吐槽的有初号机和十三号机的PPT打斗，我个人认为那是故意的，毕竟只有那一段CG效果出奇地篮，至于目的，可能是为了表明是在负宇宙中的意识流？
+剧情方面还有很多没看懂的，一部分考脑补，一部分也就那样了（反正比Q看完懂得多<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">）
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  quadrozeke  
+##### 1008#       发表于 2021-8-13 19:57
+
+
+<blockquote>川陀 发表于 2021-8-13 19:48
+一整篇看下来，总的来说目的还是去完结整个EVA系列，最后所有的那些之前旧剧场版、旧TV的致敬和相似画面都 ...</blockquote>
+这一段问题不是糙是拖。
+
+
+这里就是看上去是EVA其实是人，巨型机器人互殴剥离干净只是父子打架。从假得不行的片场打进虚假的日常，尺寸比例切换到人的尺寸和比例。
+
+
+处理得再干脆点就好了，比方说根本不摔到虚假的背景墙上，一跤直接摔进小受那个卧室，熟悉的天花板，再打出来到客厅掀桌，矛也不用了直接上手，抓着头发打到布景外面staff四散而逃，撞墙穿几个场景进电车得了。
+
+
+*****
+
+####  濡鸦之羽_  
+##### 1009#       发表于 2021-8-13 20:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">全篇看完没找到真希波上位的关键，难道是翻译太烂，让调情变得太无趣？
+
+
+*****
+
+####  霧亥  
+##### 1010#       发表于 2021-8-13 20:06
+
+
+想起来一件事，明日香的那个游戏机换成伏特加就合理多了
+
+
+*****
+
+####  EmEmErEr  
+##### 1011#       发表于 2021-8-13 20:06
+
+
+最后的航拍镜头真是把审美上的sense丢尽了 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+以至于我觉得像是庵野在说“什么都好让我走出来吧”
+
+（话说我倒是觉得K社年轻人可期，比如0、13号机镜像那一段玩影像的方式让我想起Me!Me!Me!）
+
+
+*****
+
+####  lsmnbs  
+##### 1012#       发表于 2021-8-13 20:11
+
+
+请问有好一些的字幕了吗
+
+
+*****
+
+####  dingruntian2  
+##### 1013#       发表于 2021-8-13 20:17
+
+
+那个，为什么村里的丽爆炸了呀
+
+
+*****
+
+####  LLLLLuB  
+##### 1014#       发表于 2021-8-13 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52360249&amp;ptid=2013091" target="_blank">dingruntian2 发表于 2021-8-13 20:17</a>
+那个，为什么村里的丽爆炸了呀</blockquote>
+没有定期维护，超负荷了
+
+
+*****
+
+####  GJRstone  
+##### 1015#       发表于 2021-8-13 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52360249&amp;ptid=2013091" target="_blank">dingruntian2 发表于 2021-8-13 20:17</a>
+
+那个，为什么村里的丽爆炸了呀</blockquote>
+初期整备有问题，有感情所以自我补完了，和后面冬月副司令橙汁化一样，疑似是爹故意这么整备的丽恶心儿子让儿子知道自己失去老婆的痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  铅笔  
+##### 1016#       发表于 2021-8-13 20:23
+
+
+明日香与真嗣互相告白了，真好。
+
+
+算是给老tv粉发的糖吧。
+
+
+真嗣是喜欢明日香的，香党们安息吧。剑剑是个好人，后面也会照顾好她的。
+
+
+本来真嗣打算自裁的，结果被妈救了，这个处理不错呢。
+
+
+结局就是新的世界了，真嗣所希望的没有EVA大家幸福的世界。
+
+
+至于最后玛丽跟真嗣的cp，太生硬了，这两个人个性差太多了啦
+
+
+*****
+
+####  NBGI  
+##### 1017#       发表于 2021-8-13 20:25
+
+
+求指路，是看简体还是繁体
+
+
+*****
+
+####  一个陆仁贾  
+##### 1018#       发表于 2021-8-13 20:33
+
+
+初号vs十三号的战斗真的好特摄皮套啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  铅笔  
+##### 1019#       发表于 2021-8-13 20:36
+
+
+我仔细看了一下，真嗣最后跟明日香对话的时候，应该是长大后的明日香
+
+
+*****
+
+####  EmEmErEr  
+##### 1020#       发表于 2021-8-13 20:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52360249&amp;ptid=2013091" target="_blank">dingruntian2 发表于 2021-8-13 20:17</a>
+
+那个，为什么村里的丽爆炸了呀</blockquote>
+村子在结界内没有LCL
+
+
+
+
+*****
+
+####  wu336269328  
+##### 1021#       发表于 2021-8-13 20:38
+
+
+借楼求一下碇真嗣育成计划漫画。在网上找很久也没找到靠谱的下载。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  冻僵的机械  
+##### 1022#       发表于 2021-8-13 20:39
+
+
+不停的闪烁画面观感很糟糕，没什么像样的战斗... CG也太廉价了
+
+
+*****
+
+####  guardian5  
+##### 1023#       发表于 2021-8-13 20:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52356600&amp;ptid=2013091" target="_blank">Illidan 发表于 2021-8-13 15:31</a>
+
+看了2小时，还有30分钟看不下去了。
+
+
+我都30多了，不是10岁看TV时的小鬼，看不动。 ...</blockquote>
+我恰恰觉得这种片子换作10岁的我是无论如何也没办法喜欢的
+
+
+*****
+
+####  突发性哮喘病患  
+##### 1024#       发表于 2021-8-13 20:47
+
+
+这是啥啊，这不是我想看的爱娃<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  EmEmErEr  
+##### 1025#       发表于 2021-8-13 20:50
+
+
+……不是，平心而论，EVA的主旨有变过吗……不来来回回都是这些东西？
+
+
+*****
+
+####  ACFUNBILI  
+##### 1026#       发表于 2021-8-13 20:57
+
+
+看完了，很好看，下单漫画版了
+
+
+*****
+
+####  白小修01  
+##### 1027#       发表于 2021-8-13 20:59
+
+
+<blockquote>Freakyyu 发表于 2021-8-13 02:07
+官方字幕太TM拉跨了，还不如关了字幕我自己听。这版的大白丽太膈应人了……
+
+感受出来的就是庵野一种“我只 ...</blockquote>
+Jet和Spike吧，而且像jet的那个角色的配音是鹦鹉螺号的船长，不过这个在Q里已经明确neta过了，战舰出场bgm就是新鹦鹉螺的歌。
+
+
+总体质量不差，但是感觉庵野在终里没有传达新的思维过程，如果后半做的更细更有说服力，让终即使单独作为一部剧场版电影也能言之有物就好了，而不是仅仅作为一个系列的收尾。
+
+3d父子打斗那段，我认为确实是故意做的，老碇和小碇边打边换场景，有饭桌有教室有车厢，那个“外景”像是特摄拍摄场。
+
+大白丽是真膈应。
+
+
+*****
+
+####  GJRstone  
+##### 1028#       发表于 2021-8-13 21:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52360426&amp;ptid=2013091" target="_blank">NBGI 发表于 2021-8-13 20:25</a>
+求指路，是看简体还是繁体</blockquote>
+亚马逊简体疑似日译英译中，繁体是日译中，能等的话还是等字幕组出片
+
+
+*****
+
+####  fkinway  
+##### 1029#       发表于 2021-8-13 21:14
+
+
+原来真的就叫剑剑<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+我一直以为是网友yygq出来的称呼
+
+
+*****
+
+####  midearth  
+##### 1030#       发表于 2021-8-13 21:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52361109&amp;ptid=2013091" target="_blank">fkinway 发表于 2021-8-13 21:14</a>
+原来真的就叫剑剑
+
+我一直以为是网友yygq出来的称呼</blockquote>
++1
+
+
+*****
+
+####  Carta_Issue  
+##### 1031#       发表于 2021-8-13 21:33
+
+
+这个第三村到底在哪里？
+
+天上看得到那个黑之月，又说北面湖区废墟是旧NERV总部所在地
+
+那Q里面闹得这么爽的地方不就在附近吗？
+
+当时都在中央教廷搞四冲了，这里一点都没波及到？！<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+                                                

@@ -16254,3 +16254,81 @@ https://www.bilibili.com/video/BV1xA411w7Zi/
 
 
                                                 
+
+*****
+
+####  alucardcz  
+##### 82239#       发表于 2021-8-13 18:33
+
+
+话说哪个狂or骑带满破满级宝石不点任何技能 能一宝具打14万？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82240#       发表于 2021-8-13 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52359058&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 18:33</a>
+话说哪个狂or骑带满破满级宝石不点任何技能 能一宝具打14万？</blockquote>
+如果你是说qp本的话，5宝狂信长稳定一炮秒
+因为有神性特攻
+
+2宝拉二开了宝具本也只能打11w
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82241#       发表于 2021-8-13 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52359148&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-13 18:41</a>
+
+如果你是说qp本的话，5宝狂信长稳定一炮秒
+
+因为有神性特攻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好没有 拿2宝100级满金副副的黑狗试了试 12万 好气啊
+
+
+*****
+
+####  xiongxingyu  
+##### 82242#       发表于 2021-8-13 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52359154&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 18:41</a>
+
+你好没有 拿2宝100级满金副副的黑狗试了试 12万 好气啊</blockquote>
+90级4宝也打不死，还以为能解放双手了，还是老老实实给黑骑呆刷羁绊，好歹点个1技能就随便秒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bikalu  
+##### 82243#       发表于 2021-8-13 20:06
+
+
+我现在刷本都用模拟器录操作刷了，可以一次刷14次钱本还不会点错技能，什么换人宝具时间长操作量大都无所谓了。
+
+用的雷电模拟器还支持60帧，习惯真回不去手机的30帧了。
+
+
+*****
+
+####  LOLITA  
+##### 82244#       发表于 2021-8-13 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52354192&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-13 12:40</a>
+
+https://www.bilibili.com/video/BV1xA411w7Zi/
+
+
+你骗我 萌新录了个视频 这伤害吊打同样5加成不换人的王 ...</blockquote>
+点赞投币了，很有参考价值
+
+
+                                                 

@@ -16537,3 +16537,215 @@ Kr组发挥神勇啊，夜见妹妹逆转再见安了
 
 
                                                  
+
+*****
+
+####  rzrbtk  
+##### 5839#       发表于 2021-8-13 19:27
+
+
+呃呃，我很希望老板娘赢，但这个对决阵容我感觉，可能要收获liver生涯最高踩了，饶了小姑娘吧
+
+
+*****
+
+####  IDIDIDID  
+##### 5840#       发表于 2021-8-13 19:29
+
+
+😅？
+<img src="https://p.sda1.dev/2/bd8d2563b98218d7099c89ae30496396/IMG_CMP_139428957.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 5841#       发表于 2021-8-13 19:44
+
+
+能赢但啥事没有就好了。粉丝暴力坏文明。
+
+
+*****
+
+####  FCCHua  
+##### 5842#       发表于 2021-8-13 20:02
+
+
+ 本帖最后由 FCCHua 于 2021-8-13 20:13 编辑 
+
+叶子...你在做什么啊叶子...
+看到铲子猜真白准没错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+今晚会唱吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 5843#       发表于 2021-8-13 20:05
+
+
+居然还有铲弟<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这两人有交集吗
+
+
+*****
+
+####  hulaoda007  
+##### 5844#       发表于 2021-8-13 20:07
+
+
+叶子面捕好像不错。
+
+
+*****
+
+####  alcoholic1000  
+##### 5845#       发表于 2021-8-13 20:09
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-13 21:12 编辑 
+
+会顺着saw1的剧情走吗<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/13/201100qrgu0iuirbigeigb.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #赤羽葉子3D 】閲覧注意ではない配信.png</strong> (148.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 20:11 上传
+
+
+葉子发表重要讲话：烤肉好吃<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/13/201943wpp9ytzpbxxubp9n.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #赤羽葉子3D 】閲覧注意ではない配信-2.png</strong> (151.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 20:19 上传
+
+
+！！！！
+
+轻音部，堂堂复活！
+
+<img src="https://img.saraba1st.com/forum/202108/13/204603l6r66ae6zfehe8yf.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #赤羽葉子3D 】閲覧注意ではない配信-7.png</strong> (113.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 20:46 上传
+
+
+超节能的live之后，是解散RTA，这就是解散GIG的速
+
+<img src="https://img.saraba1st.com/forum/202108/13/202853wxx6rqnbqacsarbr.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #赤羽葉子3D 】閲覧注意ではない配信-4.png</strong> (213.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 20:28 上传
+
+
+论下班，我们gamers是第一名<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202108/13/203752tg769gll4b69l6g4.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #赤羽葉子3D 】閲覧注意ではない配信-5.png</strong> (159.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 20:37 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/203752qu3gb838a8uodazq.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #赤羽葉子3D 】閲覧注意ではない配信-6.png</strong> (122.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 20:37 上传
+
+
+只有新婚同居这一个解释了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer"> 
+
+这就下班了？
+
+
+Syl，绿仙发的解散GIG彩排照
+
+<img src="https://img.saraba1st.com/forum/202108/13/210140k5f0m00mz5zfa20z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>これはリハの写真！解散！-1.jpg</strong> (334.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 21:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/13/210140rdseb5jxhjpcrhma.jpg" referrerpolicy="no-referrer">
+
+
+<strong>これはリハの写真！解散！-2.jpg</strong> (444.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 21:01 上传
+
+
+ssk
+
+<img src="https://img.saraba1st.com/forum/202108/13/211226i936o183r8ozj8ot.jpg" referrerpolicy="no-referrer">
+
+
+<strong>解散ッ！！！！！！.jpg</strong> (122.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-13 21:12 上传
+
+
+*****
+
+####  winda  
+##### 5846#       发表于 2021-8-13 20:15
+
+
+迷你裙下面灯笼裤<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这组合我绝不会承认的
+
+
+*****
+
+####  FCCHua  
+##### 5847#       发表于 2021-8-13 20:20
+
+
+ 本帖最后由 FCCHua 于 2021-8-13 20:42 编辑 
+
+“轻音部”来了！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+同期贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+和真白一样好快的结束啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+九点前熟悉的本社无人直播断档期
+
+
+*****
+
+####  rzrbtk  
+##### 5848#       发表于 2021-8-13 20:46
+
+
+就设定图来说叶子和郡郡的派派一样大吧<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+                                                 
