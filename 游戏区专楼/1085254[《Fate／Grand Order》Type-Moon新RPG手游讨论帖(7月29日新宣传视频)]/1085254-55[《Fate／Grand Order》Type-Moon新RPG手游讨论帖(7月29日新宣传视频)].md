@@ -16511,3 +16511,29 @@ c5441ae8c2a344b00c7899de58f08077.jpg
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 82254#       发表于 2021-8-14 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365232&amp;ptid=1085254" target="_blank">rollingusagi 发表于 2021-8-14 10:16</a>
+奥博龙的泰坦尼亚就是布兰卡吧，完美符合能无条件的去包容他爱他这一点，但是碍于自身性质这货绝对不会承认 ...</blockquote>
+这个看情况，至少从2.6来说，他挂在嘴上的缇坦妮娅是c呆，泛人类史鬼知道是啥样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 82255#       发表于 2021-8-14 12:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365748&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-14 11:12</a>
+
+奥伯龙的泰坦妮亚就是泛人类史中那个只能存在于故事里的泰坦妮亚，可以参考中世纪那堆艺术家心中的理想化 ...</blockquote>
+用幻灵合体应该能行
+
+
+                                                 

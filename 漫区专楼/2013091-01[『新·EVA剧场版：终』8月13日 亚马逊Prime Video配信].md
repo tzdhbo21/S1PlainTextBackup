@@ -14889,3 +14889,115 @@ seele跟琔的动机跟tv版有区别吗？
 
 
                                                
+
+*****
+
+####  liwangli1983  
+##### 1209#       发表于 2021-8-14 12:44
+
+
+故事是完结了，但不准备把《破》和《Q》中间那部分补一下吗
+
+
+*****
+
+####  蛇头  
+##### 1210#       发表于 2021-8-14 12:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366573&amp;ptid=2013091" target="_blank">重巡羊舰 发表于 2021-8-14 12:38</a>
+他这分析很不错，只是不明白，第一是如果mark6引发的三冲，那船上那么多人怪真嗣有什么道理，初号机的三冲 ...</blockquote>
+对，我也觉得，既然十三年里发生了那么多，那为啥还要怪一个虽然开启近三冲但阻止过使徒开始三冲的真嗣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  6x6z6w  
+##### 1211#       发表于 2021-8-14 12:55
+
+
+ 本帖最后由 6x6z6w 于 2021-8-14 12:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366573&amp;ptid=2013091" target="_blank">重巡羊舰 发表于 2021-8-14 12:38</a>
+
+他这分析很不错，只是不明白，第一是如果mark6引发的三冲，那船上那么多人怪真嗣有什么道理，初号机的三冲 ...</blockquote>
+唯一能想得到的就是近三冲把第三新东京市还有周边地区都摧毁了，正好铃原家还有部分WILLE成员的家人都被波及其中，看破最后的特写，近三冲的规模也不算小了
+
+
+*****
+
+####  重巡羊舰  
+##### 1212#       发表于 2021-8-14 13:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366735&amp;ptid=2013091" target="_blank">6x6z6w 发表于 2021-8-14 12:55</a>
+
+唯一能想得到的就是近三冲把第三新东京市还有周边地区都摧毁了，正好铃原家还有部分WILLE成员的家人都被波 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MASKA-1  
+##### 1213#       发表于 2021-8-14 13:16
+
+
+感觉这次就泥潭评价偏低啊，隔壁nga一个爹味太重帖子，前三楼直接“格局小了”“屁事真多”“你懂个屁”三连，吓得我不敢说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  霧谷藤乃  
+##### 1214#       发表于 2021-8-14 13:20
+
+
+看的过程很煎熬，印象中Q都没有像终一样看一段就得缓缓的情况
+
+大战期间有些镜头场面，让我想起来当年用windows自带的播放器听音乐的那个画面，想想播放器的还要好点
+
+父子对局那场3D，还不如直接搭个棚做个皮套对打呢，这搞得两边的优点全摒弃，观感真的是差劲
+
+
+*****
+
+####  Redis  
+##### 1215#       发表于 2021-8-14 13:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366932&amp;ptid=2013091" target="_blank">MASKA-1 发表于 2021-8-14 13:16</a>
+
+感觉这次就泥潭评价偏低啊，隔壁nga一个爹味太重帖子，前三楼直接“格局小了”“屁事真多”“你懂个屁”三 ...</blockquote>
+泥潭早就完成了e黑的清理工作，十多年前就斗过好多次了，真正yygq的人都被清理出去了
+
+
+现在的风评只是e厨的内斗而已
+
+
+因为对互相的立场没有怀疑，反而讨论可以更自由，不用被立场一棍子打死
+
+
+*****
+
+####  6x6z6w  
+##### 1216#       发表于 2021-8-14 13:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366725&amp;ptid=2013091" target="_blank">蛇头 发表于 2021-8-14 12:54</a>
+
+对，我也觉得，既然十三年里发生了那么多，那为啥还要怪一个虽然开启近三冲但阻止过使徒开始三冲的真嗣[f ...</blockquote>
+还有一个原因我觉得就是真嗣身为eva驾驶员，随时都可以开eva搞出事情，所以务必要被当成定时炸弹对待，玛丽和明日香两个没搞出过啥事的驾驶员在终里还得被关在安着炸弹的屋子里严格看守，可见在WILLE成员的眼里她们都没有人权，更何况引发过近三冲的真嗣了，恨可能说不上，但显然Q里WILLE对待真嗣的负面态度因为那些舰桥成员被放大化了
+
+
+*****
+
+####  406129465  
+##### 1217#       发表于 2021-8-14 13:27
+
+
+全网除了s1都是好评居多啊，终也确实是为eva这部作品盖上棺材板走向结局了，只是确实说教味有点重，这边很多人接受不了。
+
+
+                                                 

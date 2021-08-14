@@ -9816,3 +9816,61 @@ image.png
 
 
                                                  
+
+*****
+
+####  矢量路比  
+##### 773#         楼主| 发表于 2021-8-14 12:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365139&amp;ptid=2010295" target="_blank">你又开始了？ 发表于 2021-8-14 10:07</a>
+
+想殴打楼主，天天搬这吊事把帖子顶上来，害我反复确认自己是猴</blockquote>
+关我啥事……
+
+
+*****
+
+####  maiyunfei  
+##### 774#       发表于 2021-8-14 12:46
+
+
+抛开烂盒自己明里暗里的蹭活，这事最搞笑就是，两件毫不相干的事，只要你想找出联系，总能找到
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  920619lqy  
+##### 775#       发表于 2021-8-14 12:50
+
+
+<blockquote>DTCPSS 发表于 2021-8-13 19:29
+They played us like a damn fiddle! 
+
+我很好奇全网第一个提出 Hasan 小岛秀夫说并且煽风点火的是不 ...</blockquote>
+别的不知道，google翻译那个是可以通过人为操作污染的
+
+
+*****
+
+####  Metropolis  
+##### 776#       发表于 2021-8-14 12:53
+
+
+最搞笑的是口口声声说是引擎问题导致画面出错而需要拖延修复，从开头就信誓旦旦说做app是因为预告是实机渲染，最后出来的5秒视频下面小字却写着录像。
+
+
+*****
+
+####  日日日日日野  
+##### 777#       发表于 2021-8-14 13:18
+
+
+<blockquote>Metropolis 发表于 2021-8-14 12:53
+最搞笑的是口口声声说是引擎问题导致画面出错而需要拖延修复，从开头就信誓旦旦说做app是因为预告是实机渲 ...</blockquote>
+因为第一个放的从来都只说是Teaser啊……
+
+
+                                                 
