@@ -16621,3 +16621,95 @@ CP我反正看下来是觉得谁都没成，之前漫区吵成那样，结果好
 
 
                                                 
+
+*****
+
+####  quadrozeke  
+##### 1326#       发表于 2021-8-15 01:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52376186&amp;ptid=2013091" target="_blank">password 发表于 2021-8-15 01:23</a>
+
+看完我最喜欢的人物是樱，几个镜头就有点老EVA人物的扭曲味了
+
+
+终比起eoe，最不舒服的是不如eoe那样能吊起 ...</blockquote>
+当年看NERV被屠，光看门口站岗的小兵被割喉就很难受，不用说后面非战斗人员直接被突突这种刻意渲染的部分了。
+
+
+新剧场版四部整体上都在削弱这种残酷感，虽然要跟着EVA既定的剧本走，但所有这些玩意全淡化了。序破多少有些掺水，Q终已经稀释到不能再稀释了。
+
+
+说实话，还在看EVA的观众也就能对以前有的角色投入感情，新角色脸熟都混不到，随便吧。
+
+
+*****
+
+####  imbadza  
+##### 1327#       发表于 2021-8-15 01:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一号机和十三号机特摄打架的部分也太蠢了
+
+
+*****
+
+####  戏言学者  
+##### 1328#       发表于 2021-8-15 01:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52376154&amp;ptid=2013091" target="_blank">ChrisSnake 发表于 2021-8-15 01:19</a>
+旧版的吻是经典一幕 各种复杂的感情 最后化成一吻 没有言语 却能感受到一切
+
+
+新版只有没按炸弹那一下咬牙 ...</blockquote>
+我觉得很多剧情也只有当年那个时代能做出来。哪怕同一个人同一个导演，也再难重现当年的心境，时代真的是不可复制的。
+
+
+*****
+
+####  間宫卓司  
+##### 1329#       发表于 2021-8-15 02:06
+
+
++1.01有些镜头还是满拉胯的，不知道BD还会不会再修
+
+
+*****
+
+####  茴香蚪的马甲  
+##### 1330#       发表于 2021-8-15 02:09
+
+
+ 本帖最后由 茴香蚪的马甲 于 2021-8-15 02:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364102&amp;ptid=2013091" target="_blank">银弹 发表于 2021-8-14 05:04</a>
+
+群里看到的说法，长发丽抱的娃娃身上写着燕，所以记忆应该是共享了。式波系列最后剩下两个，最后救出来的成 ...</blockquote>
+那假如按照这种说法的话，黑丽以及被吞的明日香实际就是死透了，只有记忆由其他个体继承了？“黑丽死透了”这一点应该大多数人都会同意，主要还是明日香这一块。
+
+
+*****
+
+####  quadrozeke  
+##### 1331#       发表于 2021-8-15 02:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52376432&amp;ptid=2013091" target="_blank">茴香蚪的马甲 发表于 2021-8-15 02:09</a>
+
+那假如按照这种说法的话，黑丽以及被吞的明日香实际就是死透了，只有记忆由其他个体继承了？“黑丽死透了 ...</blockquote>
+ 就是克隆出的不同人格也不是不同灵魂，死后不管几个个体，魂归一处。
+
+
+*****
+
+####  新月祥  
+##### 1332#       发表于 2021-8-15 02:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52376030&amp;ptid=2013091" target="_blank">jinxi42 发表于 2021-8-15 01:04</a>
+
+粉发妹戳中我XP了，想给她喝我过滤过的尿</blockquote>
+老兄，你的XP真的好奇怪啊，过滤过的尿这种没有灵魂的东西你也拿来说，原汁原味才好啊
+
+
+                                                 

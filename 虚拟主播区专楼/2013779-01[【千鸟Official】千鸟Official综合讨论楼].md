@@ -2646,3 +2646,34 @@ co宝又是早班，虽然不是6点</blockquote>
 
 
                                                  
+
+*****
+
+####  tankai  
+##### 235#       发表于 2021-8-15 02:06
+
+
+大概是她认为自己正经东西没人在意，都是想看她整活怪话的。8.1后人气一直20w+。说明吸A到头了。队友虽然拉是拉了，但MMR多，混的舒服。
+
+
+*****
+
+####  OldGlory  
+##### 236#       发表于 2021-8-15 02:15
+
+
+又是大过滤器是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">已经看过了
+
+
+*****
+
+####  人民de救星  
+##### 237#       发表于 2021-8-15 02:30
+
+
+完全没有达到预定直播效果和观众热烈的反应之间的反差让文阿姨自我怀疑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
