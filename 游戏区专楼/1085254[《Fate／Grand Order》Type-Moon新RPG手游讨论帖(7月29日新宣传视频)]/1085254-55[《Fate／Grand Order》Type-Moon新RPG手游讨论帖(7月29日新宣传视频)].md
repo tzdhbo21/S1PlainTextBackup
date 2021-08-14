@@ -16937,3 +16937,111 @@ T3 打手50充+狐狸50充
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 82285#       发表于 2021-8-14 18:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这波刷羁绊 居然把我所有衣服都刷满了。。。想想平时无限池也就20-30池结束 以为全衣服满级少说得明年
+
+
+*****
+
+####  上坂莲华  
+##### 82286#       发表于 2021-8-14 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369685&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 17:56</a>
+
+有一说一 现在真的还有梅林上场的时候吗（
+
+不过这的确有点玩梗过度  </blockquote>
+NGA现在已经有日服萌新只有梅林孔明跟奥伯龙三个拐的
+
+梅林奥伯龙双厨就想两个一起上美其名曰刷羁绊的
+
+抢柱子就想带奥伯龙跟梅林还不想换人美其名曰刷羁绊的
+
+抢柱子就想带双奥伯龙和梅林美其名曰刷羁绊的
+
+以及虽然我确实不用梅林但是你DW就是不应该教我玩游戏的人了
+
+不过估计本质都是最后一个，我真金白银氪的梅林你凭什么要限制
+
+只能说千里眼反噬太厉害，国服那会梅林吹太高了持有量氪金量都爆炸的后果，估计可能蘑菇都没想到这层<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82287#       发表于 2021-8-14 19:08
+
+
+ 本帖最后由 alucardcz 于 2021-8-14 19:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52370406&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-8-14 19:07</a>
+
+NGA现在已经有日服萌新只有梅林孔明跟奥伯龙三个拐的
+
+梅林奥伯龙双厨就想两个一起上美其名曰刷羁绊的
+
+抢 ...</blockquote>
+抢柱子是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+为什么会有萌新有梅林跟奥伯龙？ 不应该是孔明（自选）+a狐+奥博龙吗   梅上次up是什么时候了还能叫萌新？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 82288#       发表于 2021-8-14 19:15
+
+
+ 本帖最后由 上坂莲华 于 2021-8-14 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52370419&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 19:08</a>
+
+抢柱子是什么意思
+
+为什么会有萌新有梅林跟奥伯龙？ 不应该是孔明（自选）+a狐+奥博龙吗   梅上次up ...</blockquote>
+事件簿邪马台那两次的全服刷刷刷啊
+
+问题是老玩家谁还缺这点东西，邪马台那次已经被突到脸上了最后yls打响指干掉了，甚至还有速度快的人截了被干掉的图
+
+<img src="https://img.saraba1st.com/forum/202108/14/191758rvv1ha5w3w0sawsh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>f0Q5-cjacK2eT3cSsg-fz.jpg</strong> (89.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 19:17 上传
+
+
+国服FA妇科直接阴兵刮痧匀速刮死了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82289#       发表于 2021-8-14 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52370478&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-8-14 19:15</a>
+
+事件簿邪马台那两次的全服刷刷刷啊
+
+问题是老玩家谁还缺这点东西，邪马台那次差点让巨人突到脸上，国服FA ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要用抢字 我都懒得打
+
+
+*****
+
+####  cckuku  
+##### 82290#       发表于 2021-8-14 19:19
+
+
+dw新年出个旧梅吧，出个旧梅和梅林搞个高难长线本的配队还能洗一下ob龙这个debuff。不然这个debuff出的一点意义都没有，就是个纯为了让蘑菇高兴而浪费人力制作的脑瘫设计<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+                                                 

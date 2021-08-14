@@ -15548,3 +15548,53 @@ Q啊，是个情绪主导的作品。什么一觉睡醒十四年过去了，什�
 
 
                                                 
+
+*****
+
+####  FMIC  
+##### 1262#       发表于 2021-8-14 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369682&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-14 17:56</a>
+大概率是没可能，只不过q的剧本长度绝对是有问题的。
+
+现在看q要是2小时，塞30分钟速切回忆填下坑，终也 ...</blockquote>
+原本从流浪-第三村-黑丽消失，都可能是q的后四分之一内容，
+应该是q的制作中被决定去掉挪到终里了，
+保证了q一部分情绪上的合理结构，但是对终构成的挤压太大了
+
+
+*****
+
+####  mumubear  
+##### 1263#       发表于 2021-8-14 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365447&amp;ptid=2013091" target="_blank">6x6z6w 发表于 2021-8-14 10:39</a>
+个人感觉白丽面孔故意被搞得很真人化，就是为了做出特摄那种硬生生拼凑起来的违和感 ...</blockquote>
+不觉得像人，反而有种石膏像的感觉。。。
+
+如果没有红眼睛就更像了。。。
+
+
+*****
+
+####  cen  
+##### 1264#       发表于 2021-8-14 18:49
+
+
+那14年的内容导演访谈里说过，大概是“那十四年本来是Q，但如果拍的话，那碇真嗣全篇都不能出场，主角全篇不出场是不行滴，所以就砍了。”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nihse  
+##### 1265#       发表于 2021-8-14 19:13
+
+
+有没有好点的字幕啊，官方的还不如自己生啃<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 
