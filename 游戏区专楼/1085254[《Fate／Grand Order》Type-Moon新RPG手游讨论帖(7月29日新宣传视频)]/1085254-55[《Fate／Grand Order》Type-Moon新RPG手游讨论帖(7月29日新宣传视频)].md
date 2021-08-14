@@ -16698,3 +16698,193 @@ QP本试的 一样的配置王姐大概在14w c狗黑杯13w左右</blockquote>
 
 
                                                  
+
+*****
+
+####  eyeego  
+##### 82270#       发表于 2021-8-14 15:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368069&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-14 15:17</a>
+这个游戏又不存在平衡，谈什么代价</blockquote>
+CBA跟C呆实装以后的叶式平衡不要太明显 各种砍你一刀防三连 尤其是绿卡时代<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82271#       发表于 2021-8-14 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368069&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-14 15:17</a>
+
+这个游戏又不存在平衡，谈什么代价</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乱说 新的蓝绿从者那刀法不要太准   这就是平衡啊
+
+
+*****
+
+####  eyeego  
+##### 82272#       发表于 2021-8-14 15:45
+
+
+ 本帖最后由 eyeego 于 2021-8-14 15:47 编辑 
+
+叶式刀法最精准的两个受害者应该就是尻枪跟龙枪了 还都是圣诞落地的常驻枪阶 都被同色的4星值班<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82273#       发表于 2021-8-14 15:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367450&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 14:09</a>
+
+不是吧  王姐5宝这么菜的？</blockquote>
+C狗伤害是两次3技能和三次宝具红魔放叠出来的啊，第三面更是吃到奥伯龙的宝具威力放大
+
+如果单论伤害，走大英雄/裁缝自爆路线，让王姐黑杯爆破那伤害不算低
+
+
+*****
+
+####  alucardcz  
+##### 82274#       发表于 2021-8-14 15:53
+
+
+ 本帖最后由 alucardcz 于 2021-8-14 15:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368332&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-14 15:46</a>
+
+C狗伤害是两次3技能和三次宝具红魔放叠出来的啊，第三面更是吃到奥伯龙的宝具威力放大
+
+如果单论伤害，走 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是王姐同样是5加成啊  这没办法啊  就好比绿蓝  绿必须宝石启动 
+
+
+还有王姐啊。。。技能好容易按错 我前面试了几把按错了好几次
+
+
+*****
+
+####  exiaexa  
+##### 82275#       发表于 2021-8-14 16:00
+
+
+ 本帖最后由 exiaexa 于 2021-8-14 16:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368394&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 15:53</a>
+
+可是王姐同样是5加成啊  这没办法啊  就好比绿蓝  绿必须宝石启动</blockquote>
+你说啥呢，红卡50充都可以6加成的啊
+
+
+如果用黑杯5加成，王姐最后是单目标无特攻50w
+
+如果不用黑杯就是6加成单目标无特攻23w
+
+
+按键的话，奥伯龙、双狐狸按键是一样的王姐自己按3个+换人，C狗是按4个
+
+就多了个换人动画和大英雄/裁缝退场动画
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82276#       发表于 2021-8-14 16:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368438&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-14 16:00</a>
+
+你说啥呢，红卡50充都可以6加成的啊
+
+
+如果用黑杯5加成，王姐最后是单目标无特攻50w</blockquote>
+首先我说的是不换人
+
+
+然后换人怎么6加成？50 50 20  （20+50） 50 50 不是少10吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82277#       发表于 2021-8-14 16:08
+
+
+ 本帖最后由 exiaexa 于 2021-8-14 16:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368492&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 16:05</a>
+
+首先我说的是不换人
+
+
+然后换人怎么6加成？50 50 20  （20+50） 50 50 不是少10吗？ ...</blockquote>
+开局是
+
+50充+奥伯龙+阿拉什/裁缝
+
+
+T1 奥伯龙给阿拉什，50充选手开自充（王姐的话不用开2），阿拉什退场换狐狸
+
+T2 单狐狸50充，换人
+
+T3 打手50充+狐狸50充
+
+
+我说换人是因为，一开始我以为按键会多很多
+
+结果发现就多了个退场和换人动画
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82278#       发表于 2021-8-14 16:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368513&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-14 16:08</a>
+
+开局是
+
+50充+奥伯龙+阿拉什/裁缝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这 你用裁缝不是狂娜都能算6加成了  那还有王姐什么事情
+
+
+*****
+
+####  exiaexa  
+##### 82279#       发表于 2021-8-14 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368556&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 16:11</a>
+
+啊这 你用裁缝不是狂娜都能算6加成了  那还有王姐什么事情</blockquote>
+当然是看对面血量啊
+
+芭娜娜要多按一个自己的30和阿拉什的一个30，四舍五入就是一个亿
+
+
+放大到C狗这边，那就是多了两个亿啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82280#       发表于 2021-8-14 16:17
+
+
+ 本帖最后由 alucardcz 于 2021-8-14 16:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368595&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-14 16:16</a>
+
+当然是看对面血量啊
+
+芭娜娜要多按一个自己的30和阿拉什的一个30，四舍五入就是一个亿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新我还是能不换人就不换人 能不用退场就不用退场角色
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这红卡6加成换人队其实意义有点小  这点的多就算了还有顺序点错直接全麻
+
+
+                                                 

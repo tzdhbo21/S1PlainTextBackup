@@ -15227,3 +15227,89 @@ eoe起码还大战量产机，新版配个激昂的音乐然后一下被13号机
 
 
                                                 
+
+*****
+
+####  kangkangsama  
+##### 1236#       发表于 2021-8-14 15:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365315&amp;ptid=2013091" target="_blank">Temori 发表于 2021-8-14 10:24</a>
+
+没有要争这个的意思，但印象中玛丽对真嗣的称呼是不是没有去掉过君？</blockquote>
+恩 最后也是シンジ君
+
+
+*****
+
+####  saverok  
+##### 1237#       发表于 2021-8-14 15:37
+
+
+回过头来看这24年的eva 其实故事内核很简单，简单到搁现在都有点简陋了
+
+
+当年一通宗教话术加使徒设定，正好契合了二次螈高峰期而已
+
+
+*****
+
+####  酷乐  
+##### 1238#       发表于 2021-8-14 15:39
+
+
+EVA话题被夹总用来给张哲瀚压热搜……
+
+
+*****
+
+####  hac0101  
+##### 1239#       发表于 2021-8-14 15:41
+
+
+看完了，感觉没必要把唯想那么诡异。
+
+这还是那个蠢男人利用蠢组织把全世界都卷进来然后屁事没干成，连老婆在自己身边都没发现的蠢故事。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渺晓  
+##### 1240#       发表于 2021-8-14 15:42
+
+
+不知道为啥都说告别少年告别青春之作，q虽然不说人话但还是让人保持了一定的期待感，看完终作为中年人唯一的感想是“就这？”打戏太差了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  550616  
+##### 1241#       发表于 2021-8-14 15:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368140&amp;ptid=2013091" target="_blank">kyo1165 发表于 2021-8-14 15:25</a>
+
+eoe起码还大战量产机，新版配个激昂的音乐然后一下被13号机秒了，这编剧绝对有病。 ...</blockquote>
+尤其是最后被小受发卡救了
+
+
+*****
+
+####  MONSTERS  
+##### 1242#       发表于 2021-8-14 16:11
+
+
+ 本帖最后由 MONSTERS 于 2021-8-14 16:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368291&amp;ptid=2013091" target="_blank">hac0101 发表于 2021-8-14 15:41</a>
+
+看完了，感觉没必要把唯想那么诡异。
+
+这还是那个蠢男人利用蠢组织把全世界都卷进来然后屁事没干成，连老婆 ...</blockquote>
+
+细想还真是，老婆近在天边结果整天觉得弄大白丽玩融合才能见面......这次彻底不做人还把全世界弄成废土也依然没变，无非是莉莉丝变黑色莉莉丝、大白丽变成3D石膏大白丽
+
+
+以前PS2游戏里冬月IF线还见过唯并且自行补完（终里看完照片变橙汁感觉也是致敬这段），一对比显得司令更巨婴了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

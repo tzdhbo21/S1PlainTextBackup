@@ -17639,3 +17639,95 @@ B组是真的好看
 
 
                                                  
+
+*****
+
+####  越动天下  
+##### 5927#       发表于 2021-8-14 15:25
+
+
+支持率只有百分之3的帝华晋级<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rzrbtk  
+##### 5928#       发表于 2021-8-14 15:26
+
+
+既然如此那就西西二连冠算了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">！
+
+
+*****
+
+####  Ketestrait  
+##### 5929#       发表于 2021-8-14 15:29
+
+
+从个人角度讲实在是不想看西西这种张口就是靠大家指示了的”gamer”连冠下去了
+
+
+*****
+
+####  winda  
+##### 5930#       发表于 2021-8-14 15:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">西西从抽卡开始就是“天命”，本届有自己想法的老板娘和葛叶都直接跑后四位去了
+
+
+*****
+
+####  LilighT  
+##### 5931#       发表于 2021-8-14 15:33
+
+
+只有西西一直连冠才能提醒虹甲是建立在一个粪运游的基础上的
+
+
+*****
+
+####  越动天下  
+##### 5932#       发表于 2021-8-14 15:34
+
+
+老板娘和葛叶是真的没想到无了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 5933#       发表于 2021-8-14 15:35
+
+
+看来只有我想看大福卫冕<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  北山玖公  
+##### 5934#       发表于 2021-8-14 16:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">粪运游会给人一种努力无法反抗的憋屈感，而吊打天命之子一直是爽点。
+
+
+*****
+
+####  asdhai  
+##### 5935#       发表于 2021-8-14 16:27
+
+
+决赛赛制是啥来着
+
+
+*****
+
+####  霜浪  
+##### 5936#       发表于 2021-8-14 16:28
+
+
+最后西西干趴虹男就行了，不知道今天点踩的火畜们啥心态
+
+
+                                                 
