@@ -16440,3 +16440,23 @@ c5441ae8c2a344b00c7899de58f08077.jpg
 
 
                                                  
+
+*****
+
+####  xiongxingyu  
+##### 82248#       发表于 2021-8-14 09:48
+
+
+布兰卡&gt;奥伯龙&gt;泰坦妮亚，好家伙，扭起来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">继金色相簿之后，又有妖精相簿了吗？
+
+
+*****
+
+####  zhc016  
+##### 82249#       发表于 2021-8-14 09:55
+
+
+怎么还是抽不到奥伯隆啊，要氪金了吗<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+                                                 

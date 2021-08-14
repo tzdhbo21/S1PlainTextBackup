@@ -9668,3 +9668,44 @@ app画面如上，UI还挺精美的
 
 
                                                  
+
+*****
+
+####  东英零  
+##### 760#       发表于 2021-8-14 09:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">希望有有能人士对这个巨魔进行真人快打
+
+
+*****
+
+####  Marsoy  
+##### 761#       发表于 2021-8-14 09:27
+
+
+哈哈哈哈，果然是骗人的玩意
+
+
+*****
+
+####  DTCPSS  
+##### 762#       发表于 2021-8-14 09:29
+
+
+They played us like a damn fiddle! <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+我很好奇全网第一个提出 Hasan 小岛秀夫说并且煽风点火的是不是 Blue Box 自己
+
+
+*****
+
+####  Eadric  
+##### 763#       发表于 2021-8-14 09:45
+
+
+绷不住了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

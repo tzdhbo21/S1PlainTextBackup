@@ -14103,3 +14103,158 @@ DSS项圈某种程度上代表的真嗣生活在eva世界中或主动或被动�
 
 
                                                 
+
+*****
+
+####  久保由利香  
+##### 1152#       发表于 2021-8-14 09:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364743&amp;ptid=2013091" target="_blank">hypnossz86 发表于 2021-8-14 09:16</a>
+所以丽的本体是碇唯
+那么新剧场的明日香的本体到哪里去了</blockquote>
+十三号机两个插入栓，一个渚薰一个明日香(被使徒攻击那个)
+式波和绫波差不多，都是专门制造出来的适格者
+
+
+*****
+
+####  Temori  
+##### 1153#       发表于 2021-8-14 09:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364735&amp;ptid=2013091" target="_blank">kangkangsama 发表于 2021-8-14 09:15</a>
+发现玛丽香意外的有受众，仔细想了想的确很带感。14年间真正陪香香最多的的确是玛丽了。甚至看到有脑洞式波 ...</blockquote>
+玛丽很疼香的，别看她平常那样，两次香因为使徒的诅咒说丧气话的时候，玛丽都及时送上了安慰：在-120min（小册子里的特典漫画）里，是“我们跟李林们相比活在更长的春天里”，在终里，则是“这是你身为人类的铁证”。香被十三号机吞了更是直接整个人急了。
+尽管我也觉得真希波加得尴尬，但这两处互动是真的很喜欢。
+
+
+*****
+
+####  Carta_Issue  
+##### 1154#       发表于 2021-8-14 09:31
+
+
+看终的战斗吐槽，现在NERV来来去去就司令和冬月两个人，做事的貌似还只有老爷爷冬月
+
+他们哪里有那么大的财力人力和生产力建造这么多舰船和量产EVA啊？巴黎还有陆军用EVA
+
+这么猛的实力，14年前就能群殴使徒了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 1155#       发表于 2021-8-14 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364830&amp;ptid=2013091" target="_blank">Temori 发表于 2021-8-14 09:29</a>
+玛丽很疼香的，别看她平常那样，两次香因为使徒的诅咒说丧气话的时候，玛丽都及时送上了安慰：在-120min ...</blockquote>
+玛丽和明日香都在欧洲nerv部门很长时间吧，没准玛丽也是看着明日香从小长大的。宠一宠很正常
+
+
+*****
+
+####  6x6z6w  
+##### 1156#       发表于 2021-8-14 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364849&amp;ptid=2013091" target="_blank">Carta_Issue 发表于 2021-8-14 09:31</a>
+
+看终的战斗吐槽，现在NERV来来去去就司令和冬月两个人，做事的貌似还只有老爷爷冬月
+
+他们哪里有那么大的财 ...</blockquote>
+从Q里看NERV就已经有大规模的自动生产线了，感觉应该是靠量产丽做事堆起来的，反正随便造
+
+
+*****
+
+####  hypnossz86  
+##### 1157#       发表于 2021-8-14 09:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364816&amp;ptid=2013091" target="_blank">久保由利香 发表于 2021-8-14 09:28</a>
+十三号机两个插入栓，一个渚薰一个明日香(被使徒攻击那个)
+式波和绫波差不多，都是专门制造出来的适格者 ...</blockquote>
+那个也不是本体吧
+我记得明日香回想阶段，那个满屏幕的复制体照片最后死的还剩下两张
+一张应该就是从序里一直到现在我们看到的
+另一张应该是nerv一直秘密保有的吧
+
+
+*****
+
+####  PigMourne  
+##### 1158#       发表于 2021-8-14 09:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364849&amp;ptid=2013091" target="_blank">Carta_Issue 发表于 2021-8-14 09:31</a>
+看终的战斗吐槽，现在NERV来来去去就司令和冬月两个人，做事的貌似还只有老爷爷冬月
+
+他们哪里有那么大的财 ...</blockquote>
+114514个量产丽在nerv里打黑工<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霧亥  
+##### 1159#       发表于 2021-8-14 09:52
+
+
+q那时候我就觉得是纳米机器纯自动生产，结果这么多年了结局还是没实锤
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  tau_cross  
+##### 1160#       发表于 2021-8-14 09:55
+
+
+副司令变橙汁是什么鬼 
+本体在这十几年中挂了 然后克隆出来一个工具人 最后和黑丽一样抗不住化了？
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  101stroad  
+##### 1161#       发表于 2021-8-14 09:55
+
+
+感觉还行，看完q就奇怪后边要怎么落地，居然在两个半小时里基本圆起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，不清楚痞子制作q时有没有规划后面的剧情，跟现在这个有多大区别
+
+简体那个字幕确实很多东西都没翻译出来
+
+
+*****
+
+####  霧亥  
+##### 1162#       发表于 2021-8-14 09:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365044&amp;ptid=2013091" target="_blank">tau_cross 发表于 2021-8-14 09:55</a>
+副司令变橙汁是什么鬼 
+本体在这十几年中挂了 然后克隆出来一个工具人 最后和黑丽一样抗不住化了？</blockquote>
+l力场浓度太高，普通人会化
+丽相反，要待在有特别l力场的地方（泡缸），所以在结界内化了
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kangkangsama  
+##### 1163#       发表于 2021-8-14 10:00
+
+
+<blockquote>Temori 发表于 2021-8-14 09:29
+玛丽很疼香的，别看她平常那样，两次香因为使徒的诅咒说丧气话的时候，玛丽都及时送上了安慰：在-120min ...</blockquote>
+玛丽对真嗣和香都有着急了不喊外号喊名字的时候。
+
+主要玛丽需要有个像旧tv21话那样的讲一讲行动本源。
+
+
+                                                 
