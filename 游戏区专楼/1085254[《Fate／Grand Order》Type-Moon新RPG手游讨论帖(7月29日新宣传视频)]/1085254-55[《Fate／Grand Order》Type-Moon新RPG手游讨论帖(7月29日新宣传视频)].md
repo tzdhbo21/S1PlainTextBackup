@@ -16537,3 +16537,150 @@ c5441ae8c2a344b00c7899de58f08077.jpg
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 82256#       发表于 2021-8-14 13:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这c狗视频看的人居然还挺多的（不是
+
+
+*****
+
+####  rooarr  
+##### 82257#       发表于 2021-8-14 13:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367142&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 13:37</a>
+这c狗视频看的人居然还挺多的（不是</blockquote>
+毫无技术含量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82258#       发表于 2021-8-14 13:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367197&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-14 13:42</a>
+
+毫无技术含量</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是 我感觉应该能震撼国服憋佬一整年
+
+
+*****
+
+####  rooarr  
+##### 82259#       发表于 2021-8-14 13:51
+
+
+ 本帖最后由 rooarr 于 2021-8-14 13:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367251&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 13:48</a>
+虽然但是 我感觉应该能震撼国服憋佬一整年</blockquote>
+不是吧，就这也震撼？杀狐狸出来第二天我就试了，c狗伤害太差感觉打克制都不能实战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+c狗至少落后蓝卡队众多c阶一个身位
+
+
+*****
+
+####  alucardcz  
+##### 82260#       发表于 2021-8-14 13:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367288&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-14 13:51</a>
+
+不是吧，就这也震撼？杀狐狸出来第二天我就试了，c狗伤害太差感觉打克制都不能实战 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟你喜欢6加成 追求不一样
+
+
+
+
+*****
+
+####  rooarr  
+##### 82261#       发表于 2021-8-14 13:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367301&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 13:52</a>
+毕竟你喜欢6加成 追求不一样</blockquote>
+用5加成，我感觉我氪金的钱都白浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82262#       发表于 2021-8-14 14:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367312&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-08-14 13:53:46</a>
+用5加成，我感觉我氪金的钱都白浪费了</blockquote>不课就不会有这种想法了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  alucardcz  
+##### 82263#       发表于 2021-8-14 14:01
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 82264#       发表于 2021-8-14 14:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼怎么回事 用手机app居然能无视卡楼回复？ 
+
+
+*****
+
+####  eyeego  
+##### 82265#       发表于 2021-8-14 14:04
+
+
+C狗杀狐刚出我也试过了 带黑杯可以跟5宝摩根勉强55开的程度 现在有了奥贝隆蓝字都可以3面打单体13w实在太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82266#       发表于 2021-8-14 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367409&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-14 14:04</a>
+
+C狗杀狐刚出我也试过了 带黑杯可以跟5宝摩根勉强55开的程度 现在有了奥贝隆蓝字都可以3面打单体13w实在太离 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是吧  王姐5宝这么菜的？
+
+
+*****
+
+####  eyeego  
+##### 82267#       发表于 2021-8-14 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367450&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 14:09</a>
+不是吧  王姐5宝这么菜的？</blockquote>
+QP本试的 一样的配置王姐大概在14w c狗黑杯13w左右 但是c狗伤害要叠 12面偏弱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82268#       发表于 2021-8-14 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367483&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-14 14:11</a>
+
+QP本试的 一样的配置王姐大概在14w c狗黑杯13w左右</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摩根不特攻这么拉的吗  这就是50自充的代价吗
+
+
+                                                

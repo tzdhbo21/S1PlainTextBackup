@@ -17140,3 +17140,350 @@ konami也欺负底边，真有你的。对左f都能hr<img src="https://static.s
 
 
                                                 
+
+*****
+
+####  FCCHua  
+##### 5883#       发表于 2021-8-14 13:25
+
+
+金憨憨要是能进决赛也行捏，虹女们给点力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  幸福梦魇  
+##### 5884#       发表于 2021-8-14 13:26
+
+
+ 本帖最后由 幸福梦魇 于 2021-8-14 13:29 编辑 
+
+这局好像看过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl 这几个压线球。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  hulaoda007  
+##### 5885#       发表于 2021-8-14 13:27
+
+
+虹男确实不敢看。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  西瓜爆裂  
+##### 5886#       发表于 2021-8-14 13:27
+
+
+ 本帖最后由 西瓜爆裂 于 2021-8-14 13:29 编辑 
+
+9局都不敢打满的就别叫甲子园了吧，这规则摆明就是有利先发强投。
+
+
+*****
+
+####  cheatdeath3  
+##### 5887#       发表于 2021-8-14 13:38
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/133456yhczcwm8s8a7dd0w.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-14-13-33-39-483_tv.danmaku.bili.png</strong> (32.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 13:34 上传
+
+
+卧槽，神😨
+
+但在杏奴退环境，虹人不瘟不火的情况下，裁狗又能有多大能量捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 5888#       发表于 2021-8-14 13:41
+
+
+小组赛本来就说是7局啊
+
+
+主播都能舍胜负换节目效果，观众怎么还看急眼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+想看的安洁对inui这就来了
+
+
+*****
+
+####  harry3  
+##### 5889#       发表于 2021-8-14 13:41
+
+
+看了下山田赫敏前几天diss裁狗开佐藤希，意外的人还不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qianoooo  
+##### 5890#       发表于 2021-8-14 13:44
+
+
+现在什么赛程啊
+
+看了一下 今年又是西西阵容最屌啊 600属性叶师恐怖如斯
+
+
+*****
+
+####  Suny08  
+##### 5891#       发表于 2021-8-14 13:46
+
+
+King不出意外的垫底捏，不过今天确实打的可以，输的地方也能接受，希望以后还能见到极致smallball
+
+
+*****
+
+####  qq845629713  
+##### 5892#       发表于 2021-8-14 13:48
+
+
+KING粉这能忍啊，这不得狠狠的点踩取关一波？
+
+
+*****
+
+####  hulaoda007  
+##### 5893#       发表于 2021-8-14 13:49
+
+
+“我们心里没有虹，只有King！”
+
+
+*****
+
+####  qq845629713  
+##### 5894#       发表于 2021-8-14 13:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我建议决赛把king拽过去，每个队都和king比一场，谁赢king的净胜分高，谁冠军，这样又有话题，又有同接，又有人气
+
+
+*****
+
+####  Porsche  
+##### 5895#       发表于 2021-8-14 13:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点踩390了
+
+顺便劝楼上某位游戏入脑的朋友有机会看看真正的甲子园
+
+
+*****
+
+####  dybang  
+##### 5896#       发表于 2021-8-14 13:53
+
+
+车轮战是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到直接按订阅量分队
+
+
+*****
+
+####  hulaoda007  
+##### 5897#       发表于 2021-8-14 13:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">传出去，男主角过五关斩六将。真英雄也。
+
+
+*****
+
+####  poipanchao  
+##### 5898#       发表于 2021-8-14 13:58
+
+
+刚才无聊去看了一眼贝叔的同时视听
+
+怎么贝叔还想聊小马的，什么福瑞控
+
+
+*****
+
+####  幸福梦魇  
+##### 5899#       发表于 2021-8-14 14:00
+
+
+看老板娘了 能不能赢4分
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  我不是很好  
+##### 5900#       发表于 2021-8-14 14:00
+
+
+裁狗：【b限】学中文
+
+
+*****
+
+####  Ketestrait  
+##### 5901#       发表于 2021-8-14 14:03
+
+
+ 本帖最后由 Ketestrait 于 2021-8-14 14:07 编辑 
+
+看真正的甲子园出意外可以骂选手傻逼or场外因素傻逼（以上可推及任意体育项目和大会，例如奥运会、NBA etc.），游戏随机出意外自然就是骂游戏傻逼了。正不正确另说，唯一的解决问题方法只有不带任何立场看比赛
+
+
+PS.具体到虹甲上的话决赛谁来爆冷一下大福，看腻了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  幸福梦魇  
+##### 5902#       发表于 2021-8-14 14:09
+
+
+ 本帖最后由 幸福梦魇 于 2021-8-14 14:14 编辑 
+
+mugi吃兴奋剂了? 今天这么猛<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+syl 这穿过去了
+
+superhero<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  rzrbtk  
+##### 5903#       发表于 2021-8-14 14:18
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/141658dzrpbrwm4mmpp6q2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 783 - 郡道美玲🐽 在 Twitter_ _@Vtuberfanart ♡_ _ Twitter - twi.jpg</strong> (41.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 14:16 上传
+
+
+你精神变态
+
+
+*****
+
+####  FCCHua  
+##### 5904#       发表于 2021-8-14 14:31
+
+
+什么剧本？尊妈猛啊，rrr的羁绊
+
+
+*****
+
+####  qq845629713  
+##### 5905#       发表于 2021-8-14 14:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 哈哈哈,KING一局没赢，全输，决赛怎么办啊
+
+
+*****
+
+####  Porsche  
+##### 5906#       发表于 2021-8-14 14:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3连败    konami你还能活着回去？
+
+
+*****
+
+####  空き地卯木  
+##### 5907#       发表于 2021-8-14 14:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">被噗桑亲手送走 KING开心吗？
+
+
+*****
+
+####  noHentai  
+##### 5908#       发表于 2021-8-14 14:34
+
+
+本日名场面：King被老婆亲手送走<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这下回家要狂暴轰入了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 5909#       发表于 2021-8-14 14:34
+
+
+大小姐这培育水平不说，戏剧效果绝对是AB组第一
+
+赛前3%支持率的ATM逆流而上，目前B组所有的全垒打全是帝华打出来的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  昆西昆希昆  
+##### 5910#       发表于 2021-8-14 14:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367386&amp;ptid=1972669" target="_blank">我不是很好 发表于 2021-8-14 14:00</a>
+
+裁狗：【b限】学中文</blockquote>
+快点端上来吧我已经等不及了
+
+
+
+
+*****
+
+####  poipanchao  
+##### 5911#       发表于 2021-8-14 14:34
+
+
+回去就狂暴鸿儒琉海
+
+
+*****
+
+####  gaiadc  
+##### 5912#       发表于 2021-8-14 14:34
+
+
+这AI确实不行，打不出效果
+
+
+*****
+
+####  幸福梦魇  
+##### 5913#       发表于 2021-8-14 14:34
+
+
+帝华得分靠的全是全垒打 乖乖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                

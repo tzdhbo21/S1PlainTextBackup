@@ -9874,3 +9874,33 @@ They played us like a damn fiddle!
 
 
                                                  
+
+*****
+
+####  Metropolis  
+##### 778#       发表于 2021-8-14 13:29
+
+
+ 本帖最后由 Metropolis 于 2021-8-14 13:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366960&amp;ptid=2010295" target="_blank">日日日日日野 发表于 2021-8-14 13:18</a>
+
+因为第一个放的从来都只说是Teaser啊……</blockquote>
+啊？上个月可是口口声声说是in-game cinematic in the form of a trailer。之前提过teaser这个词么？
+
+编辑，我又进去那个app看了一眼，打开introduction后首先黑屏写“demonstration content in realtime”，然后播片，并下面一行小字写captured on PS5 using the realtime experience app。我现在已经被pua到不知道他们是在玩文字游戏还是英语太差了。
+
+
+Screen Shot 2021-08-14 at 12.27.21 AM.png
+(160.08 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-14 13:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/132752awotqzjwz7ksdhwo.png" referrerpolicy="no-referrer">
+
+
+                                                 

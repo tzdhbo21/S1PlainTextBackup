@@ -15001,3 +15001,121 @@ seele跟琔的动机跟tv版有区别吗？
 
 
                                                  
+
+*****
+
+####  Redis  
+##### 1218#       发表于 2021-8-14 13:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367051&amp;ptid=2013091" target="_blank">406129465 发表于 2021-8-14 13:27</a>
+
+全网除了s1都是好评居多啊，终也确实是为eva这部作品盖上棺材板走向结局了，只是确实说教味有点重，这边很 ...</blockquote>
+来一场二号机大战量产机那样的打戏，可以堵上现在80%的差评人的嘴巴
+
+
+制作拉垮，单凭情怀很难补救，s1众不吃这一套
+
+
+*****
+
+####  Asukalangley33  
+##### 1219#       发表于 2021-8-14 13:47
+
+
+ 本帖最后由 Asukalangley33 于 2021-8-14 13:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366932&amp;ptid=2013091" target="_blank">MASKA-1 发表于 2021-8-14 13:16</a>
+
+感觉这次就泥潭评价偏低啊，隔壁nga一个爹味太重帖子，前三楼直接“格局小了”“屁事真多”“你懂个屁”三 ...</blockquote>
+爹味帖直接给删了还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+大家还是一起去“怀念逝去的青春”吧
+
+
+很喜欢一句歌词——“青春，青春，青NMGB，才活了几天就开始回忆”
+
+
+*****
+
+####  406129465  
+##### 1220#       发表于 2021-8-14 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367098&amp;ptid=2013091" target="_blank">Redis 发表于 2021-8-14 13:32</a>
+来一场二号机大战量产机那样的打戏，可以堵上现在80%的差评人的嘴巴
+
+
+制作拉垮，单凭情怀很难补救，s1众 ...</blockquote>
+终除了第一场打戏有一点点味道，后面都不太行，特别是一号机打十三号机那里，在动画里搞皮套味整成个四不像来了
+
+
+*****
+
+####  zukunes  
+##### 1221#       发表于 2021-8-14 13:54
+
+
+看完了，挺好的，我已经满足了，不是很满意，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，我感觉痞子都看开了。
+
+—— 来自 realme RMX1971, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  Cry_Blues  
+##### 1222#       发表于 2021-8-14 13:57
+
+
+大家看的都是繁体字幕吗
+
+
+*****
+
+####  银弹  
+##### 1223#       发表于 2021-8-14 14:03
+
+
+<blockquote>重巡羊舰 发表于 2021-8-14 12:38
+他这分析很不错，只是不明白，第一是如果mark6引发的三冲，那船上那么多人怪真嗣有什么道理，初号机的三冲 ...</blockquote>
+近三冲是后续一切事情的导火索，如果没有真嗣，可能三冲就会被完全阻止，大概是这么想的吧。
+
+
+*****
+
+####  MONSTERS  
+##### 1224#       发表于 2021-8-14 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366573&amp;ptid=2013091" target="_blank">重巡羊舰 发表于 2021-8-14 12:38</a>
+
+他这分析很不错，只是不明白，第一是如果mark6引发的三冲，那船上那么多人怪真嗣有什么道理，初号机的三冲 ...</blockquote>
+
+
+哪怕是船上这批人，美里他们要装样子不说，除了北上绿和一些底层的也没人真的责备真嗣
+
+
+观感差的应该是Q里基熏给真嗣解释那段，他作为当时唯一和真嗣走得近的知情人还把话说那么暧昧，害真嗣以为真是自己差点毁了世界
+
+
+终到了第三村真嗣才发现其实根本就没什么人因为近三冲恨自己，还对他很温柔心结才算是解开
+
+
+*****
+
+####  YAHAO  
+##### 1225#       发表于 2021-8-14 14:28
+
+
+看完后，我个人觉得很满意，痞子不扭曲了，泥潭却嫌不够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扭曲
+
+
+*****
+
+####  razielzyc  
+##### 1226#       发表于 2021-8-14 14:30
+
+
+9/10吧。很主观的评分，扣一分在后期光频闪的镜头太多了，影响健康。作为完结篇，很好的完成了自己的任务。但论剧情，论动作场面说真的完全比不上破。4部基本是破&gt;终&gt;序&gt;Q。有感动，有释怀。看得出痞子是跟自己和解了，跟观众和解了，用最通俗易懂的方式给了一个大结局。所有人物都有所成长，都有了一个好的归宿。这也就够了。
+
+
+                                                 
