@@ -13894,3 +13894,212 @@ Q我给3分
 
 
                                                  
+
+*****
+
+####  mcq_2  
+##### 1135#       发表于 2021-8-14 07:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363485&amp;ptid=2013091" target="_blank">chronicle 发表于 2021-8-14 01:11</a>
+
+请看贞本义行的eva漫画最后一卷最后一节
+
+冬月的学生，和碇原堂和唯同辈，应该也是受到了eva的影响，时间 ...</blockquote>
+她应该是缩回去了，停滞的话至少也是20岁以上了，不可能14岁。这个角色挺可惜的。
+
+
+*****
+
+####  mcq_2  
+##### 1136#       发表于 2021-8-14 07:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363681&amp;ptid=2013091" target="_blank">mishidexieyu 发表于 2021-8-14 01:46</a>
+
+感觉观感差的还有一个原因是为了一些象征的东西都影响到事物底层逻辑了。可能是来不及了，像“这竟然是xxx ...</blockquote>
+怕观众看不懂。就跟你说的，按痞子的脾气两个闪回就能说明了。不过现在这个样子我还能接受。
+
+
+*****
+
+####  圈量子  
+##### 1137#       发表于 2021-8-14 07:47
+
+
+他是真的不想再做了，很多人也被他搞得真的不想再看了。
+
+
+*****
+
+####  mcq_2  
+##### 1138#       发表于 2021-8-14 07:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52362283&amp;ptid=2013091" target="_blank">HedyL 发表于 2021-8-13 22:59</a>
+
+看了一个小时差不多才感觉正片开始，前面节奏太慢，中间香和真希波进去杀13号机这里算是正常的节奏，然后到 ...</blockquote>
+我觉得这部分蛮有新意的，开头就是结局。如果打完了这一仗，大家之后的生活是什么样的。
+
+
+*****
+
+####  6x6z6w  
+##### 1139#       发表于 2021-8-14 08:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363164&amp;ptid=2013091" target="_blank">lxx4869 发表于 2021-8-14 00:27</a>
+
+明日香不是为了引发第四次冲击被当作祭品牺牲了吗？为啥还能回来呢？那男主爸妈是不是也能回来？
+
+
+最后eva ...</blockquote>
+13号机和初号机最后都进了负宇宙，那里基本和天元突破里的螺旋宇宙一样唯心决定一切吧，所以真嗣想要明日香回来她就回来了（还很方便地解除了长不大诅咒）  
+
+源堂和唯两个人都已经不算人类了，所以不能以人类的身份回来
+
+
+DSS项圈某种程度上代表的真嗣生活在eva世界中或主动或被动背负上的责任，摘掉项圈也是一个比较象征性的动作，代表他不再需要这些重担了
+
+
+*****
+
+####  6x6z6w  
+##### 1140#       发表于 2021-8-14 08:19
+
+
+看完感觉一个意难平就是伪三冲和Q之间到底发生了啥没补完<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">6号机为啥砍了莉莉丝头，又为啥被使徒入侵最后被封印，都讲不明白了，破最后那个国民homo戳穿初号机的镜头也更成了幻之结局
+
+
+
+
+*****
+
+####  久保由利香  
+##### 1141#       发表于 2021-8-14 08:20
+
+
+有没有靠谱的外挂字幕，这字幕和机翻没有差别了
+
+
+*****
+
+####  6x6z6w  
+##### 1142#       发表于 2021-8-14 08:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363757&amp;ptid=2013091" target="_blank">BigLittle1999 发表于 2021-8-14 02:01</a>
+
+加的设定部分太多，过于影响观感了。最后那段有人能讲讲一下薰和丽、真嗣和真希波的关系怎么解读吗？这结局 ...</blockquote>
+薰和丽的本源就是亚当和莉莉丝，老夫妻了  
+
+
+玛丽虽然表现得很像个痴女不过我觉得她和真嗣倒没有什么男女之情，更像是怪阿姨在逗老朋友家小孩玩的那种关系
+
+
+*****
+
+####  mcq_2  
+##### 1143#       发表于 2021-8-14 08:24
+
+
+<blockquote>shiko 发表于 2021-8-13 14:37
+看完虽然不是特别激动但也挺满意的，不过还是比较迷惑的一点就是冬治的妹妹跟小受才讲过几句话啊？为什么这 ...</blockquote>
+终里面大家都喜欢真嗣。叙事角度变了，想想就明白了。庵野在终里面就是要创造一个大家都接受真嗣的世界。
+
+换句话说，真嗣自闭是自我意识过剩，在真实的世界大家是喜欢他的。
+
+而故事上，真嗣是拯救世界的英雄，兄长的死党，长的又不差，加之她还要对小受负责，喜欢上小受就很合理了。
+
+
+*****
+
+####  霧亥  
+##### 1144#       发表于 2021-8-14 08:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52362702&amp;ptid=2013091" target="_blank">wrsyd 发表于 2021-8-13 23:41</a>
+有一点不明白，明日香是复制人这个设定意义何在，揭晓的很随意，对剧情好像也没什么影响，莫名其妙 ...</blockquote>
+其实仔细想想这个明日香超能打，那一直以来没人肯定的所谓心理创伤简直无厘头，所以特意加上个复制人设定，营造一种苦难背景
+
+—— 來自 samsung SM-T970, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Temori  
+##### 1145#       发表于 2021-8-14 08:51
+
+
+ 本帖最后由 Temori 于 2021-8-14 08:53 编辑 
+
+樱是在第一场使徒战里受伤的吧，虽然东治因为这个揍了真嗣，但换句话说也就是离战斗现场非常近，憧憬初号机驾驶员不是什么怪事。另外在近三冲里，她爹又受到牵连死了，所以又爱又恨（实际上因为近三冲对真嗣态度激烈的基本上就是她和北上，都是近三冲死家里人了），终里面交代得挺清楚的。
+
+当然不妨碍这娃真的病得不轻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bt之神  
+##### 1146#       发表于 2021-8-14 08:56
+
+
+真嗣最后说要创造个没有EVA的世界，简直就是老贼的自白<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  污陨血红  
+##### 1147#       发表于 2021-8-14 08:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364580&amp;ptid=2013091" target="_blank">Temori 发表于 2021-8-14 08:51</a>
+
+樱是在第一场使徒战里受伤的吧，虽然东治因为这个揍了真嗣，但换句话说也就是离战斗现场非常近，憧憬初号机 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+讲真，我倒是挺喜欢樱的
+
+
+*****
+
+####  Temori  
+##### 1148#       发表于 2021-8-14 09:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364633&amp;ptid=2013091" target="_blank">污陨血红 发表于 2021-8-14 08:59</a>
+讲真，我倒是挺喜欢樱的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁不喜欢呢，日本人也天天刷
+
+
+*****
+
+####  久保由利香  
+##### 1149#       发表于 2021-8-14 09:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364450&amp;ptid=2013091" target="_blank">霧亥 发表于 2021-8-14 08:26</a>
+其实仔细想想这个明日香超能打，那一直以来没人肯定的所谓心理创伤简直无厘头，所以特意加上个复制人设定 ...</blockquote>
+一开始可不能打
+
+
+*****
+
+####  kangkangsama  
+##### 1150#       发表于 2021-8-14 09:15
+
+
+发现玛丽香意外的有受众，仔细想了想的确很带感。14年间真正陪香香最多的的确是玛丽了。甚至看到有脑洞式波系列就是当年玛丽搞出来的所以算是另一种意思上的妈。
+
+
+*****
+
+####  hypnossz86  
+##### 1151#       发表于 2021-8-14 09:16
+
+
+所以丽的本体是碇唯
+那么新剧场的明日香的本体到哪里去了
+
+
+                                                

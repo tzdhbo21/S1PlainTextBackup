@@ -6242,3 +6242,36 @@ Windows 8和8.1都是靠Classic Shell过的
 
 
                                                  
+
+*****
+
+####  凶手  
+##### 517#         楼主| 发表于 2021-8-14 08:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52359514&amp;ptid=2011727" target="_blank">Hibino 发表于 2021-8-13 19:19</a>
+怎么可能能习惯效率这么低的新开始菜单。。。。。。。就算新建工具栏这个功能我不要了想其他办法在其他地方 ...</blockquote>
+之前是有7taskbartools+或者类似名字的工具可以用 就是点击直接进最近的一个窗口 但是貌似11不行了
+
+
+*****
+
+####  navarra  
+##### 518#       发表于 2021-8-14 08:39
+
+
+默认程序那里改的太烂了，win7起码有个全选，win7针对常用的应用有个大致选择，win11巴不得你一个个点过去……
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  noneoneone  
+##### 519#       发表于 2021-8-14 08:43
+
+
+以前把文件拖到任务栏的应用图标上，应用会弹出来。现在不行了？
+
+
+                                                 
