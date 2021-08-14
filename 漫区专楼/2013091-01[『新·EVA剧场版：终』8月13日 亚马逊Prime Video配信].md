@@ -15313,3 +15313,157 @@ eoe起码还大战量产机，新版配个激昂的音乐然后一下被13号机
 
 
                                                  
+
+*****
+
+####  Carta_Issue  
+##### 1243#       发表于 2021-8-14 16:39
+
+
+明日香在终里真是一点时髦值都没，只有惨和更惨
+
+好不容易开发第九使徒，瞬间就被打脸
+
+
+*****
+
+####  Carta_Issue  
+##### 1244#       发表于 2021-8-14 16:43
+
+
+看了两遍终，
+
+总感觉最后的结局别扭，真嗣说要改写世界，创造没有EVA的世界，让人感觉其实痞子是逃避有EVA的世界，而不是愿意平静面对有EVA
+
+
+*****
+
+####  oniwarud  
+##### 1245#       发表于 2021-8-14 16:47
+
+
+<blockquote>406129465 发表于 2021-8-14 13:27
+全网除了s1都是好评居多啊，终也确实是为eva这部作品盖上棺材板走向结局了，只是确实说教味有点重，这边很 ...</blockquote>
+nga从昨晚开始反对的就越来越多了，一开始是cp党情怀党占主场，后面开始谈到剧情作画演出时评价就开始一路下跌了
+
+
+*****
+
+####  tj8m23le  
+##### 1246#       发表于 2021-8-14 17:10
+
+
+不知道说啥好 替香和丽感到不平 完全是工具人 最后还被半路杀出来的大胸妹（婶？）摘了桃子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kingjob  
+##### 1247#       发表于 2021-8-14 17:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368884&amp;ptid=2013091" target="_blank">Carta_Issue 发表于 2021-8-14 16:43</a>
+
+看了两遍终，
+
+总感觉最后的结局别扭，真嗣说要改写世界，创造没有EVA的世界，让人感觉其实痞子是逃避有EVA ...</blockquote>
+父子打斗有一段我以为资金又匮乏了，怎么弄的布景那么假，然后果然大佬想回去拍特摄啊，东宝都出来了
+
+
+*****
+
+####  kingjob  
+##### 1248#       发表于 2021-8-14 17:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369157&amp;ptid=2013091" target="_blank">tj8m23le 发表于 2021-8-14 17:10</a>
+
+不知道说啥好 替香和丽感到不平 完全是工具人 最后还被半路杀出来的大胸妹（婶？）摘了桃子 ...</blockquote>
+大熊就是正义，显然谁大支持谁
+
+
+*****
+
+####  GreenBird  
+##### 1249#       发表于 2021-8-14 17:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366627&amp;ptid=2013091" target="_blank">liwangli1983 发表于 2021-8-14 12:44</a>
+
+故事是完结了，但不准备把《破》和《Q》中间那部分补一下吗</blockquote>
+只能等即将出版的设定集。
+
+我大胆猜测：制作《序》和《破》的时候，是有拓展EVA的心志的。然后《Q》很激进地迈了一步，又结果制作组步入暮年，所以只能匆匆以《终》完结。
+
+所以可能这部分没法用影像化来补完了。
+
+
+*****
+
+####  GreenBird  
+##### 1250#       发表于 2021-8-14 17:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52368050&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-14 15:16</a>
+
+私心来讲，要填完q+之前的新的坑，起码需要三个1个半小时的剧场版，其中包括完全没有真嗣登场的失去的十 ...</blockquote>
+可能制作《Q》的时候，没想到4部新剧场版结束EVA？
+
+
+*****
+
+####  yanghuangu  
+##### 1251#       发表于 2021-8-14 17:24
+
+
+开场巴黎那戏干嘛用的，配合奥运宣传下届？
+
+
+*****
+
+####  anehon  
+##### 1252#       发表于 2021-8-14 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369317&amp;ptid=2013091" target="_blank">yanghuangu 发表于 2021-8-14 17:24</a>
+
+开场巴黎那戏干嘛用的，配合奥运宣传下届？</blockquote>
+送新2号机和8号机的装备
+
+
+*****
+
+####  GJRstone  
+##### 1253#       发表于 2021-8-14 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369317&amp;ptid=2013091" target="_blank">yanghuangu 发表于 2021-8-14 17:24</a>
+开场巴黎那戏干嘛用的，配合奥运宣传下届？</blockquote>
+冒头商法<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+顺带给第三村的存在和使徒明日香提供可行性
+
+
+*****
+
+####  污陨血红  
+##### 1254#       发表于 2021-8-14 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369317&amp;ptid=2013091" target="_blank">yanghuangu 发表于 2021-8-14 17:24</a>
+
+开场巴黎那戏干嘛用的，配合奥运宣传下届？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">q后面的2号机，8号机都受损了，不抢巴黎，后面还怎么打
+
+
+*****
+
+####  LLLLLuB  
+##### 1255#       发表于 2021-8-14 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369251&amp;ptid=2013091" target="_blank">GreenBird 发表于 2021-8-14 17:19</a>
+可能制作《Q》的时候，没想到4部新剧场版结束EVA？</blockquote>
+从作品的命名来看就是从企划阶段就只有4部，序破急终就是故事的叙事手法，序的重新编辑启动增添新设定，到破的进一步加速剧情发展，再是q的急转直下，最后终的结束收尾。
+
+
+                                                 
