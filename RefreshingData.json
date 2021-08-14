@@ -565,7 +565,7 @@
     "title": "[对马岛导剪版，8.20发售（请对游戏导剪版一词ptsd的勿入此贴吵架）]",
     "lastedit": 1628159606,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   {
     "id": "2012902",
@@ -573,7 +573,7 @@
     "title": "[2021年7月网文推荐交流帖]",
     "lastedit": 1627745708,
     "category": "外野专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "2013574",
@@ -589,7 +589,7 @@
     "title": "[『侦探已经死了』TV动画化 2021年7月]",
     "lastedit": 1628868898,
     "category": "漫区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1967256",
@@ -597,7 +597,7 @@
     "title": "[歌剧少女 TV动画化 2021年]",
     "lastedit": 1628966135,
     "category": "漫区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1973646",
@@ -605,7 +605,7 @@
     "title": "[我们的重制人生 TV动画 2021年放送予定]",
     "lastedit": 1628570368,
     "category": "漫区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1970178",
@@ -613,7 +613,7 @@
     "title": "[现实主义勇者的王国再建记 2021年7月]",
     "lastedit": 1628696081,
     "category": "漫区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1985882",
@@ -621,7 +621,7 @@
     "title": "[死神少爷与黑女仆 TV动画化 2021年7月]",
     "lastedit": 1628915925,
     "category": "漫区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1972237",
@@ -793,9 +793,9 @@
   },
   {
     "id": "2013091",
-    "totalreply": 1333,
+    "totalreply": 1334,
     "title": "[『新·EVA剧场版：终』8月13日 亚马逊Prime Video配信]",
-    "lastedit": 1628969105,
+    "lastedit": 1628973092,
     "category": "漫区专楼",
     "active": true
   },
@@ -2233,9 +2233,9 @@
   },
   {
     "id": "2017705",
-    "totalreply": 14033,
+    "totalreply": 14037,
     "title": "[【B32】VUP综合讨论楼]",
-    "lastedit": 1628969359,
+    "lastedit": 1628973353,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -2361,9 +2361,9 @@
   },
   {
     "id": "2009193",
-    "totalreply": 924,
+    "totalreply": 928,
     "title": "[『魔法纪录 魔法少女小圆外传 第二季 -觉醒前夜-』07.31放送]",
-    "lastedit": 1628969417,
+    "lastedit": 1628973411,
     "category": "漫区专楼",
     "active": true
   },
@@ -4121,9 +4121,9 @@
   },
   {
     "id": "2019599",
-    "totalreply": 12540,
+    "totalreply": 12545,
     "title": "[【A18】A-SOUL讨论楼（8月8日，20：00，乃琳生日会）]",
-    "lastedit": 1628970248,
+    "lastedit": 1628974273,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -5545,9 +5545,9 @@
   },
   {
     "id": "2020386",
-    "totalreply": 335,
+    "totalreply": 336,
     "title": "[ZT-印度能替代中国在全球供应链中的地位么？]",
-    "lastedit": 1628964466,
+    "lastedit": 1628974957,
     "category": "外野",
     "active": true
   },
@@ -5689,9 +5689,9 @@
   },
   {
     "id": "2020420",
-    "totalreply": 145,
+    "totalreply": 146,
     "title": "[大家是怎么看待永劫无间这个游戏的？]",
-    "lastedit": 1628968037,
+    "lastedit": 1628975024,
     "category": "游戏区",
     "active": true
   },
@@ -5777,17 +5777,17 @@
   },
   {
     "id": "2020510",
-    "totalreply": 763,
+    "totalreply": 765,
     "title": "[男星在乃木／靖国神社及和黛薇夫人照片被扒，附大V洗地]",
-    "lastedit": 1628968072,
+    "lastedit": 1628975060,
     "category": "外野",
     "active": true
   },
   {
     "id": "2020438",
-    "totalreply": 222,
+    "totalreply": 225,
     "title": "[为什么承诺不先用核弹反而会导致热战呢]",
-    "lastedit": 1628971014,
+    "lastedit": 1628975064,
     "category": "外野",
     "active": true
   },
@@ -5873,9 +5873,9 @@
   },
   {
     "id": "2020485",
-    "totalreply": 136,
+    "totalreply": 137,
     "title": "[开战，香党能否接受剑剑]",
-    "lastedit": 1628971056,
+    "lastedit": 1628975108,
     "category": "漫区",
     "active": true
   },
@@ -6001,9 +6001,9 @@
   },
   {
     "id": "2020563",
-    "totalreply": 104,
+    "totalreply": 105,
     "title": "[宅臭味是什么意思？看哪些动画才有宅臭味？]",
-    "lastedit": 1628961679,
+    "lastedit": 1628975161,
     "category": "漫区",
     "active": true
   },
@@ -6017,9 +6017,9 @@
   },
   {
     "id": "2020623",
-    "totalreply": 195,
+    "totalreply": 196,
     "title": "[张哲瀚这个听都没听过的演员能量这么大？？？？]",
-    "lastedit": 1628971114,
+    "lastedit": 1628975168,
     "category": "外野",
     "active": true
   },
@@ -6185,33 +6185,33 @@
   },
   {
     "id": "2020799",
-    "totalreply": 248,
+    "totalreply": 249,
     "title": "[张文宏博士论文涉嫌抄袭，综述使用他人文章 95% 内容]",
-    "lastedit": 1628971191,
+    "lastedit": 1628975248,
     "category": "外野",
     "active": true
   },
   {
     "id": "2020813",
-    "totalreply": 175,
+    "totalreply": 176,
     "title": "[小红书一个学习博主，最后考上了…….中专]",
-    "lastedit": 1628971195,
+    "lastedit": 1628975252,
     "category": "外野",
     "active": true
   },
   {
     "id": "2020820",
-    "totalreply": 142,
+    "totalreply": 143,
     "title": "[豆瓣姐妹们行测-图形推理能力太强了，难怪考不过她们]",
-    "lastedit": 1628971199,
+    "lastedit": 1628975256,
     "category": "外野",
     "active": true
   },
   {
     "id": "2020806",
-    "totalreply": 132,
+    "totalreply": 133,
     "title": "[【转帖】（反转了）如何看待沈逸论文查重率45%还能发核心期刊（C刊）]",
-    "lastedit": 1628968259,
+    "lastedit": 1628975260,
     "category": "外野",
     "active": true
   },
@@ -6233,9 +6233,9 @@
   },
   {
     "id": "2020696",
-    "totalreply": 83,
+    "totalreply": 84,
     "title": "[被《异域镇魂曲》吓傻了]",
-    "lastedit": 1628961788,
+    "lastedit": 1628975273,
     "category": "游戏区",
     "active": true
   },
@@ -6281,9 +6281,9 @@
   },
   {
     "id": "2020802",
-    "totalreply": 65,
+    "totalreply": 67,
     "title": "[巴铁也好，别感动太多]",
-    "lastedit": 1628961819,
+    "lastedit": 1628975297,
     "category": "外野",
     "active": true
   },

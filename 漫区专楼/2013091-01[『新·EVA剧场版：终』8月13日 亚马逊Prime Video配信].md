@@ -16730,3 +16730,20 @@ CP我反正看下来是觉得谁都没成，之前漫区吵成那样，结果好
 
 
                                                  
+
+*****
+
+####  hunterkiller  
+##### 1334#       发表于 2021-8-15 03:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366932&amp;ptid=2013091" target="_blank">MASKA-1 发表于 2021-8-14 13:16</a>
+
+感觉这次就泥潭评价偏低啊，隔壁nga一个爹味太重帖子，前三楼直接“格局小了”“屁事真多”“你懂个屁”三 ...</blockquote>
+格局确实小啊。
+
+
+终的问题是说教的问题吗？是整个剧本都拉跨的问题啊。国家队最后几话都没拉跨到这种程度。
+
+
+                                                 
