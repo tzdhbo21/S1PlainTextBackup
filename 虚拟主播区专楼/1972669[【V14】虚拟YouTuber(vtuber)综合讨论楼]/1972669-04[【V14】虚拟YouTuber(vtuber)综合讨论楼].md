@@ -17771,3 +17771,148 @@ B组是真的好看
 
 
                                                  
+
+*****
+
+####  Porsche  
+##### 5939#       发表于 2021-8-14 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369347&amp;ptid=1972669" target="_blank">白金口袋 发表于 2021-8-14 17:27</a>
+
+感叹一下下回这种活动千万别找德龙了
+
+
+昨天输不起还特意跑去开台哭，哭给谁看呢？我去年就说过死活不换人， ...</blockquote>
+上次马车联动垫底然后开台发了几小时疯可是印象深刻<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sonyjam  
+##### 5940#       发表于 2021-8-14 17:34
+
+
+哭就哭了呗，又没浮游炮啥的，“输不起”的标准什么时候这么宽泛了这都叫“输不起”？你的意思是她哭肯定会浮游炮是吗，这不是纯粹的被害妄想<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  Ketestrait  
+##### 5941#       发表于 2021-8-14 17:35
+
+
+会不会玩是一回事，这破楼里看V甲的人群没有三年也有两年了还能不知道她会不会玩？特意加上个人角度就是因为单纯我不喜欢这种人设的“gamer”而已<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rzrbtk  
+##### 5942#       发表于 2021-8-14 17:53
+
+
+哭哭嘛，反正这比赛里唯一底边是老板娘，那边真浮游炮对轰了也没有谁欺负谁（况且还没有），有输赢的比赛情感激烈一点才有趣。
+是说这回确实有点为老板娘可惜了，平时绝对是虹里播实况棒球最多的liver，这回也被选中作为监督，自己的喜欢被认可对她来说应该是挺宝贵的事吧，毕竟平时同接也不甚理想…这回算是用心认真玩了个阵容出来最后还是败了，多少觉得遗憾，希望不要自责吧。回想起选人阵容被嘲底边队，现在也不知是好是坏，至少不会被队员粉大叩特叩…
+上次棒球郡道被选去西西队，最后赢了，结果后面跟老板娘联动的时候聊起实况棒球，不说棒球大叔舞元，也不说自己的监督兼冠军西西，直接“一说到彩虹社和实况棒球，那必须是想到小野町春香啊！”，老板娘听完笑得那个开心，还一直说谢谢…这回郡被选也不知是有没有跟西西和老板娘交流过，虽然郡肯定对虹棒没有兴趣但是，她估计也是希望老板娘能发一下光吧。
+老板娘真的是很好很乖的樱花妹…
+
+
+*****
+
+####  winda  
+##### 5943#       发表于 2021-8-14 17:55
+
+
+ 本帖最后由 winda 于 2021-8-14 17:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">西西和大小姐育成时的区别我只感受到了西西每次看评论指示选择，大小姐评论扫一眼凭自己感觉选
+
+
+*****
+
+####  FCCHua  
+##### 5944#       发表于 2021-8-14 18:00
+
+
+ 本帖最后由 FCCHua 于 2021-8-14 18:06 编辑 
+
+个人非常感谢老板娘让健屋花那是首发，社长那边白雪巴也上场了，满足惹<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+syl 小偶像和3d是绝配 确信
+
+
+*****
+
+####  adcdqre  
+##### 5945#       发表于 2021-8-14 18:03
+
+
+[https://youtu.be/ciLv_6V2FFU](https://youtu.be/ciLv_6V2FFU)
+
+虹女不敢直播已经只能靠到处跑活动过日子了
+
+
+*****
+
+####  Porsche  
+##### 5946#       发表于 2021-8-14 18:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369642&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-8-14 17:53</a>
+
+哭哭嘛，反正这比赛里唯一底边是老板娘，那边真浮游炮对轰了也没有谁欺负谁（况且还没有），有输赢的比赛情 ...</blockquote>
+老板娘的妈妈一直都在推上画很符合xp的巨乳大白腿旗袍妹<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">，感兴趣的可以关注一下
+
+哦好像微博也开了号
+
+
+*****
+
+####  白金口袋  
+##### 5947#       发表于 2021-8-14 18:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369642&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-8-14 03:53</a>
+
+哭哭嘛，反正这比赛里唯一底边是老板娘，那边真浮游炮对轰了也没有谁欺负谁（况且还没有），有输赢的比赛情 ...</blockquote>
+很好很乖的樱花妹 X
+
+很好很乖的樱花妹（不玩棒球时限定） √
+
+
+*****
+
+####  rzrbtk  
+##### 5948#       发表于 2021-8-14 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369750&amp;ptid=1972669" target="_blank">Porsche 发表于 2021-8-14 18:03</a>
+老板娘的妈妈一直都在推上画很符合xp的巨乳大白腿旗袍妹，感兴趣的可以关注一下
+
+哦好像微博也开了 ...</blockquote>
+新衣服莫名有点丑搞得我有梁木<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 5949#       发表于 2021-8-14 18:15
+
+
+不过当初女子人气投票里，西西因为三连冠而失落，当时首先安慰西西的就是德龙。
+所以只是某方面自我中心吧。
+
+
+*****
+
+####  幸福梦魇  
+##### 5950#       发表于 2021-8-14 18:28
+
+
+德龙这种性格肯定有人喜欢，也肯定有人讨厌。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                

@@ -16899,3 +16899,41 @@ T3 打手50充+狐狸50充
 
 
                                                  
+
+*****
+
+####  上坂莲华  
+##### 82282#       发表于 2021-8-14 17:42
+
+
+看完隔壁那个莫名其妙的帖子我就一个想法
+
+你们梅林厨因为梅林没办法上场/必须换人限制组队就骂的天翻地覆，我一个C呆厨看着你们每天用陈宫射一万个C呆出去我说什么了吗
+
+什么你说这是游戏性？谁规定的陈宫放宝具就必须射人？这么傻逼的设定你们当时怎么没人喷？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82283#       发表于 2021-8-14 17:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369524&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-8-14 17:42</a>
+
+看完隔壁那个莫名其妙的帖子我就一个想法
+
+你们梅林厨因为梅林没办法上场/必须换人限制组队就骂的天翻地覆， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 现在真的还有梅林上场的时候吗（
+
+
+*****
+
+####  cckuku  
+##### 82284#       发表于 2021-8-14 18:13
+
+
+这都不是一个概念怎么能出来一起说的？梅林实打实的被削弱了啊？
+
+
+                                                 
