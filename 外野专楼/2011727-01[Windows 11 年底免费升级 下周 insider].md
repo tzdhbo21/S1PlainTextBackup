@@ -6275,3 +6275,17 @@ Windows 8和8.1都是靠Classic Shell过的
 
 
                                                  
+
+*****
+
+####  V5Style  
+##### 520#       发表于 2021-8-14 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364531&amp;ptid=2011727" target="_blank">noneoneone 发表于 2021-8-14 08:43</a>
+
+以前把文件拖到任务栏的应用图标上，应用会弹出来。现在不行了？</blockquote>
+现在不行了，不知道以后会不会加回来。
+
+
+                                                 

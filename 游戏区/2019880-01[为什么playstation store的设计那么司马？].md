@@ -1118,3 +1118,29 @@ XB2美区没日文中文我记得说过容量和部分内容有和谐，所以�
 
 
                                                  
+
+*****
+
+####  skdom  
+##### 93#       发表于 2021-8-14 11:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52305000&amp;ptid=2019880" target="_blank">peh 发表于 2021-8-9 17:05</a>
+
+xbox store也难用，我到现在还是没找到语言在哪里..</blockquote>
+XBOX那个是蠢到不久前才加入支持语言，而且还不全。
+
+例如如龙7有繁简体中文，列表里就没有（因为中文是后来更新的）……
+
+
+问题是XBOX360的商店，以及Win8/8.1/10的商店里都能显示支持语言，就XBOX的没有……
+
+完全无法理解
+
+
+不过我已经习惯查看某些网站来搜索哪些游戏支持中文了……
+
+例如 [http://www.yxzzd.com/2016.html](http://www.yxzzd.com/2016.html)
+
+
+                                                 

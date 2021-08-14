@@ -16460,3 +16460,54 @@ c5441ae8c2a344b00c7899de58f08077.jpg
 
 
                                                  
+
+*****
+
+####  rollingusagi  
+##### 82250#       发表于 2021-8-14 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364988&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-08-14 09:48:31</a>
+布兰卡&gt;奥伯龙&gt;泰坦妮亚，好家伙，扭起来了啊继金色相簿之后，又有妖精相簿了吗？ ...</blockquote>奥博龙的泰坦尼亚就是布兰卡吧，完美符合能无条件的去包容他爱他这一点，但是碍于自身性质这货绝对不会承认就是了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  angelooo  
+##### 82251#       发表于 2021-8-14 10:41
+
+
+蛾子小公主太惨了……虽然最后上了满破卡面和羁绊礼装卡面到底算不算惨……
+
+
+*****
+
+####  xiongxingyu  
+##### 82252#       发表于 2021-8-14 11:12
+
+
+ 本帖最后由 xiongxingyu 于 2021-8-14 11:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364988&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-14 09:48</a>
+
+布兰卡&gt;奥伯龙&gt;泰坦妮亚，好家伙，扭起来了啊继金色相簿之后，又有妖精相簿了吗？ ...</blockquote>
+奥伯龙的泰坦妮亚就是泛人类史中那个只能存在于故事里的泰坦妮亚，可以参考中世纪那堆艺术家心中的理想化女性（或者现代死宅们的二次元老婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 82253#       发表于 2021-8-14 12:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52331355&amp;ptid=1085254" target="_blank">任天索尼子 发表于 2021-8-11 18:23</a>
+
+充了半单想抽着玩玩 结果显示谷歌余额只能在日本使用 我明明挂了日本梯子还是不行。
+
+
+—— 来自 realme RMX ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也中招了。只会限制游戏氪金。但是游戏外的消费没问题。看来谷歌又收紧了
+
+
+                                                 

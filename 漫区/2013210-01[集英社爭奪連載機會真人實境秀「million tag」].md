@@ -2908,3 +2908,14 @@ https://www.bilibili.com/read/readlist/r ...</blockquote>
 
 
                                                  
+
+*****
+
+####  熊猫roey  
+##### 199#       发表于 2021-8-14 11:10
+
+
+藤本似乎比上次贺来对谈合照里瘦了点，看来打拳+健身环确实有用，我去买有氧拳击了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+                                                 

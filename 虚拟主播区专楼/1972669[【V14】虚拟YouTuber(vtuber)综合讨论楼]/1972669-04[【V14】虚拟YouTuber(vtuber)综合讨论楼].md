@@ -16826,3 +16826,168 @@ Syl，刀也新衣装
 
 
                                                  
+
+*****
+
+####  cckuku  
+##### 5854#       发表于 2021-8-14 10:09
+
+
+小熊猫的这首周年曲。。这阵容是彩虹给她找的吗？？我还是点P家UP发的视频才发现是小熊猫<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 5855#       发表于 2021-8-14 10:12
+
+
+不是吧，应该是小熊猫→nnhr→智障花花，至于春卷饭我不知道哪里来的关系
+
+
+*****
+
+####  winda  
+##### 5856#       发表于 2021-8-14 11:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第一场就是威圧感大棒投手折磨王加实打地滑啊，期待
+
+
+*****
+
+####  alcoholic1000  
+##### 5857#       发表于 2021-8-14 11:30
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-14 12:32 编辑 
+
+啊喵喵这还不下？换舞元了
+
+社筑是真的强，完封了，社长这队投捕都可以
+
+
+好短打！ 巴様激怒
+
+感觉决赛已经不用看了，老板娘这队是真行
+
+Syl，King观众那体量，就算1k赞全是火畜点的也不到十分之一啊，这算什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 5858#       发表于 2021-8-14 11:40
+
+
+怎么说呢，只有安洁受伤的世界完成了...
+
+
+*****
+
+####  gaiadc  
+##### 5859#       发表于 2021-8-14 11:46
+
+
+社筑有重球、对危机和尻上，没有强打线根本拿他毫无办法
+
+
+*****
+
+####  Porsche  
+##### 5860#       发表于 2021-8-14 11:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">那个双s是什么情况
+
+
+*****
+
+####  FCCHua  
+##### 5861#       发表于 2021-8-14 12:24
+
+
+好，老板娘赢了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 5862#       发表于 2021-8-14 12:24
+
+
+king再次死在了他最爱的歌姬上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 5863#       发表于 2021-8-14 12:27
+
+
+葛叶一输差评瞬间从226窜到253
+
+火畜这素质啊，不知道说点啥好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 5864#       发表于 2021-8-14 12:30
+
+
+习惯就好<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mmbk  
+##### 5865#       发表于 2021-8-14 12:32
+
+
+nanahira和小熊猫很熟，但鉴于小熊猫前前世还没有定论，不知道怎么搭上关系的
+
+
+*****
+
+####  hulaoda007  
+##### 5866#       发表于 2021-8-14 12:33
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不能现场直播看也好，不用即时看即时血压。
+
+
+*****
+
+####  NBXX  
+##### 5867#       发表于 2021-8-14 12:33
+
+
+【【自我介绍】大家好，我是鸣神裁-哔哩哔哩】https://b23.tv/PuQXkK
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|喷了|
+
+
+查看全部评分
+
+
+*****
+
+####  本间日阳  
+##### 5868#       发表于 2021-8-14 12:35
+
+
+重量级大物来了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+                                                 

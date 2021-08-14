@@ -14258,3 +14258,634 @@ l力场浓度太高，普通人会化
 
 
                                                  
+
+*****
+
+####  qtk9599  
+##### 1164#       发表于 2021-8-14 10:16
+
+
+<blockquote>霧亥 发表于 2021-8-14 08:26
+其实仔细想想这个明日香超能打，那一直以来没人肯定的所谓心理创伤简直无厘头，所以特意加上个复制人设定 ...</blockquote>
+新剧场版里的明日香应该不会有三个驾驶员谁比谁强的烦恼了吧。。。
+
+
+*****
+
+####  海域生还者  
+##### 1165#       发表于 2021-8-14 10:16
+
+
+因为没讲破Q之间的事情，总觉得没有TV那种一气呵成的感觉···
+
+哪怕重新过了一遍前三部，也有一种巨大的割裂感
+
+
+*****
+
+####  qtk9599  
+##### 1166#       发表于 2021-8-14 10:18
+
+
+<blockquote>久保由利香 发表于 2021-8-14 09:10
+一开始可不能打</blockquote>
+破里一登场单挑使徒并获胜，还要怎么能打？
+
+
+*****
+
+####  baiducaonima  
+##### 1167#       发表于 2021-8-14 10:18
+
+
+感觉韩配和英配都可以，台区国语不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Temori  
+##### 1168#       发表于 2021-8-14 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365085&amp;ptid=2013091" target="_blank">kangkangsama 发表于 2021-8-14 10:00</a>
+玛丽对真嗣和香都有着急了不喊外号喊名字的时候。
+
+主要玛丽需要有个像旧tv21话那样的讲一讲行动本源。 ...</blockquote>
+没有要争这个的意思，但印象中玛丽对真嗣的称呼是不是没有去掉过君？
+
+
+*****
+
+####  久保由利香  
+##### 1169#       发表于 2021-8-14 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365246&amp;ptid=2013091" target="_blank">qtk9599 发表于 2021-8-14 10:18</a>
+破里一登场单挑使徒并获胜，还要怎么能打？</blockquote>
+拼命练出来的，后面那个只有3d骨架的模拟战就可以看得出
+
+
+*****
+
+####  镜言  
+##### 1170#       发表于 2021-8-14 10:27
+
+
+ 本帖最后由 镜言 于 2021-8-14 10:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52364013&amp;ptid=2013091" target="_blank">tokimon 发表于 2021-8-14 03:56</a>
+
+新剧场版也终于结束了，再见，EVA。
+
+剧情从黑丽在真嗣眼前漂白变橙汁，小受秒懂老父亲的良苦用心就开始暴走 ...</blockquote>
+握爪，同受震撼。
+
+终里当我看到童年明日香目睹被抱在唯怀里的童年真嗣冲着源渡闹情绪时，其后二人长久的羁绊仿佛呼应着后面薰说过的“我和你的名字写在生命之书里，会不断相遇”。不止是薰，其实真嗣因着选择互补的人格，而与需要补完的大家在无尽的轮回中不断相逢，这种氛围令我甚为震撼。
+
+
+
+
+*****
+
+####  ads147147  
+##### 1171#       发表于 2021-8-14 10:29
+
+
+ 本帖最后由 ads147147 于 2021-8-14 10:30 编辑 
+
+终的补全部分，不仅在重复eoe的部分，并且在重构这一部分，痞子把自己塞到eoe里的那些绝望的部分全部改成希望（或者说，他认为的希望），所以在终里的补全计划里：
+
+
+1、有一个超级笑死人的大白丽（幻想eva，设定上是会呈现大家以为会看到的形象，当然对于补全计划来说，大白丽就是观众的固有印象），粗糙的建模，莫名其妙的表情（北上绿取代被eoe里被吓傻的摩耶喊这™太怪了）。
+
+
+2、漫天的无头白色女性，手牵手还弄出圆弧轨迹，彻底解构了当年都给我去死的歌词。现在我看eoe里的橙汁估计也只会想笑把orz
+
+
+3、没有死在老碇手下还给了老碇四五枪的律子，还有willen的大家一起打造的希望长枪，最后用火箭动力冲大白丽眼睛的美里。处处都和eoe里一篇死寂的nerv不同，可以说是充满了生气的出演。
+
+
+ect.
+
+
+已经病好的人是没办法装作自己生病再表演一次给人看的，有的只有一片平和（或者说没什么起伏）。
+
+
+终其实是艾斯奥特曼第14集jpg
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/103044bxv5xotcg3mt8tmm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210814103034.jpg</strong> (34.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 10:30 上传
+
+
+*****
+
+####  caius  
+##### 1172#       发表于 2021-8-14 10:37
+
+
+司令就是个标准的他人即地狱阿宅，最后电车洗白醒悟也太快了，这么一想eva里是不是有存在主义思想<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+初号机对决一开始3d味太浓，我以为在看柏青哥，之后打穿摄影棚这点挺好，庵野那个纪录片的摄影棚好像就是这样的
+
+
+最后的片尾曲我是摇头晃脑的看完的，看到终剧是发自真心的高兴，求求你不要再拍了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  caius  
+##### 1173#       发表于 2021-8-14 10:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365367&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-14 10:29</a>
+
+终的补全部分，不仅在重复eoe的部分，并且在重构这一部分，痞子把自己塞到eoe里的那些绝望的部分全部改成希 ...</blockquote>
+庵野还真是喜欢这套<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6x6z6w  
+##### 1174#       发表于 2021-8-14 10:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365367&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-14 10:29</a>
+
+终的补全部分，不仅在重复eoe的部分，并且在重构这一部分，痞子把自己塞到eoe里的那些绝望的部分全部改成希 ...</blockquote>
+个人感觉白丽面孔故意被搞得很真人化，就是为了做出特摄那种硬生生拼凑起来的违和感
+
+
+*****
+
+####  eidos  
+##### 1175#       发表于 2021-8-14 10:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52363290&amp;ptid=2013091" target="_blank">Kabine 发表于 2021-8-14 00:45</a>
+
+中年且成家了的宅宅们应该很有感触吧</blockquote>
+感触就是，“就这？”
+
+
+*****
+
+####  ads147147  
+##### 1176#       发表于 2021-8-14 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365433&amp;ptid=2013091" target="_blank">caius 发表于 2021-8-14 10:37</a>
+
+司令就是个标准的他人即地狱阿宅，最后电车洗白醒悟也太快了，这么一想eva里是不是有存在主义思想
+
+
+ ...</blockquote>
+那个是圆谷最著名的摄影棚了，严格说终如果不是痞子厨，大概率认不出来痞子往终里塞了多少玩意。
+
+
+而且司令那个也算是和eoe里唯独走宇宙的解构，毕竟这个司令可能已经是多周目号了，之前是被初号机咬碎，老婆永远在宇宙游荡，这次能和老婆一起死也不错。
+
+
+*****
+
+####  mcq_2  
+##### 1177#       发表于 2021-8-14 10:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365051&amp;ptid=2013091" target="_blank">101stroad 发表于 2021-8-14 09:55</a>
+
+感觉还行，看完q就奇怪后边要怎么落地，居然在两个半小时里基本圆起来了，不清楚痞子制作q时有没有 ...</blockquote>
+规划肯定是有的，现在看来基本主线与tv版还是吻合，结局也对上了。唯独就是每次结局的pv跟下一部基本都对不上。
+
+
+*****
+
+####  七七見奈波  
+##### 1178#       发表于 2021-8-14 10:54
+
+
+序和破结束的时候大家鼓掌叫好满脸兴奋期待下一部，Q的时候大家一脸懵逼这啥玩意啊再去看一遍吧不过还有终兜底应该还能再期待一下吧，到了终知道这玩意就是结束了并且已经能非常明显地感觉出庵野有野心但早已没有当初启动rebuild系列的精气神了（rebuild这名字很快也就没了），做出来的作品疲态尽显，自然只能从“青春结束了”“得到了结局”来让自己平静或感动了。终让人产生的强烈完结感，并不是因为作品已经做到极致、故事圆满收尾，而是因为疲劳，不是“我们到达终点了”，而是“我们走不动了”。
+
+
+想当初序初上映时在11区看了首映的朋友曾对我说，eva还能再火十年。现在的的确确延长了十年以上的寿命，但是不是再火十年，那就看各人的评判标准了。
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1179#       发表于 2021-8-14 10:58
+
+
+一觉睡醒了，彻底变成真樱党了，这是我看完终之后唯一还有力气磕的CP。
+
+所以有铃原樱……哦不碇樱的图吗？来点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七七見奈波  
+##### 1180#       发表于 2021-8-14 10:59
+
+
+老碇觉得在他看来真嗣失去黑丽（“绫波就是绫波，想不到别的名字”，终的定性就是碇真嗣遇到的每一个绫波丽都是绫波丽）才是和自己相同的失去的痛苦，也就是说真嗣失去黑丽才能相当于老碇失去唯，两相对比也是很能说明问题<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Carta_Issue  
+##### 1181#       发表于 2021-8-14 11:00
+
+
+铃原樱莫名其妙的对真嗣有执着感，你们两个相处过过久啊？！
+
+
+*****
+
+####  mcq_2  
+##### 1182#       发表于 2021-8-14 11:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365586&amp;ptid=2013091" target="_blank">七七見奈波 发表于 2021-8-14 10:54</a>
+
+序和破结束的时候大家鼓掌叫好满脸兴奋期待下一部，Q的时候大家一脸懵逼这啥玩意啊再去看一遍吧不过还有终 ...</blockquote>
+eva格局太小了。其实破之后明显是想扩展世界观的。但是全方位发病缩回去了。势力，人物，社会环境一下全面砍掉了。
+
+
+*****
+
+####  6x6z6w  
+##### 1183#       发表于 2021-8-14 11:07
+
+
+ 本帖最后由 6x6z6w 于 2021-8-14 11:10 编辑 
+
+看4chan上有人分析了破和Q之间空白的14年，感觉还挺有道理，可惜这段故事应该没办法展现出来了了  
+
+
+破的末尾初号机引发近三冲→被薰驾驶6号机用卡西乌斯枪阻止  
+
+
+事后Seele以近三冲被意外引发之由，将源堂和冬月逐出NERV，司令和副司令的职位由薰和加持代替（所以有了”薰司令“和加持交谈的镜头），明日香被解放，但眼中打入了封印第9使徒的柱子
+
+
+期间加持因不信任Seele缘故秘密准备了后着（成立WILLE，利用反L结界科技，掠夺Adams可能都是他一手策划），同时第11和第12使徒来袭，均被明日香和玛丽击退，初号机很有可能在这个时间段被发射到了地球轨道上  
+
+
+因为某些原因第12使徒没有死透，成功寄生在6号机身上，并开始自主行动，到达最终教条的6号机很快将莉莉丝斩首并与之躯体融合，引发第三次冲击  
+
+
+加持靠神风攻击中止了第三次冲击，少数人类存活了下来，组建成了新WILLE，吞下尼布甲尼撒之匙的源堂和冬月返回了NERV，并开始准备引发第四次冲击的计划，之后美里带领WILLE夺取了封印在南极的Adams其一，改造成了Wunder，并准备将初号机回收作为其动力源→Q的故事开始
+
+
+*****
+
+####  七七見奈波  
+##### 1184#       发表于 2021-8-14 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365643&amp;ptid=2013091" target="_blank">mcq_2 发表于 2021-8-14 11:01</a>
+
+eva格局太小了。其实破之后明显是想扩展世界观的。但是全方位发病缩回去了。势力，人物，社会环境一下全 ...</blockquote>
+一些油管主总结过庵野在启动rebuild系列后对这个系列的期望值和方向一步一步的变化，不管这些期望是否切合实际及至取得成功，看到Q和终的展开都难免唏嘘。破里封印二号机的组织、伯大尼基地的第三使徒脖子上挂着的插入栓，原本都可以是非常好的新展开方向。庵野即使在终里也依然是有野心的，但一来这野心和最初的野心、和途中的野心早已不是相同的东西，二来只有野心不能支撑一切，庵野的确累了，整部终我感觉到最多的是疲惫。
+
+
+*****
+
+####  1096beam  
+##### 1185#       发表于 2021-8-14 11:18
+
+
+如果近三冲和四冲没被阻止的话，司令的计划也不会成功吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mcq_2  
+##### 1186#       发表于 2021-8-14 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365694&amp;ptid=2013091" target="_blank">6x6z6w 发表于 2021-8-14 11:07</a>
+
+看4chan上有人分析了破和Q之间空白的14年，感觉还挺有道理，可惜这段故事应该没办法展现出来了了  
+
+
+破的末 ...</blockquote>
+seele跟琔的动机跟tv版有区别吗？
+
+琔这种危险分子直接杀掉不是更安全么？
+
+
+*****
+
+####  leystage  
+##### 1187#       发表于 2021-8-14 11:22
+
+
+刚看完，感觉就是一件事结束了。没有很差，也没很好，有些地方的制作并不有趣，或者说也许是因为有些审美疲劳了吧。就这样告一段落好了。结束了。
+
+
+*****
+
+####  mcq_2  
+##### 1188#       发表于 2021-8-14 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365703&amp;ptid=2013091" target="_blank">七七見奈波 发表于 2021-8-14 11:08</a>
+
+一些油管主总结过庵野在启动rebuild系列后对这个系列的期望值和方向一步一步的变化，不管这些期望是否切 ...</blockquote>
+他自己放不下。或者驾驭不了。
+
+
+累不累我觉得都是其次。
+
+
+漫威10年的成就也不是靠一个人撑起来的。不过证明庵野痞子的能耐也就那样了。
+
+
+*****
+
+####  mcq_2  
+##### 1189#       发表于 2021-8-14 11:22
+
+
+ 本帖最后由 mcq_2 于 2021-8-14 11:23 编辑 
+
+编辑
+
+
+*****
+
+####  mcq_2  
+##### 1190#       发表于 2021-8-14 11:22
+
+
+ 本帖最后由 mcq_2 于 2021-8-14 11:24 编辑 
+
+编辑
+
+
+*****
+
+####  6x6z6w  
+##### 1191#       发表于 2021-8-14 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365797&amp;ptid=2013091" target="_blank">mcq_2 发表于 2021-8-14 11:18</a>
+
+seele跟琔的动机跟tv版有区别吗？
+
+琔这种危险分子直接杀掉不是更安全么？
+
+ ...</blockquote>
+应该和TV版相差无几，只不过tv里源堂只想靠补完计划见唯，剧场版里他也是赞同补完计划的，不过Seele可能觉得他私心太重所以才想排除他，但也没觉得他碍事到要非死不可，也有可能源堂事先就吞了钥匙，然后诈死骗过了Seele
+
+
+*****
+
+####  巴麻耒  
+##### 1192#       发表于 2021-8-14 11:29
+
+
+“再见了，所有的evangelion”，庵野秀明写下这句台词的时候，一定爽飞了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mcq_2  
+##### 1193#       发表于 2021-8-14 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365850&amp;ptid=2013091" target="_blank">6x6z6w 发表于 2021-8-14 11:23</a>
+
+应该和TV版相差无几，只不过tv里源堂只想靠补完计划见唯，剧场版里他也是赞同补完计划的，不过Seele可能觉 ...</blockquote>
+还有一个问题，为啥到q才把真嗣救出来，没必要还是没技术，还是时机问题？正常来说，加持跟美里都会全力把他救出来吧
+
+
+*****
+
+####  夜留歌  
+##### 1194#       发表于 2021-8-14 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52355248&amp;ptid=2013091" target="_blank">asion617 发表于 2021-8-13 13:59</a>
+说战斗没意思我同意，但中间那段故意做出特摄感的3d也能黑成三年动画我是没想到 ...</blockquote>
+请问哪部特摄作品的场景道具做的这么粗糙？房子细节不做，一脚踢过去还能像块积木一样整体飞了，破坏效果都不做
+
+—— 来自 samsung SM-G7810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  霧亥  
+##### 1195#       发表于 2021-8-14 11:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365959&amp;ptid=2013091" target="_blank">mcq_2 发表于 2021-8-14 11:35</a>
+
+还有一个问题，为啥到q才把真嗣救出来，没必要还是没技术，还是时机问题？正常来说，加持跟美里都会全力 ...</blockquote>
+压根就没想救他，是去抢初号机了
+
+
+*****
+
+####  mothership  
+##### 1196#       发表于 2021-8-14 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365959&amp;ptid=2013091" target="_blank">mcq_2 发表于 2021-8-14 11:35</a>
+
+还有一个问题，为啥到q才把真嗣救出来，没必要还是没技术，还是时机问题？正常来说，加持跟美里都会全力 ...</blockquote>
+美里对真嗣是有负罪感的,不到万不得以是不会去找初号机的,后面光靠没初号机核心的奇迹号对NEVR战力差应该是绝望的,只能去把初号机找回来,事实一找回来又出事了,找不找SEELE应该都有应对计划,大局方面来说除了最后造枪是没料到的其实全在SEELE可以接受的范围内?
+
+
+*****
+
+####  X(iaolw)S  
+##### 1197#       发表于 2021-8-14 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365703&amp;ptid=2013091" target="_blank">七七見奈波 发表于 2021-8-14 11:08</a>
+
+一些油管主总结过庵野在启动rebuild系列后对这个系列的期望值和方向一步一步的变化，不管这些期望是否切 ...</blockquote>
+第三使徒对应的不就是几首战舰的改造技术吗，同时出场的封印柱这新玩意也用上了，可惜就是不肯好好说话
+
+
+*****
+
+####  Bani82  
+##### 1198#       发表于 2021-8-14 11:45
+
+
+看完了EVA终，最大的疑问是怎么加入机战
+
+初号机和13号机压根没太多战斗表现
+
+二号机使徒化直接被捏爆
+
+八号机也没什么亮眼的表现
+
+战舰基本上来说全程被殴打
+
+杂兵没有一个设计超过当年量产机的
+
+
+*****
+
+####  6x6z6w  
+##### 1199#       发表于 2021-8-14 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365959&amp;ptid=2013091" target="_blank">mcq_2 发表于 2021-8-14 11:35</a>
+
+还有一个问题，为啥到q才把真嗣救出来，没必要还是没技术，还是时机问题？正常来说，加持跟美里都会全力 ...</blockquote>
+三冲之前应该没有可能，如果把初号机扔在轨道是Seele的主意，那NERV估计没人敢去公然造反，是联合国的主意估计也会迫于zz压力不会去管的，三冲之后美里一方面要安置幸存者，一方面要和Seele/源堂周旋，估计在抢到Wunder前完全没有余力去搞回收行动
+
+
+*****
+
+####  萤尘  
+##### 1200#       发表于 2021-8-14 11:49
+
+
+看完了……<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+就勉强打个及格吧。<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+有人类情感的绫波真可爱啊，照顾小宝宝的样子好可爱，种田泡澡的样子好可爱。即便是香党的我也动心了。
+玛丽身上的坑太多了还莫名奇妙的。有待补丁补完。
+香香长大了，香香做得很棒。老母亲欣慰哭哭。她长大了！她跟谁在一起还是不在一起关你们什么事！<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+最后，纵观四部，真嗣在整个新剧场版系列里真的做得很好了，是个关键时刻能克服内心的恐惧和懦弱的勇敢少年，所以Q为什么大家不说人话！！！为什么整部片子大家都不说人话！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+还是愿意给曾经也是个中二扭曲的自己one last kiss，
+但是当年和基友逐帧讨论设定的那种热情，这一部是没办法挑起来了。
+
+—— 来自 Google Pixel 4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  6x6z6w  
+##### 1201#       发表于 2021-8-14 11:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366053&amp;ptid=2013091" target="_blank">Bani82 发表于 2021-8-14 11:45</a>
+
+看完了EVA终，最大的疑问是怎么加入机战
+
+初号机和13号机压根没太多战斗表现
+
+二号机使徒化直接被捏爆</blockquote>
+反正现在机战为了省钱杂兵机都只有一招了，无所谓吧，二号机使徒化也可以做成招式糊弄过去<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  萤尘  
+##### 1202#       发表于 2021-8-14 11:51
+
+
+说起来黑绫波种田那个场景我想起了《岁月的童话》。
+
+—— 来自 Google Pixel 4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  旺角卡门  
+##### 1203#       发表于 2021-8-14 11:54
+
+
+ 本帖最后由 旺角卡门 于 2021-8-14 11:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366114&amp;ptid=2013091" target="_blank">萤尘 发表于 2021-8-14 11:51</a>
+
+说起来黑绫波种田那个场景我想起了《岁月的童话》。
+
+
+—— 来自 Google Pixel 4, Android 11上的 S1Next-鹅 ...</blockquote>https://img9.doubanio.com/view/photo/raw/public/p991995884.jpg
+
+整个第三村都很岁月童话
+<img src="https://img9.doubanio.com/view/photo/l/public/p991995884.webp" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七七見奈波  
+##### 1204#       发表于 2021-8-14 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366046&amp;ptid=2013091" target="_blank">X(iaolw)S 发表于 2021-8-14 11:45</a>
+
+第三使徒对应的不就是几首战舰的改造技术吗，同时出场的封印柱这新玩意也用上了，可惜就是不肯好好说话 ...</blockquote>
+第三使徒是直接放了插入栓在上头，联系tv，当时的主流思路其实是“EVA是由使徒制造而来的”，与月面基地的Mark.06如何制造出来是相对应的。私以为Q和终的很多所谓设定看似和序破能对上，其实已经是新设定、回头找补联系上了，未必是破这个情节出现时就有的设定。Q终对设定的处理态度和抛出来的方式给人感觉和序破乃至tv都不太一样。
+
+
+*****
+
+####  pigofsunny  
+##### 1205#       发表于 2021-8-14 12:19
+
+
+先看了NHK拍的纪录片，庵野秀明不断地重复角度的重要性，强调不能被过去所局限。
+
+60岁的人了，从剧本到画面到剪辑到配音，能顶下来已经算是诚意之作了。
+
+纪录片里的剖析，挺让人感触的。一部作品，成就了一大群人，但也仿佛成为了一大群人的枷锁。
+
+突破自我，实在太难了。
+
+
+关于父子之战时候的画面违和感，碇源堂说了，这是真嗣的记忆世界。
+
+大概因为记忆就是不完全符合真实的，而且记忆和记忆之间的穿越跟走片场一样吧。
+
+
+纪录片+终：“我舍不得，但我该结束这一切了。我竭尽全力，就做到这样了。再见！”
+
+就，挺好的。
+
+
+胸大的好女人，是在感谢自己的老婆吧！可以的！
+
+
+*****
+
+####  zlzhcqblf  
+##### 1206#       发表于 2021-8-14 12:25
+
+
+<blockquote>6x6z6w 发表于 2021-8-14 11:50
+反正现在机战为了省钱杂兵机都只有一招了，无所谓吧，二号机使徒化也可以做成招式糊弄过去 ...</blockquote>
+量产7号机大概是我笑的最开心的地方了，让我想起当年高达00 alaws有三红技术缺放到量产机上搞神风
+
+
+*****
+
+####  霧亥  
+##### 1207#       发表于 2021-8-14 12:26
+
+
+说起来，终里战舰追逐战也是他有史以来做得最烂的一次了吧
+
+
+*****
+
+####  重巡羊舰  
+##### 1208#       发表于 2021-8-14 12:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365694&amp;ptid=2013091" target="_blank">6x6z6w 发表于 2021-8-14 11:07</a>
+
+看4chan上有人分析了破和Q之间空白的14年，感觉还挺有道理，可惜这段故事应该没办法展现出来了了  
+
+
+破的末 ...</blockquote>
+他这分析很不错，只是不明白，第一是如果mark6引发的三冲，那船上那么多人怪真嗣有什么道理，初号机的三冲被阻止了啊，死人是因为mark6啊，第二就是假如加持上位，美里完全没理由和加持告别的，一起先待在nerv做地下工作不好吗，还身居高位，但是终里明显是加持去找mark6拼命了，当时有wille了，已经和nerv闹翻了……总之……这剧情真满身bug
+
+
+                                               

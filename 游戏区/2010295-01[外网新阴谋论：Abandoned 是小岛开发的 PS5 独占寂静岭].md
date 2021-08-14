@@ -9709,3 +9709,110 @@ They played us like a damn fiddle! <img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+*****
+
+####  你又开始了？  
+##### 764#       发表于 2021-8-14 10:07
+
+
+ 本帖最后由 你又开始了？ 于 2021-8-14 10:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">想殴打楼主，天天搬这吊事把帖子顶上来，害我反复确认自己是猴
+
+
+*****
+
+####  wujae  
+##### 765#       发表于 2021-8-14 10:20
+
+
+好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  日日日日日野  
+##### 766#       发表于 2021-8-14 10:22
+
+
+<blockquote>ifeinano 发表于 2021-8-14 08:49
+其实索尼也就帮这游戏发了个预告片和blog而已，ps5独占说不定也是人家主动贴过来没花什么钱 ...</blockquote>
+前段时间声讨索尼对独立开发者不好的时候可不是这种说法，只可能有一种逻辑是真实的，再看看吧。
+
+
+*****
+
+####  wsdbyh  
+##### 767#       发表于 2021-8-14 10:29
+
+
+笑死，这不就是之前在推上就有的视频加了段音乐么
+
+
+*****
+
+####  新八  
+##### 768#       发表于 2021-8-14 10:32
+
+
+小岛“没想到我也有人在家中坐锅从天上来的一天” <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OneMice  
+##### 769#       发表于 2021-8-14 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52365294&amp;ptid=2010295" target="_blank">日日日日日野 发表于 2021-8-14 10:22</a>
+前段时间声讨索尼对独立开发者不好的时候可不是这种说法，只可能有一种逻辑是真实的，再看看吧。 ...</blockquote>
+这烂逼工作室能得到这么多关注，不就是在侮辱好好做游戏的独立工作室吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  新八  
+##### 770#       发表于 2021-8-14 11:47
+
+
+cory表示困惑 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+image.png
+(21.76 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-14 11:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/114723s2y66wy2d7afiflf.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zris  
+##### 771#       发表于 2021-8-14 12:00
+
+
+其实，也感谢blue box
+
+
+这耍猴耍得溜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  谢俊豪  
+##### 772#       发表于 2021-8-14 12:02
+
+
+5s震惊业界，继续耍猴
+
+
+                                                 
