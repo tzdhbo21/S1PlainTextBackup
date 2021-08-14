@@ -16713,3 +16713,20 @@ CP我反正看下来是觉得谁都没成，之前漫区吵成那样，结果好
 
 
                                                  
+
+*****
+
+####  hunterkiller  
+##### 1333#       发表于 2021-8-15 03:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52375092&amp;ptid=2013091" target="_blank">茴香蚪的马甲 发表于 2021-8-14 23:48</a>
+
+可能痞子过了这么多年，想到《破》前半段的媚宅剧情越想越不爽，于是非要在这部里面把丽和明日香当时喜欢 ...</blockquote>
+说明痞子还是没长大。
+
+
+喜欢一把手的儿子还需要理由？<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+                                                 
