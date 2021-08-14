@@ -15598,3 +15598,146 @@ Q啊，是个情绪主导的作品。什么一觉睡醒十四年过去了，什�
 
 
                                                  
+
+*****
+
+####  未向heart  
+##### 1266#       发表于 2021-8-14 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">借楼求1个字幕，有好一点的字幕了么
+
+
+*****
+
+####  X(iaolw)S  
+##### 1267#       发表于 2021-8-14 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369762&amp;ptid=2013091" target="_blank">好大哦 发表于 2021-8-14 18:05</a>
+
+官方翻译烂的一比，请的翻译公司译者肯定也不怎么了解EVA，对话也没润色，能看出是从英文翻译过来的，没有 ...</blockquote>
+直接听台配版，翻译还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JoelBirch  
+##### 1268#       发表于 2021-8-14 20:03
+
+
+ 本帖最后由 JoelBirch 于 2021-8-14 20:14 编辑 
+
+看大伙儿都在说Q的美里不说人话，只看完了破，不懂；
+
+不过，我觉得就算在TV里，大伙儿也不咋说人话，也不是说那种日式味儿，单纯就是这群人都不正常，加持还行，冬月勉强也行，就这么一群病人给14岁的自闭少年讲道理，一点说服力都没有啊……
+
+美里虽然漂亮话讲得挺多，但一到自己个儿还是全麻，唯一比真嗣强的地方是所谓“大人的责任感”，不过这个东西对真嗣个人来说，也太虚无了，连个理由都难找；
+
+虽然剧场版各种意义上赶得不行，虽然我是TV美里剧场丽党，但看下来反而觉得破的美里要帅多了，少了废话，真正支持了真嗣一把（虽然也是口头，虽然大人的吻很美
+
+在这种一小撮精神病为了一己私欲操纵世界的背景下，什么宗教意义人类补完心理分析，别扯几把淡了，还是让人安安心心看点少年少女的纯爱吧，挺好的
+
+
+*****
+
+####  madcow  
+##### 1269#       发表于 2021-8-14 20:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官方鬼畜里插的那一堆EVA里是不是漏了3号机重涂的4号机，还是新剧场里设定被砍了
+
+
+*****
+
+####  flamel  
+##### 1270#       发表于 2021-8-14 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52371114&amp;ptid=2013091" target="_blank">madcow 发表于 2021-8-14 20:09</a>
+官方鬼畜里插的那一堆EVA里是不是漏了3号机重涂的4号机，还是新剧场里设定被砍了 ...</blockquote>
+设定里还有，但是只存在于台词里，话说回来破开头里欧洲支部炸掉的五号机也没有，所以说漏了就漏了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Eurofighter  
+##### 1271#       发表于 2021-8-14 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52371327&amp;ptid=2013091" target="_blank">flamel 发表于 2021-8-14 20:20</a>
+
+设定里还有，但是只存在于台词里，话说回来破开头里欧洲支部炸掉的五号机也没有，所以说漏了就漏了吧
+
+
+— ...</blockquote>
+5号机有的，没有漏
+
+
+*****
+
+####  flamel  
+##### 1272#       发表于 2021-8-14 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52371353&amp;ptid=2013091" target="_blank">Eurofighter 发表于 2021-8-14 20:23</a>
+5号机有的，没有漏</blockquote>
+那就清楚了，叉出去的是除了玛丽还开着的以外的新剧场版里出场过的EVA\人造使徒
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  MONSTERS  
+##### 1273#       发表于 2021-8-14 20:33
+
+
+ 本帖最后由 MONSTERS 于 2021-8-14 20:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52371114&amp;ptid=2013091" target="_blank">madcow 发表于 2021-8-14 20:09</a>
+
+官方鬼畜里插的那一堆EVA里是不是漏了3号机重涂的4号机，还是新剧场里设定被砍了 ...</blockquote>
+
+应该是被Q和终里的一些不同型号的MARK系列4号机代替了，就补完时3号机到5号机之间闪过的好几个非完全人形的机子。之后的7号机也是用的量产骷髅的MARK7号机
+
+
+*****
+
+####  戏言学者  
+##### 1274#       发表于 2021-8-14 20:40
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/203841vp8vgphndy111y88.jpg" referrerpolicy="no-referrer">
+
+
+<strong>asuka.jpg</strong> (56.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 20:38 上传
+
+
+小明日香背包上的这个名字是什么意思？
+
+S.S.ASUKA
+
+soryu.shikinami.asuka的意思吗？
+
+惣流·式波·明日香？？
+
+
+*****
+
+####  X(iaolw)S  
+##### 1275#       发表于 2021-8-14 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52371114&amp;ptid=2013091" target="_blank">madcow 发表于 2021-8-14 20:09</a>
+
+官方鬼畜里插的那一堆EVA里是不是漏了3号机重涂的4号机，还是新剧场里设定被砍了 ...</blockquote>
+所有那堆奇形怪状的量产机就是4号机了，重涂版在新剧里没出现过
+
+
+                                                 

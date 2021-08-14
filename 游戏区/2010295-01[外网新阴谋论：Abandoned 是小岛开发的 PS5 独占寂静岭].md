@@ -9970,3 +9970,16 @@ Screen Shot 2021-08-14 at 12.27.21 AM.png
 
 
                                                  
+
+*****
+
+####  920619lqy  
+##### 785#       发表于 2021-8-14 19:33
+
+
+虽然蓝盒子这个活已经烂屁股了，但是索科岛三方对此都毫无表示甚至还在配合演出，实在是让人看不透
+
+除非你告诉我小岛工作室是世外天国，这个蓝盒子是钻石狗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+                                                 

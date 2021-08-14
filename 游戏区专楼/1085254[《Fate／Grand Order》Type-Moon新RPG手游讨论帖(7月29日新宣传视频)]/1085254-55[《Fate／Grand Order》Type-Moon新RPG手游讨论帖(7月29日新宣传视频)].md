@@ -17045,3 +17045,196 @@ dw新年出个旧梅吧，出个旧梅和梅林搞个高难长线本的配队还
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 82291#       发表于 2021-8-14 19:20
+
+
+搞错 编辑
+
+
+*****
+
+####  黑上シグマ  
+##### 82292#       发表于 2021-8-14 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52370526&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-14 19:19</a>
+
+dw新年出个旧梅吧，出个旧梅和梅林搞个高难长线本的配队还能洗一下ob龙这个debuff。不然这个debuff出的一点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有的，等街机死了再说吧
+
+
+*****
+
+####  exiaexa  
+##### 82293#       发表于 2021-8-14 19:23
+
+
+ 本帖最后由 exiaexa 于 2021-8-14 19:24 编辑 
+
+梅林的问题主要还是把，当时大家都设想的红卡补强的位置扔给奥伯龙了吧
+
+实际上奥伯龙3技能这个红魔放给不给意义真的不大，他作为一个宝具威力加成+70充拐已经足够作为一个限定了，现在三技能给了个红魔放，不管是从剧本从游戏性都成了最后一根稻草
+
+对比当初c呆踩死狐狸，首先剧情不冲突，其次偶尔能加个班只能算退居二线，没出现梅林这么极端的情况（流水的打手能叫事儿吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">）
+
+现在再让我们来思考梅林怎么强化这个问题，肯定不是加个50充能解决的，甚至可以说不是飞跃性强化的话再出场希望渺茫了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龙星丸  
+##### 82294#       发表于 2021-8-14 19:27
+
+
+国服的问问，现在新技能1级登场10np需要付出什么才能得到？还是直接就能开？
+
+
+*****
+
+####  exiaexa  
+##### 82295#       发表于 2021-8-14 19:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52370615&amp;ptid=1085254" target="_blank">龙星丸 发表于 2021-8-14 19:27</a>
+
+国服的问问，现在新技能1级登场10np需要付出什么才能得到？还是直接就能开？ ...</blockquote>
+只是开技能的话，120个硬币就行
+
+技能升级2-9需要素材，10需要结晶
+
+
+*****
+
+####  里村紅葉  
+##### 82296#       发表于 2021-8-14 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52370578&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-14 19:23</a>
+
+梅林的问题主要还是把，当时大家都设想的红卡补强的位置扔给奥伯龙了吧
+
+
+实际上奥伯龙3技能这个红魔放给不 ...</blockquote>
+出个女梅林，性能比奥宝还强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龙星丸  
+##### 82297#       发表于 2021-8-14 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52370639&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-14 19:29</a>
+
+只是开技能的话，120个硬币就行
+
+技能升级2-9需要素材，10需要结晶</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">那仇凛开10np就能解放衣服了
+
+
+*****
+
+####  上坂莲华  
+##### 82298#       发表于 2021-8-14 19:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52370578&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-14 19:23</a>
+
+梅林的问题主要还是把，当时大家都设想的红卡补强的位置扔给奥伯龙了吧
+
+
+实际上奥伯龙3技能这个红魔放给不 ...</blockquote>
+简单的很，再给2技能加个跟后排从者交换就能稳定出场率了
+
+不绑换人服是高贵的50冲50红魔放自下场拐，绑换人服可以上四个拐，单奥伯龙220NP，双奥伯龙240NP，活动礼装再给40NP，是个打手都能闭着眼睛冲三面，强到没边，强到没边口牙！<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82299#       发表于 2021-8-14 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52370578&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-14 19:23</a>
+
+梅林的问题主要还是把，当时大家都设想的红卡补强的位置扔给奥伯龙了吧
+
+
+实际上奥伯龙3技能这个红魔放给不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强化个猫儿当然直接出一个全新的梅林啊
+
+
+*****
+
+####  exiaexa  
+##### 82300#       发表于 2021-8-14 19:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52370754&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-8-14 19:43</a>
+
+简单的很，再给2技能加个跟后排从者交换就能稳定出场率了
+
+不绑换人服是高贵的50冲50红魔放自下场拐，绑换 ...</blockquote>
+那得先把宝具改掉
+
+不然开个幻术就换人也太草了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 82301#       发表于 2021-8-14 20:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥伯龙也就那个被动离谱吧
+
+还有长线优势,还能苟一会
+
+实际上大家都不喜欢打长线了,巴不得3t爆破<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 82302#       发表于 2021-8-14 20:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老实说 我支持隔壁喷这个debuff 
+
+倒不是我常用梅林 而是之前都在无脑护蘑菇 现在因为这被动啊语音啥的出来喷蘑菇的越来越多了 让我很欣慰 撕啊 撕起来 撕再响一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我坦白 我就是想看热闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 82303#       发表于 2021-8-14 21:26
+
+
+隔壁得等国服实装了才能闹大，现在也就是云一下的水平，最多三天就忘完了
+
+看看当年多少按着计算器吹C呆的，再看看前几天多少喷C呆喷蓝卡队不行的，就知道隔壁的云日服比例了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82304#       发表于 2021-8-14 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52372649&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-8-14 21:26</a>
+
+隔壁得等国服实装了才能闹大，现在也就是云一下的水平，最多三天就忘完了
+
+看看当年多少按着计算器吹C呆的， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟是1年前云的 现在翻车很正常（
+
+
+                                                 

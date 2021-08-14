@@ -17986,3 +17986,202 @@ syl 小偶像和3d是绝配 确信
 
 
                                                  
+
+*****
+
+####  间隙白垢  
+##### 5958#       发表于 2021-8-14 19:27
+
+
+德龙这一哭，把一切的流量都引到了自己身上，从泥哥坛到S1，无不在热烈讨论德龙哭，而第一名的大福反而无人在意了。这次比赛，最彰显了自己游戏水平的是仔细调整打顺的大福，出力最大的是费力拉了赞助，联系选手的主催舞元天开，不过他们在这次活动中收获的“流量”加起来怕是也比不了德龙。德龙这一哭不光收获了无数流量，还为自己添加了“对待比赛认真不服输”“忙于live耽误了队伍培养”等等光环，相比之下，本格游戏玩家大福得个A组第一有什么用呢？
+
+
+*****
+
+####  喜闻乐见  
+##### 5959#       发表于 2021-8-14 19:30
+
+
+拉拉今天b限耐久目标1.5w，
+
+下午四点左右1.27w现在1.29，目标也改成1.3w了
+
+
+*****
+
+####  我不是很好  
+##### 5960#       发表于 2021-8-14 19:32
+
+
+豆猫怎么又玩上魔界村了
+
+
+*****
+
+####  hulaoda007  
+##### 5961#       发表于 2021-8-14 19:42
+
+
+光君开播了，观众投稿“明明是我先的...”为题目的短文评价。
+[https://www.youtube.com/watch?v=mgeqSknvi9I](https://www.youtube.com/watch?v=mgeqSknvi9I)
+
+
+*****
+
+####  sonyjam  
+##### 5962#       发表于 2021-8-14 19:47
+
+
+这不正说明得第一是大家认为的理所应当吗，一个硬实力选手突然万众瞩目反而问题很大
+
+
+*****
+
+####  winda  
+##### 5963#       发表于 2021-8-14 19:55
+
+
+https://nyfco.org/sukoya-zense/
+小护士是京都府立医科大学的啊，和绿色的学习院大学比那个厉害点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 5964#       发表于 2021-8-14 19:56
+
+
+只要甲子园接着搞，就说明liver还是输的起的，真正输不起的只有输了以后逐帧分析谁害谁的粉丝。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adcdqre  
+##### 5965#       发表于 2021-8-14 19:57
+
+
+ 本帖最后由 adcdqre 于 2021-8-14 20:05 编辑 
+
+管人粉整不出新活了吗
+做个工商场外场内戏不断
+
+
+*****
+
+####  noHentai  
+##### 5966#       发表于 2021-8-14 20:03
+
+
+我是没想到能在S1看到有人因为这种事情暴喷德龙的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 5967#       发表于 2021-8-14 20:05
+
+
+[https://www.youtube.com/watch?v=FyDsC8XzZwQ](https://www.youtube.com/watch?v=FyDsC8XzZwQ)
+
+【3DLIVE】musica3Dライブ -ミライゴト-【2周年】
+
+真是又姨又好，就是喜欢这样的姨
+
+
+省一楼，utagoe部那三个就是太自闭了，动不动唱歌耐久有啥用，还不如多联动蹭蹭梗啥的
+
+
+*****
+
+####  Suny08  
+##### 5968#       发表于 2021-8-14 20:12
+
+
+小护士都25了啊，和小绿一样也是研究生毕业，找个正经工作不好么
+
+
+*****
+
+####  hulaoda007  
+##### 5969#       发表于 2021-8-14 20:17
+
+
+我觉得为了这种琐碎事喷德龙还蛮好的。很怀念的感觉。
+
+
+*****
+
+####  FCCHua  
+##### 5970#       发表于 2021-8-14 20:23
+
+
+ 本帖最后由 FCCHua 于 2021-8-14 21:04 编辑 
+
+sky果然是96年的，虽然大学猜错了，前女友那条好瞩目<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+她在兼职啊，暂停solo直播长时间准备考证考试我觉得挺正经了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过她直播大实话也太多了，昨天早上推特还没🔒，手速惊人，这么突然很难不怀疑被熟人背刺<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  祸猫  
+##### 5971#       发表于 2021-8-14 20:25
+
+
+很难不笑死<img src="https://p.sda1.dev/2/54dbad036b7eaaae10c41f374e8e0db4/-666b2bf259172865.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dybang  
+##### 5972#       发表于 2021-8-14 20:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是亲爹粉吗够真情实感
+syl可以不要放学霸的高中照片吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我高中那些学霸同学现在打扮得都不敢认了
+
+
+*****
+
+####  白房子  
+##### 5973#       发表于 2021-8-14 21:08
+
+
+sky这事传到S1已经很慢了，
+
+也是说外面传得太快了，删得也太快了，韩国那边都有被删除的帖子了。
+
+
+*****
+
+####  霜浪  
+##### 5974#       发表于 2021-8-14 21:09
+
+
+sky刚出道就被扒差不多了其实……
+
+
+*****
+
+####  白房子  
+##### 5975#       发表于 2021-8-14 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52372319&amp;ptid=1972669" target="_blank">霜浪 发表于 2021-8-14 21:09</a>
+
+sky刚出道就被扒差不多了其实……</blockquote>
+没有，之前的要么是假料要么以为是素人，昨天下午才被日韩爆出来本物。
+
+
+*****
+
+####  心垂万刃  
+##### 5976#       发表于 2021-8-14 21:21
+
+
+姛也是真的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                
