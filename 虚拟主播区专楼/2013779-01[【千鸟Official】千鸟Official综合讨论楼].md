@@ -2611,3 +2611,27 @@ co宝又是早班，虽然不是6点</blockquote>
 
 
                                                  
+
+*****
+
+####  gawain039  
+##### 232#       发表于 2021-8-15 00:43
+
+
+文静这最后半小时好像真破防了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  gawain039  
+##### 233#       发表于 2021-8-15 00:43
+
+
+文静这最后半小时好像真破防了
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

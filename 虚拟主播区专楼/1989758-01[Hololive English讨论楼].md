@@ -19243,3 +19243,43 @@ Nephamily
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1232#       发表于 2021-8-14 22:57
+
+
+Calli: we like kusotori, she works very hard
+
+
+*****
+
+####  wiig  
+##### 1233#       发表于 2021-8-14 23:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">原来是线下联动吗
+
+
+*****
+
+####  wiig  
+##### 1234#       发表于 2021-8-15 00:07
+
+
+Calli doko ? :&lt;
+
+
+*****
+
+####  wiig  
+##### 1235#       发表于 2021-8-15 00:16
+
+
+Calli &amp; Milky singing "Airplanes" 
+
+Calli &amp; Kiara singing "Leaving on a Jet Plane"
+
+
+                                                 

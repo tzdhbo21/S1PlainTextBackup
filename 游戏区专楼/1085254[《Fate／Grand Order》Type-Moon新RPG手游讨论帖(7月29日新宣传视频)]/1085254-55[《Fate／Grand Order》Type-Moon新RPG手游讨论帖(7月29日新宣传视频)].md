@@ -17382,3 +17382,63 @@ NGA大把【你C呆没第一时间310我就删好友】的人呢，带个梅林�
 
 
                                                  
+
+*****
+
+####  yangun22  
+##### 82315#       发表于 2021-8-14 22:50
+
+
+两个新的都没耐久辅助能力，梅林要加强也是往耐久方向加强，另外我奇怪梅林从一开始就没怎么用在速刷里面阿，20充能就算在当时也不怎么够看阿，另外国内的所谓厨子有时候实在好笑，隔壁有个自称厨的还在那里叫梅林站在是正义和爱这边的，笑死，连角色都没搞懂在厨什么阿<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 82316#       发表于 2021-8-14 22:53
+
+
+有些人有病吧，明知道有副作用梅林不能进队伍里还硬要带梅林<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有本事你只带梅林刷本啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 82317#       发表于 2021-8-14 22:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">梅林何苦在周回上班。这一直都不怎么擅长，要加强不如宝具再塞个强化解除耐性和盾。
+
+
+*****
+
+####  alucardcz  
+##### 82318#       发表于 2021-8-14 23:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有个问题  在争梅林这事的有几个是日服玩家？
+
+
+*****
+
+####  rooarr  
+##### 82319#       发表于 2021-8-14 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52374365&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 23:00</a>
+有个问题  在争梅林这事的有几个是日服玩家？</blockquote>
+应该是0吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  miro112233  
+##### 82320#       发表于 2021-8-14 23:34
+
+
+我对梅林强化只有一个要求，把17剧情支援的那个即时回血加上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

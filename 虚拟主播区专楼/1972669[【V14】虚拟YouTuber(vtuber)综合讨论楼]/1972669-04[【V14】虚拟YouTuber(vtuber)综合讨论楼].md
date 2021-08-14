@@ -18281,3 +18281,51 @@ Over ...</blockquote>
 
 
                                                  
+
+*****
+
+####  OldGlory  
+##### 5984#       发表于 2021-8-14 23:11
+
+
+老早之前就看过了你发出来看看对不对得上就是了
+
+
+*****
+
+####  rzrbtk  
+##### 5985#       发表于 2021-8-14 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373869&amp;ptid=1972669" target="_blank">fastary 发表于 2021-8-14 22:30</a>
+黑客：今天开始一年后我目标是金盾
+
+还是黑客：之后4天自开台只有两次，外加两次队友窗的APEX练习[f: ...</blockquote>
+有点很好奇黛灰对虹棒（妄想战）的看法，我觉得他中之人对角色的塑造是有追求的，他会乐意接受这种官方二创吗？不怕ooc嘛？
+但总觉得他对这些还蛮放宽心的…
+
+
+*****
+
+####  winda  
+##### 5986#       发表于 2021-8-14 23:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">对哦，按jst已经是8.15终战纪念日了，note泄露一周年纪念
+
+
+*****
+
+####  hulaoda007  
+##### 5987#       发表于 2021-8-14 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52374796&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-8-14 23:27</a>
+
+有点很好奇黛灰对虹棒（妄想战）的看法，我觉得他中之人对角色的塑造是有追求的，他会乐意接受这种官方二 ...</blockquote>
+我猜的，但担心自己RP被骚扰只有两种可能，一个是RP难度大（尤德里克为例），一个有一说一是自我意识过剩，觉得自己产的才是自己的，不想别人打扰。
+
+所以我猜只要最后结果有趣，myy应该不会太在意。
+
+
+                                                 

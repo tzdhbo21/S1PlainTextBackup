@@ -7711,3 +7711,161 @@ fnndp呢，犬山自己有时候不照样没事TC吐黑泥<img src="https://stat
 
 
                                                  
+
+*****
+
+####  yywzjsw  
+##### 712#       发表于 2021-8-14 23:05
+
+
+今晚都是恋爱歌
+
+
+*****
+
+####  T_Hb  
+##### 713#       发表于 2021-8-14 23:06
+
+
+怎么不是苦情歌，我输了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 714#       发表于 2021-8-14 23:07
+
+
+最后给你一首别人的女朋友
+
+
+*****
+
+####  T_Hb  
+##### 715#       发表于 2021-8-14 23:22
+
+
+ 本帖最后由 T_Hb 于 2021-8-14 23:27 编辑 
+
+嘻嘻
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巧了，我也没看过物语
+
+
+*****
+
+####  Klience  
+##### 716#       发表于 2021-8-14 23:32
+
+
+哦 忘了开梯子 没有收到通知 刷了一个晚上的任务才知道这人播了 问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草 已经播了一个小时了啊
+
+
+*****
+
+####  T_Hb  
+##### 717#       发表于 2021-8-14 23:44
+
+
+东卍这歌唱这么好了啊，全程不拉
+
+
+*****
+
+####  Cushaw  
+##### 718#       发表于 2021-8-14 23:49
+
+
+哪个好哥哥来说一下现在小麻的歌单是个什么情况，我都不认识几首，是最新最in的管人金曲吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 719#       发表于 2021-8-14 23:55
+
+
+ 本帖最后由 T_Hb 于 2021-8-14 23:57 编辑 
+
+前面几首好像以前都唱过，然后是物语出过翻唱的歌，然后是东卍的歌
+
+今天恋歌浓度好高
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  Klience  
+##### 720#       发表于 2021-8-14 23:57
+
+
+小小恋歌我可以<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  T_Hb  
+##### 721#       发表于 2021-8-15 00:14
+
+
+ 本帖最后由 T_Hb 于 2021-8-15 00:33 编辑 
+
+这歌怎么回事，前面nyan nyan nyan，后面又汪汪汪
+
+今天的🌸是金色的!
+
+can u be my wife? yes i can!
+
+
+*****
+
+####  时间在我手中  
+##### 722#       发表于 2021-8-15 00:15
+
+
+桀桀，猫党早该胜利了
+
+
+*****
+
+####  T_Hb  
+##### 723#       发表于 2021-8-15 00:50
+
+
+猪叫起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mikumiku831  
+##### 724#       发表于 2021-8-15 00:52
+
+
+以后我就是猪党了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 725#       发表于 2021-8-15 00:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这首真好
+
+
+                                                
