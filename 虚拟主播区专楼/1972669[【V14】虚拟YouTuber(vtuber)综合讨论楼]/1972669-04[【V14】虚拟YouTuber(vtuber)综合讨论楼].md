@@ -17487,3 +17487,155 @@ superhero<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" r
 
 
                                                 
+
+*****
+
+####  Porsche  
+##### 5914#       发表于 2021-8-14 14:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367406&amp;ptid=1972669" target="_blank">Ketestrait 发表于 2021-8-14 14:03</a>
+
+看真正的甲子园出意外可以骂选手傻逼or场外因素傻逼（以上可推及任意体育项目和大会，例如奥运会、NBA etc. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">说点冠冕堂皇的话
+
+真正的甲子园出现状况绝对不会怪罪任何人，能踏入这个场地的都是英雄<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+但是NPB MLB之类的绝对能骂就骂到死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 5915#       发表于 2021-8-14 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367719&amp;ptid=1972669" target="_blank">Porsche 发表于 2021-8-14 00:37</a>
+
+说点冠冕堂皇的话
+
+真正的甲子园出现状况绝对不会怪罪任何人，能踏入这个场地的都是英雄</blockquote>
+我想起柯南甲子园的恶魔那集，犯人说甲子园犯一个失误，不止孩子连全家都会成为周围人的笑柄一直被指指点点
+
+我很好奇真的至于吗，狂热到那分上吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 5916#       发表于 2021-8-14 14:45
+
+
+ 本帖最后由 FCCHua 于 2021-8-14 14:52 编辑 
+
+老板娘的打线终于复活了吗？
+是真的投入啊
+
+
+*****
+
+####  Ketestrait  
+##### 5917#       发表于 2021-8-14 15:02
+
+
+投手输，全盘输<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 5918#       发表于 2021-8-14 15:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">看战报，我心脏快不行了。
+
+
+*****
+
+####  alcoholic1000  
+##### 5919#       发表于 2021-8-14 15:15
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-14 15:18 编辑 
+
+这盗垒，这最后机会！社筑体力彻底空了，接下来老板娘能把握住这次机会吗！B组太好看了
+
+满垒了啊啊
+
+哎呀太可惜了，差一点就打出少年漫了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+​犬も猫も大活躍...
+
+
+*****
+
+####  Porsche  
+##### 5920#       发表于 2021-8-14 15:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧本与反剧本 其实还是剧本
+
+
+*****
+
+####  幸福梦魇  
+##### 5921#       发表于 2021-8-14 15:17
+
+
+真的是精彩啊。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  FCCHua  
+##### 5922#       发表于 2021-8-14 15:17
+
+
+没了，没有然后了...哎，心疼老板娘<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 5923#       发表于 2021-8-14 15:17
+
+
+ 本帖最后由 白金口袋 于 2021-8-14 01:20 编辑 
+
+B组是真的好看
+
+帝华第二晋级，就问开赛前这谁能猜到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 5924#       发表于 2021-8-14 15:19
+
+
+我要救护车，谢谢。
+
+
+*****
+
+####  FCCHua  
+##### 5925#       发表于 2021-8-14 15:20
+
+
+还是让虹男进决赛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 5926#       发表于 2021-8-14 15:22
+
+
+这剧本写的无敌了
+
+
+                                                 

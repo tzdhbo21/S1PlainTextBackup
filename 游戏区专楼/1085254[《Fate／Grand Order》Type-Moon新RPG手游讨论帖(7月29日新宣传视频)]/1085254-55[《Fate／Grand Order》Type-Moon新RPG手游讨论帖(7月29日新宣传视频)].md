@@ -16684,3 +16684,17 @@ QP本试的 一样的配置王姐大概在14w c狗黑杯13w左右</blockquote>
 
 
                                                 
+
+*****
+
+####  都谷捻柏  
+##### 82269#       发表于 2021-8-14 15:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52367487&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 14:12</a>
+
+摩根不特攻这么拉的吗  这就是50自充的代价吗</blockquote>
+这个游戏又不存在平衡，谈什么代价
+
+
+                                                 
