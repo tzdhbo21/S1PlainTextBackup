@@ -18185,3 +18185,99 @@ sky刚出道就被扒差不多了其实……</blockquote>
 
 
                                                 
+
+*****
+
+####  free  
+##### 5977#       发表于 2021-8-14 21:29
+
+
+像护士这种，是因为本人是学医的所以自己要做护士皮，还是根据这个皮特意找个医学生啊...<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rzrbtk  
+##### 5978#       发表于 2021-8-14 21:41
+
+
+如果不是前世大物的话很难有定制皮的，按郡道说的话就是甄选的时候提了一嘴“我有教师证”，就被选成教师角色了。
+这个也估计是sky刚好碰上吧。
+
+
+*****
+
+####  hulaoda007  
+##### 5979#       发表于 2021-8-14 22:01
+
+
+才发现今晚有iim和妹妹玩。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不知道合不合拍了。
+
+
+*****
+
+####  霜浪  
+##### 5980#       发表于 2021-8-14 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52372549&amp;ptid=1972669" target="_blank">白房子 发表于 2021-8-14 21:20</a>
+
+没有，之前的要么是假料要么以为是素人，昨天下午才被日韩爆出来本物。 ...</blockquote>
+我怎么记得老早之前就看过sky里面这位的图片了，是当时没人当真吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fastary  
+##### 5981#       发表于 2021-8-14 22:30
+
+
+黑客：今天开始一年后我目标是金盾<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+还是黑客：之后4天自开台只有两次，外加两次队友窗的APEX练习<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+虽然他说过教练指导都会在私下而且APEX水平据推上反应说确实进步不少，但是不直播就无法涨粉！
+
+这人最好是真有想要金盾哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ps倒也不是真觉得他能达成，单纯想看他直播了（但是不要A不要A反正也吸不到电竞民
+
+syl
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">说起来今年甲子园虽然不是板凳到底但也基本没戏份，本来还以为不求亮眼表现至少能捞点帅FA，结果也就几张大集合……
+
+
+*****
+
+####  白房子  
+##### 5982#       发表于 2021-8-14 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373543&amp;ptid=1972669" target="_blank">霜浪 发表于 2021-8-14 22:11</a>
+
+我怎么记得老早之前就看过sky里面这位的图片了，是当时没人当真吗</blockquote>
+其实我不太想公开太多聊。
+
+前面说很清楚了，“要么是以前的(旧)假料”。“昨天下午才出来的真料”。
+
+Over。
+
+
+*****
+
+####  霜浪  
+##### 5983#       发表于 2021-8-14 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373968&amp;ptid=1972669" target="_blank">白房子 发表于 2021-8-14 22:36</a>
+
+其实我不太想公开太多聊。
+
+前面说很清楚了，“要么是以前的(旧)假料”。“昨天下午才出来的真料”。
+
+Over ...</blockquote>
+那就是以前发了没对上呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">over
+
+
+                                                 

@@ -15741,3 +15741,312 @@ soryu.shikinami.asuka的意思吗？
 
 
                                                  
+
+*****
+
+####  神知道的sjd  
+##### 1276#       发表于 2021-8-14 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369762&amp;ptid=2013091" target="_blank">好大哦 发表于 2021-8-14 18:05</a>
+
+官方翻译烂的一比，请的翻译公司译者肯定也不怎么了解EVA，对话也没润色，能看出是从英文翻译过来的，没有 ...</blockquote>
+这个字幕真的很屑，到现在了也没有其他字幕组放了字幕出来
+
+
+*****
+
+####  nihse  
+##### 1277#       发表于 2021-8-14 22:02
+
+
+我实在无法理解为什么日本那边能取得这么高的票房，
+在我看来，终的制作极为敷衍，毫无诚意，
+对路人不友好，对老粉肆意践踏，怎么还有这么多人捧场？
+就这还不如jzgg呢，jzgg至少炖的精美，痞子这tm直接拉稀
+
+
+*****
+
+####  ranqI  
+##### 1278#       发表于 2021-8-14 22:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373397&amp;ptid=2013091" target="_blank">nihse 发表于 2021-8-14 22:02</a>
+ 我实在无法理解为什么日本那边能取得这么高的票房， 在我看来，终的制作极为敷衍，毫无诚意， 对路人不友好 ...</blockquote>
+还是比jzds好点的
+
+
+*****
+
+####  Dreki  
+##### 1279#       发表于 2021-8-14 22:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373397&amp;ptid=2013091" target="_blank">nihse 发表于 2021-8-14 22:02</a>
+
+我实在无法理解为什么日本那边能取得这么高的票房，
+
+在我看来，终的制作极为敷衍，毫无诚意，
+
+对路人不友好 ...</blockquote>
+痞子只是不想拍了，罪不至此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哀引起芬芳  
+##### 1280#       发表于 2021-8-14 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373397&amp;ptid=2013091" target="_blank">nihse 发表于 2021-08-14 22:02:14</a>
+我实在无法理解为什么日本那边能取得这么高的票房，
+在我看来，终的制作极为敷衍，毫无诚意，
+对路人不友好 ...</blockquote>终的制作不敷衍了吧。。。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  黄昏之月  
+##### 1281#       发表于 2021-8-14 22:18
+
+
+感想：
+
+1.这最后一集使徒都退场了
+
+2.真希波就没跟真嗣有什么互动，怎么就把真嗣NTR走了
+
+3.总觉得美术风格不舒服
+
+
+*****
+
+####  天青色的西风  
+##### 1282#       发表于 2021-8-14 22:18
+
+
+艹踏马
+
+eva怎么拍成这个样子了！怎么跟日本奥运一样拉跨了！
+日本完了！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CALPISSODA  
+##### 1283#       发表于 2021-8-14 22:21
+
+
+ 本帖最后由 CALPISSODA 于 2021-8-14 22:22 编辑 
+
+明日香和剑介这组合意外的不反感，可是也太突然了，前面毫无铺垫这部一上来明日香就对剑介直接用爱称还各种关心，虽然她本人是下意识的，但这中间到底是个什么心态变化倒是稍微交待一下吧······真嗣对玛丽还能理解，毕竟这人缺爱有人这么主动示好接受他肯定会喜欢上对方，但玛丽到底是啥思维······老阿姨当年追不到爹要在儿子身上找回来？
+
+
+*****
+
+####  污陨血红  
+##### 1284#       发表于 2021-8-14 22:26
+
+
+ 本帖最后由 污陨血红 于 2021-8-14 22:27 编辑 
+
+真希波没有塑造问题还是他们不够大胆以及篇幅问题<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+看破的全纪录，原定破局者的戏份不少，被删的差不多了，q又整出问题了，终得为q擦屁股，重要的破局角色完全没有机会塑造，属实可惜，所以说当时的q到底发生了什么啊？
+
+<img src="https://img.saraba1st.com/forum/202108/14/222709zmmpll2bag2gl2lp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>24154920F8129AF388C85E758A13E9ED.jpg</strong> (143 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 22:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/222719wbl4ykkmbbr3t22g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>CC6405E3627CA76E3482FF6547492BBD.jpg</strong> (484.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 22:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/222524m2o644qn2aia1i1x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6E452F757ED8D9E05E126DDF74369EDD.jpg</strong> (81.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 22:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/222541dvs0yyugbkv46kv6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0050FD4D75A4EABD601380E591235D21.jpg</strong> (89.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 22:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/222551pqnfvhegljf1vetd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2F446CEE3747AE1FFAF60BDD17D465C3.jpg</strong> (960.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 22:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/222559fz69g8xvazgxbogo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>058BB79CB4AAFE30CC717B78B52FC378.jpg</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 22:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/222608dvn60b2vxxpn2f23.jpg" referrerpolicy="no-referrer">
+
+
+<strong>D9047FB797FF995F6AC997A1CE4666C5.jpg</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 22:26 上传
+
+
+*****
+
+####  nihse  
+##### 1285#       发表于 2021-8-14 22:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373589&amp;ptid=2013091" target="_blank">哀引起芬芳 发表于 2021-8-14 22:14</a>
+终的制作不敷衍了吧。。。
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+个人觉得非常敷衍，
+除了开头几乎没什么印象深刻的大场面，
+有也是各种即视感，没什么令人耳目一新的镜头，
+中间初号机和13号的打斗绵软无力，
+为了表现摄影棚感用了大量cg但是非常廉价，
+打到一些过去的日常场面时又非常生硬，
+大量的cg只让我觉得他们是为了省钱省时间，而不是为了突出作画，
+手绘部分也没好到哪里去，凌波榨汁前的蜜汁三连退差点让我以为自己卡带了，
+毫无意义的杀必死和卖肉镜头太多，
+香香醒来时露肉的驾驶服毫无意义，话说那段连画风都不太一样了，
+至于剧情方面的敷衍和随意我现在正在气头上实在没法组织出来，罢了，睡了。
+
+
+*****
+
+####  sqd  
+##### 1286#       发表于 2021-8-14 22:29
+
+
+风怒
+
+
+*****
+
+####  sqd  
+##### 1287#       发表于 2021-8-14 22:29
+
+
+挺好的，痞子解脱了，我也解脱了，这不该给个10分嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  发财就手  
+##### 1288#       发表于 2021-8-14 22:37
+
+
+看完后我在想要是这剧场版要拆分成8集的TV，那每周s1的专楼会有多高？第三集开始估计S1ER会集集问候庵野飞天爆炸吧
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  atomone  
+##### 1289#       发表于 2021-8-14 22:38
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/223759tdklpyeqsj1ycpsh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>43BB8C50-F067-4BA7-B56F-21DC7E0D12CA.jpeg</strong> (26.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 22:37 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/223800qxbxm7yiafu3dp0o.png" referrerpolicy="no-referrer">
+
+
+<strong>6E7FA39D-5C18-4ED0-94AE-836DDC788724.png</strong> (20.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 22:38 上传
+
+
+过家家和各自送别那段最好，剩下堆辞藻密集的像在上网课，仿特摄那段成片实在是太土了。
+
+总体上真是很多人的感觉一样，终出来所有人都得到了某种程度上的轻松解脱吧。
+
+
+*****
+
+####  污陨血红  
+##### 1290#       发表于 2021-8-14 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373986&amp;ptid=2013091" target="_blank">发财就手 发表于 2021-8-14 22:37</a>
+
+看完后我在想要是这剧场版要拆分成8集的TV，那每周s1的专楼会有多高？第三集开始估计S1ER会集集问候庵野飞 ...</blockquote>
+当然是假药满天飞了～～<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  污陨血红  
+##### 1291#       发表于 2021-8-14 22:41
+
+
+ 本帖最后由 污陨血红 于 2021-8-14 22:43 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/14/224127pilxxbcj11cihqqg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210814_224104_com.baidu.tieba.jpg</strong> (328.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-14 22:41 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+估计你还是有可能要回来的，不过别人的eva估计是没跑了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                

@@ -17238,3 +17238,147 @@ dw新年出个旧梅吧，出个旧梅和梅林搞个高难长线本的配队还
 
 
                                                  
+
+*****
+
+####  newfaceryo  
+##### 82305#       发表于 2021-8-14 21:30
+
+
+ 本帖最后由 newfaceryo 于 2021-8-14 21:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369524&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-8-14 17:42</a>
+
+看完隔壁那个莫名其妙的帖子我就一个想法
+
+你们梅林厨因为梅林没办法上场/必须换人限制组队就骂的天翻地覆， ...</blockquote>
+区别在于你c呆厨可以自己选择不用陈宫发射c呆。
+
+但是梅林厨不能选择让奥伯龙不影响自己的技能成功率。
+
+
+厨力影响的范围从来都只应该是自己而不是别人的选择。
+
+
+*****
+
+####  cckuku  
+##### 82306#       发表于 2021-8-14 21:31
+
+
+国内起节奏有个p用，好像dw真的会改一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+你游的运营真的该跟国内运营中和，国内运营是屁大点节奏都要回应一下，你游是外面洪水滔天，我就躺着挣钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82307#       发表于 2021-8-14 21:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52372711&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-8-14 21:30</a>
+
+区别在于你c呆厨可以自己选择不用陈宫发射c呆。
+
+但是梅林厨不能选择让奥伯龙不影响自己的技能成功率。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比较好奇日本那边什么情况   不过连个保底都冲不出来的历本人我估计是无事发生
+
+
+*****
+
+####  上坂莲华  
+##### 82308#       发表于 2021-8-14 21:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52372738&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-14 21:31</a>
+
+比较好奇日本那边什么情况   不过连个保底都冲不出来的历本人我估计是无事发生 ...</blockquote>
+按NGA说法推特贴吧微博都是屁都没有
+
+实际上NGA也就那么两三个帖子在集中吵，内容一大半还是在互相喷，你不支持就是DW孝子，你支持就是梅林厨BLABLA，后面各种人身攻击，什么你现在站DW后面千石一宝了别骂DW之类的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 82309#       发表于 2021-8-14 22:01
+
+
+不抽的我毫无烦恼，以前怎么打现在还怎么打，dw有本事就出个没奥贝隆就打不过本
+
+
+*****
+
+####  森兰丸  
+##### 82310#       发表于 2021-8-14 22:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不是我说还真能带梅林的节奏？为所欲为出到现在都几年了.......你拿最新的卡来比？虽说你游的角色比起别的手游那是相当保值了....但也该知足了吧。
+
+
+也不看看现在的打手都是不自带50自充都不好意思出来的.....要我说最过分的就是妖兰....这个才是超模超的完全没边了
+
+
+*****
+
+####  上坂莲华  
+##### 82311#       发表于 2021-8-14 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52372711&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-8-14 21:30</a>
+
+区别在于你c呆厨可以自己选择不用陈宫发射c呆。
+
+但是梅林厨不能选择让奥伯龙不影响自己的技能成功率。</blockquote>
+梅林厨也可以自己选择不用奥伯龙甚至放后排三面要BUFF的时候再换上来都行啊，有啥区别呢，蘑菇也没按着头让大家都用奥伯龙啊
+
+要是梅林奥伯龙双厨跳起来，说我就是要让他们同框一起上你DW影响我厨力赶快飞妈，那我举双手赞成
+
+
+*****
+
+####  alucardcz  
+##### 82312#       发表于 2021-8-14 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373431&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-14 22:04</a>
+
+不是我说还真能带梅林的节奏？为所欲为出到现在都几年了.......你拿最新的卡来比？虽说你游的角色比 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新2。6唯一没抽到的就是要妖兰 好气啊
+
+
+*****
+
+####  newfaceryo  
+##### 82313#       发表于 2021-8-14 22:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373469&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-8-14 22:06</a>
+
+梅林厨也可以自己选择不用奥伯龙甚至放后排三面要BUFF的时候再换上来都行啊，有啥区别呢，蘑菇也 ...</blockquote>
+c呆就是不作为弹药使用也多的是自己大展身手的地方。
+
+但是梅林呢，梅林作为辅助长久以来一直被人诟病的地方就是np量不足，
+
+奥伯龙这个充70np的能力和宝伤增伤的能力一直就是用梅林的人一直翘首以待的。
+
+官方不给也就算了，现在给了这么强力的拐还就给你特别盖上“梅林不得能使用”的章。
+
+幸好我不是梅林厨也没有梅林，我要是梅林厨我说不定删游戏了。
+
+
+然而厨不厨又能怎么样，最后还是变成无用的牢骚罢了。
+
+
+*****
+
+####  上坂莲华  
+##### 82314#       发表于 2021-8-14 22:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52373431&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-14 22:04</a>
+
+不是我说还真能带梅林的节奏？为所欲为出到现在都几年了.......你拿最新的卡来比？虽说你游的角色比 ...</blockquote>
+NGA大把【你C呆没第一时间310我就删好友】的人呢，带个梅林节奏不是轻轻松松？
+
+
+                                                 
