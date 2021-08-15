@@ -18271,3 +18271,40 @@ image.png
 
 
                                                  
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1433#       发表于 2021-8-16 01:37
+
+
+ 本帖最后由 V宇宙的守夜人Z 于 2021-8-16 01:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384769&amp;ptid=2013091" target="_blank"> kddawang 发表于 2021-8-15 22:08</a> 引用:刘仲敬 发表于 2021-8-15 21:56 啧啧啧 老哥牛逼啊，真好奇能看那么多itc特摄片的人年纪多大。 全网从3月8号开始就你第一个发现说了出来。 当然上了年纪的那帮老嗨们看到那结尾肯定秒懂。 后来查了下就知道这片对日本业界影响还是蛮大的，尤其eva和大圈。 附件： </blockquote>
+这片好难找资源，能看的就youtobe有全的，亚马逊地区限制，优酷上传了25集差一集，archive上的种子也下不下来…Rarbg也没有来自: iPhone客户端
+
+
+*****
+
+####  冰寒之月  
+##### 1434#       发表于 2021-8-16 01:48
+
+
+说起来为什么二号机去怼十三号机的时候会被自己的AT立场挡住？
+
+这个细节和后面老爹发现自己害怕真嗣时出现的AT立场总感觉有点对应 但感觉又相关性不太大
+
+
+*****
+
+####  戏言学者  
+##### 1435#       发表于 2021-8-16 01:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52386190&amp;ptid=2013091" target="_blank">bartholo4 发表于 2021-8-16 00:49</a>
+还有引进计划？
+
+—— 来自 Google Pixel 4 XL, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+虽说我对终评价一般，但如果真引进了我绝对还是刷它好几次的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+                                                 

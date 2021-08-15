@@ -18078,3 +18078,17 @@ UP谁都跟我没关系，我又不抽，奶毛线</blockquote>
 
 
                                                  
+
+*****
+
+####  都谷捻柏  
+##### 82378#       发表于 2021-8-16 01:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52386334&amp;ptid=1085254" target="_blank">areklose 发表于 2021-08-16 01:13:48</a>
+看了一眼节奏榜，小编是看不起仇阶吧，加分项的宝具叠叠乐，还有红卡技能短ct仇凛都有了。凭啥低2个狂一头 ...</blockquote>这个榜红卡满分200，绿蓝满分80。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+                                                 
