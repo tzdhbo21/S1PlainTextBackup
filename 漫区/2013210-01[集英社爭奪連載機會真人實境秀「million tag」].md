@@ -2976,3 +2976,25 @@ https://www.bilibili.com/read/readlist/r ...</blockquote>
 
 
                                                  
+
+*****
+
+####  フリーレン  
+##### 203#         楼主| 发表于 2021-8-15 19:33
+
+
+第七回字幕http://b23.tv/TYTvEg
+
+
+*****
+
+####  CHCL3  
+##### 204#       发表于 2021-8-15 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52383153&amp;ptid=2013210" target="_blank">フリーレン 发表于 2021-8-15 19:33</a>
+第七回字幕http://b23.tv/TYTvEg</blockquote>
+感谢！！
+
+
+                                                 

@@ -210,3 +210,221 @@ SSK：加油iim！光君在看着你啊！
 
 
                                                  
+
+*****
+
+####  FCCHua  
+##### 6014#       发表于 2021-8-15 19:39
+
+
+ 本帖最后由 FCCHua 于 2021-8-15 20:08 编辑 
+
+截止目前，金憨憨被暴打，然后开始追分<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+这局节目效果的神
+今天第一次分数到达两位数，熊猫人赢了，nice
+
+
+*****
+
+####  白金口袋  
+##### 6015#       发表于 2021-8-15 19:43
+
+
+帝华这场笑的真的开心，解说席的下巴和舞元轮流道歉，一扫之前的阴霾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LilighT  
+##### 6016#       发表于 2021-8-15 19:46
+
+
+让大小姐有了游戏体验，熊猫人，你好温柔
+
+
+*****
+
+####  hulaoda007  
+##### 6017#       发表于 2021-8-15 19:47
+
+
+ 本帖最后由 hulaoda007 于 2021-8-15 20:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老农不断道歉真的好好笑。
+
+光君...今天的你，立派啊！
+
+虽然很欢乐，但也进入逆转局了！
+
+不愧是iim...到哪里都是好女人
+
+吉祥物...我的吉祥物！你比老农还要强大！
+
+英雄...我的金发小男孩！
+
+今日看的最开心的一局。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+野球的时间啦！！
+
+叶师...你好恐怖。
+
+只要你骄傲失心，坏运气就会追上你的，卡那叶。
+
+只要多买服务器，换直播就不会错过的，油土鳖。
+
+
+*****
+
+####  越动天下  
+##### 6018#       发表于 2021-8-15 19:48
+
+
+这场太有节目效果了🤣🤣🤣
+
+
+*****
+
+####  白金口袋  
+##### 6019#       发表于 2021-8-15 20:09
+
+
+这场作为决赛前热场子的比赛真的欢乐，气氛到位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alcoholic1000  
+##### 6020#       发表于 2021-8-15 20:12
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-15 20:40 编辑 
+
+面对威压，油管都会变卡
+
+HR，叶道歉！夏芽强
+
+社筑太稳了，双威压恐怖如斯
+
+
+levi盗垒，葵宝一棒轰出，追回一分
+
+一卡就上垒，​激打！激打！激打！
+
+
+*****
+
+####  FCCHua  
+##### 6021#       发表于 2021-8-15 20:22
+
+
+爱园nice滑铲
+
+
+*****
+
+####  qianoooo  
+##### 6022#       发表于 2021-8-15 20:27
+
+
+油管炸了
+
+
+*****
+
+####  winda  
+##### 6023#       发表于 2021-8-15 20:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">卡的西西那一分什么时候拿的都没看到
+
+
+*****
+
+####  我不是很好  
+##### 6024#       发表于 2021-8-15 20:29
+
+
+救救同接<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 6025#       发表于 2021-8-15 20:29
+
+
+油管要蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 6026#       发表于 2021-8-15 20:29
+
+
+ 本帖最后由 hulaoda007 于 2021-8-15 20:41 编辑 
+
+油管...我的垃圾...
+
+是不是阿富汗那件事搞的？
+
+
+社...我的布罗利。
+
+Pomu，全垒打！
+
+
+*****
+
+####  purdre  
+##### 6027#       发表于 2021-8-15 20:30
+
+
+垃圾油管<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  越动天下  
+##### 6028#       发表于 2021-8-15 20:30
+
+
+YTB 终于抗不住了 还以为一直能坚挺下去
+
+
+*****
+
+####  FCCHua  
+##### 6029#       发表于 2021-8-15 20:32
+
+
+ 本帖最后由 FCCHua 于 2021-8-15 20:40 编辑 
+
+油管貌似好了
+叶拉胯了
+
+
+*****
+
+####  LilighT  
+##### 6030#       发表于 2021-8-15 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52383755&amp;ptid=1972669" target="_blank">winda 发表于 2021-8-15 20:29</a>
+
+卡的西西那一分什么时候拿的都没看到</blockquote>
+我调240看到了，盗二垒然后阿葵左外野安打得分
+
+
+
+
+*****
+
+####  越动天下  
+##### 6031#       发表于 2021-8-15 20:40
+
+
+第二个本垒打 这合理吗
+
+
+                                                
