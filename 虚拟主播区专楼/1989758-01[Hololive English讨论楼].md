@@ -19303,3 +19303,48 @@ Calli &amp; Kiara singing "Leaving on a Jet Plane"
 
 
                                                  
+
+*****
+
+####  过不了审  
+##### 1238#       发表于 2021-8-15 09:20
+
+
+这剪影不能细看，经过irys以后很难想象又会有什么骚操作
+
+
+*****
+
+####  心垂万刃  
+##### 1239#       发表于 2021-8-15 09:25
+
+
+应该是月底或者9月1号再来个正式介绍PV，然后再给出出道日期的了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  biye  
+##### 1240#       发表于 2021-8-15 09:31
+
+
+ #holoENOmen<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wiig  
+##### 1241#       发表于 2021-8-15 10:04
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/100439lzpqy3dd1dqd1df4.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (375.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-15 10:04 上传
+
+
+                                                 

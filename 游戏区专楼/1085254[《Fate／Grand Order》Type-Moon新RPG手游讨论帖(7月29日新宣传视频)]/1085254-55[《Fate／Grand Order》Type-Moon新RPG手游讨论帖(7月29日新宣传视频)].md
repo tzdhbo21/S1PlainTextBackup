@@ -17516,3 +17516,14 @@ nga那边玩家最大的误会就是觉得运营会管你，人家早就是爱�
 
 
                                                  
+
+*****
+
+####  薛定谔的小猫  
+##### 82328#       发表于 2021-8-15 10:34
+
+
+最后还是没忍住把福袋课了赌狂娜，然后夹馍+1，行吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+                                                 
