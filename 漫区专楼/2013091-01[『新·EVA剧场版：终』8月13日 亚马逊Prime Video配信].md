@@ -17011,3 +17011,126 @@ CP我反正看下来是觉得谁都没成，之前漫区吵成那样，结果好
 
 
                                                  
+
+*****
+
+####  青菜子  
+##### 1350#       发表于 2021-8-15 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52376993&amp;ptid=2013091" target="_blank">zlzhcqblf 发表于 2021-8-15 07:23</a>
+
+看的不仔细，新剧场了为什么莉莉丝还是绫波的模样，旧剧场里是绫波融合进去了，新剧场了从q开始就是绫波的 ...</blockquote>
+Adam的容器不就是凌波的克隆人做的
+
+
+
+
+*****
+
+####  青菜子  
+##### 1351#       发表于 2021-8-15 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52378626&amp;ptid=2013091" target="_blank">Melpomenelost 发表于 2021-8-15 11:16</a>
+
+关于最后的车站片段有几个问题（可能是想太多）
+
+1，和绫波同侧的棕发妹子是不是明日香
+
+2，列车进站 ...</blockquote>
+最后车和人都瞬间没了，这总不可能障眼法了吧，估计就是个脑补
+
+
+*****
+
+####  谢云流  
+##### 1352#       发表于 2021-8-15 11:40
+
+
+初号机和十三号机开打这段开始就显得僵硬、违和，全3d没手绘省钱，打着打着场景破坏房子都是建模没有应有的物理破坏像特摄一样，直到撞到天空幕布完整显示出就是拍摄布景——跟纪录片里痞子反复推倒重拍的场景一模一样——，&lt;&gt;之后不断的在系列场景里交战、僵持……最后引出两者初始终结相关性的画面，这段落其实相当魔性，可以看出僵硬特摄味是刻意营造出来的。
+
+手绘+打斗设计主要体现在二号八号的戏份上了
+
+—— 来自 deltainno DT2002C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Ichthy  
+##### 1353#       发表于 2021-8-15 11:44
+
+
+两天了还没字幕吗
+
+
+*****
+
+####  X(iaolw)S  
+##### 1354#       发表于 2021-8-15 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52377794&amp;ptid=2013091" target="_blank">春风羞涩 发表于 2021-8-15 09:43</a>
+
+所以痞子为什么要拍新剧场版，不想拍就不要拍，浪费资源恶心自己作践观众，趁早滚去玩特摄，把资源给到有能 ...</blockquote>
+当年带着一班人从G社出走后急着要钱养，只好屈服
+
+
+*****
+
+####  琦玉  
+##### 1355#       发表于 2021-8-15 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52378865&amp;ptid=2013091" target="_blank">Ichthy 发表于 2021-8-15 11:44</a>
+
+两天了还没字幕吗</blockquote>
+同问，官中看得太难受了
+
+
+*****
+
+####  任天索尼子  
+##### 1356#       发表于 2021-8-15 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52378751&amp;ptid=2013091" target="_blank">青菜子 发表于 2021-8-15 11:29</a>
+
+粉毛的声优是谁啊。。本来以为是那个佐仓</blockquote>
+你不能自己百度一下吗，半分钟都不到就能查出来，伊濑茉莉也。
+
+
+*****
+
+####  青菜子  
+##### 1357#       发表于 2021-8-15 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52378937&amp;ptid=2013091" target="_blank">任天索尼子 发表于 2021-8-15 11:51</a>
+
+你不能自己百度一下吗，半分钟都不到就能查出来，伊濑茉莉也。</blockquote>
+谢谢，百度了，没找到，有名单没对应的角色
+
+
+*****
+
+####  哈尔摩尼亚N  
+##### 1358#       发表于 2021-8-15 12:08
+
+
+都跟世界和解了怎么还纠结一部eva呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jinxi42  
+##### 1359#       发表于 2021-8-15 12:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52378751&amp;ptid=2013091" target="_blank">青菜子 发表于 2021-8-15 11:29</a>
+
+粉毛的声优是谁啊。。本来以为是那个佐仓</blockquote>
+伊濑茉莉也 主要这粉毛妹连名字也没有
+
+
+                                                
