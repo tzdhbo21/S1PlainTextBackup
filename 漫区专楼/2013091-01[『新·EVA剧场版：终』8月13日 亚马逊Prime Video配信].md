@@ -17734,3 +17734,142 @@ image.png
 
 
                                                  
+
+*****
+
+####  futamn  
+##### 1398#       发表于 2021-8-15 18:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">结尾来回看了好几遍，越看越不能释怀
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  zlzhcqblf  
+##### 1399#       发表于 2021-8-15 18:49
+
+
+<blockquote>dogman 发表于 2021-8-15 18:22
+刚把终看完了，总感觉有种说不出的割裂感……
+
+
+问几个细节：
+</blockquote>
+3，参考漫画版，真希波是碇唯同代人，应该和碇源度，冬月都认识。再详细的新剧场版也没给了，而且漫画版是贞本自己的想法，真希波的性格和动画版也差很多
+
+
+*****
+
+####  满月美夜子  
+##### 1400#       发表于 2021-8-15 18:50
+
+
+话说官方字幕真是翻的太渣了
+
+
+*****
+
+####  cody198879  
+##### 1401#       发表于 2021-8-15 18:52
+
+
+做tv的时候自己代入的是司令
+
+做新剧场版自己是真挚，大胸美女怕不是泡自己老婆的套路，玛丽其实就是映射一直支持自己走出来的老婆吧。
+
+中年男人终于和自己和解了
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  1096beam  
+##### 1402#       发表于 2021-8-15 18:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52382462&amp;ptid=2013091" target="_blank">dogman 发表于 2021-8-15 18:22</a>
+
+刚把终看完了，总感觉有种说不出的割裂感……
+
+
+问几个细节：</blockquote>
+1.明日香觉得自己不是正常人类了丢失了人类羞耻观，真希波看来谁都起外号
+
+2.明日香知道啊，还问了一下原型最近还好吧
+
+3.就是回忆里面的女生，唯的学妹，被EVA冻龄的女人
+
+456.真嗣有新枪获得了补完的主动权，自然是为所欲为啦
+
+
+*****
+
+####  nsevit  
+##### 1403#       发表于 2021-8-15 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52379649&amp;ptid=2013091" target="_blank">rp1993 发表于 2021-8-15 12:59</a>
+这和96年又有什么不同呢？
+做出了不合心意的结局就要狂骂，寻找各种蛛丝马迹的意向象征，脑补一番就用来攻 ...</blockquote>
+不不，还是有区别的
+
+二十年前的庵野面对批评把“谁都不理解我，你们都去死吧”这种戾气做成了整整一部真心为你，然而即使如此仍然在最后的海滩上稍微留下了一点点温柔
+
+二十年后的庵野则是从头到尾闪着佛光，嘴里念着不要紧哦、世界是很温柔的哦、找个大奶妹做老婆不好吗这样的话，肥宅们的批评已经伤害不到他了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  谢云流  
+##### 1404#       发表于 2021-8-15 19:10
+
+
+绫波和式波两个波字辈驾驶员都是克隆人，真希波可能也是带记忆的克隆人啊
+
+
+—— 来自 deltainno DT2002C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  20002000  
+##### 1405#       发表于 2021-8-15 19:14
+
+
+说来在那个毁天灭地的科技水平下 种庄稼还靠人力 连个插秧机也不给一台<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+— from HMD Global Nokia 7 plus, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  seeks1  
+##### 1406#       发表于 2021-8-15 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52382462&amp;ptid=2013091" target="_blank">dogman 发表于 2021-8-15 18:22</a>
+
+刚把终看完了，总感觉有种说不出的割裂感……
+
+
+问几个细节：</blockquote>
+不是大手，说下自己理解。
+
+1，看隔壁帖子特典漫画，副导演出的解释是，明日香因为真嗣消失不能释怀，伴随时间成这样别扭的样子。真希波叫她公主也在q抢夺初号机出发前调侃明日香是睡美人需要王子真嗣吻醒她，后面就一直这么叫了。
+
+2，克隆人，维持她需要AT立场固住，反复清洗掉情感，在三村拥有感情心开放了维持不了后解体。
+
+3，真希波没身份，天降大人，原计划边拍边设定，最后也没结果。原来是一起的研究者，没错就是她，eva污染返老还童。
+
+4，嘴炮背后是补完，或者说心理治疗，治疗好了心结解开，每个人圆满也就不需要强行补完。
+
+5，碇司令的老婆唯一直都在初号机护着爷俩，只不过碇司令要复活老婆，执念深重，一直拒绝老婆死了的现实，后面接受现实，跳出执念，感觉到老婆孩子一直在身边的关怀。
+
+6，是的。
+
+
+                                                 
