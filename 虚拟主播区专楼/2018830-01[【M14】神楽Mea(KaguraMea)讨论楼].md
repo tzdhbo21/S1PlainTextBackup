@@ -8301,3 +8301,57 @@ bsyl   追加了直笔（数量不多）
 
 
                                                  
+
+*****
+
+####  pei23333  
+##### 763#       发表于 2021-8-15 23:40
+
+
+这回复的又是谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  2014720  
+##### 764#       发表于 2021-8-15 23:45
+
+
+得把这女人关地下室一天只给吃的喝的不准上网不准和外人联络才行<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 765#       发表于 2021-8-15 23:46
+
+
+ 本帖最后由 T_Hb 于 2021-8-15 23:52 编辑 
+
+不行，要直播的
+哦 看到了，傻卵推特怎么卡住了不推送
+
+
+*****
+
+####  Klience  
+##### 766#       发表于 2021-8-15 23:51
+
+
+这发型 染个金发不就是mikey吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 767#       发表于 2021-8-16 00:04
+
+
+ 本帖最后由 T_Hb 于 2021-8-16 00:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么是二次元
+
+
+                                                 

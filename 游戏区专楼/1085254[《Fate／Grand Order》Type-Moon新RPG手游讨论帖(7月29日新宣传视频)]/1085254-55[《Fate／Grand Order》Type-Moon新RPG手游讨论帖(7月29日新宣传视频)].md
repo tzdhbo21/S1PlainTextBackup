@@ -17885,3 +17885,174 @@ UP谁都跟我没关系，我又不抽，奶毛线</blockquote>
 
 
                                                  
+
+*****
+
+####  zore  
+##### 82363#       发表于 2021-8-15 22:12
+
+
+主要送了5星,这是极好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道下周年还有没有
+
+
+*****
+
+####  alucardcz  
+##### 82364#       发表于 2021-8-15 22:49
+
+
+戈壁又有节奏榜大戏了  <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82365#       发表于 2021-8-15 23:02
+
+
+去盯隔壁不如靠这周的周常任务猜一下
+
+是要复刻啥还是泳装提前
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82366#       发表于 2021-8-15 23:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52385317&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-15 23:02</a>
+
+去盯隔壁不如靠这周的周常任务猜一下
+
+是要复刻啥还是泳装提前</blockquote>
+不会看 有30次右倾召唤是表示啥？
+
+
+*****
+
+####  khxooo  
+##### 82367#       发表于 2021-8-15 23:12
+
+
+2次10连3个5星全歪，谢谢你，没有跟过来，永别，希望以后不会再见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，虽然妖高只有1宝，不过也算了。
+
+
+*****
+
+####  zore  
+##### 82368#       发表于 2021-8-15 23:13
+
+
+应该是复刻吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不会开个wdl
+
+节奏榜图一乐,使劲儿往高充能的英灵乱抽就完事了
+
+
+*****
+
+####  exiaexa  
+##### 82369#       发表于 2021-8-15 23:14
+
+
+ 本帖最后由 exiaexa 于 2021-8-15 23:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52385381&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-15 23:10</a>
+
+不会看 有30次右倾召唤是表示啥？</blockquote>
+1、任务全清
+
+2、友情召唤30次
+
+3、20体敌人
+
+4、天之力15个
+
+5、魔性15个
+
+6、任意任务完成5次
+
+7、任意任务完成7次
+
+
+一般来说，无事发生的日子，都是什么魔石啊狗粮啊门啊这些
+
+多少会开个池子的会让你去抽友情池（3星礼装
+
+有讨伐任务可能是狩猎、活动
+
+当然也可能全都是做梦，无事发生
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82370#       发表于 2021-8-15 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52385436&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-15 23:14</a>
+
+1、任务全清
+
+2、友情召唤30次
+
+3、20体敌人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那肯定是复课 
+
+
+*****
+
+####  DARKGRAY  
+##### 82371#       发表于 2021-8-15 23:26
+
+
+也就魔性特别的，别的全是日常本的事情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82372#       发表于 2021-8-15 23:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52385408&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-15 23:12</a>
+
+2次10连3个5星全歪，谢谢你，没有跟过来，永别，希望以后不会再见，虽然妖高只有1宝，不过也算了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">22连3五星，欧羡慕啊
+
+
+*****
+
+####  khxooo  
+##### 82373#       发表于 2021-8-15 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52385673&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-15 23:39</a>
+
+22连3五星，欧羡慕啊</blockquote>
+全都是没用的5星，有什么好羡慕的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82374#       发表于 2021-8-15 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52385705&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-15 23:43</a>
+
+全都是没用的5星，有什么好羡慕的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕的，我五星宝具数都很低的
+
+
+*****
+
+####  stefanie张  
+##### 82375#       发表于 2021-8-16 00:04
+
+
+赶紧出活动吧，我结晶一个都没有了
+
+
+                                                 
