@@ -17476,3 +17476,156 @@ soryu.shikinami.asuka的意思吗？</blockquote>
 
 
                                                 
+
+*****
+
+####  最终兵器狂战  
+##### 1382#       发表于 2021-8-15 16:40
+
+
+全片看完，感觉最后没长大的只有源堂了。这人的巨婴程度和夏亚真是不相上下。。。
+
+庵野哥哥也好eva也好，最后都终于给了过去一个句号，走进新的篇章了。可喜可贺，可喜可贺。
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kddawang  
+##### 1383#       发表于 2021-8-15 16:41
+
+
+学的是这个，从tv开始就学到现在，知道这个的估计起码70后的，泥潭第一个告诉我这片的大哥不知道几岁。
+
+<img src="https://img.saraba1st.com/forum/202108/15/164126ae7vzkllbjvbpfil.jpg" referrerpolicy="no-referrer">
+
+
+<strong>51kcgUSBqzL.jpg</strong> (59.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-15 16:41 上传
+
+
+51kcgUSBqzL.jpg
+(59.05 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-15 16:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/164115o1oun7a1ijjf9dnk.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byebyeみ  
+##### 1384#       发表于 2021-8-15 16:43
+
+
+我以为我懂了，我又不懂了
+
+
+image.png
+(27.93 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-15 16:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/164244h0n70foft7f7q61k.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仔羊たちの聖夜  
+##### 1385#       发表于 2021-8-15 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52377794&amp;ptid=2013091" target="_blank">春风羞涩 发表于 2021-8-15 09:43</a>
+所以痞子为什么要拍新剧场版，不想拍就不要拍，浪费资源恶心自己作践观众，趁早滚去玩特摄，把资源给到有能 ...</blockquote>
+当年khara新成立没作品，拍新剧场版就是为了赚钱
+
+
+*****
+
+####  kddawang  
+##### 1386#       发表于 2021-8-15 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52381629&amp;ptid=2013091" target="_blank">byebyeみ 发表于 2021-8-15 16:43</a>
+
+我以为我懂了，我又不懂了</blockquote>
+轮回是暗示得很明显的，还wunder德文龙骨的11805.6月21。
+
+1w2k年，飞跃巅峰和蓝宝石之谜都用过。
+
+12000年南极第二次冲击，灭世轮回开始，12001真嗣降生。
+
+不如说日本人是真的喜欢1w2k年这佛运梗，现在的人印象比较深的估计还是阿姨洗铁路。
+
+
+*****
+
+####  最终兵器狂战  
+##### 1387#       发表于 2021-8-15 16:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52381658&amp;ptid=2013091" target="_blank">kddawang 发表于 2021-8-15 16:46</a>
+轮回是暗示得很明显的，还wunder德文龙骨的11805.6月21。
+
+1w2k年，飞跃巅峰和蓝宝石之谜都用过。
+
+12000年 ...</blockquote>
+是专门给机战留的兼容创圣的通用接口哦！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  byebyeみ  
+##### 1388#       发表于 2021-8-15 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52381658&amp;ptid=2013091" target="_blank">kddawang 发表于 2021-8-15 16:46</a>
+
+轮回是暗示得很明显的，还wunder德文龙骨的11805.6月21。
+
+1w2k年，飞跃巅峰和蓝宝石之谜都用过。
+
+12000年 ...</blockquote>
+大佬我有点没看懂你的话，轮回确实非常好看出来，但是1w2k年佛运梗是什么意思，还有故事不是发生在正常的年份吗，为什么徒增了1w年，难道是轮回后时间是顺流的吗
+
+
+*****
+
+####  kddawang  
+##### 1389#       发表于 2021-8-15 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52381726&amp;ptid=2013091" target="_blank">byebyeみ 发表于 2021-8-15 16:52</a>
+
+大佬我有点没看懂你的话，轮回确实非常好看出来，但是1w2k年佛运梗是什么意思，还有故事不是发生在正常的 ...</blockquote>
+就是1w2k年就准备轮回一次啊，用eva里的话来说就是人类被达成条件的仪式（有好几种）搞得从头再来一遍。
+
+梗是佛教的，日本主信佛教。
+
+
+*****
+
+####  V宇宙的守夜人Z  
+##### 1390#       发表于 2021-8-15 17:32
+
+
+我还是想不通，小受在废墟自闭了一段时间，丽过来看她，她把随身听给了他然后自爆，小受痛哭，然后就想通了，回答香的问题也回答的很好，怎么说呢，感觉这种成长过程缺乏了点什么，说服力不太够来自: iPhone客户端
+
+
+                                                 

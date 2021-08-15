@@ -17655,3 +17655,23 @@ nga真的闲的蛋疼<img src="https://static.saraba1st.com/image/smiley/face201
 
 
                                                  
+
+*****
+
+####  シャル  
+##### 82341#       发表于 2021-8-15 17:07
+
+
+没消息<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82342#       发表于 2021-8-15 17:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">算算时间，上次DL纪念已经是半年前了，8月下半怕不是DL纪念
+
+
+                                                 
