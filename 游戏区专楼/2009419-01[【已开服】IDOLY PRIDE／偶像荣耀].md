@@ -5812,3 +5812,19 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 
 
                                                  
+
+*****
+
+####  yuugi  
+##### 416#       发表于 2021-8-15 08:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52376160&amp;ptid=2009419" target="_blank">两个路人 发表于 2021-8-15 01:19</a>
+
+这活动图是所谓的动态难度？就一个LV71，上来就是Lv72要求，这第一步就打不够分数简直尴尬到爆炸（死鱼眼 ...</blockquote>
+没错，开头是最难的，基本考的是硬实力
+
+我105级，基本每关都是手动加低分通过
+
+
+                                                 

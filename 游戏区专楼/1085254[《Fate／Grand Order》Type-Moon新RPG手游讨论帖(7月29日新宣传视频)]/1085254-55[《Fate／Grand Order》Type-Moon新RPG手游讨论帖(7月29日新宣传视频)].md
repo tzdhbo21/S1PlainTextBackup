@@ -17442,3 +17442,77 @@ NGA大把【你C呆没第一时间310我就删好友】的人呢，带个梅林�
 
 
                                                  
+
+*****
+
+####  千叶铁矢  
+##### 82321#       发表于 2021-8-14 23:44
+
+
+才开始推2.62，感觉现在换人奥博龙的队伍伤害都好高啊，打2.62剧情里经常上不了双c呆的时候都能白字单体30w，偶尔飙到白字单体50w
+
+
+*****
+
+####  angelooo  
+##### 82322#       发表于 2021-8-15 07:30
+
+
+啥，我就两天没去nga都成这样了，我想看他们冲蘑菇而不是互相撕，我好气啊
+
+
+*****
+
+####  zore  
+##### 82323#       发表于 2021-8-15 07:56
+
+
+翻页翻页
+
+
+*****
+
+####  zore  
+##### 82324#       发表于 2021-8-15 07:56
+
+
+爱撕不撕,反正没人鸟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 82325#       发表于 2021-8-15 08:25
+
+
+nga那边玩家最大的误会就是觉得运营会管你，人家早就是爱玩玩不玩滚了。不过也不能怪他们，毕竟他们不了解日服的运营，还有人吹呢。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  都谷捻柏  
+##### 82326#       发表于 2021-8-15 08:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52369524&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-08-14 17:42:30</a>
+看完隔壁那个莫名其妙的帖子我就一个想法
+
+你们梅林厨因为梅林没办法上场/必须换人限制组队就骂的天翻地覆， ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁每个给刑部姬哭弱的帖子里都有她不想出来战斗只想宅在家里的回复，只能说不是利益相关了。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  zore  
+##### 82327#       发表于 2021-8-15 08:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起运营想起dw,另一款暴死游戏樱花大战有没有游戏内的交流系统
+
+真就靠着匿名版和推特交流的吗?
+
+
+                                                 
