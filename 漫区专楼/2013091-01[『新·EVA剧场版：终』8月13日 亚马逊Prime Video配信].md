@@ -18254,3 +18254,20 @@ image.png
 
 
                                                  
+
+*****
+
+####  bartholo4  
+##### 1432#       发表于 2021-8-16 00:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52386179&amp;ptid=2013091" target="_blank">X(iaolw)S 发表于 2021-8-16 00:45</a>
+大字幕组被新华创打过招呼了吧
+
+都说了等不了就下个带台配音轨的顶着</blockquote>
+还有引进计划？
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

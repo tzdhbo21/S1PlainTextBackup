@@ -18056,3 +18056,25 @@ UP谁都跟我没关系，我又不抽，奶毛线</blockquote>
 
 
                                                  
+
+*****
+
+####  不垃圾屌丝  
+##### 82376#       发表于 2021-8-16 00:48
+
+
+这段时间都在刷QP了，有啥活动等我把这波强化和幕间啥的清完再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  areklose  
+##### 82377#       发表于 2021-8-16 01:13
+
+
+看了一眼节奏榜，小编是看不起仇阶吧，加分项的宝具叠叠乐，还有红卡技能短ct仇凛都有了。凭啥低2个狂一头。
+
+
+                                                 
