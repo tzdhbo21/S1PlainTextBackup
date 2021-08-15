@@ -17538,3 +17538,88 @@ nga那边玩家最大的误会就是觉得运营会管你，人家早就是爱�
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 82330#       发表于 2021-8-15 12:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">减半结束了 那么明天会发生点什么事情吗
+
+
+*****
+
+####  qixinno2  
+##### 82331#       发表于 2021-8-15 12:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52379397&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-15 12:36</a>
+
+减半结束了 那么明天会发生点什么事情吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梅林强化本走起
+
+
+*****
+
+####  alucardcz  
+##### 82332#       发表于 2021-8-15 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52379425&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-15 12:38</a>
+
+梅林强化本走起</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如开奥某人强化本 3技能可以重复 再追加绿蓝魔放(
+
+
+*****
+
+####  霧谷藤乃  
+##### 82333#       发表于 2021-8-15 12:49
+
+
+这游戏都6年了，早就完成了玩家群体的筛选，NGA那边没事嚷嚷着要保底，开了卡池就急冲冲的吼着要课金把老婆弄回家，早就是运营的形状了
+
+
+*****
+
+####  不垃圾屌丝  
+##### 82334#       发表于 2021-8-15 13:08
+
+
+那个有偿石单抽居然能出货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qixinno2  
+##### 82335#       发表于 2021-8-15 13:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52379447&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-15 12:40</a>
+
+不如开奥某人强化本 3技能可以重复 再追加绿蓝魔放(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如给仇凛的宝具本
+
+
+*****
+
+####  alucardcz  
+##### 82336#       发表于 2021-8-15 13:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过离9月还有2星期呢  下个星期怎么说也得开个复课意思意思吧？  总不能真的直接长草到泳装吧
+
+
+*****
+
+####  qixinno2  
+##### 82337#       发表于 2021-8-15 14:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就只有2XXX下载系列或者狩猎本之类的玩意了吧 复刻活动够呛
+
+
+                                                 

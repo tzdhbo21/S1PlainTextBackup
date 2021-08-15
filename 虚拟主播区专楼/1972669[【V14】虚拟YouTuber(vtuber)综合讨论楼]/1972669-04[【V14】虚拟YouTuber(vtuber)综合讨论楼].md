@@ -18354,3 +18354,16 @@ Over ...</blockquote>
 
 
                                                  
+
+*****
+
+####  rzrbtk  
+##### 5990#       发表于 2021-8-15 13:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52379324&amp;ptid=1972669" target="_blank">fastary 发表于 2021-8-15 12:29</a>
+他没有提过相关看法，不过虹棒这边有发过rp推的，他自己也搞过20·30的妄想创作，应该只是对自己要求高而 ...</blockquote>
+黛灰真的对角色很有自信，严于待己宽于待人是好的…羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">…
+
+
+                                                 

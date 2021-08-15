@@ -8052,3 +8052,41 @@ can u be my wife? yes i can!
 
 
                                                  
+
+*****
+
+####  时间在我手中  
+##### 743#       发表于 2021-8-15 12:58
+
+
+批站随便找了两个狗狗巡警的演唱听了听
+
+
+一个日本儿童歌唱大赛银奖，唱的奶声奶气，很儿歌，没啥问题
+
+
+另外一个唱的乓欢快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+你麻这唱法属于是败犬被动发作了，跟被巡警甩了一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 744#       发表于 2021-8-15 13:10
+
+
+别有一番风味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 745#       发表于 2021-8-15 13:53
+
+
+快来个挖掘机挖挖这野男人
+
+
+                                                 
