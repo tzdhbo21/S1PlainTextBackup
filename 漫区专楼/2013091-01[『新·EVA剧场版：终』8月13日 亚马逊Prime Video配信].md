@@ -17352,3 +17352,127 @@ soryu.shikinami.asuka的意思吗？</blockquote>
 
 
                                                  
+
+*****
+
+####  Pz079  
+##### 1373#       发表于 2021-8-15 14:47
+
+
+机设崩了，音乐崩了，人设也崩了，剧情平淡无聊，所有作为动画作品的创作都一副江郎才尽苟延残喘的样子，所谓的和解和放下，只不过是中年男人的认命和逃避吧，一副喝茶玄谈带手串的样子，用所谓的看透掩盖自己再也无能的现实。至于什么轻佻地说出“大胸美女，你好可爱”这样油腻的台词，就有了成熟大人的气味，真是油腻的可笑。连带结尾one last kiss也是无病呻吟的肤浅感觉，beautiful world一响起来就立刻明白了，想笑，真不是一个档次上的呢，差距太大了
+
+
+*****
+
+####  Junchoon  
+##### 1374#       发表于 2021-8-15 15:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52380309&amp;ptid=2013091" target="_blank">Hidewhite 发表于 2021-8-15 14:11</a>
+
+人类补完计划 大概可以理解为 全人类飞升，全体人类消除个体差异变成一个。这是外在部分，内在部分就是主 ...</blockquote>
+不能理解、不能理解......
+
+
+*****
+
+####  Junchoon  
+##### 1375#       发表于 2021-8-15 15:22
+
+
+话说之前有看到一张长发凌波的图后来找不到了，有点可惜，希望大家能帮忙找找看：
+
+没记错的话是穿黑色战斗服的长发凌波
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 1376#       发表于 2021-8-15 15:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">复读和解长大真的看呕了，无论是片子和评论都散发着尸体的腐臭，如此苍白无力的口号下面只有停滞和堕落，可以这很纳垢
+反正按这套解释，骆驼祥子到结局也是长大了，跟世界和解了，呕
+
+
+*****
+
+####  戏言学者  
+##### 1377#       发表于 2021-8-15 15:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52380938&amp;ptid=2013091" target="_blank">mqnwbeebwnqm 发表于 2021-8-15 15:23</a>
+复读和解长大真的看呕了，无论是片子和评论都散发着尸体的腐臭，如此苍白无力的口号下面只有停滞和 ...</blockquote>
+确实，我现在看见“和解”这俩字就犯恶心<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">我看这些人别评价电影质量了，也别看电影了，在痞子照片上写上和解俩字，然后抱着泪目去吧
+
+
+*****
+
+####  bartholo4  
+##### 1378#       发表于 2021-8-15 15:28
+
+
+<img src="https://p.sda1.dev/2/1d675e16357539c7d936d433eaff41a1/IMG_CMP_158609773.jpeg" referrerpolicy="no-referrer">
+幻想版大白丽其实和最早的海报高度一致，连表情都一样
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  bartholo4  
+##### 1379#       发表于 2021-8-15 15:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52378865&amp;ptid=2013091" target="_blank">Ichthy 发表于 2021-8-15 11:44</a>
+两天了还没字幕吗</blockquote>
+看多语言版里的台湾配音音轨
+这个是目前翻译最准确的一版了
+昨天晚上才配着日语字幕又看了一遍
+
+不过配音水平就不要期待了,除了玛丽行，其他全是捧读
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  MASKA-1  
+##### 1380#       发表于 2021-8-15 16:14
+
+
+狂暴鸿儒bangumi前50，直线攀升有点牛
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/161401yhww6715hf4h4kf2.png" referrerpolicy="no-referrer">
+
+
+<strong>U``}2JTYPDIMK7_5X163]UC.png</strong> (49.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-15 16:14 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/161409i1mkjfdyyaeyja1b.png" referrerpolicy="no-referrer">
+
+
+<strong>CPF~PBAK{V7B{7QY7E~M}[8.png</strong> (48.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-15 16:14 上传
+
+
+
+
+*****
+
+####  hypnossz86  
+##### 1381#       发表于 2021-8-15 16:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">所以这个结尾，是不是抄翼神
+
+
+                                                

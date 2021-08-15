@@ -17623,3 +17623,35 @@ nga那边玩家最大的误会就是觉得运营会管你，人家早就是爱�
 
 
                                                  
+
+*****
+
+####  ddr  
+##### 82338#       发表于 2021-8-15 14:38
+
+
+希望妇科个邪马台<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82339#       发表于 2021-8-15 14:59
+
+
+nga真的闲的蛋疼<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这点儿debuff根本就是洒水花，才20%，要我的话就直接设置成梅林和奥伯龙不能一起编队完事了
+
+
+*****
+
+####  alucardcz  
+##### 82340#       发表于 2021-8-15 15:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52380328&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-15 14:13</a>
+
+也就只有2XXX下载系列或者狩猎本之类的玩意了吧 复刻活动够呛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">14天够一个复课了
+
+
+                                                 
