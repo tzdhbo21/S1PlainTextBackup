@@ -16868,3 +16868,146 @@ CP我反正看下来是觉得谁都没成，之前漫区吵成那样，结果好
 
 
                                                  
+
+*****
+
+####  天妇罗  
+##### 1346#       发表于 2021-8-15 10:44
+
+
+这片子太meta，一切都合剧情都可以解释为庵野的意志，站在第四维度操控剧情那真是无法反驳。
+
+
+*****
+
+####  死道友不死贫道  
+##### 1347#       发表于 2021-8-15 10:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52377472&amp;ptid=2013091" target="_blank">okcoy4 发表于 2021-8-15 09:03</a>
+
+主要是大家都是中年人了，要和解早和解了，你也不想想你现在早上还硬得起来么  ，今年dpl完成了么，家里尿 ...</blockquote>
+早和解了你还看这个？
+
+
+*****
+
+####  Melpomenelost  
+##### 1348#       发表于 2021-8-15 11:16
+
+
+关于最后的车站片段有几个问题（可能是想太多）<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+1，和绫波同侧的棕发妹子是不是明日香
+
+2，列车进站后从真嗣玛丽侧不能看到对面的丽和烤炉（关于这点前面有谭友指出这是利用惯性的“障眼法”，不过即使是镜头切走后位移一段距离，丽和渚薰两人宽的“物体”也没有在车头后相当一段距离中出现）
+
+这里是不是可以有这么一种解释：真嗣和玛丽作为幸存者和香丽渚薰不在一个世界（由车站分割形同陌路）。而镜头有意模糊化（四人同时入镜），给观众一个tv最终话那样的视角——一个没有eva的，大家由命运牵引着再次相逢的世界
+
+<img src="https://img.saraba1st.com/forum/202108/15/105156deq6qrftdqqtt6pt.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(158).png</strong> (328.92 KB, 下载次数: 0)
+
+下载附件
+
+两边同时在镜头内，真嗣比较模糊
+2021-8-15 10:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/105206b7xf5x7rflflfz75.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(160).png</strong> (266.56 KB, 下载次数: 0)
+
+下载附件
+
+疑似明日香
+2021-8-15 10:52 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/105217v4zmlea2lbylpy5h.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(163).png</strong> (95.9 KB, 下载次数: 0)
+
+下载附件
+
+列车进站，遮挡对面
+2021-8-15 10:52 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/105228o5soux39m35nrwbr.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(161).png</strong> (271.86 KB, 下载次数: 0)
+
+下载附件
+
+鸽子飞起，列车惯性位移
+2021-8-15 10:52 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/105237emi8ttjdtstzstn4.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(162).png</strong> (170.54 KB, 下载次数: 0)
+
+下载附件
+
+列车几乎停止
+2021-8-15 10:52 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/105306z535cqdrtrxncuqf.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(164).png</strong> (99.68 KB, 下载次数: 0)
+
+下载附件
+
+彻底停止，玛丽出现
+2021-8-15 10:53 上传
+
+
+5b1203e9ac199eb239f48f88ebf75b6.jpg
+(130.68 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-15 11:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/110726l1put4wnoll1lbjo.jpg" referrerpolicy="no-referrer">
+
+
+62f9aed6e1f458b3cbf8da04102ce9a.jpg
+(154.15 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-15 11:07 上传
+
+
+谭友想法
+
+<img src="https://img.saraba1st.com/forum/202108/15/110733hgoy0lq4qi4yii9i.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  青菜子  
+##### 1349#       发表于 2021-8-15 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52376030&amp;ptid=2013091" target="_blank">jinxi42 发表于 2021-8-15 01:04</a>
+
+粉发妹戳中我XP了，想给她喝我过滤过的尿</blockquote>
+粉毛的声优是谁啊。。本来以为是那个佐仓
+
+
+                                                 
