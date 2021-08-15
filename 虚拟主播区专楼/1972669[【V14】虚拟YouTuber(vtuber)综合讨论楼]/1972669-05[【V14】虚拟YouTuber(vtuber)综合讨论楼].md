@@ -428,3 +428,700 @@ YTB 终于抗不住了 还以为一直能坚挺下去
 
 
                                                 
+
+*****
+
+####  FCCHua  
+##### 6032#       发表于 2021-8-15 20:46
+
+
+又又又平了，然后反超
+
+
+*****
+
+####  alcoholic1000  
+##### 6033#       发表于 2021-8-15 20:47
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-15 21:04 编辑 
+
+追平！！什么拉锯战
+
+但是叶马上没有体力了，根性能撑住吗，还是会被社长强打线反超呢？
+
+反超了！！社长的激打把叶打回人类！外野直接被打穿，看来灵能力在决赛没用
+
+
+​理解った！她懂了！永动机关也喘了，没能完投
+
+机会没了，让我们恭喜KGM
+
+奔三的实力！
+
+
+🎆大福🎆
+
+
+*****
+
+####  我不是很好  
+##### 6034#       发表于 2021-8-15 20:55
+
+
+不满意，本来以为起码能到25万。
+
+
+*****
+
+####  hulaoda007  
+##### 6035#       发表于 2021-8-15 20:56
+
+
+ 本帖最后由 hulaoda007 于 2021-8-15 21:02 编辑 
+
+投手底气之战！
+
+peeeeeeeace！
+
+20w同接。
+
+天开接球太精彩了！！
+
+社，下班。飞鸟P上线。
+
+天开G！
+
+天开，战犯！
+
+
+*****
+
+####  黑暗剑  
+##### 6036#       发表于 2021-8-15 20:57
+
+
+寄了，九表下位打线
+
+
+*****
+
+####  qianoooo  
+##### 6037#       发表于 2021-8-15 20:58
+
+
+决赛还是挺精彩的
+
+
+*****
+
+####  白金口袋  
+##### 6038#       发表于 2021-8-15 21:02
+
+
+灵能输给了暴力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  越动天下  
+##### 6039#       发表于 2021-8-15 21:02
+
+
+拿下
+
+
+*****
+
+####  purdre  
+##### 6040#       发表于 2021-8-15 21:02
+
+
+可以，社长赢了，符合心理预期
+
+
+*****
+
+####  hulaoda007  
+##### 6041#       发表于 2021-8-15 21:03
+
+
+社长获得第二届冠军，感谢社，叶，Pomu给我们带来的精彩表现。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是为了看这个才看虹的啊。これだよこれこれ。
+
+
+*****
+
+####  FCCHua  
+##### 6042#       发表于 2021-8-15 21:03
+
+
+ 本帖最后由 FCCHua 于 2021-8-15 21:14 编辑 
+
+虹男第一，打扰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+第二届可还行...
+
+
+*****
+
+####  qianoooo  
+##### 6043#       发表于 2021-8-15 21:03
+
+
+虹男承上启下的一刻
+
+
+*****
+
+####  白金口袋  
+##### 6044#       发表于 2021-8-15 21:04
+
+
+阿社不说，pomu这么活跃开赛前倒是没人预料到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gaiadc  
+##### 6045#       发表于 2021-8-15 21:05
+
+
+基本上就是社长荣冠最后抽中的捕+2改变了虹甲的流向
+
+
+*****
+
+####  qq845629713  
+##### 6046#       发表于 2021-8-15 21:06
+
+
+这届棒球正式宣布你虹女人被男人全面击败了，舒服了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 4战斗力 -6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| giftia|-1|思路广|
+| ror|-2||
+| FCCHua|-1|乐了|
+| LilighT|-2|晦气|
+
+
+查看全部评分
+
+
+*****
+
+####  霜浪  
+##### 6047#       发表于 2021-8-15 21:06
+
+
+感觉大小姐和ssk那把一波三折最有意思，老板娘和德龙逆转也是
+
+
+*****
+
+####  hulaoda007  
+##### 6048#       发表于 2021-8-15 21:09
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/210852e7xy7br4mgkrrrvb.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (13.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-15 21:08 上传
+
+
+あったけー
+
+
+*****
+
+####  白金口袋  
+##### 6049#       发表于 2021-8-15 21:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384154&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-8-15 07:09</a>
+
+あったけー</blockquote>
+30岁组真的很贴，至于另一个绿色的则是太爱演<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 6050#       发表于 2021-8-15 21:12
+
+
+hnn在逆凸啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qianoooo  
+##### 6051#       发表于 2021-8-15 21:13
+
+
+希望以后搞长赛程的甲子园 社内社外的一起来玩
+
+
+*****
+
+####  白金口袋  
+##### 6052#       发表于 2021-8-15 21:16
+
+
+听西西这意思明年还要上啊，灵能棒球没有尽头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真飞鸟i  
+##### 6053#       发表于 2021-8-15 21:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年19w，今年20w，但是一方面去年11月砍了同接，另一方面今天油管崩了一会。实际上的提升还是比表面大的。
+
+
+*****
+
+####  FCCHua  
+##### 6054#       发表于 2021-8-15 21:17
+
+
+ 本帖最后由 FCCHua 于 2021-8-15 21:18 编辑 
+
+继续进决赛了为什么不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有一点是去年没甲子园，今年有
+
+
+*****
+
+####  purdre  
+##### 6055#       发表于 2021-8-15 21:18
+
+
+社长这感想像是写过稿的，只能说是很pro了
+
+
+*****
+
+####  alcoholic1000  
+##### 6056#       发表于 2021-8-15 21:18
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-15 21:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384193&amp;ptid=1972669" target="_blank">白金口袋 发表于 2021-8-15 21:12</a>
+
+30岁组真的很贴，至于另一个绿色的则是太爱演</blockquote>
+提醒一下，アラサーランク帯是社築、花畑チャイカ、夢追翔和加賀美ハヤト四个人
+
+想看社内外一起的甲子园，是在怀念2019吗<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+说来就来，舞元VS天开的社外队+全明星<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  霜浪  
+##### 6057#       发表于 2021-8-15 21:19
+
+
+绿色30岁归国子女，高级人士，死宅是什么不认识的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 6058#       发表于 2021-8-15 21:19
+
+
+ 本帖最后由 hulaoda007 于 2021-8-15 21:24 编辑 
+
+Pomu关注和订阅会不会涨一些。
+
+诶？解锁社外？有一说一天开也不是社内啊。
+
+
+*****
+
+####  帕克桑  
+##### 6059#       发表于 2021-8-15 21:21
+
+
+男人还是太少了 明年起码上一半男人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 6060#       发表于 2021-8-15 21:24
+
+
+全明星赛它来了
+
+
+
+
+*****
+
+####  poipanchao  
+##### 6061#       发表于 2021-8-15 21:25
+
+
+不能用虹的人，杏仁大战来了
+
+顺便舞元队里肯定有三字母吧
+
+古战场再开？
+
+
+*****
+
+####  十四洲  
+##### 6062#       发表于 2021-8-15 21:26
+
+
+首先强烈支持撒撒基小姐明年再来，她太懂直播了
+
+
+*****
+
+####  qq845629713  
+##### 6063#       发表于 2021-8-15 21:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 明年德龙还是要上的呀，我是喜欢这种真性情的liver的，赢了那么热血，输的时候也很遗憾，我是敬佩的，
+
+
+*****
+
+####  真飞鸟i  
+##### 6064#       发表于 2021-8-15 21:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了吧，还嫌信者大战不够吗？除非来个规定是监督不能选本社liver只能选别社的。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  hulaoda007  
+##### 6065#       发表于 2021-8-15 21:29
+
+
+老板娘明年肯定有的，没准加大赛事进程，增加参赛人数，时间延长许多。
+
+
+*****
+
+####  死体残留  
+##### 6066#       发表于 2021-8-15 21:29
+
+
+第一年v甲486是亚军吧 杏不上没可能的
+
+
+*****
+
+####  越动天下  
+##### 6067#       发表于 2021-8-15 21:29
+
+
+信者大战是吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 快快快
+
+
+*****
+
+####  purdre  
+##### 6068#       发表于 2021-8-15 21:29
+
+
+来点个人势还行，来别箱的我不太看好
+
+
+*****
+
+####  poipanchao  
+##### 6069#       发表于 2021-8-15 21:30
+
+
+ 本帖最后由 poipanchao 于 2021-8-15 21:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384314&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2021-8-15 21:27</a>
+
+算了吧，还嫌信者大战不够吗？除非来个规定是监督不能选本社liver只能选别社的。
+
+
+—— 来自 Xiaomi ...</blockquote>
+没错，舞元天开就是不能选本社的人，必须选外社的
+
+舞元队里三字母486时雨犬山应该是稳了
+
+
+*****
+
+####  qq845629713  
+##### 6070#       发表于 2021-8-15 21:31
+
+
+你这么说的话，七海nanami也可以上啊，还不算外社了
+
+
+*****
+
+####  OldGlory  
+##### 6071#       发表于 2021-8-15 21:32
+
+
+看来今年数字没增加有压力了，相信加了木口队同接一定能冲破49w吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 6072#       发表于 2021-8-15 21:33
+
+
+想看舞元带着杏打爆虹的8个队
+
+
+*****
+
+####  FCCHua  
+##### 6073#       发表于 2021-8-15 21:36
+
+
+舞元队里有谁太好猜了感觉
+
+
+*****
+
+####  帕克桑  
+##### 6074#       发表于 2021-8-15 21:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384309&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-8-15 21:26</a>
+
+明年德龙还是要上的呀，我是喜欢这种真性情的liver的，赢了那么热血，输的时候也很遗憾，我是敬佩 ...</blockquote>
+得罪了甲方爸爸 怕不是无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shpdw  
+##### 6075#       发表于 2021-8-15 21:37
+
+
+社长也是旧种系，这两年的kzh才算是新派偶像杏味虹男
+
+
+社外，vr和司花生狸猫茄子饼妹那些个人势可以来，其他的难不成你虹还想让大杏upd点774万国来朝<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 6076#       发表于 2021-8-15 21:39
+
+
+要是mmm和樱桃也上的话，我还蛮想看的。
+
+
+*****
+
+####  空集  
+##### 6077#       发表于 2021-8-15 21:40
+
+
+估计个人势顶多加点苔箱甚至774 没啥详细分析。。。
+哦 星男人可能也有
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  IDIDIDID  
+##### 6078#       发表于 2021-8-15 21:41
+
+
+不如凑个死人队，反正皮的版权是enkr的
+
+
+*****
+
+####  OldGlory  
+##### 6079#       发表于 2021-8-15 21:46
+
+
+凑死人队的话维阿可以帮把手
+
+
+*****
+
+####  LilighT  
+##### 6080#       发表于 2021-8-15 21:46
+
+
+<blockquote>IDIDIDID 发表于 2021-8-15 21:41
+不如凑个死人队，反正皮的版权是enkr的</blockquote>
+真敢这么巨魔我去给本社上个红sc
+
+
+*****
+
+####  alcoholic1000  
+##### 6081#       发表于 2021-8-15 21:48
+
+
+我想看486回到她忠诚的甲子园，此外还想看ルーナ上场，我们gamers讲究一个团团圆圆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 6082#       发表于 2021-8-15 21:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384240&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-8-15 07:18</a>
+
+提醒一下，アラサーランク帯是社築、花畑チャイカ、夢追翔和加賀美ハヤト四个人
+
+想看社内外一起的甲子园， ...</blockquote>
+但是翔哥不玩MTG所以他不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好吧，只是最近四人联动很少基本只有三人联动罢了
+
+
+*****
+
+####  越动天下  
+##### 6083#       发表于 2021-8-15 21:51
+
+
+V圈甲子园早该搞搞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 6084#       发表于 2021-8-15 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384582&amp;ptid=1972669" target="_blank">白金口袋 发表于 2021-8-15 21:50</a>
+
+但是翔哥不玩MTG所以他不算
+
+好吧，只是最近四人联动很少基本只有三人联动罢了 ...</blockquote>
+下三路骰子不是把社长以外的几个人都聚过来了嘛。只是因为社长实为但名非种系才没去。结果拉了金毛boy来。
+
+
+*****
+
+####  qq845629713  
+##### 6085#       发表于 2021-8-15 21:52
+
+
+那为什么要由你虹来组织这次v甲子园呢？
+
+
+*****
+
+####  我不是很好  
+##### 6086#       发表于 2021-8-15 21:53
+
+
+所以到时候同接算谁的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 6087#       发表于 2021-8-15 21:54
+
+
+当然是避免被骂抄作业和抄作业没抄好的时候挨骂啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">着实老铺味了。
+
+
+*****
+
+####  白金口袋  
+##### 6088#       发表于 2021-8-15 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384616&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-8-15 07:52</a>
+
+下三路骰子不是把社长以外的几个人都聚过来了嘛。只是因为社长实为但名非种系才没去。结果拉了金毛boy来 ...</blockquote>
+是啊，所以就说最近这四个人就几乎没有凑齐的时候
+
+我记得最后一次凑齐还是喝酒那会
+
+玩骰子是seeds内部没社长
+
+玩纸箱拆包MTG没翔哥
+
+
+*****
+
+####  free  
+##### 6089#       发表于 2021-8-15 21:58
+
+
+19年天开司主办的不就是V圈甲子园，后来虹杏才各玩各的，现在再搞谁愿意主催是个问题
+[https://www.youtube.com/watch?v=4Iy-Ngf2OFs](https://www.youtube.com/watch?v=4Iy-Ngf2OFs)
+
+
+省一楼，今年还有百物语吗
+
+
+*****
+
+####  dybang  
+##### 6090#       发表于 2021-8-15 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384481&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-8-15 21:41</a>
+不如凑个死人队，反正皮的版权是enkr的</blockquote>
+毕业的除了那两个明面上也是好聚好散，你虹搞这个图啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  hulaoda007  
+##### 6091#       发表于 2021-8-15 22:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384668&amp;ptid=1972669" target="_blank">白金口袋 发表于 2021-8-15 21:57</a>
+
+是啊，所以就说最近这四个人就几乎没有凑齐的时候
+
+我记得最后一次凑齐还是喝酒那会
+
+玩骰子是seeds内部没 ...</blockquote>
+应该迟早会的...毕竟这part喜欢的人也多。可能当事人也在找机会。特别是社和社长感觉都比较忙。
+
+
+Syl百物语感觉今年不会弄...
+
+
+*****
+
+####  西瓜爆裂  
+##### 6092#       发表于 2021-8-15 22:06
+
+
+下次底边别来了真的。konami怕底边上新作影响销量是吧，这么real的konami，fuck了。
+
+
+                                               

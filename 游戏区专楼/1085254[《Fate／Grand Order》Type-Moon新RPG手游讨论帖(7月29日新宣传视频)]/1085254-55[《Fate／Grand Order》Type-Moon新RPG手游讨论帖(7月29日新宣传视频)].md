@@ -17736,3 +17736,152 @@ UP谁都跟我没关系，我又不抽，奶毛线</blockquote>
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 82351#       发表于 2021-8-15 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52383328&amp;ptid=1085254" target="_blank">芭德薇 发表于 2021-8-15 19:51</a>
+（好像出了这个池你就能精准抽到缺的那几张一样</blockquote>
+5单封顶，爱出不出
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82352#       发表于 2021-8-15 20:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52383733&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-15 20:26</a>
+
+毛估估算了下，到泳装开的时候我的石头储备大概能有420个左右
+
+希望今年能让我少课点，不课最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以吸萌新的欧气啊 各种豹跳出货
+
+
+*****
+
+####  alucardcz  
+##### 82353#       发表于 2021-8-15 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52383733&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-15 20:26</a>
+
+毛估估算了下，到泳装开的时候我的石头储备大概能有420个左右
+
+希望今年能让我少课点，不课最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新先欧再羡慕
+
+
+*****
+
+####  areklose  
+##### 82354#       发表于 2021-8-15 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52383734&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-15 20:27</a>
+
+5单封顶，爱出不出</blockquote>
+当然是金方块商店
+
+
+*****
+
+####  exiaexa  
+##### 82355#       发表于 2021-8-15 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384043&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-15 20:58</a>
+
+当然是金方块商店</blockquote>
+以前我还是想进金方块的
+
+现在我宁愿每月的兑换结晶能多一个
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 82356#       发表于 2021-8-15 21:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52383856&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-15 20:41</a>
+
+萌新先欧再羡慕</blockquote>
+提前先恭喜萌新泳装全齐<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 82357#       发表于 2021-8-15 21:15
+
+
+ 本帖最后由 zore 于 2021-8-15 21:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万圣南丁什么时候实装灵衣 很急
+
+
+*****
+
+####  alucardcz  
+##### 82358#       发表于 2021-8-15 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384119&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-15 21:04</a>
+
+提前先恭喜萌新泳装全齐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是想奶萌新 没门！
+
+
+*****
+
+####  黑上シグマ  
+##### 82359#       发表于 2021-8-15 21:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52383839&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-15 20:40</a>
+
+你可以吸萌新的欧气啊 各种豹跳出货</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">得了吧，这货前几天抽卡之前还跑来让我奶他（
+
+
+*****
+
+####  qixinno2  
+##### 82360#       发表于 2021-8-15 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384463&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-15 21:40</a>
+
+得了吧，这货前几天抽卡之前还跑来让我奶他（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但他最后还是出货了啊 就让我这种霉B很羡慕
+
+
+*****
+
+####  在海岸  
+##### 82361#       发表于 2021-8-15 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以周年的已经送完了？ 完全没感觉到有多少石
+
+
+*****
+
+####  芭德薇  
+##### 82362#       发表于 2021-8-15 22:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384708&amp;ptid=1085254" target="_blank">在海岸 发表于 2021-8-15 22:00</a>
+
+所以周年的已经送完了？ 完全没感觉到有多少石</blockquote>
+送了得有400+吧，你游每年就周年这会能这么大方了
+
+
+                                                 

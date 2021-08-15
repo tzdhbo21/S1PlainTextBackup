@@ -17899,3 +17899,179 @@ image.png
 
 
                                                  
+
+*****
+
+####  太书主  
+##### 1409#       发表于 2021-8-15 20:46
+
+
+终挺好的啊
+
+
+那么问题来了Q为什么这么难看
+
+
+*****
+
+####  dogman  
+##### 1410#       发表于 2021-8-15 21:08
+
+
+ 本帖最后由 dogman 于 2021-8-15 21:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52383063&amp;ptid=2013091" target="_blank">seeks1 发表于 2021-8-15 19:25</a>
+
+不是大手，说下自己理解。
+
+1，看隔壁帖子特典漫画，副导演出的解释是，明日香因为真嗣消失不能释怀，伴随 ...</blockquote>
+感谢，基本上清楚了。
+
+不过这样真希波泡真嗣那不就相当于老阿姨泡自己同事的儿子嘛，果然不能细想……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+另外话疗那部分，结合NGA那帖我基本接受这个说法，但是感觉转来转去就是几个人的事，说是人类补完计划，但其实大部分人类都只是背景板而已<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  dogman  
+##### 1411#       发表于 2021-8-15 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52382934&amp;ptid=2013091" target="_blank">谢云流 发表于 2021-8-15 19:10</a>
+
+绫波和式波两个波字辈驾驶员都是克隆人，真希波可能也是带记忆的克隆人啊</blockquote>
+明日香是克隆人这个设定是哪里冒出来的？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 1412#       发表于 2021-8-15 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384166&amp;ptid=2013091" target="_blank">dogman 发表于 2021-8-15 21:09</a>
+
+明日香是克隆人这个设定是哪里冒出来的？</blockquote>
+明日香和绫波都只是个型号的名字，明日香是几百个同型体吃鸡剩下来的。
+
+
+*****
+
+####  七夜琉璃  
+##### 1413#       发表于 2021-8-15 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52383063&amp;ptid=2013091" target="_blank">seeks1 发表于 2021-8-15 19:25</a>
+
+不是大手，说下自己理解。
+
+1，看隔壁帖子特典漫画，副导演出的解释是，明日香因为真嗣消失不能释怀，伴随 ...</blockquote>
+<[img src="https://i.loli.net/2021/08/15/X6hUDkN8AdzFIfx.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/15/rLZSgFPv3EeWwHl.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/15/X1mjUBFko3Jvus6.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/15/Z3AnaB2Nq1uT4IG.png" referrerpolicy="no-referrer">
+
+
+冬月说黑丽消失是源度想让儿子和自己一样经历失去的痛苦，所以黑丽没有了调整，无法维持形体了。是源度的锅。
+
+<[img src="https://i.loli.net/2021/08/15/AZukrRmI5Y6Fpi4.jpg" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/15/Ah1kbFmY2ZIMjNx.jpg" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/15/rAZLalnj2dRuO4G.jpg" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/15/a9svrnAQgTtVHRc.jpg" referrerpolicy="no-referrer">
+
+真嗣和丽的plug suits腕部都出现过警告提示音和红色指示文字，文字内容不同，应该都是nerv方面的新plug suits里包含对驾驶员身体进行保护和监测的远程控制一类的装置在监测到问题时发出警示。真嗣的是warning，battery extremely low和suit operations impaired，就是驾驶服没电了，不能再提供在l结界里行动的保护，所以真嗣在路边坐下没法走了。丽的是danger, lcl imbalance detected和recalibrate lcl immediately，是lcl出问题了需要调整。没有提到at立场，也没有任何说法指向因为at立场和情感导致无法维持形体。哪一个丽都没有出现过要“清洗掉情感”这种说法。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 戏言学者| + 1|好评加鹅|
+| seeks1| + 1|谢谢解释，已改|
+
+
+查看全部评分
+
+
+*****
+
+####  刘仲敬  
+##### 1414#       发表于 2021-8-15 21:56
+
+
+ 本帖最后由 刘仲敬 于 2021-8-15 21:57 编辑 
+
+啧啧啧
+
+
+*****
+
+####  dogman  
+##### 1415#       发表于 2021-8-15 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384392&amp;ptid=2013091" target="_blank">任天索尼子 发表于 2021-8-15 21:34</a>
+
+明日香和绫波都只是个型号的名字，明日香是几百个同型体吃鸡剩下来的。 ...</blockquote>
+也就是现在这个明日香不是小时候想要拼命证明自己给妈妈看的明日香了？这个说法的出处在哪里？先谢过~
+
+
+*****
+
+####  任天索尼子  
+##### 1416#       发表于 2021-8-15 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384653&amp;ptid=2013091" target="_blank">dogman 发表于 2021-8-15 21:56</a>
+
+也就是现在这个明日香不是小时候想要拼命证明自己给妈妈看的明日香了？这个说法的出处在哪里？先谢过~ ...</blockquote>
+终里面里面那么一大段明日香自己的回忆啊，几百个同型体都消失了只剩下自己，你要问好歹先把动画看一遍把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kddawang  
+##### 1417#       发表于 2021-8-15 22:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52384652&amp;ptid=2013091" target="_blank">刘仲敬 发表于 2021-8-15 21:56</a>
+
+啧啧啧</blockquote>
+老哥牛逼啊，真好奇能看那么多itc特摄片的人年纪多大。
+
+全网从3月8号开始就你第一个发现说了出来。
+
+当然上了年纪的那帮老嗨们看到那结尾肯定秒懂。
+
+后来查了下就知道这片对日本业界影响还是蛮大的，尤其eva和大圈。
+
+
+<img src="https://img.saraba1st.com/forum/202108/15/220755n4e6n844gxalxqcr.png" referrerpolicy="no-referrer">
+
+
+<strong>大圈.png</strong> (101.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-15 22:07 上传
+
+
+*****
+
+####  zlzhcqblf  
+##### 1418#       发表于 2021-8-15 22:13
+
+
+<blockquote>dogman 发表于 2021-8-15 21:56
+也就是现在这个明日香不是小时候想要拼命证明自己给妈妈看的明日香了？这个说法的出处在哪里？先谢过~ ...</blockquote>
+明日香新版和老版设定改了很多，新版就没她妈什么事
+
+
+                                                

@@ -9392,3 +9392,79 @@ tc台，akukin建设，宝可梦集结，本来可以播的东西挺多的。。
 
 
                                                  
+
+*****
+
+####  zpy393  
+##### 6765#       发表于 2021-8-15 21:14
+
+
+早就拉了，就不要在意了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 6766#       发表于 2021-8-15 21:34
+
+
+后面还有会限吧
+
+
+*****
+
+####  nian1538  
+##### 6767#       发表于 2021-8-15 21:39
+
+
+明年的今天直播就要靠紫宝赏饭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kanchiki  
+##### 6768#       发表于 2021-8-15 21:53
+
+
+8月之后就玩不了宝可梦 哈哈哈什么鬼
+
+
+*****
+
+####  面具13  
+##### 6769#       发表于 2021-8-15 21:56
+
+
+ 本帖最后由 面具13 于 2021-8-15 22:05 编辑 
+
+夸宝：听说宝可梦unite现在不开黑很难玩，不适合solo，老娘不玩了。
+
+
+mc一命通关难度要来了吗
+
+
+你也要玩如龙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+你还记得时之迪啊。买了新手柄。
+
+
+*****
+
+####  乌鸦绅士  
+##### 6770#       发表于 2021-8-15 22:04
+
+
+塞尔达复活<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">我老滚未来有机会能再开吗
+
+
+*****
+
+####  nian1538  
+##### 6771#       发表于 2021-8-15 22:05
+
+
+都选的什么debuff游戏，同接是真要回归2019了
+
+
+                                                 
