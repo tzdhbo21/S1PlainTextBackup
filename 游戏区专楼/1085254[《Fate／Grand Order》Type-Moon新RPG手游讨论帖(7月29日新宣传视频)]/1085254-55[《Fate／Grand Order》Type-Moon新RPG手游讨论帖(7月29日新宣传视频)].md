@@ -17675,3 +17675,50 @@ nga真的闲的蛋疼<img src="https://static.saraba1st.com/image/smiley/face201
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 82343#       发表于 2021-8-15 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52381977&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-15 17:27</a>
+
+算算时间，上次DL纪念已经是半年前了，8月下半怕不是DL纪念</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快奶up谁  是狂娜吗
+
+
+*****
+
+####  黑上シグマ  
+##### 82344#       发表于 2021-8-15 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52382145&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-15 17:46</a>
+
+快奶up谁  是狂娜吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">UP谁都跟我没关系，我又不抽，奶毛线
+
+
+*****
+
+####  alucardcz  
+##### 82345#       发表于 2021-8-15 17:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52382199&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-15 17:52</a>
+
+UP谁都跟我没关系，我又不抽，奶毛线</blockquote>
+5宝走起啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82346#       发表于 2021-8-15 18:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">出啥都无所谓 反正没石头 应该也没欧气了 这次周年我的欧气已经燃烧殆尽了
+
+
+                                                 
