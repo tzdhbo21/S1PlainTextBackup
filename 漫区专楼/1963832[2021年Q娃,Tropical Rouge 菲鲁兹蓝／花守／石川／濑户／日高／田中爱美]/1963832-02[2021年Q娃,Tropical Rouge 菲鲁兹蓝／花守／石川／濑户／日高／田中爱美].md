@@ -7073,3 +7073,45 @@ Twitter@shrimp1634 ​​​​
 
 
                                                  
+
+*****
+
+####  haojie_ma  
+##### 2015#       发表于 2021-8-16 10:45
+
+
+这集的节目主持人有现实原型吗？突然想起以前那些艺人客串回
+
+
+说来反派干部这么快就回来上工了啊
+
+
+*****
+
+####  没老婆的老婆饼  
+##### 2016#       发表于 2021-8-16 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52388557&amp;ptid=1963832" target="_blank">haojie_ma 发表于 2021-8-16 10:45</a>
+
+这集的节目主持人有现实原型吗？突然想起以前那些艺人客串回
+
+
+说来反派干部这么快就回来上工了啊 ...</blockquote>
+官网有说，是个搞笑艺人
+
+
+image.png
+(22.21 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-16 11:39 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/16/113917p7feafgd3j766ubj.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -8355,3 +8355,77 @@ bsyl   追加了直笔（数量不多）
 
 
                                                  
+
+*****
+
+####  yywzjsw  
+##### 768#       发表于 2021-8-16 11:30
+
+
+联动一场没看，难道我是单人配信独角兽？
+
+
+*****
+
+####  T_Hb  
+##### 769#       发表于 2021-8-16 11:47
+
+
+有没有可能是歌粉呢
+
+
+*****
+
+####  yywzjsw  
+##### 770#       发表于 2021-8-16 11:51
+
+
+我也想看她玩游戏
+
+
+*****
+
+####  T_Hb  
+##### 771#       发表于 2021-8-16 11:55
+
+
+那你只有等她什么时候在自己频道联动才能知道自己是不是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 772#       发表于 2021-8-16 12:03
+
+
+我看隔壁说明年的甲子园会邀请社外的人、、、、、然后一群人说舞元必要去mea<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">等你麻在自己的屏道联动.........tc算吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 773#       发表于 2021-8-16 12:26
+
+
+这次居然这么早就起来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 774#       发表于 2021-8-16 13:07
+
+
+起来干嘛，又不播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 775#       发表于 2021-8-16 13:09
+
+
+起来打游戏啊 播什么播 播个屁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

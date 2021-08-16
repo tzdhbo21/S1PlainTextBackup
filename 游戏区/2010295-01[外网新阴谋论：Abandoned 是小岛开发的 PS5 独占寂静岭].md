@@ -9994,3 +9994,102 @@ Screen Shot 2021-08-14 at 12.27.21 AM.png
 
 
                                                  
+
+*****
+
+####  医生狼多  
+##### 787#       发表于 2021-8-16 11:22
+
+
+英文号又发了一遍<img src="https://p.sda1.dev/2/ab7e10fd25cd8b518ef09b403ab96ae3/img-16290840744912abe2c114c4124f94a5827974e70c605.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byisme001  
+##### 788#       发表于 2021-8-16 11:34
+
+
+现在到底有没有人确实说那个中东人是个确实存在的真人
+
+
+*****
+
+####  heseran  
+##### 789#       发表于 2021-8-16 11:39
+
+
+还来啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  luoyianwu  
+##### 790#       发表于 2021-8-16 12:05
+
+
+ 本帖最后由 luoyianwu 于 2021-8-16 12:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52389288&amp;ptid=2010295" target="_blank">byisme001 发表于 2021-8-16 11:34</a>
+
+现在到底有没有人确实说那个中东人是个确实存在的真人</blockquote>
+一个很大的论点是Hasan是AI人，影片是AI做的，推特前后矛盾的文章是AI写的
+
+有几个媒体自称采访过，但都没有放出影片，只有几张照片
+
+
+*****
+
+####  acejoe  
+##### 791#       发表于 2021-8-16 13:02
+
+
+唯一翻盘点是
+
+这本身是一个meta要素。
+
+比如寂静岭游戏里面就有一个这样的游戏。
+
+
+*****
+
+####  芷雅居  
+##### 792#       发表于 2021-8-16 13:39
+
+
+已经翻不了盘了，除非一切都是真的然后今年9月发售<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BensonDarr  
+##### 793#       发表于 2021-8-16 14:02
+
+
+为什么不能是他们一起在摆烂呢
+
+
+*****
+
+####  ads147147  
+##### 794#       发表于 2021-8-16 14:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52366076&amp;ptid=2010295" target="_blank">新八 发表于 2021-8-14 11:47</a>
+cory表示困惑</blockquote>
+别纠结这个，快去做你的战神5（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  windaria  
+##### 795#       发表于 2021-8-16 14:36
+
+
+一直以为是蓝盒在蹭小岛，然后蹭出名堂来了，小岛又反过去蹭他，互相借流量借热度
+
+
+                                                 

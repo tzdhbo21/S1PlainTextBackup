@@ -18462,3 +18462,348 @@ EVA老观众都知道绫波系列之所以特别，有一个关键点是用了�
 
 
                                                 
+
+*****
+
+####  emmer  
+##### 1447#       发表于 2021-8-16 12:00
+
+
+现在有第三方字幕发布吗
+
+
+*****
+
+####  LLLLLuB  
+##### 1448#       发表于 2021-8-16 12:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">eva吧置顶就有个个人翻译，去看下回复不就知道是个什么水平的字幕了
+
+
+*****
+
+####  XIEGC  
+##### 1449#       发表于 2021-8-16 12:21
+
+
+md谁说prime video的繁中翻译比简中好的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雾时  
+##### 1450#       发表于 2021-8-16 12:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52389926&amp;ptid=2013091" target="_blank">XIEGC 发表于 2021-8-16 12:21</a>
+md谁说prime video的繁中翻译比简中好的，昨天特地繁中看了一遍感觉对不上的比简中多不少 ...</blockquote>
+对 上当了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+繁中错翻漏翻错别字一个不落。
+专有词还和国内常用的不一样
+
+—— 来自 Xiaomi M2010J19SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  凤舞夜月  
+##### 1451#       发表于 2021-8-16 12:27
+
+
+我强烈怀疑是真希波是拿了剧本的穿越者
+
+了解一切，知晓一切，想办法拯救一切
+
+为了终结EVA世界，引导创建一个没有EVA的世界
+
+从摄影棚里出来，肯定也有点啥别的意味
+
+一切的告白，其他角色的结局，都是像几个三次元人笔下创作的二次元角色，真希波的加入，感觉像是导演（庵野秀明）为了终结EVA宇宙，加入的一个穿越者的既视感。
+
+刚看完头好晕，不知道如何表达了。
+
+但无论如何，One Last Kiss后接eautiful World，肯定是有意为之！
+
+最后，再见了，所有的EVANGELION.
+
+
+*****
+
+####  novem  
+##### 1452#       发表于 2021-8-16 12:31
+
+
+<blockquote>凤舞夜月 发表于 2021-8-16 12:27
+我强烈怀疑是真希波是拿了剧本的穿越者
+
+了解一切，知晓一切，想办法拯救一切
+
+为了终结EVA世界，引导创建一 ...</blockquote>
+没有真希波，这个无限轮回应该是无法停止的，可以把真希波理解为导演破局的意志，一个近乎完美的角色。这也是新四部曲和前作最大的不同
+
+
+*****
+
+####  凤舞夜月  
+##### 1453#       发表于 2021-8-16 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390064&amp;ptid=2013091" target="_blank">novem 发表于 2021-8-16 12:31</a>
+
+没有真希波，这个无限轮回应该是无法停止的，可以把真希波理解为导演破局的意志，一个近乎完美的角色。这 ...</blockquote>
+我怀疑真希波就是为了终止这一系列的轮回而出现的破局者。
+
+
+*****
+
+####  mortonno2  
+##### 1454#       发表于 2021-8-16 12:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390118&amp;ptid=2013091" target="_blank">凤舞夜月 发表于 2021-8-16 12:34</a>
+我怀疑真希波就是为了终止这一系列的轮回而出现的破局者。</blockquote>
+我看维基总结的访谈，写这个角色就是为了剧情上的破局，只是因为剧情篇幅问题没塑造好而已
+
+
+*****
+
+####  dogman  
+##### 1455#       发表于 2021-8-16 12:41
+
+
+对了，想起来一个陈年老瓜借楼问问：
+
+
+里美她们的Wille就是为了阻止第N次冲击吧？那为啥破里小受救丽眼看要3冲了，她跑出来说让小受防手去干？不是和她们的目的相反吗？
+
+我的理解是她在小受身上看到了自己的影子，想就这样真性情爽一把算了，管他身后洪水滔天？不知对不对……
+
+
+*****
+
+####  苇原雪道  
+##### 1456#       发表于 2021-8-16 12:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390219&amp;ptid=2013091" target="_blank">dogman 发表于 2021-8-16 12:41</a>
+对了，想起来一个陈年老瓜借楼问问：
+
+
+里美她们的Wille就是为了阻止第N次冲击吧？那为啥破里小受救丽眼看要 ...</blockquote>
+我感觉就是简单的破最后脑子一热，和自己经历一重叠就喊出去了。事后发现卧槽事情大条了后悔了，成立了weille
+
+
+*****
+
+####  LLLLLuB  
+##### 1457#       发表于 2021-8-16 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390219&amp;ptid=2013091" target="_blank">dogman 发表于 2021-8-16 12:41</a>
+对了，想起来一个陈年老瓜借楼问问：
+
+
+里美她们的Wille就是为了阻止第N次冲击吧？那为啥破里小受救丽眼看要 ...</blockquote>
+正如楼上所说的，是真嗣触动了她对真嗣的关爱，但想不到结果会引发冲击。wille的前身应该是破里加持的那个海洋复原中心。在近三冲后美里他们发现seele和司令反人类的目的后，从nerf里脱离出来，和海洋复原中心联合成立的wille，所以部队里主干是nerf老员工和部分加持的人。
+
+
+*****
+
+####  dogman  
+##### 1458#       发表于 2021-8-16 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390519&amp;ptid=2013091" target="_blank">LLLLLuB 发表于 2021-8-16 13:06</a>
+
+正如楼上所说的，是真嗣触动了她对真嗣的关爱，但想不到结果会引发冲击。wille的前身应该是破里加持的那 ...</blockquote>
+但是里美喊真嗣放手去做的时候已经天地变色，律子她们都看出这是马上要冲击了啊，说里美没看出来怕是说不通吧……
+
+
+*****
+
+####  ashero  
+##### 1459#       发表于 2021-8-16 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390219&amp;ptid=2013091" target="_blank">dogman 发表于 2021-8-16 12:41</a>
+对了，想起来一个陈年老瓜借楼问问：
+
+
+里美她们的Wille就是为了阻止第N次冲击吧？那为啥破里小受救丽眼看要 ...</blockquote>
+准确来说里美喊的时候还没达成冲击 喊完的时候因为初号机+丽+使徒三合一达成三冲条件 但是被熏扔枪终止<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">  然后空白的14年里发生那几件事才是导致她们态度变化的关键  熏成为司令 wille的建立 加持的牺牲还留了遗腹子和本该被打断的三冲以近三冲的情况下实现了 残存人类只能在wille设置的反l结界内苟活 这些内容完全能出一个剧场版但是直接跳过了 只靠终给出的片段来猜 在q里面几乎没提 那导致q看起来就很云里雾里 而且还不能完全解释得通为什么在q里大家总是谜语人 所以终显得q非常失败……
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  LLLLLuB  
+##### 1460#       发表于 2021-8-16 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390637&amp;ptid=2013091" target="_blank">dogman 发表于 2021-8-16 13:16</a>
+但是里美喊真嗣放手去做的时候已经天地变色，律子她们都看出这是马上要冲击了啊，说里美没看出来怕是说不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你回去重新看看吧，那时天还没变，只是初号机头上多了一个环，之后天色才变了的
+
+
+*****
+
+####  dogman  
+##### 1461#       发表于 2021-8-16 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390695&amp;ptid=2013091" target="_blank">LLLLLuB 发表于 2021-8-16 13:21</a>
+
+你回去重新看看吧，那时天还没变，只是初号机头上多了一个环，之后天色才变了的 ...</blockquote>
+可能我记忆混乱了，我回去再看看<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+（不过我好像记得美里喊出来以后大家都一脸惊讶的看着她啊……算了还是回去复习下再说）
+
+
+*****
+
+####  猫溺泉君  
+##### 1462#       发表于 2021-8-16 13:37
+
+
+楼太高有点跟不上，现在处于严重ptsd状态，哪怕看到蒙娜丽莎，脑内也会响起one last kiss
+
+说实话，终版我只看了一遍，而且中途觉得不对劲去拿酒了，最后的结尾是在酗酒状态下看完的
+
+我就想问一下，最后明日香被送到了第三村的车站找剑剑（呕），那么第三村所在的世界和最后真嗣真希波所在的世界是不是同一个世界？
+
+我真的真的对eva的结局要求不高，哪怕大家歇下心中的矛盾全灭我都能接受，当然最好还是大家在一个美好的世界中happy end，哪怕最后分散在各地乱搭cp都行。
+
+
+*****
+
+####  Hanzong  
+##### 1463#       发表于 2021-8-16 13:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390881&amp;ptid=2013091" target="_blank">猫溺泉君 发表于 2021-8-16 13:37</a>
+楼太高有点跟不上，现在处于严重ptsd状态，哪怕看到蒙娜丽莎，脑内也会响起one last kiss
+
+说实话，终版我只 ...</blockquote>
+当然不是，第三村还是有Kredit，有EVA，有使徒的世界，最后那个就是现实了啊
+
+
+*****
+
+####  猫溺泉君  
+##### 1464#       发表于 2021-8-16 13:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390912&amp;ptid=2013091" target="_blank">Hanzong 发表于 2021-8-16 13:40</a>
+
+当然不是，第三村还是有Kredit，有EVA，有使徒的世界，最后那个就是现实了啊 ...</blockquote>
+也就是说天人两隔了是吧
+
+操**庵野
+
+
+唉
+
+
+*****
+
+####  补天士  
+##### 1465#       发表于 2021-8-16 13:49
+
+
+ 本帖最后由 补天士 于 2021-8-16 13:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390947&amp;ptid=2013091" target="_blank">猫溺泉君 发表于 2021-8-16 13:43</a>
+
+也就是说天人两隔了是吧
+
+操**庵野</blockquote>
+别听他说，压根就没有两个世界。
+
+是在原有世界上进行修正的。真4和丽说的很清楚，不重塑，只是把eva对世界的影响消除。
+
+不过骂一骂庵野是正确的。
+
+
+*****
+
+####  heimu  
+##### 1466#       发表于 2021-8-16 13:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390219&amp;ptid=2013091" target="_blank">dogman 发表于 2021-8-16 12:41</a>
+对了，想起来一个陈年老瓜借楼问问：
+
+
+里美她们的Wille就是为了阻止第N次冲击吧？那为啥破里小受救丽眼看要 ...</blockquote>
+因为喊话的时候压根不知道会引发三冲啊
+
+
+*****
+
+####  喵喵叫的猫  
+##### 1467#       发表于 2021-8-16 13:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52389926&amp;ptid=2013091" target="_blank">XIEGC 发表于 2021-8-16 12:21</a>
+md谁说prime video的繁中翻译比简中好的，昨天特地繁中看了一遍感觉对不上的比简中多不少 ...</blockquote>
+是台湾的中配才是最贴近原文的翻译
+真搞不懂明明配音都做出来了字幕却又是另外一套
+
+
+*****
+
+####  凤舞夜月  
+##### 1468#       发表于 2021-8-16 14:06
+
+
+结尾那个二次元的人跑到现实的车站，一个现实的大远景。
+
+是不是暗示，其实我们（观众）生活在的世界，就是真嗣消除了EVA后的世界。
+
+而凌波丽、明日香，渚薰他们，生活在我们世界的对面（对面车站），亦或者是说，我们是三次元，而他们生活在被修复后的没有EVA的二次元。
+
+
+*****
+
+####  dogman  
+##### 1469#       发表于 2021-8-16 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390947&amp;ptid=2013091" target="_blank">猫溺泉君 发表于 2021-8-16 13:43</a>
+
+也就是说天人两隔了是吧
+
+操**庵野</blockquote>
+我感觉不是啊，我的理解是真嗣在负宇宙几乎成神了，把大家安排得明明白白，然后给世界按了重启按钮，重启后的世界是没有EVA的世界，大家都可以在新世界里幸福的生活了。弦外之音EVA的故事到此为止了，大家也该和EVA告别了。
+
+
+*****
+
+####  晓寒  
+##### 1470#       发表于 2021-8-16 14:20
+
+
+为什么前三部序破Q都是《福音战士新剧场版》
+
+到了终变成了《新·福音战士剧场版》
+
+
+
+
+*****
+
+####  piigzyq  
+##### 1471#       发表于 2021-8-16 14:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52391315&amp;ptid=2013091" target="_blank">晓寒 发表于 2021-8-16 14:20</a>
+
+为什么前三部序破Q都是《福音战士新剧场版》
+
+到了终变成了《新·福音战士剧场版》 ...</blockquote>
+为了和新哥斯拉，新奥特曼，新假面骑士对应，避免以后再出新EVA的可能性，彻底的和EVA再见<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+                                                

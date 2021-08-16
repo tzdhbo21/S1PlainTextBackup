@@ -18164,3 +18164,89 @@ appmedia小编以前就是铁红卡党
 
 
                                                 
+
+*****
+
+####  精英级自演乙  
+##### 82384#       发表于 2021-8-16 12:00
+
+
+ 本帖最后由 精英级自演乙 于 2021-8-16 12:04 编辑 
+
+NGA某版是不是都没玩过主机<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">还是我太久没玩主机，相关知识没更新的原因
+
+有一本正经说月姬R发售后等放流玩模拟器破解的，还有考虑打汉化MOD进主机玩月姬R的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82385#       发表于 2021-8-16 12:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52389671&amp;ptid=1085254" target="_blank">精英级自演乙 发表于 2021-8-16 12:00</a>
+
+NGA某版是不是都没玩过主机还是我太久没玩主机，相关知识没更新的原因
+
+有一本正经说月姬R发售后等放 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定他们等的是n年后的蒸汽版呢 或者是ns版呢
+
+
+*****
+
+####  rooarr  
+##### 82386#       发表于 2021-8-16 12:41
+
+
+什么时候才能结晶自由啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都用金方块换了，还是差好多
+
+
+*****
+
+####  qixinno2  
+##### 82387#       发表于 2021-8-16 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390218&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-16 12:41</a>
+
+什么时候才能结晶自由啊我都用金方块换了，还是差好多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如祈祷以后塞进绿方块商店里 每月换5个
+
+
+*****
+
+####  rooarr  
+##### 82388#       发表于 2021-8-16 12:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390257&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-16 12:44</a>
+
+不如祈祷以后塞进绿方块商店里 每月换5个</blockquote>
+不行，绿方块现在都不够用，再来一套礼装我就没绿方块了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82389#       发表于 2021-8-16 12:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390304&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-16 12:48</a>
+
+不行，绿方块现在都不够用，再来一套礼装我就没绿方块了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正现在出的都是各种5%的渣渣玩意 换一张收藏算了
+
+
+*****
+
+####  alucardcz  
+##### 82390#       发表于 2021-8-16 14:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390304&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-16 12:48</a>
+
+不行，绿方块现在都不够用，再来一套礼装我就没绿方块了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只有2件礼装没换 就算了换了还剩1万5！ 你不对劲
+
+
+                                                 
