@@ -1426,3 +1426,111 @@ RD这Live一般票都还没卖完，MV播放量也大暴死……阿菜这是要
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 6117#       发表于 2021-8-16 18:32
+
+
+ 本帖最后由 hulaoda007 于 2021-8-16 18:33 编辑 
+
+我多少觉得那俩人是性格都有点幼稚。
+
+Roa就是小女生，老师也比较冲动。
+
+tmsk更成熟稳重一些，应该会和平许多。Syl，那个3D小动画剧本谁写的...
+
+
+*****
+
+####  rzrbtk  
+##### 6118#       发表于 2021-8-16 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52394973&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-8-16 18:21</a>
+所以tmsk 真的分了么？感觉现在互动确实少了</blockquote>
+我是觉得没有啦…是说粉丝打架罢了
+
+
+*****
+
+####  ヒトニナル  
+##### 6119#       发表于 2021-8-16 18:49
+
+
+说起口了，她到底会不会回来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你虹第二个地缚灵？
+
+
+*****
+
+####  FCCHua  
+##### 6120#       发表于 2021-8-16 18:55
+
+
+可以回来但没必要
+
+
+
+
+*****
+
+####  IDIDIDID  
+##### 6121#       发表于 2021-8-16 18:58
+
+
+虹女有个星川大御所就够了
+
+
+*****
+
+####  SuntoryNomu  
+##### 6122#       发表于 2021-8-16 19:00
+
+
+<img src="https://img.saraba1st.com/forum/202108/16/185929bh307pvo3bov97k9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E8kAz5zUcAQXUKC.jpg</strong> (483.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-16 18:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/16/185932ml4fmpg4ry1respr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E8kAz5zVUAYJsVA.jpg</strong> (442.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-16 18:59 上传
+
+
+能不能戴口罩喔？
+
+
+*****
+
+####  hulaoda007  
+##### 6123#       发表于 2021-8-16 19:02
+
+
+口了回来吧...我怀念那个口音。
+
+居然还和清龙人有交流吗...？
+
+
+*****
+
+####  adcdqre  
+##### 6124#       发表于 2021-8-16 19:18
+
+
+ 本帖最后由 adcdqre 于 2021-8-16 19:29 编辑 
+
+那肯定比和你虹感情深（管人再就业观察记录<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">）
+
+
+                                                

@@ -18419,3 +18419,146 @@ QP本又减半了
 
 
                                                  
+
+*****
+
+####  sosgame67  
+##### 82404#       发表于 2021-8-16 18:35
+
+
+隔壁一堆傻Ⅹ攒石党倾家荡产出了c呆，这一出红卡体系又要攒一年心态崩了呗.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果现在对红卡各种吹毛求疵放大镜挑毛病，明明是一群日服云玩家比日服萌新还精打细算，突出一个皇帝不急太监急
+
+
+*****
+
+####  rooarr  
+##### 82405#       发表于 2021-8-16 19:02
+
+
+攒石党根本不适合红卡啊，克制打手大多低宝，指望陈宫或者仇凛通刷所有本吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82406#       发表于 2021-8-16 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395471&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-16 19:02</a>
+
+攒石党根本不适合红卡啊，克制打手大多低宝，指望陈宫或者仇凛通刷所有本吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼你好像就你用过陈宫？ 说说和现在红卡哪个按键多啊
+
+
+*****
+
+####  zore  
+##### 82407#       发表于 2021-8-16 19:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国服仇凛不是用脚攒石抽5宝的吗
+
+
+*****
+
+####  rooarr  
+##### 82408#       发表于 2021-8-16 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395544&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 19:09</a>
+
+这楼你好像就你用过陈宫？ 说说和现在红卡哪个按键多啊</blockquote>
+很遗憾的告诉你，大多数情况下红卡按键更多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82409#       发表于 2021-8-16 19:24
+
+
+就……你们想一下隔壁那个微妙的打游戏风气
+
+啥都要憋，啥都要通用，又不想氪金又要憋五宝，不然就是玩不下去弃坑了没缘分嘤嘤嘤
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+就哪怕我们说再说红蓝无所谓都能玩，反正奥伯龙都能扶
+
+大概他们也听不进去，毕竟根本问题不是你我谁强了
+
+而是我吃了这么久的瘪忍了这么久居然还不能在你面前装逼，这我能忍吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82410#       发表于 2021-8-16 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395680&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-16 19:23</a>
+
+很遗憾的告诉你，大多数情况下红卡按键更多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红卡最麻烦的还是技能顺序不能错  错了只能令咒了  陈sir有这问题吗
+
+
+
+
+*****
+
+####  alucardcz  
+##### 82411#       发表于 2021-8-16 19:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395699&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-16 19:24</a>
+
+就……你们想一下隔壁那个微妙的打游戏风气
+
+啥都要憋，啥都要通用，又不想氪金又要憋五宝，不然就是玩不下 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不课金能憋的出5宝？ 你别骗我 我在叔叔那搜c呆千石0宝的视频一大堆 就没见过5宝的
+
+
+*****
+
+####  龙星丸  
+##### 82412#       发表于 2021-8-16 19:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在二宝百级满金芙芙宇宙凛，模拟了一下无限池阴间本，双打手少了一个宝威，第三面还是有点不够，想要补五宝了。。。
+
+
+*****
+
+####  alucardcz  
+##### 82413#       发表于 2021-8-16 19:27
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 82414#       发表于 2021-8-16 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395715&amp;ptid=1085254" target="_blank">龙星丸 发表于 2021-8-16 19:26</a>
+
+现在二宝百级满金芙芙宇宙凛，模拟了一下无限池阴间本，双打手少了一个宝威，第三面还是有点不够， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁不是说有奥师傅后宇宙凛能打任何阴间本而且伤害爆炸了吗 （我没算过np
+
+
+*****
+
+####  龙星丸  
+##### 82415#       发表于 2021-8-16 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395734&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 19:28</a>
+
+隔壁不是说有奥师傅后宇宙凛能打任何阴间本而且伤害爆炸了吗 （我没算过np ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">仇凛要NP礼装启动吧，而且不想抽男人。
+
+
+                                                

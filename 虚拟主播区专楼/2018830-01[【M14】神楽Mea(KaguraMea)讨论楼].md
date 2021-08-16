@@ -8552,3 +8552,27 @@ bsyl   追加了直笔（数量不多）
 
 
                                                  
+
+*****
+
+####  T_Hb  
+##### 788#       发表于 2021-8-16 18:52
+
+
+ 本帖最后由 T_Hb 于 2021-8-16 18:56 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/16/185225tbn6d737oubx179a.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (52.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-16 18:52 上传
+
+
+增强版宣言plus，希望她怂的本性能发挥出来，别出门
+
+
+                                                 
