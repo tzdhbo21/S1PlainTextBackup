@@ -18562,3 +18562,743 @@ QP本又减半了
 
 
                                                 
+
+*****
+
+####  alucardcz  
+##### 82416#       发表于 2021-8-16 19:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395764&amp;ptid=1085254" target="_blank">龙星丸 发表于 2021-8-16 19:30</a>
+
+仇凛要NP礼装启动吧，而且不想抽男人。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 不是6加成？　隔壁不都是默认６加成的吗　
+
+
+*****
+
+####  rooarr  
+##### 82417#       发表于 2021-8-16 19:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395707&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 19:25</a>
+
+红卡最麻烦的还是技能顺序不能错  错了只能令咒了  陈sir有这问题吗</blockquote>
+木有，都是炮弹，充能交完就被送走了，有个毛线的顺序啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82418#       发表于 2021-8-16 19:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好弱智啊 减半结束后接着减半 连一个复刻都不舍得开么
+
+
+*****
+
+####  zore  
+##### 82419#       发表于 2021-8-16 19:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得玩过日服的话国服还是挺容易憋5宝的吧
+
+国服的星战好像是在日服cab之后的
+
+
+*****
+
+####  龙星丸  
+##### 82420#       发表于 2021-8-16 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395822&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-16 19:37</a>
+
+好弱智啊 减半结束后接着减半 连一个复刻都不舍得开么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">继续尼禄祭吗？
+
+
+*****
+
+####  qixinno2  
+##### 82421#       发表于 2021-8-16 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395842&amp;ptid=1085254" target="_blank">龙星丸 发表于 2021-8-16 19:39</a>
+
+继续尼禄祭吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复刻鬼岛我想拿个金时啊
+
+
+*****
+
+####  alucardcz  
+##### 82422#       发表于 2021-8-16 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395841&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-16 19:39</a>
+
+我觉得玩过日服的话国服还是挺容易憋5宝的吧
+
+国服的星战好像是在日服cab之后的 ...</blockquote>
+你以为ｐｃｒ呢？　　这没保底的游戏憋５宝容易？
+
+这话好像也不是第１次回了　莫非你玩的特供版本？
+
+
+*****
+
+####  zore  
+##### 82423#       发表于 2021-8-16 19:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395863&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 19:41</a>
+
+你以为ｐｃｒ呢？　　这没保底的游戏憋５宝容易？
+
+这话好像也不是第１次回了　莫非你玩的特供版本？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩什么特供版本
+
+不抽那些有的没的怎么着也能憋个三四宝,憋不住怪谁
+
+
+*****
+
+####  alucardcz  
+##### 82424#       发表于 2021-8-16 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395879&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-16 19:43</a>
+
+玩什么特供版本
+
+不抽那些有的没的怎么着也能憋个三四宝,憋不住怪谁 ...</blockquote>
+你在说什么　知道什么叫无保底吗？　建议你去看看大肠老师的抽卡录像　
+
+能说出怎么也能出个３４宝这种话　要么你是欧皇要么就是个云玩家
+
+
+*****
+
+####  zore  
+##### 82425#       发表于 2021-8-16 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395900&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 19:46</a>
+
+你在说什么　知道什么叫无保底吗？　建议你去看看大肠老师的抽卡录像　
+
+能说出怎么也能出个３４宝这种话 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是,你攒一年石头算上呼符碎片硬算一共10单抽不出3,4宝?
+
+千石一宝确实存在,那也存在一呼符出货的啊
+
+楼里还有一两单一宝的,这概率不算中等水平偏欧?
+
+
+*****
+
+####  alucardcz  
+##### 82426#       发表于 2021-8-16 20:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395947&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-16 19:52</a>
+
+不是,你攒一年石头算上呼符碎片硬算一共10单抽不出3,4宝?
+
+千石一宝确实存在,那也存在一呼符出货的 ...</blockquote>
+fgo卡池什么时候变的这么友善了？
+
+你要是说歪的也算那也就罢了　　一定能出３４宝ｕｐ卡？　　
+
+算了　不说了　你开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82427#       发表于 2021-8-16 20:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395947&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-16 19:52</a>
+
+不是,你攒一年石头算上呼符碎片硬算一共10单抽不出3,4宝?
+
+千石一宝确实存在,那也存在一呼符出货的 ...</blockquote>
+要真抽不出来怎么办？你负责吗？
+
+你又不负责，到时候怕不是还来一句“啊呀这就是你的命不好啊。”
+
+
+那么喜欢宣传攒石去LGA宣传，少在这儿车轱辘废话
+
+
+*****
+
+####  exiaexa  
+##### 82428#       发表于 2021-8-16 20:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395900&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 19:46</a>
+
+你在说什么　知道什么叫无保底吗？　建议你去看看大肠老师的抽卡录像　
+
+能说出怎么也能出个３４宝这种话 ...</blockquote>
+你这辈子见过的抽卡只有DC吗……
+
+
+我一个2宝能用3宝万岁4宝留1宝防歪的人，最高18单1西哥，但是我依旧认为你游5宝不难啊
+
+10单内解决大有人在，20单内我们都说是非了
+
+你非要说没保底那就是难，那我无话可说
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霧谷藤乃  
+##### 82429#       发表于 2021-8-16 20:06
+
+
+千石0五星还是很正常的吧，我上个号就是死于C呆复刻，欧的确有，但是说有10单稳出三四宝的欧气，那我只能说是天选之人
+
+
+*****
+
+####  alucardcz  
+##### 82430#       发表于 2021-8-16 20:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396072&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-16 20:05</a>
+
+你这辈子见过的抽卡只有DC吗……
+
+
+我一个2宝能用3宝万岁4宝留1宝防歪的人，最高18单1西哥，但是我依旧认 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不 我还看过氪金氪金氪的抽卡视频（是叫这个名字吗
+
+
+而且这里说的是“必出”  也就是下限 你看你不是也凉了
+
+
+*****
+
+####  zore  
+##### 82431#       发表于 2021-8-16 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396065&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-16 20:04</a>
+
+要真抽不出来怎么办？你负责吗？
+
+你又不负责，到时候怕不是还来一句“啊呀这就是你的命不好啊。”</blockquote>
+?
+
+不是你们在说隔壁又不充钱又要憋5宝的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友硬要说抽卡录像,那我再举个好了
+
+氪金氪金氪19年的宇宙凛1410石5宝毕业,我那会抽了差不多2k5石
+
+杀狐他1000石5宝,我免费算上氪的快600石头才1宝
+
+你游那垃圾概率就摆在那,说什么命不好呢,不充钱又想要憋5宝不就只能攒石了
+
+
+*****
+
+####  zore  
+##### 82432#       发表于 2021-8-16 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396022&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 20:00</a>
+
+fgo卡池什么时候变的这么友善了？
+
+你要是说歪的也算那也就罢了　　一定能出３４宝ｕｐ卡？　　
+
+算了　不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可没说必出,可别添油加醋
+
+你就说说你挖了100多万羁绊的多少石头抽的奥伯龙杀狐
+
+单说这俩的我杀狐600奥伯龙400<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我能有啥好说的
+
+
+*****
+
+####  シャル  
+##### 82433#       发表于 2021-8-16 20:20
+
+
+推特开始好友祭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+刚加了几个奥狐310的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不得不说S1上次加的几位纯度不高<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82434#       发表于 2021-8-16 20:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396218&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-16 20:19</a>
+
+我可没说必出,可别添油加醋
+
+你就说说你挖了100多万羁绊的多少石头抽的奥伯龙杀狐
+
+单说这俩的我杀 ...</blockquote>
+“不抽那些有的没的怎么着也能憋个三四宝,憋不住怪谁”
+
+“不是,你攒一年石头算上呼符碎片硬算一共10单抽不出3,4宝?”
+
+
+添油加醋？这可都是你的原话
+
+按你这理论，10单出不了3，4宝的一定是玩的假的游戏，我油管看的抽卡视频都是捏造用来陷害DW的
+
+
+*****
+
+####  alucardcz  
+##### 82435#       发表于 2021-8-16 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396218&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-16 20:19</a>
+
+我可没说必出,可别添油加醋
+
+你就说说你挖了100多万羁绊的多少石头抽的奥伯龙杀狐
+
+单说这俩的我杀 ...</blockquote>
+“不抽那些有的没的怎么着也能憋个三四宝,憋不住怪谁”
+
+‘不是,你攒一年石头算上呼符碎片硬算一共10单抽不出3,4宝?’
+
+
+你说几句话的意思不就是必出？我哪添油加醋了　你别乱说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 82436#       发表于 2021-8-16 20:34
+
+
+<img src="https://img.saraba1st.com/forum/202108/16/203328rvxu3pg0g8mu0dnn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-16-20-29-32-99.jpg</strong> (539.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-16 20:33 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">还有人需要么 好久没加好友了 
+
+066501976
+
+
+*****
+
+####  白金口袋  
+##### 82437#       发表于 2021-8-16 20:35
+
+
+AP减半居然还上推特趋势了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82438#       发表于 2021-8-16 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396381&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-16 20:34</a>
+
+还有人需要么 好久没加好友了 
+
+066501976</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">输入完发现已经加过了　白给了
+
+
+*****
+
+####  黑上シグマ  
+##### 82439#       发表于 2021-8-16 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396406&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-16 20:35</a>
+
+AP减半居然还上推特趋势了</blockquote>
+毕竟太艹，昨天12点AP减半结束，今天17点AP减半再开，这期间到底发生了什么
+
+
+*****
+
+####  黑上シグマ  
+##### 82440#       发表于 2021-8-16 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396381&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-16 20:34</a>
+
+还有人需要么 好久没加好友了 
+
+066501976</blockquote>
+申请了，我的ID一看就知道的
+
+
+
+
+*****
+
+####  qixinno2  
+##### 82441#       发表于 2021-8-16 20:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咸鱼求加 679,618,129
+
+
+*****
+
+####  LOLITA  
+##### 82442#       发表于 2021-8-16 20:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396381&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-16 20:34</a>
+
+还有人需要么 好久没加好友了 
+
+066501976</blockquote>
+申请了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82443#       发表于 2021-8-16 20:55
+
+
+翻页
+
+
+*****
+
+####  白金口袋  
+##### 82444#       发表于 2021-8-16 20:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396381&amp;ptid=1085254" target="_blank">v22325 发表于 2021-8-16 06:34</a>
+
+还有人需要么 好久没加好友了 
+
+066501976</blockquote>
+已发申请，ID Pocket
+
+
+*****
+
+####  exiaexa  
+##### 82445#       发表于 2021-8-16 21:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396098&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 20:07</a>
+
+不 我还看过氪金氪金氪的抽卡视频（是叫这个名字吗
+
+
+而且这里说的是“必出”  也就是下限 你看你 ...</blockquote>
+咋说呢，每个人氪金感觉不太一样吧，这种没保底的抽奖，我觉得达到期望就可以了
+
+
+比如你给我10单，你问我能不能满宝，我根据经验觉得可行，期望不低，再不济加几单
+
+但是你说翻了咋整，那也没啥可整赌狗从来都是不得好死
+
+我是傻逼，我下次还来
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LOLITA  
+##### 82446#       发表于 2021-8-16 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396685&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-16 21:01</a>
+
+咋说呢，每个人氪金感觉不太一样吧，这种没保底的抽奖，我觉得达到期望就可以了
+
+
+比如你给我10单，你问我 ...</blockquote>
+经历过7单一宝无歪和9单一宝无歪的表示我不是傻逼，下次我不来了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82447#       发表于 2021-8-16 21:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396685&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-16 21:01</a>
+
+咋说呢，每个人氪金感觉不太一样吧，这种没保底的抽奖，我觉得达到期望就可以了
+
+
+比如你给我10单，你问我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">所以说要考虑下限 没有一定这说法 而且说的也不是氪金啊。是存1年石头
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">算了 这话题不聊了
+
+
+*****
+
+####  v22325  
+##### 82448#       发表于 2021-8-16 21:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">这破游戏再强也就那样 又没有PVP 少花钱多抽new才是真的
+
+
+*****
+
+####  rooarr  
+##### 82449#       发表于 2021-8-16 21:11
+
+
+所以有的时候我觉得国服pcr很无聊，开始我也是天天攒着不抽卡，感觉好难受。后面想开了，限定卡池都抽5次，不出就放弃，体验好多了，虽然抽出来的很多卡我从来没用过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82450#       发表于 2021-8-16 21:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396800&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-16 21:11</a>
+
+所以有的时候我觉得国服pcr很无聊，开始我也是天天攒着不抽卡，感觉好难受。后面想开了，限定卡池都抽5次， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还剩几井啊
+
+
+*****
+
+####  zore  
+##### 82451#       发表于 2021-8-16 21:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那行,是我难以抑制住楼友一单一宝争先恐后当非洲人的决心,我改成"一年攒十单未必出一宝"好了吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根据不知道哪来的野生的概率榜.当期出货率1宝和5宝无限接近百分百出货率的都是38单共6360石
+
+大家都是欧洲人,是没有人受到伤害的世界了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 82452#       发表于 2021-8-16 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396809&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 21:12</a>
+你还剩几井啊</blockquote>
+1井啊，用掉现在这井就跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82453#       发表于 2021-8-16 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396841&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-16 21:15</a>
+
+1井啊，用掉现在这井就跑路了说实话这么多抽卡游戏，体验上没哪个游戏比较好，厂商终究都是要挣钱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">碧蓝航线请！
+
+
+*****
+
+####  LOLITA  
+##### 82454#       发表于 2021-8-16 21:17
+
+
+现在怎么办，继续刷钱么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+早知道不吃苹果刷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82455#       发表于 2021-8-16 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396841&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-16 21:15</a>
+1井啊，用掉现在这井就跑路了说实话这么多抽卡游戏，体验上没哪个游戏比较好，厂商终究都是要挣钱 ...</blockquote>
+快去请四个字母佛祖到pcr，你就可以放心走了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 82456#       发表于 2021-8-16 21:22
+
+
+刷了一个星期还没刷腻啊,我等无限池了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82457#       发表于 2021-8-16 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396884&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-16 21:17</a>
+
+现在怎么办，继续刷钱么
+
+
+早知道不吃苹果刷了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你钱没刷爆吗。。我爆了又爆　最后刷素材去了（
+
+
+*****
+
+####  LOLITA  
+##### 82458#       发表于 2021-8-16 21:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397024&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 21:27</a>
+
+你钱没刷爆吗。。我爆了又爆　最后刷素材去了（</blockquote>
+我中间打2.6去了。。。打完补课刷了10E用了一半，离爆仓远着呢<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 82459#       发表于 2021-8-16 21:32
+
+
+ID:197 931 129
+
+为了做任务，如果大佬不嫌弃多一根腿毛的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82460#       发表于 2021-8-16 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397074&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-16 21:32</a>
+
+我中间打2.6去了。。。打完补课刷了10E用了一半，离爆仓远着呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没算　但我感觉我大概刷了４０亿　还是不带ｑｐ加成礼装的（
+
+
+*****
+
+####  alucardcz  
+##### 82461#       发表于 2021-8-16 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397082&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-16 21:32</a>
+
+ID:197 931 129
+
+为了做任务，如果大佬不嫌弃多一根腿毛的话</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新申请了　N开头的
+
+
+不过这任务其实不用加好友　随便输3个ｉｄ点关注  然后再取消就完成了
+
+
+*****
+
+####  千叶铁矢  
+##### 82462#       发表于 2021-8-16 21:39
+
+
+都发了我也来，292.483.704，与世隔绝一个月之后删了一圈好友就剩87个了，加起来
+
+
+*****
+
+####  白金口袋  
+##### 82463#       发表于 2021-8-16 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397120&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 07:35</a>
+
+萌新申请了　N开头的
+
+
+不过这任务其实不用加好友　随便输3个ｉｄ点关注  然后再取消就完成了 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202108/16/074100qdkvpi3umg7gmwwm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>CnVYyEVVMAAC2vf.jpg</strong> (96 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-16 21:41 上传
+
+
+多谢提醒，总之先加了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LOLITA  
+##### 82464#       发表于 2021-8-16 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397101&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 21:34</a>
+
+我没算　但我感觉我大概刷了４０亿　还是不带ｑｐ加成礼装的（</blockquote>
+莫非你在QP本刷出了奥博龙和杀狐<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82465#       发表于 2021-8-16 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397207&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-16 21:43</a>
+
+莫非你在QP本刷出了奥博龙和杀狐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的（
+
+
+*****
+
+####  LOLITA  
+##### 82466#       发表于 2021-8-16 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397165&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-16 21:39</a>
+
+都发了我也来，292.483.704，与世隔绝一个月之后删了一圈好友就剩87个了，加起来 ...</blockquote>
+加了加了。昵称是浜風的平假名
+
+
+*****
+
+####  katun  
+##### 82467#       发表于 2021-8-16 21:55
+
+
+这加好友的任务是奖励5个银棋子？为啥大家都在做<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">
+
+
+                                                

@@ -10959,3 +10959,343 @@ demo应该是有专门ps5版的，3.5g
 
 
                                                  
+
+*****
+
+####  zqqwe  
+##### 2303#       发表于 2021-8-16 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52308726&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-9 22:35</a>
+OVL不能自主控制这个在TOG里也是一样的，考虑到香川是TOG的战斗策划，有可能像TOGF那样后期追加自主控制OVL ...</blockquote>
+目前还是最喜欢tox系的共鸣技，同时兼顾演出和实用性，输出搬运位移回复控场都有覆盖到，到了tox2的组合丰富度更是良心
+可惜tox2前期的钢体值和刷sp上限过于恶心，ps3刷过一次后，之前用模拟器重温流程过半就快失去动力了
+
+
+*****
+
+####  zqqwe  
+##### 2304#       发表于 2021-8-16 19:38
+
+
+另外这作打击震动应该还在吧，以前玩toddc和togf震到酸爽，tox2就删了只剩伤害震动，tob倒是加了一部分回来
+
+
+*****
+
+####  laoz  
+##### 2305#       发表于 2021-8-16 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52391485&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-16 14:36</a>
+
+体验版有繁中,同样有7月2日更新的1.01补丁
+
+可能是之前媒体试玩的版本</blockquote>
+就是媒体的那个demo啊，油管前几天都发了个先行视频了
+
+
+*****
+
+####  zqqwe  
+##### 2306#       发表于 2021-8-16 19:47
+
+
+最近多次演示几乎可以确认没了弱点属性系统，避免了一些角色覆盖不全必须换人才好打的尴尬场面。boss的break状态如果是靠特殊BA和弱点部位积累伤害来出，一周目高难度前期估计相当刮。但历代最强的回避性能真心爽快，总算是补强了动作性
+
+
+*****
+
+####  qiyu1234  
+##### 2307#       发表于 2021-8-16 19:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395807&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-16 19:35</a>
+
+目前还是最喜欢tox系的共鸣技，同时兼顾演出和实用性，输出搬运位移回复控场都有覆盖到，到了tox2的组合 ...</blockquote>
+TOX的共鸣技到2代真正补完，我觉得是3D传说里做的很优秀的新系统（解放了没有特定组合的泛用共鸣选择，以及回归了OVL中奥义接秘奥义的设计，不过双人自动连携攻击被去掉了，可能是考虑到影响连段自由度）
+
+
+问题也是老问题，前期体验慢热，如果以前玩过，移植/复刻版 从一周目再开始玩的动力大减
+
+
+*****
+
+####  qiyu1234  
+##### 2308#       发表于 2021-8-16 19:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395909&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-16 19:47</a>
+
+最近多次演示几乎可以确认没了弱点属性系统，避免了一些角色覆盖不全必须换人才好打的尴尬场面。boss的brea ...</blockquote>
+弱点/耐性系统能被更直观的系统替代是好事
+
+很长一段时间这套东西是拖后腿，减少玩家的爽快感的设计
+
+
+*****
+
+####  qiyu1234  
+##### 2309#       发表于 2021-8-16 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395835&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-16 19:38</a>
+
+另外这作打击震动应该还在吧，以前玩toddc和togf震到酸爽，tox2就删了只剩伤害震动，tob倒是加了一部分回来 ...</blockquote>
+攻击震动不清楚，但PS5手柄是有术技的特殊触觉反馈的
+
+
+*****
+
+####  godless2020  
+##### 2310#       发表于 2021-8-16 19:52
+
+
+年纪大了，震动都关掉了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  qiyu1234  
+##### 2311#       发表于 2021-8-16 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395894&amp;ptid=1860328" target="_blank">laoz 发表于 2021-8-16 19:45</a>
+
+就是媒体的那个demo啊，油管前几天都发了个先行视频了</blockquote>
+哦是那个料理研究家的试玩视频啊
+
+
+我看封面以为只是还原游戏内料理就没点开
+
+
+*****
+
+####  DKD  
+##### 2312#       发表于 2021-8-16 19:55
+
+
+好急 日子快到了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 2313#       发表于 2021-8-16 20:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395914&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-16 19:47</a>
+TOX的共鸣技到2代真正补完，我觉得是3D传说里做的很优秀的新系统（解放了没有特定组合的泛用共鸣选择，以 ...</blockquote>
+最烦的就是即使像tov后面出ps4版送了全套加速dlc，还是有一大堆不与等级挂钩但影响战斗体验的东西要刷，纵向对比一周目最高难度好像就togf体验良好了，但这作队友ai又太容易被秒
+
+
+*****
+
+####  qiyu1234  
+##### 2314#       发表于 2021-8-16 20:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396025&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-16 20:00</a>
+
+最烦的就是即使像tov后面出ps4版送了全套加速dlc，还是有一大堆不与等级挂钩但影响战斗体验的东西要刷， ...</blockquote>
+我是感觉GF往后这几作队友AI都不太行
+
+想不容易死得针对性设置作战指令，直接傻站着长蓄力B技被打断加晕眩就很难受
+
+
+*****
+
+####  zqqwe  
+##### 2315#       发表于 2021-8-16 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52395927&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-16 19:49</a>
+弱点/耐性系统能被更直观的系统替代是好事
+
+很长一段时间这套东西是拖后腿，减少玩家的爽快感的设计 ...</blockquote>
+有弱点系统的那几作，就只有tox2的确连最爽快，但某几个角色单人叠不满9属性很依赖ovl，后期对敌思路也相当单一，到最后斗技场客串四人组就是link个组长开绝对防御等三蓄然后连死一个再循环
+要是刷钱够了玩撸哥甚至不用link但是没那耐心
+
+
+*****
+
+####  zqqwe  
+##### 2316#       发表于 2021-8-16 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396101&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-16 20:07</a>
+我是感觉GF往后这几作队友AI都不太行
+
+想不容易死得针对性设置作战指令，直接傻站着长蓄力B技被打断加晕眩 ...</blockquote>
+能确保防御战术时能回避大多数攻击其实就差不多了，tox2和tob选身を守れ基本队友就死不了，但明明tov还在的预设战术快捷切换到了tox2居然没了，一个个手调实在痛苦
+
+
+*****
+
+####  qiyu1234  
+##### 2317#       发表于 2021-8-16 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396107&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-16 20:08</a>
+
+有弱点系统的那几作，就只有tox2的确连最爽快，但某几个角色单人叠不满9属性很依赖ovl，后期对敌思路也相 ...</blockquote>
+撸哥属于四合一角色性能破格
+
+主要它这个弱点系统也就是打普通敌人 研究下弱点连会有点意思
+
+BOSS战总会出现些恶心的刚体
+
+能感觉出就是个教你玩游戏不让你乱搓技能的设计
+
+所以这作被砍掉也很正常
+
+
+*****
+
+####  qiyu1234  
+##### 2318#       发表于 2021-8-16 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396144&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-16 20:12</a>
+
+能确保防御战术时能回避大多数攻击其实就差不多了，tox2和tob选身を守れ基本队友就死不了，但明明tov还在 ...</blockquote>
+因为键位占满了啊，十字键需要调整角色/LINK切换，右摇杆例行放快捷术技指令
+
+
+*****
+
+####  zqqwe  
+##### 2319#       发表于 2021-8-16 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396158&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-16 20:13</a>
+撸哥属于四合一角色性能破格
+
+主要它这个弱点系统也就是打普通敌人 研究下弱点连会有点意思
+
+BOSS战总会出 ...</blockquote>
+不过tox2赏金boss的特殊down机制的确有点意思，但印象中也就tov有类似的解谜玩法，最近几作都没见到
+
+
+*****
+
+####  zqqwe  
+##### 2320#       发表于 2021-8-16 20:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396180&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-16 20:16</a>
+因为键位占满了啊，十字键需要调整角色/LINK切换，右摇杆例行放快捷术技指令 ...</blockquote>
+不用实时切，放在暂停一级界面就够了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2321#       发表于 2021-8-16 20:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396192&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-16 20:17</a>
+
+不过tox2赏金boss的特殊down机制的确有点意思，但印象中也就tov有类似的解谜玩法，最近几作都没见到 ...</blockquote>
+迷宫悬赏BOSS那个特殊DOWN...看条件吧
+
+比较有创意的（断尾，突进间歇，分身击破这种容易触发的还好），要满足弱点连携那些就不大喜欢
+
+
+这作应该也有这类BOSS，试玩版那个应该就算
+
+
+*****
+
+####  zqqwe  
+##### 2322#       发表于 2021-8-16 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396283&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-16 20:26</a>
+迷宫悬赏BOSS那个特殊DOWN...看条件吧
+
+比较有创意的（断尾，突进间歇，分身击破这种容易触发的还好），要 ...</blockquote>
+弱点连携特殊down那些基本都是通关后追加，的确体验不好，特别是血量，没刷武器打一套满倍率接秘奥义才掉不到1/5血<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2323#       发表于 2021-8-16 20:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396359&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-16 20:32</a>
+
+弱点连携特殊down那些基本都是通关后追加，的确体验不好，特别是血量，没刷武器打一套满倍率接秘奥义才掉 ...</blockquote>
+这系列传统之一就是多周目体验嘛
+
+一周目RPG 二周目开始变ACT
+
+
+但是对大多数玩家而言能不能坚持到二周目其实都是问题
+
+希望这作一周目的体验能更流畅一点，至少能让轻度玩家有二周目的想法
+
+
+*****
+
+####  蓝雉  
+##### 2324#       发表于 2021-8-16 20:39
+
+
+说起来没人在意支线任务吗，感觉这系列对支线任务一直不重视
+
+
+*****
+
+####  中泽君  
+##### 2325#       发表于 2021-8-16 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396458&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-8-16 20:39</a>
+
+说起来没人在意支线任务吗，感觉这系列对支线任务一直不重视</blockquote>
+没有限时就是最好的支线任务
+
+
+*****
+
+####  qiyu1234  
+##### 2326#       发表于 2021-8-16 20:44
+
+
+ 本帖最后由 qiyu1234 于 2021-8-16 20:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396458&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-8-16 20:39</a>
+
+说起来没人在意支线任务吗，感觉这系列对支线任务一直不重视</blockquote>
+支线还行吧，除了那些交付某道具多少个/击败某怪物多少个的重复刷刷刷任务以外
+
+带剧情的任务都还行，印象里基本都有语音、轻度演出或者小剧场，往往奖励还挺有用的（收集品或者是特殊技能解禁）
+
+长任务链这种没法指望，但基本人物弧光补完的作用还是有的
+
+
+*****
+
+####  给您添麻烦了  
+##### 2327#       发表于 2021-8-16 21:05
+
+
+请问下现在 ps 商店中能不能下载到试玩版本？
+
+
+*****
+
+####  qiyu1234  
+##### 2328#       发表于 2021-8-16 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396731&amp;ptid=1860328" target="_blank">给您添麻烦了 发表于 2021-8-16 21:05</a>
+
+请问下现在 ps 商店中能不能下载到试玩版本？</blockquote>
+没上架，等18号吧
+
+
+                                                
