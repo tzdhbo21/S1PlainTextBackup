@@ -342,3 +342,52 @@ Evangelion.3.0 1.01.Thrice.Upon.a.Time.2021.中文字幕.WEBrip.AAC.1080p.x264-V
 
 
                                                  
+
+*****
+
+####  希望之花  
+##### 1510#       发表于 2021-8-17 00:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等新奥特曼暴死就会想拍eva了
+
+
+*****
+
+####  新月祥  
+##### 1511#       发表于 2021-8-17 01:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396793&amp;ptid=2013091" target="_blank">shinnfin 发表于 2021-8-16 21:10</a></blockquote>
+原本Q里面对黑丽无感，看了终以后，黑丽a真的好惹人怜爱啊a
+
+
+*****
+
+####  theFinalNagisa  
+##### 1512#       发表于 2021-8-17 02:23
+
+
+突然想起一个槽点，nge里头惣流和薰只在死与新生里有过两句台词的交流。到终里头，式波原型都一起开十三号机了，这两是不是依然一句对话没有啊？
+
+
+*****
+
+####  补天士  
+##### 1513#       发表于 2021-8-17 02:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52399129&amp;ptid=2013091" target="_blank">新月祥 发表于 2021-8-17 01:38</a>
+
+原本Q里面对黑丽无感，看了终以后，黑丽a真的好惹人怜爱啊a</blockquote>
+饮水请思源。
+
+黑丽在Q什么不知道只知道服从命令和“绫波丽会怎么做”。
+
+被香吼了一句“你自己不清楚该怎么做吗？”才顿悟的。
+
+
+黑丽的人格是被香提点以后觉醒的，不然也不可能到的了三村。
+
+
+                                                 
