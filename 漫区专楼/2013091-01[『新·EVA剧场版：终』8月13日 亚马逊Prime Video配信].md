@@ -18336,3 +18336,129 @@ image.png
 
 
                                                  
+
+*****
+
+####  补天士  
+##### 1438#       发表于 2021-8-16 06:49
+
+
+ 本帖最后由 补天士 于 2021-8-16 06:52 编辑 
+
+破时期，Nerv收拾人偶的箱子，在终开头出现：[https://tieba.baidu.com/p/7496067562](https://tieba.baidu.com/p/7496067562)
+
+考虑明日香绝大多数时间不可能在三村，
+
+应该是Wille在得知明日香和真4要去三村以后，就把3人的行李送到三村。（也解释了为何真4上船前能有校服可以穿），真4那件运动服可能就是真4自己的，因为铃原的运动服会偏大一号（Q中细节）。
+
+在Wunder舰上香的房间里面，香已经没有个人行李，所有的空间都被玛丽的书占据了。
+
+
+另外，黑丽的校服可能不是光的，而是百丽的，因为光穿白袜，而丽穿黑袜。估计也是Wille一并送到的。
+
+
+*****
+
+####  猫将军  
+##### 1439#       发表于 2021-8-16 07:38
+
+
+美雪姐姐的哭腔不要太棒<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">，樱是神
+
+
+*****
+
+####  Redis  
+##### 1440#       发表于 2021-8-16 07:54
+
+
+这片儿还能引进？<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">我不信
+
+
+
+
+*****
+
+####  dogman  
+##### 1441#       发表于 2021-8-16 08:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52386130&amp;ptid=2013091" target="_blank">X(iaolw)S 发表于 2021-8-16 00:38</a>
+
+@dogman
+
+回忆里那一整屏的英文有写，实验结果未达标，式波系列研究被终止，所以没备胎了</blockquote>
+谢谢解惑。
+
+
+关于两个香我看现在的解读是试验最后剩两个合格，一个是一直出现在剧情里的那个，另一个就是在13号机里……不过我还是觉得这个设定太空降了，感觉像硬凑的（也可能是我看片太粗糙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  碳.  
+##### 1442#       发表于 2021-8-16 08:59
+
+
+<blockquote>dogman 发表于 2021-8-16 08:53
+谢谢解惑。
+
+
+关于两个香我看现在的解读是试验最后剩两个合格，一个是一直出现在剧情里的那个，另一个就是 ...</blockquote>
+别想了，这就是硬凑的设定。
+
+
+EVA老观众都知道绫波系列之所以特别，有一个关键点是用了真嗣老妈的基因。
+
+
+那现在式波系列是个什么鬼，惣流的基础设定是天才少女，自然人，改成人造人居然还是免维护的直接就把角色基础崩掉了。
+
+
+*****
+
+####  11512  
+##### 1443#       发表于 2021-8-16 09:05
+
+
+[https://www.youtube.com/channel/UCN4tlyGGE9zMuR4NqUk64jQ](https://www.youtube.com/channel/UCN4tlyGGE9zMuR4NqUk64jQ)
+
+感觉这频道已经说的非常清楚了
+
+旧剧与新剧的对比也很赞
+[https://www.youtube.com/watch?v=rW7LtJYpXIE](https://www.youtube.com/watch?v=rW7LtJYpXIE)
+
+
+*****
+
+####  11512  
+##### 1444#       发表于 2021-8-16 09:07
+
+
+我觉得是拍的非常完美的结局了 虽然有点土 不是那么有趣
+
+
+*****
+
+####  a479281660  
+##### 1445#       发表于 2021-8-16 09:17
+
+
+现在有那个字幕组翻译的比较好的版本吗？亚马逊的翻译给我看麻了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  arisato  
+##### 1446#       发表于 2021-8-16 09:18
+
+
+楼太高了爬不动，直接请教一下大家
+
+旧tv的时候我对渚薰的理解是他是使徒，和真嗣接触一方面是seele的安排一方面是唯选择了真嗣作为人类代表，是代表使徒和人类两个广义概念接触，也因此我个人比较反感贞本漫画版里对渚薰的处理
+
+终是说渚薰还是使徒，但是确实是以他自己个人的意志写上了他和真嗣的名字让自己一遍遍轮回都是为了成就真嗣的幸福吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">虽然渚司令比较新奇但如果真是这样感觉会很失望
+
+
+                                                

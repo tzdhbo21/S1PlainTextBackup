@@ -19555,3 +19555,38 @@ o7
 
 
                                                  
+
+*****
+
+####  空集  
+##### 1255#       发表于 2021-8-16 05:43
+
+
+这个神器101 感觉噱头大于实际 看ina玩了会意思不大
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  空集  
+##### 1256#       发表于 2021-8-16 08:07
+
+
+鲨鱼在玩初音<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  空集  
+##### 1257#       发表于 2021-8-16 09:08
+
+
+鲨鱼音游还是擅长啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

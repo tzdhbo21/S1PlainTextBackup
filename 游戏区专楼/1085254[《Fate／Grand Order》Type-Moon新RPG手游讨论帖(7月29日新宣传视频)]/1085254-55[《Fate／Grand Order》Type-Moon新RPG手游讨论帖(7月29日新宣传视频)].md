@@ -18092,3 +18092,75 @@ UP谁都跟我没关系，我又不抽，奶毛线</blockquote>
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 82379#       发表于 2021-8-16 08:31
+
+
+appmedia小编以前就是铁红卡党
+
+抱死阿囧金皮卡不放的那种
+
+
+现在能翻身了当然要压一头
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 82380#       发表于 2021-8-16 08:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52386420&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-16 01:31</a>
+
+这个榜红卡满分200，绿蓝满分80。
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能变色的就不算红吗
+
+
+
+
+*****
+
+####  qixinno2  
+##### 82381#       发表于 2021-8-16 09:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不起三色家奴呗
+
+
+*****
+
+####  deadog  
+##### 82382#       发表于 2021-8-16 09:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52387149&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-16 08:33</a>
+能变色的就不算红吗</blockquote>
+三姓家奴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82383#       发表于 2021-8-16 09:52
+
+
+ 本帖最后由 alucardcz 于 2021-8-16 10:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52387149&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-16 08:33</a>
+
+能变色的就不算红吗</blockquote>
+不算
+
+
+想想以前的拉二和闪闪的排名。正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在这环境50自充的特总居然还能比闪闪低就离谱
+
+
+                                                
