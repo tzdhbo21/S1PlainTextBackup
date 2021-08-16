@@ -18868,3 +18868,31 @@ md谁说prime video的繁中翻译比简中好的，昨天特地繁中看了一�
 
 
                                                  
+
+*****
+
+####  18991413544  
+##### 1477#       发表于 2021-8-16 17:07
+
+
+如果是远鉴翻的你塞广告都忍了，但自带的简中你做了个种还能在里面塞这么多次广告，脸都不要了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+*****
+
+####  王留美  
+##### 1478#       发表于 2021-8-16 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52391315&amp;ptid=2013091" target="_blank">晓寒 发表于 2021-8-16 14:20</a>
+为什么前三部序破Q都是《福音战士新剧场版》
+
+到了终变成了《新·福音战士剧场版》 ...</blockquote>
+因为不是“新”而是“Shin”
+这个Shin有好几种解释，但是我个人觉得是“真”的意思
+当然另外那几个“Shin”我觉得也是这个意思
+
+
+                                                 

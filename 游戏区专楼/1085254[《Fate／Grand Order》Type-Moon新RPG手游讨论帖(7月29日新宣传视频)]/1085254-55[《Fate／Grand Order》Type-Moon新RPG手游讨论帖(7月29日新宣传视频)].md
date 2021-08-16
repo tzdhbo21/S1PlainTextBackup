@@ -18250,3 +18250,126 @@ NGA某版是不是都没玩过主机还是我太久没玩主机，相关知识�
 
 
                                                  
+
+*****
+
+####  rooarr  
+##### 82391#       发表于 2021-8-16 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52391360&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 14:24</a>
+
+我只有2件礼装没换 就算了换了还剩1万5！ 你不对劲</blockquote>
+看看你是不是每月的绿方块都没换完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82392#       发表于 2021-8-16 16:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52392797&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-16 16:00</a>
+
+看看你是不是每月的绿方块都没换完</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只换银狗和护符 其他没换
+
+
+*****
+
+####  黑上シグマ  
+##### 82393#       发表于 2021-8-16 16:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">绿方块我还有3W7，怕不是用到关服
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  alucardcz  
+##### 82394#       发表于 2021-8-16 17:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么鬼 开了个新手应援活动  不会准备就靠这个拖到9月吧？
+
+
+*****
+
+####  不垃圾屌丝  
+##### 82395#       发表于 2021-8-16 17:06
+
+
+ 本帖最后由 不垃圾屌丝 于 2021-8-16 17:13 编辑 
+
+QP本又减半了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+好友位置加了，来加几个好友
+315,081,195
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 82396#       发表于 2021-8-16 17:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52393874&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-8-16 17:06</a>
+
+QP本又减半了
+
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">减半结束接减半 绝了
+
+
+*****
+
+####  黑上シグマ  
+##### 82397#       发表于 2021-8-16 17:13
+
+
+3石1票拿好，棋子谁要啊
+等我剩下两个free本清掉就回宝物库
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  仰望神的括约肌  
+##### 82398#       发表于 2021-8-16 17:20
+
+
+看来下周该圣杯战线了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qb0079  
+##### 82399#       发表于 2021-8-16 17:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">则yls是个宝才，减半和大成功又回来了
+
+
+*****
+
+####  exiaexa  
+##### 82400#       发表于 2021-8-16 17:24
+
+
+估计是石头号转型人数大增，或者新号确实多了吧
+
+不然这么个沙雕活动也太蠢了
+
+2400wdl在吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
