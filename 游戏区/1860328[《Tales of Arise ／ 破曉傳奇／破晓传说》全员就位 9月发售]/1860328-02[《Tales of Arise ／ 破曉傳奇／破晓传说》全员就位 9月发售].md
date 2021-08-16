@@ -11299,3 +11299,58 @@ BOSS战总会出 ...</blockquote>
 
 
                                                 
+
+*****
+
+####  hkguty  
+##### 2329#       发表于 2021-8-16 22:35
+
+
+回去玩了下TOGF刚好明天就能通关正篇，后天打打TOA试玩
+
+
+*****
+
+####  02031f84  
+##### 2330#       发表于 2021-8-16 22:53
+
+
+没有弱点系统是说狂战传说那套东西吗？这是我唯一通关的传说了，宵星在中后段弃坑了。
+
+
+*****
+
+####  02031f84  
+##### 2331#       发表于 2021-8-16 22:53
+
+
+没有弱点系统是说狂战传说那套东西吗？这是我唯一通关的传说了，宵星在中后段弃坑了。
+
+
+*****
+
+####  Rinne70  
+##### 2332#       发表于 2021-8-16 23:12
+
+
+虽然但是，tov的弱点也可有可无啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，核心不还是拿连击爆气的手套配合freerun cancel连到死
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  LT_Harry  
+##### 2333#         楼主| 发表于 2021-8-16 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52398110&amp;ptid=1860328" target="_blank">Rinne70 发表于 2021-8-16 23:12</a>
+
+虽然但是，tov的弱点也可有可无啊，核心不还是拿连击爆气的手套配合freerun cancel连到死
+
+
+—— 来 ...</blockquote>
+有的，有的属性不是抗性，而是吸收，打上去是反向伤害（加血）
+
+
+                                                 

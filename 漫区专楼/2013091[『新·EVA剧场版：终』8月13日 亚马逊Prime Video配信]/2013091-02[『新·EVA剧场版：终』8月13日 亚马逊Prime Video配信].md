@@ -256,3 +256,89 @@ Evangelion.3.0 1.01.Thrice.Upon.a.Time.2021.中文字幕.WEBrip.AAC.1080p.x264-V
 
 
                                                 
+
+*****
+
+####  污陨血红  
+##### 1504#       发表于 2021-8-16 22:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397378&amp;ptid=2013091" target="_blank">beta10 发表于 2021-8-16 22:01</a>
+
+干脆把原来的废案拿出来改改再出一版，毕竟要恰饭
+
+
+反正eva这故事已经有很多不同的结局了…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我要看破的瓜田废案，这个老刺激了
+
+
+<img src="https://img.saraba1st.com/forum/202108/16/220524u8cy0dgchhod08fm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0050FD4D75A4EABD601380E591235D21.jpg</strong> (89.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-16 22:05 上传
+
+
+*****
+
+####  MASKA-1  
+##### 1505#       发表于 2021-8-16 22:13
+
+
+换一个导演来拍eva，想想还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  beta10  
+##### 1506#       发表于 2021-8-16 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397414&amp;ptid=2013091" target="_blank">污陨血红 发表于 2021-8-16 22:05</a>
+
+那我要看破的瓜田废案，这个老刺激了</blockquote>
+红红火火恍恍惚惚
+
+
+那确实老刺激了
+
+
+*****
+
+####  moekyo  
+##### 1507#       发表于 2021-8-16 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397378&amp;ptid=2013091" target="_blank">beta10 发表于 2021-8-16 22:01</a>
+
+干脆把原来的废案拿出来改改再出一版，毕竟要恰饭
+
+
+反正eva这故事已经有很多不同的结局了…… ...</blockquote>
+立派的大佬会好好为下面小弟安排好的<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">，等着就好了（叉腰）
+
+
+*****
+
+####  伊可费斯  
+##### 1508#       发表于 2021-8-16 22:46
+
+
+字幕，字幕，字幕
+
+
+*****
+
+####  重巡羊舰  
+##### 1509#       发表于 2021-8-16 23:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呵呵，前脚说着结束了再也不拍和解了，后脚，我也是想把14年表现出来，赚钱吗，不寒碜，就是难看了点
+
+
+                                                 

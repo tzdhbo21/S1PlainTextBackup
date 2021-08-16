@@ -10690,3 +10690,63 @@ syl 这图错了 明天是15号
 
 
                                                  
+
+*****
+
+####  nian1538  
+##### 12925#       发表于 2021-8-16 22:10
+
+
+ 本帖最后由 nian1538 于 2021-8-16 22:33 编辑 
+
+百鬼あやめ😈花に亡霊投稿しました
+
+@nakiriayame
+
+ちょこっと歌枠を…23時半くらいに…しても…よい？
+
+[https://www.youtube.com/watch?v=4lr7Osefzoc](https://www.youtube.com/watch?v=4lr7Osefzoc)
+
+
+和三才一样在cover工作人员那里试过好几个之后买的新麦
+
+三才那边新麦唱歌听起来好像是清晰了一点点
+
+
+*****
+
+####  Fami水  
+##### 12926#       发表于 2021-8-16 22:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐突歌回
+
+
+*****
+
+####  Nitro901  
+##### 12927#       发表于 2021-8-16 23:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">好起来了
+
+
+*****
+
+####  Fami水  
+##### 12928#       发表于 2021-8-16 23:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">回来了 都回来了
+
+
+*****
+
+####  一仙  
+##### 12929#       发表于 2021-8-16 23:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">这种安心感
+
+
+                                                 

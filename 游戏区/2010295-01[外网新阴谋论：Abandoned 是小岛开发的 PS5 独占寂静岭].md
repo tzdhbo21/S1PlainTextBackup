@@ -10134,3 +10134,64 @@ cory表示困惑</blockquote>
 
 
                                                  
+
+*****
+
+####  阿布都督  
+##### 800#       发表于 2021-8-17 00:05
+
+
+每当大家觉得Hasan是个骗子的时候，岛哥哥就出来撩拨一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经完全看不懂了
+
+
+*****
+
+####  SICP  
+##### 801#       发表于 2021-8-17 00:09
+
+
+拨撩那么长时间了，👄🐔🐴不怕把观众玩坏吗？
+
+
+*****
+
+####  hshiki  
+##### 802#       发表于 2021-8-17 00:10
+
+
+有没有可能哈桑不仅是虚拟人，还是这个游戏里的主要角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  luoyianwu  
+##### 803#       发表于 2021-8-17 00:17
+
+
+[https://www.nme.com/features/gam ... eople-think-3020184](https://www.nme.com/features/gaming-features/abandoned-creator-hasan-kahraman-its-not-really-a-horror-game-its-not-what-people-think-3020184)
+
+Hasan接受英国媒体New Musical Express（NME）采访，称Abandoned是射击/生存游戏，不是恐怖游戏，不是寂静岭，不是MGS，和小岛没有关系，不再是开放世界；眼罩男不是Solid Snake。Cinematic Trailer 很快很快就出了。被网友当作骗子后Hasan伤心得吃不好睡不好
+
+
+*****
+
+####  芷雅居  
+##### 804#       发表于 2021-8-17 00:19
+
+
+hasan我操nm啦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 805#       发表于 2021-8-17 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52398673&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-08-17 00:17:59</a>
+Hasan接受英国媒体New Musical Express（NME）采访，称Abandoned是射击/生存游戏，不是恐怖游戏，不是寂静 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道说什么好
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+                                                 

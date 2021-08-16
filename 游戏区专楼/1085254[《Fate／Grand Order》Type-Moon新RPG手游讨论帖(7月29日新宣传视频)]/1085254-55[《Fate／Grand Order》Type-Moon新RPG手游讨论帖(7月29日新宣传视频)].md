@@ -19302,3 +19302,232 @@ ID:197 931 129
 
 
                                                 
+
+*****
+
+####  qixinno2  
+##### 82468#       发表于 2021-8-16 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397334&amp;ptid=1085254" target="_blank">katun 发表于 2021-8-16 21:55</a>
+
+这加好友的任务是奖励5个银棋子？为啥大家都在做</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我杀阶银棋子是0
+
+
+*****
+
+####  zore  
+##### 82469#       发表于 2021-8-16 22:04
+
+
+白给的,还两抽呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82470#       发表于 2021-8-16 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397364&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-16 22:00</a>
+
+我杀阶银棋子是0</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你为什么还能缺棋子的
+
+
+
+
+*****
+
+####  qixinno2  
+##### 82471#       发表于 2021-8-16 22:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397408&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 22:04</a>
+
+你为什么还能缺棋子的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我什么都缺啊 杀狐突破的棋子都是现刷的
+
+
+*****
+
+####  alucardcz  
+##### 82472#       发表于 2021-8-16 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397415&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-08-16 22:05:48</a>
+我什么都缺啊 杀狐突破的棋子都是现刷的</blockquote>说出来你可能不信。
+我之前钱爆了狗粮爆了 天天打棋子本清体力的<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  qixinno2  
+##### 82473#       发表于 2021-8-16 22:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">翻页？
+
+
+*****
+
+####  qixinno2  
+##### 82474#       发表于 2021-8-16 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397460&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 22:10</a>
+
+说出来你可能不信。
+
+我之前钱爆了狗粮爆了 天天打棋子本清体力的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但我懒啊 最多三管体力就完全不想打了
+
+
+*****
+
+####  alucardcz  
+##### 82475#       发表于 2021-8-16 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397481&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-16 22:11</a>
+
+但我懒啊 最多三管体力就完全不想打了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">靠平时积累啊 萌新我每天体力还是会清一清的 反正几分钟的事
+
+
+*****
+
+####  vacuumsword  
+##### 82476#       发表于 2021-8-16 22:24
+
+
+搭车求一波好友971,598,470。
+
+
+*****
+
+####  qixinno2  
+##### 82477#       发表于 2021-8-16 22:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397513&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 22:14</a>
+
+靠平时积累啊 萌新我每天体力还是会清一清的 反正几分钟的事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平时完全不打 就靠临时抱佛脚
+
+
+*****
+
+####  rooarr  
+##### 82478#       发表于 2021-8-16 22:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396874&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 21:17</a>
+碧蓝航线请！</blockquote>
+开服就玩了，2周年不到弃了，每天日常好无聊啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82479#       发表于 2021-8-16 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397947&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-16 22:54</a>
+
+开服就玩了，2周年不到弃了，每天日常好无聊啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pcr不也有日常！
+
+
+*****
+
+####  rooarr  
+##### 82480#       发表于 2021-8-16 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396895&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-16 21:18</a>
+快去请四个字母佛祖到pcr，你就可以放心走了</blockquote>
+这是啥，我只知道kmr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 82481#       发表于 2021-8-16 23:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397956&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 22:56</a>
+pcr不也有日常！</blockquote>
+抽卡多，偶尔没那么无聊啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 82482#       发表于 2021-8-16 23:09
+
+
+看了看职介，今年弓和骑都没有出过5星，所以新泳装会是一个弓一个骑？然后突然脑抽了一下，突然有个今年泳装全部常驻的想法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82483#       发表于 2021-8-16 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52398086&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-16 23:09</a>
+
+看了看职介，今年弓和骑都没有出过5星，所以新泳装会是一个弓一个骑？然后突然脑抽了一下，突然有个今年泳 ...</blockquote>
+今天看贴吧有个舅舅贴  爱蕾和夹磨   不知道可信度有多少 我估计0%(
+
+
+*****
+
+####  里村紅葉  
+##### 82484#       发表于 2021-8-16 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52398105&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 23:11</a>
+
+今天看贴吧有个舅舅贴  爱蕾和夹磨   不知道可信度有多少 我估计0%(</blockquote>
+那个四星太离谱了，尺阶魔总太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82485#       发表于 2021-8-16 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52398132&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-16 23:14</a>
+
+那个四星太离谱了，尺阶魔总太怪了</blockquote>
+反正2。6应该算翻车了  再也不信舅舅了
+
+
+*****
+
+####  khxooo  
+##### 82486#       发表于 2021-8-16 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52398105&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 23:11</a>
+
+今天看贴吧有个舅舅贴  爱蕾和夹磨   不知道可信度有多少 我估计0%(</blockquote>
+估计是0，虽然Appmedia的投票都是艾蕾、迦莫，但是YLS怎么可能会看玩家的额投票，我自己是只相信上次那个英文舅舅，不是他的消息一律当假。还是那句，没有期望就没有失望，管YLS出什么卡，自己喜欢的就抽，不喜欢的就不抽。也就隔壁那群伞兵，总是捕风捉影，然后一厢情愿的以为YLS会出这张卡，到时候不是了有破口大骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LOLITA  
+##### 82487#       发表于 2021-8-17 00:10
+
+
+还是刷狗粮吧，尽早把艾蕾120<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+                                                
