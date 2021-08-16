@@ -1273,3 +1273,48 @@ Syl百物语感觉今年不会弄...
 
 
                                                  
+
+*****
+
+####  noHentai  
+##### 6102#       发表于 2021-8-16 14:58
+
+
+RD这Live一般票都还没卖完，MV播放量也大暴死……阿菜这是要惨淡收场了么
+<img src="https://p.sda1.dev/2/6a4206631f5b8dcc2f6cb18a877802d9/image.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NBXX  
+##### 6103#       发表于 2021-8-16 15:07
+
+
+[https://twitter.com/miwasiba/status/1427063170410029062](https://twitter.com/miwasiba/status/1427063170410029062)
+<img src="https://p.sda1.dev/2/ca21aae194de90cf86e1608c851caa14/E83xriNUYAQm5Bx.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/91dbe6353fe75db04b93c1d1ea6fbb9b/E83xzc5VUAAZPT2.jpg" referrerpolicy="no-referrer">
+
+好看
+
+
+*****
+
+####  渡鸦骑士  
+##### 6104#       发表于 2021-8-16 15:27
+
+
+[https://www.youtube.com/watch?v=N_EoAonsLzs](https://www.youtube.com/watch?v=N_EoAonsLzs)
+
+原来彩虹这个小动画还在搞啊，不过现在第七话，看样子产能有点不高啊，前两话隔了三天，第三话就20天之后了，之后的每一话都隔了20到21天，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adcdqre  
+##### 6105#       发表于 2021-8-16 15:50
+
+
+不如拨点款给葵皇做
+
+
+                                                 

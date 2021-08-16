@@ -18807,3 +18807,64 @@ md谁说prime video的繁中翻译比简中好的，昨天特地繁中看了一�
 
 
                                                 
+
+*****
+
+####  novem  
+##### 1472#       发表于 2021-8-16 15:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390881&amp;ptid=2013091" target="_blank">猫溺泉君 发表于 2021-8-16 13:37</a>
+
+楼太高有点跟不上，现在处于严重ptsd状态，哪怕看到蒙娜丽莎，脑内也会响起one last kiss
+
+说实话，终版我只 ...</blockquote>
+是同一个世界，不过是被神重新塑造过的无EVA的世界，算是终结了轮回
+
+
+*****
+
+####  戏言物语  
+##### 1473#       发表于 2021-8-16 15:18
+
+
+等字幕了，有好字幕我再细看几遍，我这种一点日语不会，只听得懂一些基本语句的都只能说太辣眼睛了，现在循环下第三村的部分就行了。
+
+
+*****
+
+####  eyeego  
+##### 1474#       发表于 2021-8-16 15:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52389926&amp;ptid=2013091" target="_blank">XIEGC 发表于 2021-8-16 12:21</a>
+md谁说prime video的繁中翻译比简中好的，昨天特地繁中看了一遍感觉对不上的比简中多不少 ...</blockquote>
+我就看了开头那段对比了下 
+繁中还能勉强理解是什么意思 简中已经完全不知道他们在说啥了 最典型的就是真希波叫母舰佯攻那段 真是目尿出都翻译不出来简中这种效果的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  全竜  
+##### 1475#       发表于 2021-8-16 15:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52391423&amp;ptid=2013091" target="_blank">piigzyq 发表于 2021-8-16 14:31</a>
+
+为了和新哥斯拉，新奥特曼，新假面骑士对应，避免以后再出新EVA的可能性，彻底的和EVA再见 ...</blockquote>
+庵野无谓的挣扎，哪天该出还是出 <img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  全竜  
+##### 1476#       发表于 2021-8-16 15:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52387391&amp;ptid=2013091" target="_blank">11512 发表于 2021-8-16 09:07</a>
+
+我觉得是拍的非常完美的结局了 虽然有点土 不是那么有趣</blockquote>
+平稳落地。
+
+
+                                                 

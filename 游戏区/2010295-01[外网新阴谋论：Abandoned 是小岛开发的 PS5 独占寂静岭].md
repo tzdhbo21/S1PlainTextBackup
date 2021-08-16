@@ -10093,3 +10093,44 @@ cory表示困惑</blockquote>
 
 
                                                  
+
+*****
+
+####  sad6504  
+##### 796#       发表于 2021-8-16 14:37
+
+
+疯了，疯了
+
+
+*****
+
+####  920619lqy  
+##### 797#       发表于 2021-8-16 14:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52391492&amp;ptid=2010295" target="_blank">windaria 发表于 2021-8-16 00:36</a>
+
+一直以为是蓝盒在蹭小岛，然后蹭出名堂来了，小岛又反过去蹭他，互相借流量借热度 ...</blockquote>
+如果说小岛自立门户后有得蹭的没有放过的道理，索尼和科纳米这俩家大业大的也跟那凑啥热闹呢..
+
+
+*****
+
+####  医生狼多  
+##### 798#       发表于 2021-8-16 14:44
+
+
+一审819，二审826，两个日子都没消息就可以彻底入土了
+
+
+*****
+
+####  tuiskusuomaa  
+##### 799#       发表于 2021-8-16 14:57
+
+
+非常不希望这件事情跟小岛有关<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 
