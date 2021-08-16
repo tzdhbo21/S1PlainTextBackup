@@ -18373,3 +18373,49 @@ QP本又减半了
 
 
                                                  
+
+*****
+
+####  exiaexa  
+##### 82401#       发表于 2021-8-16 17:30
+
+
+不行我必须要吐槽一句，**活见鬼了
+梦回gbf，破fgo居然也能有这么一天
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82402#       发表于 2021-8-16 17:55
+
+
+ 本帖最后由 alucardcz 于 2021-8-16 17:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说隔壁现在为什么这么仇视红卡啊 你说比按键数那倒是麻烦多了  怎么还有人比伤害比阴间本的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是不是因为c呆刚出蓝卡就必须无敌啊
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后说到陈宫按键换人又突然无所谓了 为什么啊
+
+
+*****
+
+####  シャル  
+##### 82403#       发表于 2021-8-16 18:21
+
+
+ 本帖最后由 シャル 于 2021-8-16 18:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52394644&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-16 17:55</a>
+
+话说隔壁现在为什么这么仇视红卡啊 你说比按键数那倒是麻烦多了  怎么还有人比伤害比阴间本的
+
+[f:06 ...</blockquote>
+红卡多好，一堆人都能三连了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+不满的是没自充全体红卡吧
+
+
+                                                 

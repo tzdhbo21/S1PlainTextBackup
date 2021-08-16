@@ -18896,3 +18896,88 @@ md谁说prime video的繁中翻译比简中好的，昨天特地繁中看了一�
 
 
                                                  
+
+*****
+
+####  guardian5  
+##### 1479#       发表于 2021-8-16 17:42
+
+
+<blockquote>11512 发表于 2021-8-16 09:07
+我觉得是拍的非常完美的结局了 虽然有点土 不是那么有趣</blockquote>
+中肯
+
+
+*****
+
+####  guardian5  
+##### 1480#       发表于 2021-8-16 17:46
+
+
+作为精神病人（?）和抑郁症患者（?）的自白，我觉得很棒，这终已经没有什么谜语了，都是自白，赤裸裸的自白，不是因为要神神叨叨所以这样讲，是这样的人只能这样讲。我觉得不好看挺好，不如说越少的人觉得好看越好，不是因为什么装逼，单纯的觉得能觉得好看的自己多多少少也是有点问题（至少曾经）。以上的观后感是我在互联网上能发出的最真挚的发言，而且我敢肯定绝大部分人还是会觉得我在放屁，不过这都不重要了。   贴一个另外帖子自己的回复作为观后感吧
+
+
+*****
+
+####  guardian5  
+##### 1481#       发表于 2021-8-16 17:46
+
+
+作为精神病人（?）和抑郁症患者（?）的自白，我觉得很棒，这终已经没有什么谜语了，都是自白，赤裸裸的自白，不是因为要神神叨叨所以这样讲，是这样的人只能这样讲。我觉得不好看挺好，不如说越少的人觉得好看越好，不是因为什么装逼，单纯的觉得能觉得好看的自己多多少少也是有点问题（至少曾经）。以上的观后感是我在互联网上能发出的最真挚的发言，而且我敢肯定绝大部分人还是会觉得我在放屁，不过这都不重要了。   贴一个另外帖子自己的回复作为观后感吧
+
+
+*****
+
+####  piigzyq  
+##### 1482#       发表于 2021-8-16 17:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52393925&amp;ptid=2013091" target="_blank">王留美 发表于 2021-8-16 17:09</a>
+
+因为不是“新”而是“Shin”
+
+这个Shin有好几种解释，但是我个人觉得是“真”的意思
+
+当然另外那几个“Shin ...</blockquote>
+假面骑士已经有真了，比较尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dclara1  
+##### 1483#       发表于 2021-8-16 18:12
+
+
+话说重新看到葛城这造型，忍不住幻视dr disrespect，秒出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王留美  
+##### 1484#       发表于 2021-8-16 18:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52394666&amp;ptid=2013091" target="_blank">piigzyq 发表于 2021-8-16 17:57</a>
+假面骑士已经有真了，比较尴尬</blockquote>
+庵野：幸好当初为了装逼用的シン
+
+
+*****
+
+####  wgoenitz  
+##### 1485#       发表于 2021-8-16 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52387485&amp;ptid=2013091" target="_blank">arisato 发表于 2021-8-16 09:18</a>
+
+楼太高了爬不动，直接请教一下大家
+
+旧tv的时候我对渚薰的理解是他是使徒，和真嗣接触一方面是seele的安排一 ...</blockquote>
+我个人理解为薰就是上个轮回的真嗣。
+
+旧剧场版真嗣成为新剧场版的亚当，亚当就是薰。或者薰是亚当的复制品也可能。
+
+所以薰说让真嗣幸福就是让自己幸福。
+
+
+                                                 
