@@ -1900,3 +1900,69 @@ Oh
 
 
                                                  
+
+*****
+
+####  flyskywalker92  
+##### 6149#       发表于 2021-8-17 07:32
+
+
+niji en 能不能带头反攻b站啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 6150#       发表于 2021-8-17 09:25
+
+
+Hololive看来已经和fgo联动打下坚实基础了，和手游届第一IP联动应该不远了
+
+
+
+
+*****
+
+####  ヒトニナル  
+##### 6151#       发表于 2021-8-17 09:35
+
+
+我的妈pako这立绘怎么能画的这么丑<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 6152#       发表于 2021-8-17 10:23
+
+
+[https://twitter.com/hololivetv/status/1427436295148564482](https://twitter.com/hololivetv/status/1427436295148564482)
+
+【派对爆竹お知らせ派对爆竹】
+
+英語圏向けVTuberグループ「#ホロライブEnglish」よから、新ジェネレーション『Hololive English -議会-』のデビューが決定‼闪片
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/102330p0vffv823f044flf.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (64.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:23 上传
+
+
+我觉得总的没有一期好看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  帕克桑  
+##### 6153#       发表于 2021-8-17 10:35
+
+
+除了左右2个 都好怪啊
+
+
+                                                

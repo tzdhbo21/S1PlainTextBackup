@@ -473,3 +473,78 @@ Evangelion.3.0 1.01.Thrice.Upon.a.Time.2021.中文字幕.WEBrip.AAC.1080p.x264-V
 
 
                                                  
+
+*****
+
+####  HMSWarspite  
+##### 1520#       发表于 2021-8-17 07:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397414&amp;ptid=2013091" target="_blank">污陨血红 发表于 2021-8-16 22:05</a>
+那我要看破的瓜田废案，这个老刺激了</blockquote>
+这才nb，retake加雾岛真名，双份的药劲。
+
+
+*****
+
+####  发条闹钟  
+##### 1521#       发表于 2021-8-17 09:22
+
+
+<blockquote>rp1993 发表于 2021-8-15 12:59
+这和96年又有什么不同呢？
+
+做出了不合心意的结局就要狂骂，寻找各种蛛丝马迹的意向象征，脑补一番就用来攻 ...</blockquote>
+全楼看完就觉得你说的对
+
+
+*****
+
+####  kira1988  
+##### 1522#       发表于 2021-8-17 09:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396031&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-16 20:01</a>
+
+据Collider.com网站消息，庵野在最近的一次访谈中透露：自己将来有意愿以某种形式把新剧场版中空白的14年补 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">14年的空白不是没有真嗣吗
+
+那么14年空白写的是啥香和剑剑的love story么
+<img src="https://static.saraba1st.com/image/smiley/carton2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 1523#       发表于 2021-8-17 10:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397414&amp;ptid=2013091" target="_blank">污陨血红 发表于 2021-8-16 22:05</a>
+那我要看破的瓜田废案，这个老刺激了</blockquote>
+这段其实连废案都算不上 只是榎户自己的脑洞 都没和痞子鹤卷讨论过。
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  何でやねん  
+##### 1524#       发表于 2021-8-17 10:15
+
+
+说起来，明日香捧着玩的那个游戏机玩的是啥游戏有谁看明白了吗
+
+
+*****
+
+####  blood_iron  
+##### 1525#       发表于 2021-8-17 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390399&amp;ptid=2013091" target="_blank">苇原雪道 发表于 2021-8-16 12:56</a>
+
+我感觉就是简单的破最后脑子一热，和自己经历一重叠就喊出去了。事后发现卧槽事情大条了后悔了，成立了we ...</blockquote>
+然后就恨起真嗣了，都是你的错，害死我姘头
+
+
+                                                 

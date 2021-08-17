@@ -10256,3 +10256,30 @@ Hasan接受英国媒体New Musical Express（NME） ...</blockquote>
 
 
                                                  
+
+*****
+
+####  Liquid_Snake  
+##### 811#       发表于 2021-8-17 08:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  not_ing  
+##### 812#       发表于 2021-8-17 08:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52398673&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-17 00:17</a>
+https://www.nme.com/features/gam ... eople-think-3020184
+
+Hasan接受英国媒体New Musical Express（NME） ...</blockquote>
+综上所述，是big boss进入寂静岭的生存战<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+不是mgs，是mgsh啊！
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+                                                 
