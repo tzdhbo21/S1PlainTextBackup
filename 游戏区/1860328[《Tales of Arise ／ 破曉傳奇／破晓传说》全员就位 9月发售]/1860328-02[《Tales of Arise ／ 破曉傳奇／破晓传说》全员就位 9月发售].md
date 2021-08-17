@@ -11354,3 +11354,222 @@ BOSS战总会出 ...</blockquote>
 
 
                                                  
+
+*****
+
+####  KuonjiClara  
+##### 2334#       发表于 2021-8-17 09:57
+
+
+我就好奇PC版支持带鱼屏不，要是还不支持就买PS4的好了
+
+
+*****
+
+####  heseran  
+##### 2335#       发表于 2021-8-17 10:14
+
+
+demo啥时候上线啊？今晚0点？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+                                                 
+
+*****
+
+####  qiyu1234  
+##### 2336#       发表于 2021-8-17 10:38
+
+
+新30秒CM
+
+<img src="https://img.saraba1st.com/forum/202108/17/103733rw8dvdbmvavpwdb8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0.JPG</strong> (160.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:37 上传
+
+
+以及英文官推的 战国衣装 DLC截图，最后两张为战斗场景内效果
+
+<img src="https://img.saraba1st.com/forum/202108/17/103809ogbm4gqxm46floap.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (399.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/103813iscwcafdczmxx3hy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (298.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/103820vmzz4lmogllf4lol.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4.jpg</strong> (467.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/103805tu5t32u9ofqufbfu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (365.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/103825lfzjouo0x55ocvq5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5.jpg</strong> (480.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/103829j1qso131qyq5e1wk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6.jpg</strong> (527.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:38 上传
+
+
+*****
+
+####  静静在想我  
+##### 2337#       发表于 2021-8-17 10:42
+
+
+好急，今晚12点能玩到吗<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2338#       发表于 2021-8-17 11:10
+
+
+絢香除了这首 翻唱 Hello,Again ～昔からある場所 的剧中曲 以外
+
+还有一首作为Grand Theme的新曲 Blue Moon 将在8 月26 日配信
+
+<img src="https://img.saraba1st.com/forum/202108/17/111041rcyyiif1iy1sjf97.jpg" referrerpolicy="no-referrer">
+
+
+<strong>11.JPG</strong> (194.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 11:10 上传
+
+
+*****
+
+####  LT_Harry  
+##### 2339#         楼主| 发表于 2021-8-17 11:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52401141&amp;ptid=1860328" target="_blank">heseran 发表于 2021-8-17 10:14</a>
+demo啥时候上线啊？今晚0点？
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+其实现在就有人在玩，可能是提前放出来给特定用户的，我看了一小时了
+https://youtu.be/6qtXq35MW_o
+
+
+*****
+
+####  rp1993  
+##### 2340#       发表于 2021-8-17 11:14
+
+
+试玩可以预载了么？
+
+
+                                                 
+
+*****
+
+####  qiyu1234  
+##### 2341#       发表于 2021-8-17 11:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52401898&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-17 11:14</a>
+
+其实现在就有人在玩，可能是提前放出来给特定用户的，我看了一小时了
+
+https://youtu.be/6qtXq35MW_o ...</blockquote>
+试玩里提供的角色强度有点高啊，跟正式游戏里第一章的刮痧完全不一样
+
+不过作为吸引玩家购买的试玩版来说，很合适
+
+
+*****
+
+####  LT_Harry  
+##### 2342#         楼主| 发表于 2021-8-17 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52402459&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-17 11:52</a>
+试玩里提供的角色强度有点高啊，跟正式游戏里第一章的刮痧完全不一样
+
+不过作为吸引玩家购买的试玩版来说 ...</blockquote>
+这位 youtuber 大部分视频都是 tales 相关的，他暂时也不太会玩试玩版，有很多情况判断都有失误。试玩版没有直接提示怎样释放秘奥义。
+
+
+*****
+
+####  qiyu1234  
+##### 2343#       发表于 2021-8-17 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52402500&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-17 11:55</a>
+
+这位 youtuber 大部分视频都是 tales 相关的，他暂时也不太会玩试玩版，有很多情况判断都有失误。试玩版 ...</blockquote>
+好吧，我以为是他没有在OVL中释放秘奥义，不过AI都能放出来，应该也不是卡教程的情况
+
+
+*****
+
+####  hkguty  
+##### 2344#       发表于 2021-8-17 12:34
+
+
+TOA这感情戏感觉写得会比XB2好
+
+
+                                                 
+
+*****
+
+####  zero12  
+##### 2345#       发表于 2021-8-17 15:00
+
+
+a9有试玩提前直播
+
+
+                                                 

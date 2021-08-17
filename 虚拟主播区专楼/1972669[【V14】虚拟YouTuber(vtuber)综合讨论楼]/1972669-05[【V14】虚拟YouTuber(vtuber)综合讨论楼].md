@@ -1900,3 +1900,320 @@ Oh
 
 
                                                  
+
+*****
+
+####  flyskywalker92  
+##### 6149#       发表于 2021-8-17 07:32
+
+
+niji en 能不能带头反攻b站啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 6150#       发表于 2021-8-17 09:25
+
+
+Hololive看来已经和fgo联动打下坚实基础了，和手游届第一IP联动应该不远了
+
+
+
+
+*****
+
+####  ヒトニナル  
+##### 6151#       发表于 2021-8-17 09:35
+
+
+我的妈pako这立绘怎么能画的这么丑<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 6152#       发表于 2021-8-17 10:23
+
+
+[https://twitter.com/hololivetv/status/1427436295148564482](https://twitter.com/hololivetv/status/1427436295148564482)
+
+【派对爆竹お知らせ派对爆竹】
+
+英語圏向けVTuberグループ「#ホロライブEnglish」よから、新ジェネレーション『Hololive English -議会-』のデビューが決定‼闪片
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/102330p0vffv823f044flf.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (64.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:23 上传
+
+
+我觉得总的没有一期好看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  帕克桑  
+##### 6153#       发表于 2021-8-17 10:35
+
+
+除了左右2个 都好怪啊
+
+
+                                                
+
+*****
+
+####  aptx318  
+##### 6154#       发表于 2021-8-17 10:39
+
+
+废狗别说手游第一，二游第一现在都坐不住了吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">内有马娘外有原神
+
+
+*****
+
+####  空集  
+##### 6155#       发表于 2021-8-17 10:39
+
+
+左右两个反而画师没啥太可说的，中间三还是个大手个人风格和画皮平衡的问题 目前最好一档是ina ollie wada这次也不错了  ，pikazo没到预期pako拉了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cckuku  
+##### 6156#       发表于 2021-8-17 10:53
+
+
+ 本帖最后由 cckuku 于 2021-8-17 10:58 编辑 
+
+啊，wada还给holo画了皮吗？
+
+pikazo个人风格太强烈了，看得很不适<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+原来这个蓝毛是wada画的？看小图真看不出来<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  与天争锋_LZ  
+##### 6157#       发表于 2021-8-17 11:06
+
+
+从左至右1自然2空间3秩序4时间5文明？
+
+
+*****
+
+####  心垂万刃  
+##### 6158#       发表于 2021-8-17 11:10
+
+
+3是混沌<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Porsche  
+##### 6159#       发表于 2021-8-17 11:25
+
+
+pikazo这是把流产的月下七子搞试管生这了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
+
+*****
+
+####  OldGlory  
+##### 6160#       发表于 2021-8-17 11:39
+
+
+虹味浓厚
+
+
+*****
+
+####  rzrbtk  
+##### 6161#       发表于 2021-8-17 12:22
+
+
+holo出fgo联动，郡道直播抽卡，200发都抽不到当场转an怒骂，然后被炎上
+
+
+*****
+
+####  死体残留  
+##### 6162#       发表于 2021-8-17 12:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">黑皮以外的还行
+
+
+*****
+
+####  qq845629713  
+##### 6163#       发表于 2021-8-17 12:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 才发现中间那位的fan标志也是骰子，和king重复了还行
+
+
+                                                 
+
+*****
+
+####  alcoholic1000  
+##### 6164#       发表于 2021-8-17 12:39
+
+
+mika小女儿挺喜欢的，pako这设计稍微有点get不到，但5期和en1期最开始看立绘也觉得一般，等首播动起来吧
+
+
+月球浓度真高，画师buff+en势头良好，首播能冲20w同接吗
+
+
+*****
+
+####  OldGlory  
+##### 6165#       发表于 2021-8-17 13:42
+
+
+特定出千万大物了大概有20w同接吧
+
+
+*****
+
+####  tankai  
+##### 6166#       发表于 2021-8-17 13:53
+
+
+虽然我不是学艺术的，但个人感觉没一期黑星红白画的好。
+
+
+*****
+
+####  tankai  
+##### 6167#       发表于 2021-8-17 13:56
+
+
+吊扇头有点蠢，为什么这样设计呢。
+
+
+                                                 
+
+*****
+
+####  心垂万刃  
+##### 6168#       发表于 2021-8-17 14:54
+
+
+因为是时间的化身，所以头顶的是个表<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，时针分针秒针俱全
+
+
+*****
+
+####  FlinN  
+##### 6169#       发表于 2021-8-17 14:58
+
+
+与FGO联动 X
+
+踩着叔叔肩攀DW O
+
+
+*****
+
+####  tiro_finale  
+##### 6170#       发表于 2021-8-17 14:59
+
+
+太怪了，这不是核心产品吗，给整成这副样子<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mmbk  
+##### 6171#       发表于 2021-8-17 15:07
+
+
+缺的炼铜要素这一块的谁来补啊
+
+
+*****
+
+####  free  
+##### 6172#       发表于 2021-8-17 15:08
+
+
+这几个我是觉得左中右三个还行，左二黑皮头顶的是蚊香吗，太怪了，右二仔细一看腿太长腰太细比例有点怪，而且时间主题就一定要顶那么大一个表吗，真有想象力。
+
+
+省一楼，V不知道相不相关
+[https://v.163.com/static/1/VTGA44GNU.html](https://v.163.com/static/1/VTGA44GNU.html)
+
+网易视频：甜美妹妹直播时房门诡异自开又关上，网友在线炸锅直呼邪门喊下播
+
+
+*****
+
+####  winsloven  
+##### 6173#       发表于 2021-8-17 15:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52403739&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-8-17 13:42</a>
+
+特定出千万大物了大概有20w同接吧</blockquote>
+细🔒，来个关键词。
+
+
+*****
+
+####  心垂万刃  
+##### 6174#       发表于 2021-8-17 15:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52404648&amp;ptid=1972669" target="_blank">mmbk 发表于 2021-8-17 15:07</a>
+缺的炼铜要素这一块的谁来补啊</blockquote>
+混沌不就是铜吗？只不过不够鲨宝铜而已<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 6175#       发表于 2021-8-17 15:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52404699&amp;ptid=1972669" target="_blank">winsloven 发表于 2021-8-17 15:11</a>
+
+细🔒，来个关键词。</blockquote>
+没有，yy的
+
+
+*****
+
+####  心垂万刃  
+##### 6176#       发表于 2021-8-17 15:15
+
+
+钻石盾直接原地套皮啦，senzawa那种情况的也不可能混到钻石盾才想办法赚钱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 6177#       发表于 2021-8-17 15:23
+
+
+奶一个首播15万同接
+
+
+                                                 

@@ -19556,3 +19556,112 @@ pcr不也有日常！</blockquote>
 
 
                                                  
+
+*****
+
+####  xiongxingyu  
+##### 82490#       发表于 2021-8-17 10:18
+
+
+果然有偿的石头是有灵魂的吗。前情提要，男圆桌up把老崔补满了，奥伯龙3宝，大猩猩还差1宝，打算等到单up抽满大猩猩。今天早上起来手痒，虽然妖崔已经满了，不过想想单抽也不会出货，最多金方块+1，难不成还能给我个奥伯龙不成，然后就点下去了，甚至没看卡背就点掉了，然后结算页面发现不对，这个头像画风怎么这么清奇？卧槽，居然真的出货了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这下留给大猩猩的石头就不多了，非厨力的强力五星我一般抽到4宝也收手了，只为了抽个故事限定的4星到五宝有点动力不足了，就看周三会不会开新卡池了。
+
+
+                                                 
+
+*****
+
+####  yzj134100  
+##### 82491#       发表于 2021-8-17 10:55
+
+
+图鉴党表示这游戏的副本就没有难到没多宝就打不过的时候
+
+
+抽一只就能开图鉴听语音看动画不知道多爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 82492#       发表于 2021-8-17 11:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52399626&amp;ptid=1085254" target="_blank">holyblood 发表于 2021-8-17 06:34</a>
+泳装没有常驻吧</blockquote>
+所以我说了，脑抽了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
+
+*****
+
+####  zakki  
+##### 82493#       发表于 2021-8-17 14:42
+
+
+火星人刚发现，大C呆啥时候技能加了新的特效？我的C呆永远2破
+
+
+*****
+
+####  alucardcz  
+##### 82494#       发表于 2021-8-17 14:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52404396&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-17 14:42</a>
+
+火星人刚发现，大C呆啥时候技能加了新的特效？我的C呆永远2破</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">技能名字都变了  语音也加了
+
+
+*****
+
+####  areklose  
+##### 82495#       发表于 2021-8-17 15:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">快开活动，我真的很缺结晶
+
+
+*****
+
+####  qixinno2  
+##### 82496#       发表于 2021-8-17 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52404396&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-17 14:42</a>
+
+火星人刚发现，大C呆啥时候技能加了新的特效？我的C呆永远2破</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通关2.6改的 技能名字特效改了 甚至还额外加了一个被动
+
+
+*****
+
+####  FrozenA  
+##### 82497#       发表于 2021-8-17 15:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">攒石一年满宝期待一下可以，确信能满那肯定对fgo卡池有误解
+
+
+*****
+
+####  zakki  
+##### 82498#       发表于 2021-8-17 15:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52404549&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-17 14:56</a>
+技能名字都变了  语音也加了</blockquote>
+技能名字和语音变了我倒是知道
+
+
+*****
+
+####  zakki  
+##### 82499#       发表于 2021-8-17 15:24
+
+
+话说C呆是不是人均2破，用了一年都没感觉用到过几次3破
+
+
+                                                 

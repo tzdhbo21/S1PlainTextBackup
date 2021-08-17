@@ -473,3 +473,212 @@ Evangelion.3.0 1.01.Thrice.Upon.a.Time.2021.中文字幕.WEBrip.AAC.1080p.x264-V
 
 
                                                  
+
+*****
+
+####  HMSWarspite  
+##### 1520#       发表于 2021-8-17 07:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397414&amp;ptid=2013091" target="_blank">污陨血红 发表于 2021-8-16 22:05</a>
+那我要看破的瓜田废案，这个老刺激了</blockquote>
+这才nb，retake加雾岛真名，双份的药劲。
+
+
+*****
+
+####  发条闹钟  
+##### 1521#       发表于 2021-8-17 09:22
+
+
+<blockquote>rp1993 发表于 2021-8-15 12:59
+这和96年又有什么不同呢？
+
+做出了不合心意的结局就要狂骂，寻找各种蛛丝马迹的意向象征，脑补一番就用来攻 ...</blockquote>
+全楼看完就觉得你说的对
+
+
+*****
+
+####  kira1988  
+##### 1522#       发表于 2021-8-17 09:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396031&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-16 20:01</a>
+
+据Collider.com网站消息，庵野在最近的一次访谈中透露：自己将来有意愿以某种形式把新剧场版中空白的14年补 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">14年的空白不是没有真嗣吗
+
+那么14年空白写的是啥香和剑剑的love story么
+<img src="https://static.saraba1st.com/image/smiley/carton2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 1523#       发表于 2021-8-17 10:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397414&amp;ptid=2013091" target="_blank">污陨血红 发表于 2021-8-16 22:05</a>
+那我要看破的瓜田废案，这个老刺激了</blockquote>
+这段其实连废案都算不上 只是榎户自己的脑洞 都没和痞子鹤卷讨论过。
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  何でやねん  
+##### 1524#       发表于 2021-8-17 10:15
+
+
+说起来，明日香捧着玩的那个游戏机玩的是啥游戏有谁看明白了吗
+
+
+*****
+
+####  blood_iron  
+##### 1525#       发表于 2021-8-17 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52390399&amp;ptid=2013091" target="_blank">苇原雪道 发表于 2021-8-16 12:56</a>
+
+我感觉就是简单的破最后脑子一热，和自己经历一重叠就喊出去了。事后发现卧槽事情大条了后悔了，成立了we ...</blockquote>
+然后就恨起真嗣了，都是你的错，害死我姘头
+
+
+                                                 
+
+*****
+
+####  GreenBird  
+##### 1526#       发表于 2021-8-17 10:41
+
+
+希望以后有工作组再弄个 3.1 3.2 以及 4.1 4.2.
+
+平行宇宙，生生不息。
+
+
+*****
+
+####  XSK小龙王  
+##### 1527#       发表于 2021-8-17 10:58
+
+
+ 本帖最后由 XSK小龙王 于 2021-8-17 11:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52401149&amp;ptid=2013091" target="_blank">何でやねん 发表于 2021-8-17 10:15</a>
+
+说起来，明日香捧着玩的那个游戏机玩的是啥游戏有谁看明白了吗</blockquote>
+[https://weibo.com/ttarticle/p/show?id=2309404669825707278683](https://weibo.com/ttarticle/p/show?id=2309404669825707278683)
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/110150hhfjyrhjhbrssn6s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>53849795ly1gtfd4h89yqj20wi0duwfi.jpg</strong> (57.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 11:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/105808tp6dqhinr7d2kdwb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210817105708.JPG</strong> (66.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/110025f222gcp3x03cc1cj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210817105944.JPG</strong> (90.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 11:00 上传
+
+
+*****
+
+####  cckuku  
+##### 1528#       发表于 2021-8-17 11:13
+
+
+痞子是不是神经病啊，不是都和自己和解了？结果又跳出来说14年的事？准备到时候特摄拍的不满意回过头来又让eva观众感受你的痛苦？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blood_iron  
+##### 1529#       发表于 2021-8-17 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397414&amp;ptid=2013091" target="_blank">污陨血红 发表于 2021-8-16 22:05</a>
+
+那我要看破的瓜田废案，这个老刺激了</blockquote>
+开2号机也好，第一次把初吻给真嗣也好......
+
+
+痞子对这明日香有什么仇什么怨？
+
+
+                                                 
+
+*****
+
+####  旺角卡门  
+##### 1530#       发表于 2021-8-17 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52391315&amp;ptid=2013091" target="_blank">晓寒 发表于 2021-8-16 14:20</a>
+
+为什么前三部序破Q都是《福音战士新剧场版》
+
+到了终变成了《新·福音战士剧场版》 ...</blockquote>
+为了和新哥斯拉，新奥特曼，新假面骑士组成四位一体庵野shin宇宙
+
+
+
+
+*****
+
+####  moekyo  
+##### 1531#       发表于 2021-8-17 12:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52401875&amp;ptid=2013091" target="_blank">cckuku 发表于 2021-8-17 11:13</a>
+
+痞子是不是神经病啊，不是都和自己和解了？结果又跳出来说14年的事？准备到时候特摄拍的不满意回过头来又让 ...</blockquote>
+“合格的老大就得考虑底下的人吃饭问题”（指正）
+
+
+                                                
+
+*****
+
+####  LOLITA  
+##### 1532#       发表于 2021-8-17 14:10
+
+
+终于抽空看完了，现在唯一的感想就是纯情宅宅看见别人聊天就能脑补出性-生-活的妄想力真够恶心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+作为当初已经被Q筛选掉的TV党原教旨主义者看现在群魔乱舞的表演真是太开心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
+
+*****
+
+####  伊可费斯  
+##### 1533#       发表于 2021-8-17 15:18
+
+
+字幕出来了吗
+
+
+                                                 
