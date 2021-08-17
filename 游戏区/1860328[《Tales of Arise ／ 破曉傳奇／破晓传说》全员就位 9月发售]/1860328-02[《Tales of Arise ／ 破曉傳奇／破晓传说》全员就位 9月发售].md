@@ -12242,3 +12242,403 @@ xbox下的怎么是英文版</blockquote>
 
 
                                                
+
+*****
+
+####  隔壁老黄  
+##### 2404#       发表于 2021-8-18 00:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410416&amp;ptid=1860328" target="_blank">BallanceHZ 发表于 2021-8-18 00:43</a>
+你们真的不觉得ps5 60帧模式画面特别糊吗……动态模糊开的贼高关不掉就算了，镜头不动的时候也是肉眼可见分 ...</blockquote>
+没感觉，画面很好……
+
+
+*****
+
+####  江宁老实人  
+##### 2405#       发表于 2021-8-18 00:53
+
+
+准备预购了，先不谈剧情，这画质和帧数玩起来比其他的jrpg舒服太多了，就是男女主人设感觉一般。
+
+
+*****
+
+####  BallanceHZ  
+##### 2406#       发表于 2021-8-18 00:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410461&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-8-18 00:50</a>
+
+没感觉，画面很好……</blockquote>
+
+你看主角头发和草的锯齿，我看着贼难受……而且lod也很近的感觉
+
+这要是ps4pro上的，我觉得非常好；但是ps5上就这水平，我觉得还是pc力大砖飞吧
+
+
+*****
+
+####  hkguty  
+##### 2407#       发表于 2021-8-18 00:57
+
+
+之前看二柄试玩感觉PS5帧数很稳啊，画面糊估计还是优化不行吧，之前节目好像说过是全语音？试玩没语音之前好像有人说过是因为专门做的试玩版流程的缘故吧
+
+
+*****
+
+####  六至九  
+##### 2408#       发表于 2021-8-18 00:58
+
+
+ps4帧数很稳啊，就是风扇狂转<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+先爽再说，反正已经预定了steam
+
+
+*****
+
+####  隔壁老黄  
+##### 2409#       发表于 2021-8-18 01:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410486&amp;ptid=1860328" target="_blank">BallanceHZ 发表于 2021-8-18 00:54</a>
+你看主角头发和草的锯齿，我看着贼难受……而且lod也很近的感觉
+
+这要是ps4pro上的，我觉得非常好；但是ps ...</blockquote>
+没看到，哪怕脸凑到眼前也很清晰啊
+
+
+*****
+
+####  qiyu1234  
+##### 2410#       发表于 2021-8-18 01:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410416&amp;ptid=1860328" target="_blank">BallanceHZ 发表于 2021-8-18 00:43</a>
+
+你们真的不觉得ps5 60帧模式画面特别糊吗……动态模糊开的贼高关不掉就算了，镜头不动的时候也是肉眼可见分 ...</blockquote>
+头发和草是着色器的渲染效果啊
+
+换PC也一样的
+
+
+*****
+
+####  qiyu1234  
+##### 2411#       发表于 2021-8-18 01:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410501&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-8-18 00:57</a>
+
+之前看二柄试玩感觉PS5帧数很稳啊，画面糊估计还是优化不行吧，之前节目好像说过是全语音？试玩没语音之前 ...</blockquote>
+并不是真正的全语音，官方说的是剧情演出和小剧场以及战斗里是
+
+像使用对话框的支线这种多半就是试玩版里这样
+
+
+*****
+
+####  BallanceHZ  
+##### 2412#       发表于 2021-8-18 01:16
+
+
+ 本帖最后由 BallanceHZ 于 2021-8-18 01:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410590&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-18 01:13</a>
+
+头发和草是着色器的渲染效果啊
+
+换PC也一样的</blockquote>
+你说的是油画风，我说的是锯齿。。。切画质模式可以明显看到更清晰
+
+帧数模式继续玩了下又截了一些图，感觉游戏还行，考虑入PC了
+<img src="http://ww1.sinaimg.cn/large/ba0a634aly1gtkaiuvdw1j22yo1o0hdt.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/ba0a634aly1gtkajdyo39j22yo1o0npd.jpg" referrerpolicy="no-referrer">‘
+<img src="http://ww1.sinaimg.cn/large/ba0a634aly1gtkajmbj6qj22yo1o0b29.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/ba0a634aly1gtkajv123uj22yo1o0kjl.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/ba0a634aly1gtkak48pryj22yo1o0e81.jpg" referrerpolicy="no-referrer">
+
+以及我确定我下的是PS5版，没有|PS4字样
+<img src="http://ww1.sinaimg.cn/large/ba0a634aly1gtkakwe154j23402c01kz.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 2413#       发表于 2021-8-18 01:27
+
+
+4pro帧数比想象中好很多（特别是和之前试玩劝退的绯红比）音效手感也算系列上乘了，不过震动还是偏弱
+选了骑士姐开局，这J防比其他人的J回判定严点，但比系列之前的闪防友好太多，boss也基本没有瞬发高伤害招式了。弱点属性有增伤但不和硬直状态挂钩，不过看教程break状态依赖贯通力这个数值
+
+
+*****
+
+####  BallanceHZ  
+##### 2414#       发表于 2021-8-18 01:28
+
+
+ 本帖最后由 BallanceHZ 于 2021-8-18 01:31 编辑 
+
+群友给了XSX下俩模式的截图，可以参考下
+
+帧数优先
+<img src="http://ww1.sinaimg.cn/large/ba0a634aly1gtkathfs2xj22yo1o0qvc.jpg" referrerpolicy="no-referrer">
+
+画质优先
+<img src="http://ww1.sinaimg.cn/large/ba0a634aly1gtkatvsli9j22yo1o0kju.jpg" referrerpolicy="no-referrer">
+
+同帧数优先下，XSX和PS5 300%放大数毛
+<img src="http://ww1.sinaimg.cn/large/ba0a634aly1gtkawx2qr1j22yo1m2hdw.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 2415#       发表于 2021-8-18 01:28
+
+
+怎么过场又是PPT，我有点PTSD了
+
+
+希望只是小剧情会这样..
+
+
+*****
+
+####  新世界的派蒙  
+##### 2416#       发表于 2021-8-18 01:30
+
+
+ 本帖最后由 新世界的派蒙 于 2021-8-18 01:36 编辑 
+
+PS5商店怎么找试玩版阿......我找了十分钟找急眼了槽，手机APP终于搜到了，ps5商店这搜索逻辑就一傻狗
+
+
+*****
+
+####  zqqwe  
+##### 2417#       发表于 2021-8-18 01:30
+
+
+初期地面起手只有三招可以配有点不够，L2应该就是中期解锁的补充配置组合键了
+
+
+*****
+
+####  Deay店长  
+##### 2418#       发表于 2021-8-18 01:31
+
+
+PS5上性能表现简直就是灾难
+
+60帧模式大概顶天就是2K水平，试玩版我对付几个杂鱼就能轻松把帧数干到掉帧的水平
+
+4K30模式更是不堪入目，干到20帧以内都不是问题
+
+明明是独立的战斗场景，场景压力是可以有效控制的。。。
+
+
+尚若是我第一次玩万代PS5游戏也就罢了，可能觉得很合理
+
+结果前不久我才白金了绯红结系，全程4K 60丝滑体验
+
+这落差难以接受。
+
+
+游戏可能不错，这里仅说帧数性能表现，连招时掉帧给人感觉不好。
+
+
+*****
+
+####  qiyu1234  
+##### 2419#       发表于 2021-8-18 01:34
+
+
+策略菜单改的有点怪，没有个体策略选择了以后只能设置几个if else判断
+
+还要适应一下
+
+
+*****
+
+####  hkguty  
+##### 2420#       发表于 2021-8-18 01:38
+
+
+ps5版竟然这么菜……还订了限定版来着，只用1080p的话能打么
+
+
+*****
+
+####  zqqwe  
+##### 2421#       发表于 2021-8-18 01:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410690&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-18 01:34</a>
+策略菜单改的有点怪，没有个体策略选择了以后只能设置几个if else判断
+
+还要适应一下 ...</blockquote>
+特意试了下这次的回避战术，结果生存能力相当低
+
+
+*****
+
+####  zqqwe  
+##### 2422#       发表于 2021-8-18 01:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410690&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-18 01:34</a>
+策略菜单改的有点怪，没有个体策略选择了以后只能设置几个if else判断
+
+还要适应一下 ...</blockquote>
+这次弱点属性地位下降连针对选项都没了，另外实际打起来不限制的话cp耗得很快
+
+
+*****
+
+####  剑布衣  
+##### 2423#       发表于 2021-8-18 01:44
+
+
+场景挺漂亮的，虽然大约是宽一点的一本dao（    白天有雾气，远处的雷纳只看得到巨大的轮廓，晚上就比较清晰能看到大陆，还挺爽的 。有些细节也太细了吧，兔耳猪有柰子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+敌人设计的也不错，总算不是to系列一直以来的“经典”杂鱼形象了。整体来说画面上算是超绝进化吧，特别前几天才翻出tob打了一阵....
+
+
+打通之后movie那里还有俩？？？有啥说法吗
+
+
+*****
+
+####  zero12  
+##### 2424#       发表于 2021-8-18 01:45
+
+
+<blockquote>剑布衣 发表于 2021-8-18 01:44
+场景挺漂亮的，虽然大约是宽一点的一本dao（    白天有雾气，远处的雷纳只看得到巨大的轮廓，晚上就比较清 ...</blockquote>
+开始的时候选另外两对，结局就是新的预告
+
+
+*****
+
+####  qiyu1234  
+##### 2425#       发表于 2021-8-18 01:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410712&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-18 01:41</a>
+
+这次弱点属性地位下降连针对选项都没了，另外实际打起来不限制的话cp耗得很快 ...</blockquote>
+这作暂停有快速进行四种策略切换，我觉得制作组的意思是比较重视这块的
+
+还是要在那个细化界面再调，具体怎么调就要试了（特别是针对CP的消耗）
+
+
+*****
+
+####  剑布衣  
+##### 2426#       发表于 2021-8-18 01:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410726&amp;ptid=1860328" target="_blank">zero12 发表于 2021-8-18 01:45</a>
+
+开始的时候选另外两对，结局就是新的预告</blockquote>
+啊，我选的屁股啊不是我选的キサラ大姐头，怪不得我看的是pv2<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LMBS  
+##### 2427#       发表于 2021-8-18 01:57
+
+
+这次螳螂打完还有个boss乱入，这种大型boss打起来还挺乱的
+
+
+*****
+
+####  qiyu1234  
+##### 2428#       发表于 2021-8-18 01:58
+
+
+OVL触发 在目前的演示里都没看到可视化的计量条
+
+彻底不可见不太可能，看到底是通过收集哪个文物实现
+
+
+*****
+
+####  LMBS  
+##### 2429#       发表于 2021-8-18 02:03
+
+
+帧数和画质对比还是看得出差别的
+
+
+<img src="https://p.sda1.dev/2/c8975c5afd4dbcefb02e3556e1db9d9f/IMG_CMP_136785433.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/c1939c5b481bba789cee563637fac9d1/IMG_CMP_146680581.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rinne70  
+##### 2430#       发表于 2021-8-18 02:04
+
+
+策略改得好麻烦，一点都不直观
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  focus  
+##### 2431#       发表于 2021-8-18 02:10
+
+
+女主还挺好用，跳起来下雨那招攻击力忒高又是aoe，赖死了最后两个boss。又可以一招鲜了
+
+
+*****
+
+####  LT_Harry  
+##### 2432#         楼主| 发表于 2021-8-18 02:13
+
+
+楼主观点：
+1. 一定要用稳定 60fps 的平台玩正式版，不然可能会存在吞指令的现象；
+2. 体验版开放的内容是有限的，所以请不要问为什么这也没有那也没有——有些东西其实有的，或者正式版已经确定会有；<strong>这只是体验版</strong>
+3. 体验版的重复游玩性其实很强，至于原因为免剧透不多提及；
+4. 所有角色都非常有潜力，今天凌晨看 Passaro（就是昨天早上很多地方在转的那个抢先直播的 youtuber，是个高手，我个人非常推荐大家订阅他的频道看他的 Tales 视频）后续的直播，希侬和琳薇尔也有战斗的连段操作。各角色具体的便利操作方式等待发掘；
+5. 中文版的西文字体居然和英文版一致，开心捏🤗
+
+
+*****
+
+####  leosank  
+##### 2433#       发表于 2021-8-18 02:18
+
+
+感觉UI好网游
+
+游戏偏欧美风
+
+不像以前的日式传说了
+
+
+*****
+
+####  loley  
+##### 2434#       发表于 2021-8-18 02:38
+
+
+<blockquote>LMBS 发表于 2021-8-18 01:57
+这次螳螂打完还有个boss乱入，这种大型boss打起来还挺乱的</blockquote>
+除了野猪和螳螂还有BOSS吗？
+
+
+                                                

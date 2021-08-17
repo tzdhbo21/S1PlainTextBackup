@@ -726,3 +726,44 @@ CIA肯定知道真实情况，拜登被蒙着玩
 
 
                                                
+
+*****
+
+####  datzz  
+##### 65#         楼主| 发表于 2021-8-18 01:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52409840&amp;ptid=2021283" target="_blank">574802531 发表于 2021-8-17 23:27</a>
+话说标题这句词是第几部来着。想翻出来看看助兴。
+
+—— 来自 HUAWEI CLT-AL00, Android 9上的 S1Next-鹅版 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">碟中谍5：神秘国度
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Guildenstern  
+##### 66#       发表于 2021-8-18 01:48
+
+
+<blockquote>引用第21楼天青月白于2021-08-17 12:12发表的  :
+
+引用:WTfffff!!! 发表于 2021-8-17 11:52感觉这两天看得各种乐子视频，这跟西......</blockquote>
+城区都被接管了能不平静吗？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  jctc  
+##### 67#       发表于 2021-8-18 01:48
+
+
+做汉奸真难
+
+
+                                                 

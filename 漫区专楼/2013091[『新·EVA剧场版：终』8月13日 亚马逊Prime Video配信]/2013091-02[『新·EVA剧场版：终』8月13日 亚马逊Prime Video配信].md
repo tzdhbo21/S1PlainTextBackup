@@ -763,3 +763,27 @@ i love you more than you ever know 这句话是谁给谁说的啊，唯对真嗣
 
 
                                                  
+
+*****
+
+####  qwaszx5025  
+##### 1541#       发表于 2021-8-18 01:30
+
+
+今晚才看完，是我能接受的结局<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+不过什么都不想说，只感觉好累<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  theory0  
+##### 1542#       发表于 2021-8-18 01:55
+
+
+挺好的结局，作为一个拖了这么多年的故事，能以这种方式完结真的是不容易了。
+
+—— 来自 Xiaomi MIX 2S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
