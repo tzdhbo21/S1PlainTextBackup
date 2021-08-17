@@ -10226,3 +10226,33 @@ Hasan接受英国媒体New Musical Express（NME）采访，称Abandoned是射�
 
 
                                                  
+
+*****
+
+####  foyo  
+##### 809#       发表于 2021-8-17 06:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52398673&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-17 00:17</a>
+
+https://www.nme.com/features/gam ... eople-think-3020184
+
+Hasan接受英国媒体New Musical Express（NME） ...</blockquote>
+不知道用什么表情了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  邪恶的shah  
+##### 810#       发表于 2021-8-17 06:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52398673&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-8-17 00:17</a>
+
+https://www.nme.com/features/gam ... eople-think-3020184
+
+Hasan接受英国媒体New Musical Express（NME） ...</blockquote>
+你们臭玩家不过是熬夜肺气炸，我们家哥哥可是伤心的吃不下饭啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

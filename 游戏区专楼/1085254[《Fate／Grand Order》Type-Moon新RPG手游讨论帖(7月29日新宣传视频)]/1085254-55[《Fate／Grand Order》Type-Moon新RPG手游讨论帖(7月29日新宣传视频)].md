@@ -19542,3 +19542,17 @@ pcr不也有日常！</blockquote>
 
 
                                                  
+
+*****
+
+####  holyblood  
+##### 82489#       发表于 2021-8-17 06:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52398086&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-16 23:09</a>
+
+看了看职介，今年弓和骑都没有出过5星，所以新泳装会是一个弓一个骑？然后突然脑抽了一下，突然有个今年泳 ...</blockquote>
+泳装没有常驻吧
+
+
+                                                 
