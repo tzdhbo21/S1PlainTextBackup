@@ -35,8 +35,8 @@ jobs:
         API_TOKEN_GITHUB: ${{ secrets.API_TOKEN_GITHUB }}
       with:
         source_folder: S1B
-        destination_repo: 'TomoeMami/tomoemami.github.io'
+        destination_repo: TomoeMami/tomoemami.github.io
         destination_folder: S1B
-        user_email: 'trembleafterme@outlook.com'
-        user_name: 'TomoeMami'
-        commit_msg: '[GHA] Update the S1G files.'
+        user_email: trembleafterme@outlook.com
+        user_name: TomoeMami
+        commit_msg: '[GHA] Update the S1B files.'
