@@ -11692,3 +11692,553 @@ Hello, Again ～昔からある場所～是以前的老歌吧，还有Blue Moon�
 
 
                                                  
+
+*****
+
+####  D-JoeII  
+##### 2357#       发表于 2021-8-17 21:54
+
+
+ 本帖最后由 D-JoeII 于 2021-8-17 21:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52408125&amp;ptid=1860328" target="_blank">crosz 发表于 2021-8-17 20:22</a>
+
+不知道今晚港服临时工加班不</blockquote>
+加了,Xbox那邊紐西蘭已上架
+[https://www.microsoft.com/en-nz/ ... pivot%3Aoverviewtab](https://www.microsoft.com/en-nz/p/tales-of-arise-demo-version-xbox-series-x-s/9nb1phvl43cp?wa=wsignin1.0&amp;activetab=pivot%3Aoverviewtab)
+
+PS也上了
+[https://store.playstation.com/en ... 0-PS4TOARISEDEMO01/](https://store.playstation.com/en-nz/product/EP0700-CUSA27181_00-PS4TOARISEDEMO01/)
+[https://store.playstation.com/en ... 0-TOARISEPS5DEMO01/](https://store.playstation.com/en-nz/product/EP0700-PPSA03194_00-TOARISEPS5DEMO01/)
+
+
+*****
+
+####  allenz3  
+##### 2358#       发表于 2021-8-17 21:58
+
+
+港服的习惯一般是下午2点，不过偶像大师demo早上10点就上了
+
+
+*****
+
+####  TerryBlues  
+##### 2359#       发表于 2021-8-17 22:06
+
+
+在下了
+
+
+*****
+
+####  刘震云  
+##### 2360#       发表于 2021-8-17 22:08
+
+
+ 本帖最后由 刘震云 于 2021-8-17 22:18 编辑 
+
+原来已经有了，赶紧去下<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">好吧，港服临时工是准时上下班的，登明天吧
+
+
+*****
+
+####  ac130-2020  
+##### 2361#       发表于 2021-8-17 22:12
+
+
+港服无
+
+
+*****
+
+####  qiyu1234  
+##### 2362#       发表于 2021-8-17 22:24
+
+
+ 本帖最后由 qiyu1234 于 2021-8-17 22:52 编辑 
+
+试玩版有三个不同的结束预告动画，根据你一开始进入试玩的选择，分别对应三对组合
+
+
+*****
+
+####  火红之眼  
+##### 2363#       发表于 2021-8-17 23:01
+
+
+日服demo也出了，可能港服也是12点
+
+
+*****
+
+####  Bani82  
+##### 2364#       发表于 2021-8-17 23:02
+
+
+一定要走商店么？开机看了下港服日服都没有
+
+
+*****
+
+####  laoz  
+##### 2365#       发表于 2021-8-17 23:02
+
+
+日服出了，港服应该0点出，先玩日服看看
+
+<img src="https://img.saraba1st.com/forum/202108/17/230217nikn23f2rbkknnc2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210817230058.jpg</strong> (384.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 23:02 上传
+
+
+*****
+
+####  ChengChung  
+##### 2366#       发表于 2021-8-17 23:03
+
+
+还是xbox干脆，一个区上了就是全上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 2367#       发表于 2021-8-17 23:04
+
+
+安安心心睡醒来玩
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Bani82  
+##### 2368#       发表于 2021-8-17 23:05
+
+
+是不是又PS4搜的到PS5搜不到那种奇怪的事情？
+
+
+*****
+
+####  laoz  
+##### 2369#       发表于 2021-8-17 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52409640&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-8-17 23:05</a>
+
+是不是又PS4搜的到PS5搜不到那种奇怪的事情？</blockquote>
+[https://store.playstation.com/ja ... 0-TOARISEPS5DEMO01/](https://store.playstation.com/ja-jp/product/JP0700-PPSA03108_00-TOARISEPS5DEMO01/)
+
+这里加到库里
+
+
+*****
+
+####  火红之眼  
+##### 2370#       发表于 2021-8-17 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52409640&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-8-17 23:05</a>
+
+是不是又PS4搜的到PS5搜不到那种奇怪的事情？</blockquote>
+直接在商品右侧那里选体验版就有了，两个版本都有
+
+
+
+
+*****
+
+####  Bani82  
+##### 2371#       发表于 2021-8-17 23:10
+
+
+刷出来了，THX~
+
+
+*****
+
+####  LMBS  
+##### 2372#       发表于 2021-8-17 23:11
+
+
+Psn真傻逼，两个体验版要点进去才能看有没有PS4才知道版本
+
+
+*****
+
+####  crosz  
+##### 2373#       发表于 2021-8-17 23:16
+
+
+日服体验版有中文吗
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  猫将军  
+##### 2374#       发表于 2021-8-17 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52409734&amp;ptid=1860328" target="_blank">crosz 发表于 2021-8-17 23:16</a>
+日服体验版有中文吗</blockquote>
+只有日文和英文
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 2375#       发表于 2021-8-17 23:21
+
+
+**好急啊，只能周末回家才能摸主机
+
+
+*****
+
+####  Eadric  
+##### 2376#       发表于 2021-8-17 23:26
+
+
+港服还没有吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Arians  
+##### 2377#       发表于 2021-8-17 23:35
+
+
+PS5港服没找到
+
+
+*****
+
+####  DKD  
+##### 2378#       发表于 2021-8-17 23:36
+
+
+steam可能要凌晨了？
+
+
+*****
+
+####  godless2020  
+##### 2379#       发表于 2021-8-17 23:36
+
+
+PS4版感觉有60FPS啊..........
+
+
+*****
+
+####  qiyu1234  
+##### 2380#       发表于 2021-8-17 23:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52409908&amp;ptid=1860328" target="_blank">DKD 发表于 2021-8-17 23:36</a>
+
+steam可能要凌晨了？</blockquote>
+PC版没有试玩。。。
+
+
+*****
+
+####  DKD  
+##### 2381#       发表于 2021-8-17 23:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52409920&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-17 23:37</a>
+
+PC版没有试玩。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">麻了
+
+
+*****
+
+####  医生狼多  
+##### 2382#       发表于 2021-8-17 23:40
+
+
+靠，明天要早起，麻了
+
+
+*****
+
+####  laoz  
+##### 2383#       发表于 2021-8-17 23:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次连击数真好凑
+
+<img src="https://img.saraba1st.com/forum/202108/17/234647ornqbc5pqlc2x2nl.png" referrerpolicy="no-referrer">
+
+
+<strong>Tales of ARISE Demo Version_20210817234600.png</strong> (388.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 23:46 上传
+
+
+*****
+
+####  duraa  
+##### 2384#       发表于 2021-8-18 00:01
+
+
+港服有了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kojimaru  
+##### 2385#       发表于 2021-8-18 00:01
+
+
+港服demo出了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">另外推荐买什么版本？感觉预购奖励就很丰富了
+
+
+*****
+
+####  heseran  
+##### 2386#       发表于 2021-8-18 00:04
+
+
+PS4的帧数和读取速度怎么样啊玩到的各位。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Rainwedell  
+##### 2387#       发表于 2021-8-18 00:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410093&amp;ptid=1860328" target="_blank">Kojimaru 发表于 2021-8-18 00:01</a>
+港服demo出了另外推荐买什么版本？感觉预购奖励就很丰富了</blockquote>
+对服装无感标准版就行，服装包这些日后基本都会单独卖
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kojimaru| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  qiyu1234  
+##### 2388#       发表于 2021-8-18 00:06
+
+
+ 本帖最后由 qiyu1234 于 2021-8-18 00:13 编辑 
+
+OVL中 圆圈 叉 三角 方块 四个键任意按住2个或以上就发动秘奥义
+
+<img src="https://img.saraba1st.com/forum/202108/18/001351yr7c8ibc8cnbcptc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (199.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 00:13 上传
+
+
+*****
+
+####  BigLittle1999  
+##### 2389#       发表于 2021-8-18 00:08
+
+
+看了二柄发的录像，是不是平时的台词都没配音。。。？<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Bani82  
+##### 2390#       发表于 2021-8-18 00:08
+
+
+PS5 画面帧数没问题
+
+建议设置XO反转后进游戏
+
+然后sion很不好用，手感也很一般
+
+没有全语音到底还是差了点了，小剧场也不如以前的魔性
+
+
+但是！我已经买了...
+
+
+*****
+
+####  ky怪  
+##### 2391#       发表于 2021-8-18 00:08
+
+
+试了三个角色，不错 
+什么时候能玩到这样的漫改游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  只等待明天  
+##### 2392#       发表于 2021-8-18 00:08
+
+
+希望明天能早点下班<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lly778  
+##### 2393#       发表于 2021-8-18 00:13
+
+
+xbox下的怎么是英文版
+
+
+*****
+
+####  TerryBlues  
+##### 2394#       发表于 2021-8-18 00:17
+
+
+<blockquote>lly778 发表于 2021-8-18 00:13
+xbox下的怎么是英文版</blockquote>
+系统切繁中，这游戏没简中
+
+
+*****
+
+####  LMBS  
+##### 2395#       发表于 2021-8-18 00:21
+
+
+真想不到PS5视野也是这么近，加载问题挺严重的
+
+
+*****
+
+####  crosz  
+##### 2396#       发表于 2021-8-18 00:24
+
+
+画面真不错，60帧舒服
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  咪姆  
+##### 2397#       发表于 2021-8-18 00:30
+
+
+菜单好简陋
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ky怪  
+##### 2398#       发表于 2021-8-18 00:32
+
+
+视距确定不能调么
+
+
+*****
+
+####  2082082012  
+##### 2399#       发表于 2021-8-18 00:32
+
+
+ 本帖最后由 2082082012 于 2021-8-18 00:34 编辑 
+
+个人觉得可以啊，预购走一波呀
+就吐槽一点这过场咋像绯红结系一样ppt呀<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/32c71387a6d67b39b691c8d94d8638cb/IMG_CMP_36618503.jpeg" referrerpolicy="no-referrer">
+
+
+—— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ff2077  
+##### 2400#       发表于 2021-8-18 00:36
+
+
+女主打枪的果然不好用……
+
+
+
+
+*****
+
+####  DKD  
+##### 2401#       发表于 2021-8-18 00:39
+
+
+已经在steam预购的好馋 等一个坛友的试玩体验
+
+
+*****
+
+####  000ooo000  
+##### 2402#       发表于 2021-8-18 00:39
+
+
+女法师挺好使的，特性可以存上位魔法。老年人专用了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  BallanceHZ  
+##### 2403#       发表于 2021-8-18 00:43
+
+
+ 本帖最后由 BallanceHZ 于 2021-8-18 00:45 编辑 
+
+你们真的不觉得ps5 60帧模式画面特别糊吗……动态模糊开的贼高关不掉就算了，镜头不动的时候也是肉眼可见分辨率不咋地
+<img src="http://ww1.sinaimg.cn/large/ba0a634aly1gtk9jdjxzvj22yo1o0kjl.jpg" referrerpolicy="no-referrer">
+
+
+就截了一张图
+
+还是说我是4K显示器+离得近才对分辨率和锯齿特别敏感？
+
+
+                                               

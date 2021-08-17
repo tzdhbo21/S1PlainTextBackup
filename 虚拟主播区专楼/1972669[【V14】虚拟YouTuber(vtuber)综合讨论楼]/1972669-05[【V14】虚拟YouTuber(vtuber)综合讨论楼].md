@@ -2396,3 +2396,289 @@ hololive现在已经用到网络画师圈最顶流了，明年新人爹妈配置
 
 
                                                  
+
+*****
+
+####  2black  
+##### 6196#       发表于 2021-8-17 21:32
+
+
+逛了一圈果然还是不理解星川发生了什么事
+
+
+*****
+
+####  我不是很好  
+##### 6197#       发表于 2021-8-17 21:37
+
+
+<img src="https://p.sda1.dev/2/c26811d6a5fff3b163a7c88eb600eb87/Screenshot_20210817-213728__01.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 6198#       发表于 2021-8-17 21:41
+
+
+ 本帖最后由 free 于 2021-8-17 21:42 编辑 
+
+单说做人设，大手漫画家也不见得一定比网络插画师强就是了，不过也看大手到什么地步......
+
+犬山哥算什么等级的漫画家<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/214109gkk2i3hi929fp2dp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (183.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 21:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/214109qiginadysqdfz33d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (187.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 21:41 上传
+
+
+*****
+
+####  十四洲  
+##### 6199#       发表于 2021-8-17 21:41
+
+
+ 本帖最后由 十四洲 于 2021-8-17 22:00 编辑 
+
+今天下午星川发推开推生聊天，官号皮套就发了条对应的动态，就是上面那张图那条，这条动态下面还有一行Twitcasting什么的（后来这条动态删了）被贴吧的人断章取义截图了，引来一堆人在剩下的最新那条动态下面发病
+
+
+*****
+
+####  alcoholic1000  
+##### 6200#       发表于 2021-8-17 21:42
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/214203lx77o14x18zjb88i.png" referrerpolicy="no-referrer">
+
+
+<strong>@Sara_Hoshikawa -1.png</strong> (11.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 21:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/214203fff5p87jdjj9wz5d.png" referrerpolicy="no-referrer">
+
+
+<strong>@Sara_Hoshikawa -2.png</strong> (54.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 21:42 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 6201#       发表于 2021-8-17 21:45
+
+
+以后英语只有25个字母了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rzrbtk  
+##### 6202#       发表于 2021-8-17 22:00
+
+
+还好鲨皇出道早，搁现在要是在那“a”的话怕不是又要被车了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  獅白ぼたん  
+##### 6203#       发表于 2021-8-17 22:01
+
+
+这不把没事A的鲨皇冲了，A是asoul的A
+
+
+*****
+
+####  IDIDIDID  
+##### 6204#       发表于 2021-8-17 22:42
+
+
+[DVSP-0257,0258] AD:HOUSE 9 Crossfade DEMO
+[https://youtu.be/zBDbvPbfZT8?t=780](https://youtu.be/zBDbvPbfZT8?t=780)
+
+
+内含azki与小蜜蜂
+
+
+*****
+
+####  OldGlory  
+##### 6205#       发表于 2021-8-17 22:46
+
+
+大手画师可靠性也就那样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漫画家画皮也没特别牛的。
+
+<img src="https://img.saraba1st.com/forum/202108/17/224631kqou74r47ai4qw47.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1629199825785.jpg</strong> (38.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 22:46 上传
+
+
+*****
+
+####  虹河ラキ  
+##### 6206#       发表于 2021-8-17 23:05
+
+
+そろそろ活動再開してほしいぴょこ
+<img src="https://i.loli.net/2021/08/17/5hYatWk83ePl246.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D-JoeII  
+##### 6207#       发表于 2021-8-18 00:01
+
+
+<blockquote>心垂万刃 发表于 2021-8-17 11:10
+3是混沌</blockquote>
+看來斯卡文鼠人也要當vtuber了啊
+
+<img src="https://img.saraba1st.com/forum/202108/18/000143jd9d8dz31817xw9o.png" referrerpolicy="no-referrer">
+
+
+<strong>1629175182386.png</strong> (293.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-8-18 00:01 上传
+
+
+*****
+
+####  缺陷电气杨永信  
+##### 6208#       发表于 2021-8-18 00:02
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/000139spxsapknkp0d5aos.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4.jpg</strong> (8.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 00:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/000139it9jbbixj7hsioo1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (10.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 00:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/000138j73e41s3jdjfsuel.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (9.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 00:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/000138ylmag3faiesnmnp0.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (10.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 00:01 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">消息来源维阿那批连体号
+
+
+*****
+
+####  alcoholic1000  
+##### 6209#       发表于 2021-8-18 00:24
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/002441izt6hw666ttu5trr.png" referrerpolicy="no-referrer">
+
+
+<strong>kd.png</strong> (68.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 00:24 上传
+
+
+连号来了
+
+
+*****
+
+####  winsloven  
+##### 6210#       发表于 2021-8-18 00:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52406716&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-8-17 18:06</a>
+
+hololive现在已经用到网络画师圈最顶流了，明年新人爹妈配置要再上一层楼是不是能用几个动画/漫画圈子的人 ...</blockquote>
+宫崎骏，鸟山明，痞子
+
+的可能性？
+
+那还是别了吧。
+
+
+
+
+*****
+
+####  adcdqre  
+##### 6211#       发表于 2021-8-18 00:30
+
+
+哈哥过年打了招呼没来吗
+
+
+*****
+
+####  IDIDIDID  
+##### 6212#       发表于 2021-8-18 00:41
+
+
+想要堀口悠紀子设计的杏女皮<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+                                                

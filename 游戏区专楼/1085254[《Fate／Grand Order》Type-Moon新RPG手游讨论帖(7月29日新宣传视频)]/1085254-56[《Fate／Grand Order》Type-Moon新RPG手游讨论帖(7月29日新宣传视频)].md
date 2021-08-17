@@ -271,3 +271,94 @@ kmr是不是现在不管gbf了
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 82523#       发表于 2021-8-17 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52408667&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-17 21:18</a>
+明天会有事发生吗  不会真靠这个减半混2个星期吧</blockquote>
+来个火药狩猎<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 82524#       发表于 2021-8-17 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52408716&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-17 21:24</a>
+别闹 这只会激起更大的不满好吧 大家想要的是公平 公平 还是他妈的公平 ...</blockquote>
+不是说霓虹人经典感恩戴德舔起来了嘛，如果是真的，那基本搞定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于这全服补偿到底有多nt，已经无所谓了
+
+
+*****
+
+####  eyeego  
+##### 82525#       发表于 2021-8-17 21:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52408953&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-8-17 21:48</a>
+不是说霓虹人经典感恩戴德舔起来了嘛，如果是真的，那基本搞定了至于这全服补偿到底有多nt，已经 ...</blockquote>
+日本人这种只敢在匿名版吐黑泥的废物这种时候除了跪舔还能干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82526#       发表于 2021-8-17 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52408977&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-17 21:51</a>
+
+日本人这种只敢在匿名版吐黑泥的废物这种时候除了跪舔还能干嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常啊 历本人有用fgo还会没有保底吗 这每天1收费石的弱智更新我还看到有人喊赞
+
+
+*****
+
+####  qixinno2  
+##### 82527#       发表于 2021-8-17 22:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得直播时这一付费石单抽嘉宾当时好像全员都失声了 
+
+
+*****
+
+####  LOLITA  
+##### 82528#       发表于 2021-8-17 23:02
+
+
+我的杀狐二宝就是1收费石出的，结果第二天再抽又是金杀。。。武则天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82529#       发表于 2021-8-17 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52409600&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-17 23:02</a>
+
+我的杀狐二宝就是1收费石出的，结果第二天再抽又是金杀。。。武则天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我福袋还剩1个收费石 到时候抽泳装没出货我就来喷你
+
+
+*****
+
+####  zore  
+##### 82530#       发表于 2021-8-18 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52408618&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-17 21:13</a>
+
+别提GBF了
+
+我已经快被KMR和四个字母笑死了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">细说呢
+
+
+                                                 

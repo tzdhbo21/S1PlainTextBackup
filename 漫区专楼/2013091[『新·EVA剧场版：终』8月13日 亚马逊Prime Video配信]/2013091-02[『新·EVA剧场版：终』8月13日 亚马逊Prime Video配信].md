@@ -716,3 +716,50 @@ i love you more than you ever know 这句话是谁给谁说的啊，唯对真嗣
 
 
                                                  
+
+*****
+
+####  a12885084  
+##### 1537#       发表于 2021-8-17 21:40
+
+
+其实是有新的字幕的，我已经在看了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+指路动画人展览会纪录片
+
+
+*****
+
+####  任天索尼子  
+##### 1538#       发表于 2021-8-17 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52406989&amp;ptid=2013091" target="_blank">王淳煜 发表于 2021-8-17 18:30</a>
+
+i love you more than you ever know 这句话是谁给谁说的啊，唯对真嗣，司令对真嗣，司令对唯，真嗣对爹妈 ...</blockquote>
+这种系列的完结曲子单纯的限定为某人和某人就太狭隘了。
+
+
+*****
+
+####  王留美  
+##### 1539#       发表于 2021-8-17 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52408793&amp;ptid=2013091" target="_blank">Kensnow 发表于 2021-8-17 21:31</a>
+这次各字幕组是不是被警告了，现在都没有翻出来的。有点不想等了，能否下到湾湾的繁中？记得楼里有人说是日 ...</blockquote>
+最好的翻译是台湾版中文配音（配音文本和繁体字幕不同）
+
+
+*****
+
+####  奶香花卷  
+##### 1540#       发表于 2021-8-17 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52406989&amp;ptid=2013091" target="_blank">王淳煜 发表于 2021-8-17 18:30</a>
+i love you more than you ever know 这句话是谁给谁说的啊，唯对真嗣，司令对真嗣，司令对唯，真嗣对爹妈 ...</blockquote>
+当然是暗夜哥哥对所有的观众粉丝啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+                                                 
