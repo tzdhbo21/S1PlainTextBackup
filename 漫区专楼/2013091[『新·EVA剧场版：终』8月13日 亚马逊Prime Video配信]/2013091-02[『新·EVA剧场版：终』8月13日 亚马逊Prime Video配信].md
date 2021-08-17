@@ -693,3 +693,26 @@ i love you more than you ever know 这句话是谁给谁说的啊，唯对真嗣
 
 
                                                  
+
+*****
+
+####  gunterpla  
+##### 1535#       发表于 2021-8-17 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52406989&amp;ptid=2013091" target="_blank">王淳煜 发表于 2021-8-17 18:30</a>
+
+i love you more than you ever know 这句话是谁给谁说的啊，唯对真嗣，司令对真嗣，司令对唯，真嗣对爹妈 ...</blockquote>
+当然是Sakura对真真啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kensnow  
+##### 1536#       发表于 2021-8-17 21:31
+
+
+这次各字幕组是不是被警告了，现在都没有翻出来的。有点不想等了，能否下到湾湾的繁中？记得楼里有人说是日-中译过来的？
+
+
+                                                 

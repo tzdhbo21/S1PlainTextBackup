@@ -2286,3 +2286,113 @@ hololive现在已经用到网络画师圈最顶流了，明年新人爹妈配置
 
 
                                                 
+
+*****
+
+####  Suny08  
+##### 6185#       发表于 2021-8-17 19:53
+
+
+<blockquote>IDIDIDID 发表于 2021-8-17 18:06
+hololive现在已经用到网络画师圈最顶流了，明年新人爹妈配置要再上一层楼是不是能用几个动画/漫画圈子的人 ...</blockquote>
+毕竟现在杏有钱随便砸，这么喜欢型月以后请蘑菇来写个背景故事也不是没可能，虹约皮都是能省尽量省，格局就差远了呀
+
+
+*****
+
+####  IDIDIDID  
+##### 6186#       发表于 2021-8-17 20:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52407818&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-8-17 19:53</a>
+
+毕竟现在杏有钱随便砸，这么喜欢型月以后请蘑菇来写个背景故事也不是没可能，虹约皮都是能省尽量省，格局 ...</blockquote>
+有一说一，可不可以让やすも多来几个虹女，真的很喜欢她的阳角风格。
+
+
+*****
+
+####  2black  
+##### 6187#       发表于 2021-8-17 20:09
+
+
+星川最新B站动态 评论区到底是怎么一回事？我平时只看虹<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2black  
+##### 6188#       发表于 2021-8-17 20:09
+
+
+星川最新B站动态 评论区到底是怎么一回事？我平时只看虹<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tankai  
+##### 6189#       发表于 2021-8-17 20:27
+
+
+皮套搞事吧.
+
+
+*****
+
+####  FCCHua  
+##### 6190#       发表于 2021-8-17 20:28
+
+
+皮套搞什么事了？推特原话就这啊，本意t台要播了
+
+
+*****
+
+####  tankai  
+##### 6191#       发表于 2021-8-17 20:32
+
+
+哦,是这样啊.
+
+
+*****
+
+####  十四洲  
+##### 6192#       发表于 2021-8-17 20:38
+
+
+删那条动态应该是因为星川把开推生那条推删了？我看了下没找到原推
+
+
+*****
+
+####  FCCHua  
+##### 6193#       发表于 2021-8-17 20:42
+
+
+确实也有这可能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 6194#       发表于 2021-8-17 20:59
+
+
+为啥一条推搞得这么紧张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空集  
+##### 6195#       发表于 2021-8-17 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52406716&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-8-17 18:06</a>
+hololive现在已经用到网络画师圈最顶流了，明年新人爹妈配置要再上一层楼是不是能用几个动画/漫画圈子的人 ...</blockquote>
+严格来说wada现在级别早不止是网络画师了，不过要说动画大手的话其实老早实现了指35初版人设
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

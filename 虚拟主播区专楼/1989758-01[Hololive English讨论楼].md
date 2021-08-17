@@ -20170,3 +20170,25 @@ Kiara bullying her kohai already
 
 
                                                  
+
+*****
+
+####  空集  
+##### 1291#       发表于 2021-8-17 19:24
+
+
+卧槽 醒来一看死神通宵了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  wiig  
+##### 1292#       发表于 2021-8-17 21:21
+
+
+<img src="https://p.sda1.dev/2/86961762319054f7a6d0a817d9928b63/IMG_CMP_141812193.jpeg" referrerpolicy="no-referrer">
+
+
+                                                 

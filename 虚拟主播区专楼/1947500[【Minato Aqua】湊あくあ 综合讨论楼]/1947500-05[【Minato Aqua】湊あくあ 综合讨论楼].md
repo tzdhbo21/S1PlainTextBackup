@@ -9694,3 +9694,54 @@ APEX成为了ARK 大乱斗之后第三个因为トラウマ被彻底封印的游
 
 
                                                  
+
+*****
+
+####  面具13  
+##### 6791#       发表于 2021-8-17 19:34
+
+
+MC极限生存好评，下矿洞和下界基本上可以当恐怖游戏看。不管是看到一命通关还是能看到夸宝痛哭都挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">应该不会走怂逼种田流吧
+
+
+*****
+
+####  梅斯之围  
+##### 6792#       发表于 2021-8-17 19:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也算是mc老玩家，不至于下个洞穴还被吓到吧，我看她玩这个一直蛮莽的
+
+
+*****
+
+####  面具13  
+##### 6793#       发表于 2021-8-17 20:11
+
+
+毕竟怪物伤害高，莽一莽，一只洞穴蜘蛛+小白，存档就无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpy393  
+##### 6794#       发表于 2021-8-17 21:05
+
+
+极限要能一条命玩到月底是挺有趣的
+
+
+*****
+
+####  面具13  
+##### 6795#       发表于 2021-8-17 21:08
+
+
+ 本帖最后由 面具13 于 2021-8-17 21:11 编辑 
+
+akukin传说，今晚会完结吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么鸟帧率看得人头晕，调低视距好了
+
+
+                                                 

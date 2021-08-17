@@ -210,3 +210,64 @@ kmr是不是现在不管gbf了
 
 
                                                 
+
+*****
+
+####  v22325  
+##### 82518#       发表于 2021-8-17 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52401189&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-17 10:18</a>
+
+果然有偿的石头是有灵魂的吗。前情提要，男圆桌up把老崔补满了，奥伯龙3宝，大猩猩还差1宝，打算等到单up抽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看好多日本人也说有偿1石单抽出率好高 
+
+
+*****
+
+####  alucardcz  
+##### 82519#       发表于 2021-8-17 20:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52405074&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-17 15:47</a>
+
+真的是活得久了什么都能看到，我竟然在推上看到有人拿废狗这次送自选5星去嘲隔壁肝报废的彩票
+
+
+----发送自  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看看 gbf这不是跪了 说明这波肝报废是真的菜
+
+
+*****
+
+####  exiaexa  
+##### 82520#       发表于 2021-8-17 21:13
+
+
+别提GBF了
+
+我已经快被KMR和四个字母笑死了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82521#       发表于 2021-8-17 21:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天会有事发生吗  不会真靠这个减半混2个星期吧
+
+
+*****
+
+####  eyeego  
+##### 82522#       发表于 2021-8-17 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52408266&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-17 20:37</a>
+你看看 gbf这不是跪了 说明这波肝报废是真的菜</blockquote>
+别闹 这只会激起更大的不满好吧 大家想要的是公平 公平 还是他妈的公平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -11654,3 +11654,41 @@ Hello, Again ～昔からある場所～是以前的老歌吧，还有Blue Moon�
 
 
                                                  
+
+*****
+
+####  crosz  
+##### 2354#       发表于 2021-8-17 20:22
+
+
+不知道今晚港服临时工加班不<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laoz  
+##### 2355#       发表于 2021-8-17 20:57
+
+
+新西兰出了
+
+<img src="https://img.saraba1st.com/forum/202108/17/205629ia3sbdv5g59pvaxg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (39.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 20:56 上传
+
+
+*****
+
+####  reficul  
+##### 2356#       发表于 2021-8-17 21:27
+
+
+有PS4和PS5版的对比吗
+
+
+                                                 
