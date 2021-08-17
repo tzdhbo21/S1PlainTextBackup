@@ -12706,3 +12706,16 @@ xss玩儿完感觉不错，通完一次后可以改简单难度快速用另外�
 
 
                                                  
+
+*****
+
+####  蓝雉  
+##### 2441#       发表于 2021-8-18 06:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410980&amp;ptid=1860328" target="_blank">向上君 发表于 2021-8-18 03:46</a>
+xss玩儿完感觉不错，通完一次后可以改简单难度快速用另外两组角色各打一次，看全三个片子。直接跑任务打bos ...</blockquote>
+试玩版是单独做的，所以没配音
+
+
+                                                 
