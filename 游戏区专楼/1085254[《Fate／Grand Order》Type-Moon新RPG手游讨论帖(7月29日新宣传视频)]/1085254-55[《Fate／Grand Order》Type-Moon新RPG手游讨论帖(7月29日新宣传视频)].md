@@ -19567,3 +19567,28 @@ pcr不也有日常！</blockquote>
 
 
                                                  
+
+*****
+
+####  yzj134100  
+##### 82491#       发表于 2021-8-17 10:55
+
+
+图鉴党表示这游戏的副本就没有难到没多宝就打不过的时候
+
+
+抽一只就能开图鉴听语音看动画不知道多爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 82492#       发表于 2021-8-17 11:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52399626&amp;ptid=1085254" target="_blank">holyblood 发表于 2021-8-17 06:34</a>
+泳装没有常驻吧</blockquote>
+所以我说了，脑抽了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

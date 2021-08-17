@@ -1966,3 +1966,67 @@ Hololive看来已经和fgo联动打下坚实基础了，和手游届第一IP联�
 
 
                                                 
+
+*****
+
+####  aptx318  
+##### 6154#       发表于 2021-8-17 10:39
+
+
+废狗别说手游第一，二游第一现在都坐不住了吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">内有马娘外有原神
+
+
+*****
+
+####  空集  
+##### 6155#       发表于 2021-8-17 10:39
+
+
+左右两个反而画师没啥太可说的，中间三还是个大手个人风格和画皮平衡的问题 目前最好一档是ina ollie wada这次也不错了  ，pikazo没到预期pako拉了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cckuku  
+##### 6156#       发表于 2021-8-17 10:53
+
+
+ 本帖最后由 cckuku 于 2021-8-17 10:58 编辑 
+
+啊，wada还给holo画了皮吗？
+
+pikazo个人风格太强烈了，看得很不适<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+原来这个蓝毛是wada画的？看小图真看不出来<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  与天争锋_LZ  
+##### 6157#       发表于 2021-8-17 11:06
+
+
+从左至右1自然2空间3秩序4时间5文明？
+
+
+*****
+
+####  心垂万刃  
+##### 6158#       发表于 2021-8-17 11:10
+
+
+3是混沌<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Porsche  
+##### 6159#       发表于 2021-8-17 11:25
+
+
+pikazo这是把流产的月下七子搞试管生这了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -548,3 +548,83 @@ Evangelion.3.0 1.01.Thrice.Upon.a.Time.2021.中文字幕.WEBrip.AAC.1080p.x264-V
 
 
                                                  
+
+*****
+
+####  GreenBird  
+##### 1526#       发表于 2021-8-17 10:41
+
+
+希望以后有工作组再弄个 3.1 3.2 以及 4.1 4.2.
+
+平行宇宙，生生不息。
+
+
+*****
+
+####  XSK小龙王  
+##### 1527#       发表于 2021-8-17 10:58
+
+
+ 本帖最后由 XSK小龙王 于 2021-8-17 11:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52401149&amp;ptid=2013091" target="_blank">何でやねん 发表于 2021-8-17 10:15</a>
+
+说起来，明日香捧着玩的那个游戏机玩的是啥游戏有谁看明白了吗</blockquote>
+[https://weibo.com/ttarticle/p/show?id=2309404669825707278683](https://weibo.com/ttarticle/p/show?id=2309404669825707278683)
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/110150hhfjyrhjhbrssn6s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>53849795ly1gtfd4h89yqj20wi0duwfi.jpg</strong> (57.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 11:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/105808tp6dqhinr7d2kdwb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210817105708.JPG</strong> (66.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 10:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/17/110025f222gcp3x03cc1cj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210817105944.JPG</strong> (90.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-17 11:00 上传
+
+
+*****
+
+####  cckuku  
+##### 1528#       发表于 2021-8-17 11:13
+
+
+痞子是不是神经病啊，不是都和自己和解了？结果又跳出来说14年的事？准备到时候特摄拍的不满意回过头来又让eva观众感受你的痛苦？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blood_iron  
+##### 1529#       发表于 2021-8-17 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52397414&amp;ptid=2013091" target="_blank">污陨血红 发表于 2021-8-16 22:05</a>
+
+那我要看破的瓜田废案，这个老刺激了</blockquote>
+开2号机也好，第一次把初吻给真嗣也好......
+
+
+痞子对这明日香有什么仇什么怨？
+
+
+                                                 
