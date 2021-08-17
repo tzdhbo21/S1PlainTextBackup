@@ -19592,3 +19592,76 @@ pcr不也有日常！</blockquote>
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 82493#       发表于 2021-8-17 14:42
+
+
+火星人刚发现，大C呆啥时候技能加了新的特效？我的C呆永远2破
+
+
+*****
+
+####  alucardcz  
+##### 82494#       发表于 2021-8-17 14:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52404396&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-17 14:42</a>
+
+火星人刚发现，大C呆啥时候技能加了新的特效？我的C呆永远2破</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">技能名字都变了  语音也加了
+
+
+*****
+
+####  areklose  
+##### 82495#       发表于 2021-8-17 15:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">快开活动，我真的很缺结晶
+
+
+*****
+
+####  qixinno2  
+##### 82496#       发表于 2021-8-17 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52404396&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-17 14:42</a>
+
+火星人刚发现，大C呆啥时候技能加了新的特效？我的C呆永远2破</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通关2.6改的 技能名字特效改了 甚至还额外加了一个被动
+
+
+*****
+
+####  FrozenA  
+##### 82497#       发表于 2021-8-17 15:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">攒石一年满宝期待一下可以，确信能满那肯定对fgo卡池有误解
+
+
+*****
+
+####  zakki  
+##### 82498#       发表于 2021-8-17 15:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52404549&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-17 14:56</a>
+技能名字都变了  语音也加了</blockquote>
+技能名字和语音变了我倒是知道
+
+
+*****
+
+####  zakki  
+##### 82499#       发表于 2021-8-17 15:24
+
+
+话说C呆是不是人均2破，用了一年都没感觉用到过几次3破
+
+
+                                                 
