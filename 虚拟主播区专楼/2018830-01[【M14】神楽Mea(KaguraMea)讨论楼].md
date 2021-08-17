@@ -8809,3 +8809,178 @@ mikey这梗玩了这么久了也没意思了，能不能换个活
 
 
                                                 
+
+*****
+
+####  T_Hb  
+##### 812#       发表于 2021-8-17 15:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 813#       发表于 2021-8-17 15:42
+
+
+黑屏上播！黑屏上播！
+
+
+*****
+
+####  专业划水人员  
+##### 814#       发表于 2021-8-17 15:52
+
+
+不过气就没新衣服。快点过气
+
+
+*****
+
+####  T_Hb  
+##### 815#       发表于 2021-8-17 15:58
+
+
+早过气了，什么时候苔总办个过气v座谈会肯定有她<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 816#       发表于 2021-8-17 16:01
+
+
+别尬黑，真过气了还能有你麻的事？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 817#       发表于 2021-8-17 16:06
+
+
+快进到asmr嗯养噶吃圈钱<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 818#       发表于 2021-8-17 16:08
+
+
+ 本帖最后由 T_Hb 于 2021-8-17 16:09 编辑 
+
+感觉她姨化了会往苔总兔妈妈那个方向发展，不太可能往PTR那个方向去
+
+
+*****
+
+####  2014720  
+##### 819#       发表于 2021-8-17 16:30
+
+
+一条懒狗能成为兔妈妈苔姨那种奋斗逼你信吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大胆下注mtk路线不动摇
+
+
+*****
+
+####  时间在我手中  
+##### 820#       发表于 2021-8-17 16:35
+
+
+建议直接remake路线，早该下海为广大宅男贡献贡献了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 821#       发表于 2021-8-17 17:22
+
+
+姨化了也只是更懒，天天tc播一下，赚点饭钱小钢珠钱。艹了，怎么感觉有点像抠脚大汉的生活，你麻这生活。骗点钱，然后打小钢珠，没钱了在骗点
+
+
+*****
+
+####  呓亘  
+##### 822#       发表于 2021-8-17 18:27
+
+
+这人到底干啥去了……
+
+
+*****
+
+####  T_Hb  
+##### 823#       发表于 2021-8-17 18:33
+
+
+ 本帖最后由 T_Hb 于 2021-8-17 18:41 编辑 
+
+说是16 17 18有事，但也没说不播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cushaw  
+##### 824#       发表于 2021-8-17 18:48
+
+
+千里送__<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  往世雷书  
+##### 825#       发表于 2021-8-17 18:49
+
+
+她可以因为一百种理由哭，但绝对没有的一种就是因为人气低哭。
+之前我也说了，庄司是那种想做的事被劝阻可能会收敛一下，不想做的事你给她跪下或拿刀杀她她都不干的人。要是有人气或钱原因无法继续就不再继续，她2018年就消失了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  掉头学姐  
+##### 826#       发表于 2021-8-17 18:53
+
+
+2018年还不是坦克死宅
+
+
+*****
+
+####  时间在我手中  
+##### 827#       发表于 2021-8-17 18:54
+
+
+虽然但是，她姑且还是说过2018那会儿再继续几个月可能就彻底人没了的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clvan_  
+##### 828#       发表于 2021-8-17 19:01
+
+
+你麻18年人没了估计也会社畜之后抽空玩直播，这人给我感觉纯粹喜欢直播聊天（
+
+
+*****
+
+####  makourisu-2  
+##### 829#       发表于 2021-8-17 19:11
+
+
+毕竟这女人还是初中生时就有本事开直播聊天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但与其担心人气下降没钱挣，更担心她这个本质现充的女人整天宅家的状态会不会把自己憋出病导致失去直播热情
+
+
+                                                 

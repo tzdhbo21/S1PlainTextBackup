@@ -2217,3 +2217,72 @@ mika小女儿挺喜欢的，pako这设计稍微有点get不到，但5期和en1�
 
 
                                                  
+
+*****
+
+####  IDIDIDID  
+##### 6178#       发表于 2021-8-17 16:03
+
+
+动起来比立绘好看十倍时怎么回事
+
+
+*****
+
+####  noHentai  
+##### 6179#       发表于 2021-8-17 16:49
+
+
+初动5,097，比我预想的高不少……
+
+
+*****
+
+####  Suny08  
+##### 6180#       发表于 2021-8-17 17:46
+
+
+月之新砖么？唱歌进步了确实值得这成绩
+
+
+
+
+*****
+
+####  IDIDIDID  
+##### 6181#       发表于 2021-8-17 18:06
+
+
+hololive现在已经用到网络画师圈最顶流了，明年新人爹妈配置要再上一层楼是不是能用几个动画/漫画圈子的人设大手啊。
+
+
+*****
+
+####  tankai  
+##### 6182#       发表于 2021-8-17 18:12
+
+
+都这么贴FATE了，干脆跪请武内画一个。
+
+
+*****
+
+####  tankai  
+##### 6183#       发表于 2021-8-17 18:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52404660&amp;ptid=1972669" target="_blank">free 发表于 2021-8-17 15:08</a>
+这几个我是觉得左中右三个还行，左二黑皮头顶的是蚊香吗，太怪了，右二仔细一看腿太长腰太细比例有点怪，而 ...</blockquote>
+嘣不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 6184#       发表于 2021-8-17 19:18
+
+
+星川这b站评论区，马后炮来说原动态还不如不删<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+                                                

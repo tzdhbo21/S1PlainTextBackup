@@ -7128,3 +7128,18 @@ image.png
 
 
                                                  
+
+*****
+
+####  dragrass  
+##### 2018#       发表于 2021-8-17 18:09
+
+
+话说之后粉主不是定数了
+
+是不是每年可以猜leader 啥颜色了
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 
