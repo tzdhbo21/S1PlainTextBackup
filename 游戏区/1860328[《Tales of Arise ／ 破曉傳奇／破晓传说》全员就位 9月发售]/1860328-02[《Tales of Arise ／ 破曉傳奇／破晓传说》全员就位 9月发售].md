@@ -11510,3 +11510,55 @@ https://youtu.be/6qtXq35MW_o
 
 
                                                  
+
+*****
+
+####  qiyu1234  
+##### 2341#       发表于 2021-8-17 11:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52401898&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-17 11:14</a>
+
+其实现在就有人在玩，可能是提前放出来给特定用户的，我看了一小时了
+
+https://youtu.be/6qtXq35MW_o ...</blockquote>
+试玩里提供的角色强度有点高啊，跟正式游戏里第一章的刮痧完全不一样
+
+不过作为吸引玩家购买的试玩版来说，很合适
+
+
+*****
+
+####  LT_Harry  
+##### 2342#         楼主| 发表于 2021-8-17 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52402459&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-17 11:52</a>
+试玩里提供的角色强度有点高啊，跟正式游戏里第一章的刮痧完全不一样
+
+不过作为吸引玩家购买的试玩版来说 ...</blockquote>
+这位 youtuber 大部分视频都是 tales 相关的，他暂时也不太会玩试玩版，有很多情况判断都有失误。试玩版没有直接提示怎样释放秘奥义。
+
+
+*****
+
+####  qiyu1234  
+##### 2343#       发表于 2021-8-17 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52402500&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-17 11:55</a>
+
+这位 youtuber 大部分视频都是 tales 相关的，他暂时也不太会玩试玩版，有很多情况判断都有失误。试玩版 ...</blockquote>
+好吧，我以为是他没有在OVL中释放秘奥义，不过AI都能放出来，应该也不是卡教程的情况
+
+
+*****
+
+####  hkguty  
+##### 2344#       发表于 2021-8-17 12:34
+
+
+TOA这感情戏感觉写得会比XB2好
+
+
+                                                 

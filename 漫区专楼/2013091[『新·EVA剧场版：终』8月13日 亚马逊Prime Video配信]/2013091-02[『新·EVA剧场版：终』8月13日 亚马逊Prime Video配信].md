@@ -628,3 +628,33 @@ Evangelion.3.0 1.01.Thrice.Upon.a.Time.2021.中文字幕.WEBrip.AAC.1080p.x264-V
 
 
                                                  
+
+*****
+
+####  旺角卡门  
+##### 1530#       发表于 2021-8-17 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52391315&amp;ptid=2013091" target="_blank">晓寒 发表于 2021-8-16 14:20</a>
+
+为什么前三部序破Q都是《福音战士新剧场版》
+
+到了终变成了《新·福音战士剧场版》 ...</blockquote>
+为了和新哥斯拉，新奥特曼，新假面骑士组成四位一体庵野shin宇宙
+
+
+
+
+*****
+
+####  moekyo  
+##### 1531#       发表于 2021-8-17 12:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52401875&amp;ptid=2013091" target="_blank">cckuku 发表于 2021-8-17 11:13</a>
+
+痞子是不是神经病啊，不是都和自己和解了？结果又跳出来说14年的事？准备到时候特摄拍的不满意回过头来又让 ...</blockquote>
+“合格的老大就得考虑底下的人吃饭问题”（指正）
+
+
+                                                

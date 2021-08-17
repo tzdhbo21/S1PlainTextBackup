@@ -2030,3 +2030,41 @@ pikazo这是把流产的月下七子搞试管生这了是吧<img src="https://st
 
 
                                                  
+
+*****
+
+####  OldGlory  
+##### 6160#       发表于 2021-8-17 11:39
+
+
+虹味浓厚
+
+
+*****
+
+####  rzrbtk  
+##### 6161#       发表于 2021-8-17 12:22
+
+
+holo出fgo联动，郡道直播抽卡，200发都抽不到当场转an怒骂，然后被炎上
+
+
+*****
+
+####  死体残留  
+##### 6162#       发表于 2021-8-17 12:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">黑皮以外的还行
+
+
+*****
+
+####  qq845629713  
+##### 6163#       发表于 2021-8-17 12:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 才发现中间那位的fan标志也是骰子，和king重复了还行
+
+
+                                                 
