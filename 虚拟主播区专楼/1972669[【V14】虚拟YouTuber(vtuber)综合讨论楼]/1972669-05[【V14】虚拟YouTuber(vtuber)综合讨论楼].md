@@ -2878,3 +2878,73 @@ roha下周回国
 
 
                                                  
+
+*****
+
+####  winsloven  
+##### 6231#       发表于 2021-8-18 12:41
+
+
+杏EN新５神，频道刚建立一天就都银盾了（黑皮妹还差一点）
+
+啊这
+
+
+*****
+
+####  渡鸦骑士  
+##### 6232#       发表于 2021-8-18 13:06
+
+
+irys的高速增长持续到了50w<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  心垂万刃  
+##### 6233#       发表于 2021-8-18 13:19
+
+
+首播之前应该没有irys的增速了，irys是木口时隔半年才出的新人（不算ID的话是大半年），期待度拉满，而且七月出道刚好恰了一波龙落<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 6234#       发表于 2021-8-18 13:35
+
+
+按世怜女的成绩来说以后也没人会搞统一风格了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adcdqre  
+##### 6235#       发表于 2021-8-18 13:43
+
+
+ 本帖最后由 adcdqre 于 2021-8-18 13:44 编辑 
+
+烂铁这波可以
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/134413l4dd3gf4nw3wfm02.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210817-223235_Global.jpg</strong> (494.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 13:44 上传
+
+
+*****
+
+####  rzrbtk  
+##### 6236#       发表于 2021-8-18 14:21
+
+
+昨天琥珀来了个一周年纪念回（迟了一周），聊了喜欢的音乐漫画棒球队游戏，就是没聊一周年相关，开开心心聊完就走了。中间提了一下翡翠ngo经常催她直播，但听着完全没有歉意。而且一想到今天下午要和ngo联动，很难不觉得她昨天播只是为了安抚一下饭心…怎么这么my pace啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">。
+
+
+                                                 

@@ -941,3 +941,67 @@ i love you more than you ever know 这句话是谁给谁说的啊，唯对真嗣
 
 
                                                  
+
+*****
+
+####  bartholo4  
+##### 1555#       发表于 2021-8-18 13:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52411476&amp;ptid=2013091" target="_blank">1096beam 发表于 2021-8-18 08:27</a>
+后知后觉大白丽不应该出现啊，又不是丽主导补完的
+
+哪怕出现也应该是长发大白丽或者是碇唯什么的 ...</blockquote>
+有说法幻想eva是最初轮回时在外太空漂流的初号机
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  伊可费斯  
+##### 1556#       发表于 2021-8-18 13:15
+
+
+真是eva么，这都快一星期了还没字幕
+
+
+*****
+
+####  evatrix  
+##### 1557#       发表于 2021-8-18 13:24
+
+
+<blockquote>mcq_2 发表于 2021-8-18 10:32
+我觉得eva比较合理的结局是：老爸玩脱了，老妈救了老爸，真嗣拯救了世界，大家拯救了真嗣。老爸活下来去赎 ...</blockquote>
+明显应该嘴炮老爹后和seele打，然后送走其他人。旧剧场唯一没讲的就是司令了，其他人的剧情和性格发展都很完整，突出父子的剧情而弱化其他人在新剧场版的剧情是可以理解的。我的感觉还是q太烂了，终勉强圆回来后已经没时间再推进了
+
+
+*****
+
+####  quadrozeke  
+##### 1558#       发表于 2021-8-18 13:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415157&amp;ptid=2013091" target="_blank">evatrix 发表于 2021-8-18 13:24</a>
+
+明显应该嘴炮老爹后和seele打，然后送走其他人。旧剧场唯一没讲的就是司令了，其他人的剧情和性格发展都 ...</blockquote>
+Q其实也是被框架束缚得很死的，就围绕懵比感展开这点算冒个险。开篇肯定是调动气氛战斗，然后要尽快把热血真嗣送进懵比自闭状态，然后要让基佬来拯救他，TV半集建立感情，剧场版1/4部总得有吧，背景交代只能见缝插针了，后面该干嘛干嘛，不管怎么编都得塞一段爆头一段战斗进去。
+
+
+所以非得整这个懵比感到底有啥用呢。也不是说塑造得不好，大家确实都懵了，但何必呢……
+
+
+*****
+
+####  evatrix  
+##### 1559#       发表于 2021-8-18 14:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415368&amp;ptid=2013091" target="_blank">quadrozeke 发表于 2021-8-18 13:45</a>
+
+Q其实也是被框架束缚得很死的，就围绕懵比感展开这点算冒个险。开篇肯定是调动气氛战斗，然后要尽快把热 ...</blockquote>
+那段时间据说庵野精神出问题抑郁了，所以也许这种懵逼感确实是庵野内心的真实投影吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

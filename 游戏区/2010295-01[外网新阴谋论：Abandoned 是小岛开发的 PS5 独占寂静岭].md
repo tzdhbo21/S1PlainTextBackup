@@ -10296,3 +10296,66 @@ Hasan接受英国媒体New Musical Express（NME） ...</blockquote>
 
 
                                                  
+
+*****
+
+####  zris  
+##### 814#       发表于 2021-8-18 12:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道说啥好
+
+
+*****
+
+####  luoyianwu  
+##### 815#       发表于 2021-8-18 13:03
+
+
+[https://twitter.com/hasanekahraman/status/1427700619624714241](https://twitter.com/hasanekahraman/status/1427700619624714241)
+Hasan感谢网友转发的土耳其烤肉动图
+
+
+*****
+
+####  谢俊豪  
+##### 816#       发表于 2021-8-18 13:59
+
+
+[https://bbs.a9vg.com/thread-8757823-1-1.html](https://bbs.a9vg.com/thread-8757823-1-1.html)
+
+昨日abandoned主创Hasan Kahraman在接受英国NME.com采访中对abanoned的面目作了彻底的澄清，要点如下：
+
+
+1. 既非寂静岭，也非合金装备, 就真的只是Bluebox game这个独立工作室的一款新ip.
+
+2. 背景图里的独眼不是Solid S n a k e, 而是abandoned里的一个反派。
+
+3. 类型是生存射击，略带恐怖元素，连恐怖游戏都算不上。
+
+4. 本来想做成开放世界，但来想追求高画质，改成了线性叙事。
+
+5. Hasan认为游戏最大的卖点是全新的探索机制，但这方面还没有准备好向外界公开。
+
+6. Realtime Experience已经成为了工作室的一个痛点，12号那一晚最后变成了灾难。至于为什么补丁发放后，只公开了之前已透露的5秒teaser, Hasan的解释是他当时认为最重要的是先上补丁，让trailer app能正常运行起来。
+
+7. 后续cinematic trailer将很快公开。
+
+8. 关于工作室以前“发布劣迹”的言论在网络上发散后， 工作室全体都很沮丧， abandoned开发的相关人员甚至都不愿意向外界透露自己正在参与本项目，Hasan本人现在也陷入了神经衰弱。
+
+
+*****
+
+####  westgun  
+##### 817#       发表于 2021-8-18 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415497&amp;ptid=2010295" target="_blank">谢俊豪 发表于 2021-8-18 13:59</a>
+
+https://bbs.a9vg.com/thread-8757823-1-1.html
+
+昨日abandoned主创Hasan Kahraman在接受英国NME.com采访中 ...</blockquote>
+活j8该，这种司马制作人
+
+
+                                                 

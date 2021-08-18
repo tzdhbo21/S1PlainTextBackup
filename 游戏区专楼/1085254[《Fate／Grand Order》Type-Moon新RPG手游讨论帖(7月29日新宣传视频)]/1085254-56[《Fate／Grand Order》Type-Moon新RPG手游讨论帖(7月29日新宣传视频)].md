@@ -515,3 +515,106 @@ kmr是不是现在不管gbf了
 
 
                                                  
+
+*****
+
+####  芭德薇  
+##### 82543#       发表于 2021-8-18 12:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52414064&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-18 11:53</a>
+
+赶紧冷静一下看看你其实是不是妹抽到妖兰</blockquote>
+没拿到也能打的
+
+
+*****
+
+####  alucardcz  
+##### 82544#       发表于 2021-8-18 13:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该开盘了  5点有没有事发生
+
+
+*****
+
+####  zakki  
+##### 82545#       发表于 2021-8-18 13:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415259&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 13:34</a>
+
+该开盘了  5点有没有事发生</blockquote>
+50%无事发生，35%开个幕间或者dl，15%事件簿复刻。年初的剪影就剩那个酷似梅尔文的人了
+
+
+*****
+
+####  LOLITA  
+##### 82546#       发表于 2021-8-18 13:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415259&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 13:34</a>
+
+该开盘了  5点有没有事发生</blockquote>
+新人推荐召唤，入坑一周内的号才能抽，7天每天妇科不同的拐+仇凛摩根狂娜之流<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82547#       发表于 2021-8-18 13:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415459&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-18 13:55</a>
+
+新人推荐召唤，入坑一周内的号才能抽，7天每天妇科不同的拐+仇凛摩根狂娜之流 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这根本不可能的 正经点奶!
+
+
+*****
+
+####  areklose  
+##### 82548#       发表于 2021-8-18 14:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415478&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 13:57</a>
+
+你这根本不可能的 正经点奶!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">事件簿和邪马台姑且不说。我奶一个伊利亚活动复刻或者二期。配合上映
+
+
+*****
+
+####  LOLITA  
+##### 82549#       发表于 2021-8-18 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415478&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 13:57</a>
+
+你这根本不可能的 正经点奶!</blockquote>
+那就2X00DL活动摩根妖兰最速妇科<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82550#       发表于 2021-8-18 14:27
+
+
+ 本帖最后由 zakki 于 2021-8-18 14:30 编辑 
+
+刚清free凑了3个石头，竟然又出一个奥伯龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 82551#       发表于 2021-8-18 14:33
+
+
+包涵泳装的单体攻击宝具推荐召唤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
