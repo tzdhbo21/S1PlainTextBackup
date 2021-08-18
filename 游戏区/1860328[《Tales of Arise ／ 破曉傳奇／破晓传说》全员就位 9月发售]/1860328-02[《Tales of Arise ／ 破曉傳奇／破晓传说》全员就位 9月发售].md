@@ -14574,3 +14574,117 @@ boss怪怎么才能击飞呀
 
 
                                                 
+
+*****
+
+####  zqqwe  
+##### 2598#       发表于 2021-8-19 00:58
+
+
+搞不太懂作战的优先级，血线低于75%就远离和进行回复这两个老是不生效，红血了还上去莽
+
+
+*****
+
+####  qiyu1234  
+##### 2599#       发表于 2021-8-19 01:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423302&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-19 00:58</a>
+
+搞不太懂作战的优先级，血线低于75%就远离和进行回复这两个老是不生效，红血了还上去莽 ...</blockquote>
+你把队友的技能全部关掉试试 （不过有可能会变成冲上去平A）
+
+
+*****
+
+####  听风不是雨  
+##### 2600#       发表于 2021-8-19 01:38
+
+
+<blockquote>black 发表于 2021-8-19 00:23
+顺带一提好像说明里没有，试玩版单人秘奥义也是有的，使用方法是ovl状态下长按住任意两个招术。然后隐藏BOS ...</blockquote>
+我第一遍玩没凑齐出了，第二遍玩凑齐了没出
+
+
+*****
+
+####  红魔馆的糖  
+##### 2601#       发表于 2021-8-19 01:40
+
+
+队友一到敌人狂暴就团灭这点比较恶心，因为这是玩家无法控制的，只能消耗资源把他们救起来<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+对仓鼠玩家来说比较痛苦
+
+
+*****
+
+####  RushMove  
+##### 2602#       发表于 2021-8-19 01:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422519&amp;ptid=1860328" target="_blank">泉美 发表于 2021-8-18 23:24</a>
+
+可以可以，出乎意料啊。
+
+玩起来比看PV强多了
+
+两个主机版本玩了一下图像模式逛大地图帧数波动都不小 ...</blockquote>
+两个手柄的差距大吗？
+
+假如pc的画面能做到ps5画质模式稳定60帧的水平，你会选pc还是ps5?
+
+
+*****
+
+####  kangkangsama  
+##### 2603#       发表于 2021-8-19 01:52
+
+
+原野上的キサラ的屁股太可怕太直球了，需要换装让人能冷静地玩。      系列不同招式的性能优劣一般是怎么判断的啊
+
+
+*****
+
+####  LT_Harry  
+##### 2604#         楼主| 发表于 2021-8-19 02:09
+
+
+本次体验版，重要的研究对象之一是琳薇尔——她的术可以组合，使用一些暂时在术技列表里未出现的术技。目前已知的上级攻击术有一个 Shooting Star，靠 Freeze Lancer 和 Holy Lance 组合出来。
+
+
+*****
+
+####  focus  
+##### 2605#       发表于 2021-8-19 02:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422648&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-8-18 23:35</a>
+
+boss怪怎么才能击飞呀</blockquote>
+跟杂兵一样的，打出break后
+
+
+*****
+
+####  clstc  
+##### 2606#       发表于 2021-8-19 02:30
+
+
+这次战斗改的确实爽，技术配合ba快速处决敌人，感觉是togf之后最爽的一作了。
+
+
+*****
+
+####  LT_Harry  
+##### 2607#         楼主| 发表于 2021-8-19 02:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423700&amp;ptid=1860328" target="_blank">clstc 发表于 2021-8-19 02:30</a>
+
+这次战斗改的确实爽，技术配合ba快速处决敌人，感觉是togf之后最爽的一作了。 ...</blockquote>
+现在体验版各人物的技能是黑箱，不知道各自已经会了甚么被动技能，有一些能力明显是没有的，例如空中闪避（正式版会有），然后只有奥尔芬可以进入极限突破模式。不过进入正式版换用帧率又高又稳的平台操作感应该还能再上一层楼，现在在 PS4 上玩偶尔有输入指令消失的情况，可能是因为帧率不稳定。
+
+
+                                                 
