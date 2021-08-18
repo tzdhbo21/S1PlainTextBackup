@@ -2755,3 +2755,58 @@ meari倒是有一定群众基础（
 
 
                                                  
+
+*****
+
+####  patema  
+##### 6220#       发表于 2021-8-18 09:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  真飞鸟i  
+##### 6221#       发表于 2021-8-18 09:38
+
+
+ 本帖最后由 真飞鸟i 于 2021-8-18 09:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太统一就没辨识度了，另外立绘和动起来也还是有点差距，比如irys立绘就丑动起来更丑，而en二期这个黑妹立绘看着很丑，但是推特上发的小视频还不错，闭上眼睛很可爱。
+
+
+*****
+
+####  丿焰丶  
+##### 6222#       发表于 2021-8-18 09:49
+
+
+杏就没有一期是统一画风的，这属于是杏的传统了，画风不同，也不影响unit啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 6223#       发表于 2021-8-18 10:17
+
+
+roha下周回国
+
+
+*****
+
+####  patema  
+##### 6224#       发表于 2021-8-18 10:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412132&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2021-8-18 09:38</a>
+太统一就没辨识度了，另外立绘和动起来也还是有点差距，比如irys立绘就丑动起来更丑，而en二期这个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都怀疑holo是不是直接把俩字直接甩给画手，设定啥都没给，到时候随便再搓
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

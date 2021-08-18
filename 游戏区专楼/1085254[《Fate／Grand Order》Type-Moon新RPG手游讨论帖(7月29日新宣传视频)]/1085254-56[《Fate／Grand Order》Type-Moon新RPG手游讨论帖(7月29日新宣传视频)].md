@@ -394,3 +394,73 @@ kmr是不是现在不管gbf了
 
 
                                                  
+
+*****
+
+####  千叶铁矢  
+##### 82534#       发表于 2021-8-18 09:45
+
+
+卧
+
+槽
+
+
+妖兰灵衣是限时活动！我那时被没收手机进厂了，没！打！<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 82535#       发表于 2021-8-18 10:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412202&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-18 09:45</a>
+
+卧
+
+
+槽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">我看wiki上说打完尾声就开放啊 没看到说限时的 你是不是打过了 打一次就能拿三个阶段的了 
+
+
+*****
+
+####  シャル  
+##### 82536#       发表于 2021-8-18 10:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412202&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-18 09:45</a>
+
+卧
+
+
+槽</blockquote>
+哈哈，仙鹤这里没有的
+
+
+*****
+
+####  qixinno2  
+##### 82537#       发表于 2021-8-18 10:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会吧 去2.6看看 要是真的就太弱智了
+
+
+*****
+
+####  zakki  
+##### 82538#       发表于 2021-8-18 10:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412202&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-18 09:45</a>
+
+卧
+
+
+槽</blockquote>
+并不是，我还没打，也还在
+
+
+                                                 

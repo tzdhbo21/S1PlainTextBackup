@@ -5857,3 +5857,20 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 
 
                                                  
+
+*****
+
+####  pansherry  
+##### 419#       发表于 2021-8-18 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410954&amp;ptid=2009419" target="_blank">烈之斩 发表于 2021-8-18 03:33</a>
+
+日常打分高低奖励区别是不是不大？随便对比了下中间那个，S和S+1就错一千多黄钻
+
+
+如果不大以后就懒得配卡了 ...</blockquote>
+就差中间那点，基本可以忽略不计
+
+
+                                                 

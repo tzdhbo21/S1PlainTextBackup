@@ -12861,3 +12861,126 @@ PS5上性能表现简直就是灾难
 
 
                                                  
+
+*****
+
+####  orcher1945  
+##### 2454#       发表于 2021-8-18 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52411193&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-8-18 07:19</a>
+
+一直就是4版基础开发，疫情原因，延续发售，这个期间5出来了，那就顺便上5，如果没疫情，都没5什么事 ...</blockquote>
+希望能在正式版发售时优化一下吧……
+
+
+*****
+
+####  光与暗的转生  
+##### 2455#       发表于 2021-8-18 09:33
+
+
+希农的武器在哪里啊其他五个人的都找到了
+
+
+*****
+
+####  axl133  
+##### 2456#       发表于 2021-8-18 09:58
+
+
+玩了ps5和xsx两版，除了大招时有点掉帧，其他时候还是挺稳的。hit stop相较之前稍微有点点长，卡肉感也更明显。可能放大招也不掉帧的体验，在PC版上可以得到。画面这块，65寸电视在正常距离，以试玩版的场景来说没看出太大区别
+
+
+*****
+
+####  猫将军  
+##### 2457#       发表于 2021-8-18 10:05
+
+
+这魔神剑打出去回馈怎么跟没有一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  司马千晶  
+##### 2458#       发表于 2021-8-18 10:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412438&amp;ptid=1860328" target="_blank">猫将军 发表于 2021-8-18 10:05</a>
+
+这魔神剑打出去回馈怎么跟没有一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">就是没有，我非常不舍的把这玩意摘了出去··
+
+
+*****
+
+####  iqbsh38  
+##### 2459#       发表于 2021-8-18 10:11
+
+
+评测下PS4版？
+
+
+*****
+
+####  hotsmile  
+##### 2460#       发表于 2021-8-18 10:14
+
+
+你们能下PS5版的DEMO？我只能下PS4的，PS5版本会显示出了些问题
+
+
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 2461#       发表于 2021-8-18 10:15
+
+
+刚打了几个敌人，连的挺爽
+
+但还是没太习惯用R1起手，有时候激动了瞎几把按就打死敌人之后对着空地爪龙连牙斩了……
+
+还有感觉不太到被打，虽说打得爽，打完之后发现咦我居然半血了？？？<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  司马千晶  
+##### 2462#       发表于 2021-8-18 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412570&amp;ptid=1860328" target="_blank">五星战世韩玉昆 发表于 2021-8-18 10:15</a>
+
+刚打了几个敌人，连的挺爽
+
+但还是没太习惯用R1起手，有时候激动了瞎几把按就打死敌人之后对着空地爪龙连牙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发动火剑自己掉血
+
+
+*****
+
+####  laoz  
+##### 2463#       发表于 2021-8-18 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412570&amp;ptid=1860328" target="_blank">五星战世韩玉昆 发表于 2021-8-18 10:15</a>
+
+刚打了几个敌人，连的挺爽
+
+但还是没太习惯用R1起手，有时候激动了瞎几把按就打死敌人之后对着空地爪龙连牙 ...</blockquote>
+你没被打，你只是用了火剑，火剑的技能会扣血
+
+
+*****
+
+####  ccow  
+##### 2464#       发表于 2021-8-18 10:31
+
+
+喷了啊，官方把CP全分好了吧。
+
+
+                                                

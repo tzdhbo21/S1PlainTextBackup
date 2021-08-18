@@ -814,3 +814,113 @@ i love you more than you ever know 这句话是谁给谁说的啊，唯对真嗣
 
 
                                                  
+
+*****
+
+####  kira1988  
+##### 1545#       发表于 2021-8-18 09:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">居然还没有新字幕，害我一直囤着没看
+
+
+*****
+
+####  mcq_2  
+##### 1546#       发表于 2021-8-18 09:47
+
+
+我知道终哪里最别扭了，主角态度转变太大了，突然就长大了十几岁的感觉，违和感太强了。
+
+
+*****
+
+####  mcq_2  
+##### 1547#       发表于 2021-8-18 09:48
+
+
+<blockquote>营业收入 发表于 2021-8-18 07:44
+痞子你行不行啊
+
+特摄片场这么快就没钱了？</blockquote>
+再来个27集tv版加两部剧场版吗
+
+
+*****
+
+####  ads147147  
+##### 1548#       发表于 2021-8-18 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412105&amp;ptid=2013091" target="_blank">kira1988 发表于 2021-8-18 09:36</a>
+
+居然还没有新字幕，害我一直囤着没看</blockquote>
+看到b站有人再弄个人字幕，洗手见天使应该也有弄，只是个人是不会那么快的。
+
+
+*****
+
+####  HMSWarspite  
+##### 1549#       发表于 2021-8-18 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412221&amp;ptid=2013091" target="_blank">mcq_2 发表于 2021-8-18 09:47</a>
+我知道终哪里最别扭了，主角态度转变太大了，突然就长大了十几岁的感觉，违和感太强了。 ...</blockquote>
+还瞬间学会了热血漫主角的胡逼嘴炮技能，惊不惊喜，意不意外。
+
+
+*****
+
+####  pkeva  
+##### 1550#       发表于 2021-8-18 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412611&amp;ptid=2013091" target="_blank">HMSWarspite 发表于 2021-8-18 10:18</a>
+
+还瞬间学会了热血漫主角的胡逼嘴炮技能，惊不惊喜，意不意外。</blockquote>
+其实真4自己嘴炮到不多，但是老糊涂司令配合的好，稍微提点一下就进入自我感动模式了。
+
+
+*****
+
+####  mcq_2  
+##### 1551#       发表于 2021-8-18 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412639&amp;ptid=2013091" target="_blank">pkeva 发表于 2021-8-18 10:20</a>
+
+其实真4自己嘴炮到不多，但是老糊涂司令配合的好，稍微提点一下就进入自我感动模式了。 ...</blockquote>
+老爸进了各各他体之后人设也变了，变成话痨了。喂，q里面的形象说扔就扔掉了？
+
+
+老爸tv版台词全加起来有终里面多么。
+
+
+*****
+
+####  pkeva  
+##### 1552#       发表于 2021-8-18 10:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412687&amp;ptid=2013091" target="_blank">mcq_2 发表于 2021-8-18 10:24</a>
+
+老爸进了各各他体之后人设也变了，变成话痨了。喂，q里面的形象说扔就扔掉了？
+
+
+老爸tv版台词全加起来有终 ...</blockquote>
+我甚至觉得痞子真的看过立木文彦配的长谷川泰三。很多说话的口吻都是MADAO式的。
+
+
+*****
+
+####  mcq_2  
+##### 1553#       发表于 2021-8-18 10:32
+
+
+我觉得eva比较合理的结局是：老爸玩脱了，老妈救了老爸，真嗣拯救了世界，大家拯救了真嗣。老爸活下来去赎罪。
+
+
+是不是太俗套了。
+
+
+                                                 
