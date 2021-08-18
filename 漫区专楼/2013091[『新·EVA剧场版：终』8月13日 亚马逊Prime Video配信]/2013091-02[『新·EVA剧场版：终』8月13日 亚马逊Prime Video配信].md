@@ -1274,3 +1274,33 @@ q之前的14年单独出作品不好安排小受戏份的话，
 
 
                                                  
+
+*****
+
+####  灯塔下  
+##### 1581#       发表于 2021-8-19 04:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423800&amp;ptid=2013091" target="_blank">laphire 发表于 2021-8-19 03:20</a>
+开始看eva新的剧场版
+序感觉就是shuang 片（对不起</blockquote>
+本来就是**，当初还有说痞子有拍商业片的潜质，没想到一语中的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Carta_Issue  
+##### 1582#       发表于 2021-8-19 06:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422946&amp;ptid=2013091" target="_blank">suhanblood 发表于 2021-8-19 00:08</a>
+
+老样子主角他妈啊，这自带的好感就是原型留下的吧</blockquote>
+你说啥？
+
+我意思是新剧场版的绫波丽已经跟莉莉丝没啥关系了
+
+
+                                                 

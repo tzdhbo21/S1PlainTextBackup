@@ -10443,3 +10443,15 @@ K社已经成为了一家巨魔公司了吗？<img src="https://static.saraba1st
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 826#       发表于 2021-8-19 06:24
+
+
+Abandoned Gameplay Reveal Is 'a Few Months' Away, But Trailer App Will Be Updated Sooner
+[https://www.ign.com/articles/aba ... ew-months-app-delay](https://www.ign.com/articles/abandoned-gameplay-trailer-few-months-app-delay)
+
+
+                                                 
