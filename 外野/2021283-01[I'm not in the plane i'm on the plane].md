@@ -767,3 +767,63 @@ CIA肯定知道真实情况，拜登被蒙着玩
 
 
                                                  
+
+*****
+
+####  lnfc0218  
+##### 68#       发表于 2021-8-18 08:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52404427&amp;ptid=2021283" target="_blank">l660018 发表于 2021-8-17 14:44</a>
+
+记得国内倒是有小孩扒起落架然后成功降落的，四五个孩子有人死有人活</blockquote>
+小时候《儿童文学》看过，两个离家出走的小孩结伴扒飞机，一个摔下去死了另一个活下来，不过鼓膜还是半规管出了问题，也不知道有没有后遗症
+
+
+*****
+
+####  魏柔  
+##### 69#       发表于 2021-8-18 08:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410746&amp;ptid=2021283" target="_blank">jctc 发表于 2021-8-18 01:48</a>
+做汉奸真难</blockquote>
+富奸必须死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sykeash  
+##### 70#       发表于 2021-8-18 09:01
+
+
+三体和其他好些作品写人类跑路一锅粥的场景，现实中人真就这样
+
+
+*****
+
+####  霧亥  
+##### 71#       发表于 2021-8-18 09:04
+
+
+漫威电影综合征
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  猫?魔铃  
+##### 72#       发表于 2021-8-18 09:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52402417&amp;ptid=2021283" target="_blank">ww-tls 发表于 2021-8-17 11:49</a>
+
+那些上不去的人没一个想到朝发动机里丢点东西吗？
+
+
+“反正老子赶不上这趟了，你们赶上的也别想好过！”</blockquote>
+我也觉得很奇怪，正常情况下都挡不住人往发动机里扔东西，这时候反而没人扔了？
+
+
+                                                 

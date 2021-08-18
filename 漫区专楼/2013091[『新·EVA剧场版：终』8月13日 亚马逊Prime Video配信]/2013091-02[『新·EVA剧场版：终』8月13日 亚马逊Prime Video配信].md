@@ -787,3 +787,30 @@ i love you more than you ever know 这句话是谁给谁说的啊，唯对真嗣
 
 
                                                  
+
+*****
+
+####  营业收入  
+##### 1543#       发表于 2021-8-18 07:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52396031&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-16 20:01</a>
+
+据Collider.com网站消息，庵野在最近的一次访谈中透露：自己将来有意愿以某种形式把新剧场版中空白的14年补 ...</blockquote>
+痞子你行不行啊
+
+特摄片场这么快就没钱了？
+
+
+*****
+
+####  1096beam  
+##### 1544#       发表于 2021-8-18 08:27
+
+
+后知后觉大白丽不应该出现啊，又不是丽主导补完的
+
+哪怕出现也应该是长发大白丽或者是碇唯什么的
+
+
+                                                 

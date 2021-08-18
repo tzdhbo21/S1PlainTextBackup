@@ -12746,3 +12746,118 @@ PS5上性能表现简直就是灾难
 
 
                                                  
+
+*****
+
+####  RushMove  
+##### 2444#       发表于 2021-8-18 07:32
+
+
+似乎没有给ps5手柄做特殊优化？
+
+
+*****
+
+####  齿轮轴君  
+##### 2445#       发表于 2021-8-18 08:18
+
+
+打斗上相对于之前的搓招便利了很多，但是技能格子有点少并且操作不顺畅，希望正式版能有改键设置，话说每个角色的三条天赋属性值目前试玩版是不是看不出用？
+策略这块有了更加详细的设定，也许能做出好几种挂机的策略来？
+
+
+*****
+
+####  wyy123  
+##### 2446#       发表于 2021-8-18 08:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52411137&amp;ptid=1860328" target="_blank">rak1 发表于 2021-8-18 06:46</a>
+
+xsx和ps5版之间有这么大画质差别？但是ps5上能用sw修改存档，有点纠结买哪个版本
+
+
+—— 来自 S1Fun ...</blockquote>
+我买了ps5版，这游戏xbox低价区价格也要350，没什么价格优势
+
+
+*****
+
+####  rak1  
+##### 2447#       发表于 2021-8-18 08:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">在哪调语音，我想听猴姆啦啊。。
+
+
+*****
+
+####  laoz  
+##### 2448#       发表于 2021-8-18 08:32
+
+
+<blockquote>rak1 发表于 2021-8-18 08:26
+在哪调语音，我想听猴姆啦啊。。</blockquote>
+标题界面，进游戏就改不了
+
+
+*****
+
+####  cxl6191467  
+##### 2449#       发表于 2021-8-18 08:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">发帖前忘记有主楼了。。单独发帖了
+
+
+*****
+
+####  凶手  
+##### 2450#       发表于 2021-8-18 08:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410677&amp;ptid=1860328" target="_blank">Deay店长 发表于 2021-8-18 01:31</a>
+PS5上性能表现简直就是灾难
+
+60帧模式大概顶天就是2K水平，试玩版我对付几个杂鱼就能轻松把帧数干到掉帧的水 ...</blockquote>
+看游戏截图好像比绯红画面好不少？
+
+
+*****
+
+####  leystage  
+##### 2451#       发表于 2021-8-18 08:55
+
+
+问下 Xbox 美服下载的话，有没有日文文字选项？
+
+
+*****
+
+####  reficul  
+##### 2452#       发表于 2021-8-18 08:57
+
+
+<blockquote>LT_Harry 发表于 2021-8-18 02:13
+楼主观点：
+
+1. 一定要用稳定 60fps 的平台玩正式版，不然可能会存在吞指令的现象；
+
+2. 体验版开放的内容是 ...</blockquote>
+都有哪些平台60帧，xsx，PS5？4pro可以吗
+
+
+*****
+
+####  zqqwe  
+##### 2453#       发表于 2021-8-18 08:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410818&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-18 02:13</a>
+楼主观点：
+1. 一定要用稳定 60fps 的平台玩正式版，不然可能会存在吞指令的现象；
+2. 体验版开放的内容是 ...</blockquote>
+关注P大很久了，连动作性最差那几作他都能挖掘出观赏性相对高的solo打法（虽然有些标注了修改性能）
+
+
+                                                 
