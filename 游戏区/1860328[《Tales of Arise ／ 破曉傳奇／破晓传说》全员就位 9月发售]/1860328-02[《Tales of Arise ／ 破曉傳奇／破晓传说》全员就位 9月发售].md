@@ -13131,3 +13131,191 @@ pc960能玩吗?</blockquote>
 
 
                                                  
+
+*****
+
+####  zzzeven  
+##### 2478#       发表于 2021-8-18 11:35
+
+
+XSX的demo版本你们搜到吗？港区没找到
+
+
+*****
+
+####  rak1  
+##### 2479#       发表于 2021-8-18 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52413833&amp;ptid=1860328" target="_blank">zzzeven 发表于 2021-8-18 11:35</a>
+
+XSX的demo版本你们搜到吗？港区没找到</blockquote>
+搜英文tales of就出来了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zzzeven| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  hotsmile  
+##### 2480#       发表于 2021-8-18 11:40
+
+
+话说这是不是早起的demo？语音都基本没有
+
+
+*****
+
+####  隔壁老黄  
+##### 2481#       发表于 2021-8-18 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52413891&amp;ptid=1860328" target="_blank">hotsmile 发表于 2021-8-18 11:40</a>
+
+话说这是不是早起的demo？语音都基本没有</blockquote>
+之前演示实机时的demo，语音都在小剧场里了
+
+
+*****
+
+####  Rinne70  
+##### 2482#       发表于 2021-8-18 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52413331&amp;ptid=1860328" target="_blank">hotsmile 发表于 2021-8-18 11:04</a>
+
+男主很多招硬直太长了，又中断不了，硬吃螳螂不少招，而且又没霸体</blockquote>
+有吗,我倒是觉着DEMO的三个BOSS老老实实在地上打的话硬直完全是可以接受的,没事干建议还是别上天,特别是最后那个迅龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫将军  
+##### 2483#       发表于 2021-8-18 11:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">因为没weak倍率，所以遇到弱点敌人容易无脑一招鲜，不过为了避免这种情况，给你来个同一招连用4次性能下降的惩罚。有意思
+
+
+*****
+
+####  zero12  
+##### 2484#       发表于 2021-8-18 11:51
+
+
+<blockquote>Rinne70 发表于 2021-8-18 11:42
+有吗,我倒是觉着DEMO的三个BOSS老老实实在地上打的话硬直完全是可以接受的,没事干建议还是别上天,特别是 ...</blockquote>
+上天就用女主特技打下来
+
+
+*****
+
+####  415452356  
+##### 2485#       发表于 2021-8-18 11:51
+
+
+  战斗语音的数量和频率也太多了，配合出招喊招式名太菜市场了
+
+
+*****
+
+####  qiyu1234  
+##### 2486#       发表于 2021-8-18 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52413640&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-18 11:23</a>
+
+注意到一个问题是试玩没有空中回避/防御（但是有受身）挑空上天之后就成了活靶子，特别是打霸体boss都不 ...</blockquote>
+印象里空中回避在之前某个演示的技能盘里看到过
+
+这楼太长了，不好慢慢找
+
+
+*****
+
+####  不得小于三字  
+##### 2487#       发表于 2021-8-18 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52414046&amp;ptid=1860328" target="_blank">415452356 发表于 2021-8-18 11:51</a>
+
+战斗语音的数量和频率也太多了，配合出招喊招式名太菜市场了</blockquote>
+这是老传统了
+
+
+*****
+
+####  qiyu1234  
+##### 2488#       发表于 2021-8-18 12:07
+
+
+ 本帖最后由 qiyu1234 于 2021-8-18 12:09 编辑 
+
+战斗中按L2 翻页快速切换替补人物上场 需要按住不动到读条满 显示 换人标志，然后在切回第一页按住想换下的人物到读条满 显示 换人标志才会切换（包括操作角色），如果替补的BA是可发动的，那么会在换人的时候释放BA
+
+
+*****
+
+####  zqqwe  
+##### 2489#       发表于 2021-8-18 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52414046&amp;ptid=1860328" target="_blank">415452356 发表于 2021-8-18 11:51</a>
+战斗语音的数量和频率也太多了，配合出招喊招式名太菜市场了</blockquote>
+这系列对我来说最大卖点之一就是后期长连招的中二报菜名<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫将军  
+##### 2490#       发表于 2021-8-18 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52414046&amp;ptid=1860328" target="_blank">415452356 发表于 2021-8-18 11:51</a>
+战斗语音的数量和频率也太多了，配合出招喊招式名太菜市场了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">泥潭指定的xb2不也一样
+
+
+
+
+*****
+
+####  qiyu1234  
+##### 2491#       发表于 2021-8-18 12:12
+
+
+虽然替补有2个空位，但试玩版里的战斗中强制要求首发有四人上场
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 2492#       发表于 2021-8-18 12:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">原来试玩版没存档的，退出再进的我傻了
+
+
+*****
+
+####  wseedx  
+##### 2493#       发表于 2021-8-18 12:37
+
+
+隐藏BOSS怎么出现 偶尔打过一次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                

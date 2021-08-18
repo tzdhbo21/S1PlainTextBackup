@@ -924,3 +924,20 @@ i love you more than you ever know 这句话是谁给谁说的啊，唯对真嗣
 
 
                                                  
+
+*****
+
+####  X(iaolw)S  
+##### 1554#       发表于 2021-8-18 11:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412687&amp;ptid=2013091" target="_blank">mcq_2 发表于 2021-8-18 10:24</a>
+
+老爸进了各各他体之后人设也变了，变成话痨了。喂，q里面的形象说扔就扔掉了？
+
+
+老爸tv版台词全加起来有终 ...</blockquote>
+准确的说是大白丽出来后才开始话痨的，这时候开始补完了，内心的想法藏不住
+
+
+                                                 

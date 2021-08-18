@@ -478,3 +478,40 @@ kmr是不是现在不管gbf了
 
 
                                                  
+
+*****
+
+####  LOLITA  
+##### 82540#       发表于 2021-8-18 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412202&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-18 09:45</a>
+
+卧
+
+
+槽</blockquote>
+赶紧冷静一下看看你其实是不是妹抽到妖兰<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千叶铁矢  
+##### 82541#       发表于 2021-8-18 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52414064&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-18 11:53</a>
+赶紧冷静一下看看你其实是不是妹抽到妖兰</blockquote>
+原来是我没清free<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千叶铁矢  
+##### 82542#       发表于 2021-8-18 11:55
+
+
+进厂给资本家当了一个月狗，脑子不正常了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+                                                 
