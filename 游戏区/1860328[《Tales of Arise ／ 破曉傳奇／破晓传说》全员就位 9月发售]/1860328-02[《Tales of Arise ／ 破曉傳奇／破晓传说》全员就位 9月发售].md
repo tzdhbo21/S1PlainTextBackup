@@ -14688,3 +14688,53 @@ boss怪怎么才能击飞呀</blockquote>
 
 
                                                  
+
+*****
+
+####  haru橙子  
+##### 2608#       发表于 2021-8-19 02:35
+
+
+话说这xbox的预购，港版和欧美版的有啥区别吗，中文是港版独占吗。
+
+
+*****
+
+####  clstc  
+##### 2609#       发表于 2021-8-19 02:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423708&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-19 02:34</a>
+
+现在体验版各人物的技能是黑箱，不知道各自已经会了甚么被动技能，有一些能力明显是没有的，例如空中闪避 ...</blockquote>
+我在ps5上把ps4版和ps5版都完了，ps5上ps4版帧数挺稳，和ps5版没啥区别，这次ps5版实在拉跨，和ps4版区别太小，读盘也没拉开差距
+
+
+*****
+
+####  RushMove  
+##### 2610#       发表于 2021-8-19 02:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423732&amp;ptid=1860328" target="_blank">clstc 发表于 2021-8-19 02:45</a>
+
+我在ps5上把ps4版和ps5版都完了，ps5上ps4版帧数挺稳，和ps5版没啥区别，这次ps5版实在拉跨，和ps4版区别 ...</blockquote>
+我猜区别主要是ps5手柄适配？能感受到明显区别吗？
+
+
+
+
+*****
+
+####  clstc  
+##### 2611#       发表于 2021-8-19 02:50
+
+
+ 本帖最后由 clstc 于 2021-8-19 02:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423743&amp;ptid=1860328" target="_blank">RushMove 发表于 2021-8-19 02:49</a>
+
+我猜区别主要是ps5手柄适配？能感受到明显区别吗？</blockquote>
+没区别，ps5手柄的特性在demo上基本没用上，就多了点原野上的震动（比如跳跃），战斗中震感细腻点，不刻意去注意老实说感觉不到
+
+
+                                                
