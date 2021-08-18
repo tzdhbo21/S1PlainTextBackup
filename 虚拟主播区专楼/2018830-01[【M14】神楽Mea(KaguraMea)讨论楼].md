@@ -9595,3 +9595,255 @@ tc有家一样的安心感和包容力
 
 
                                                 
+
+*****
+
+####  T_Hb  
+##### 888#       发表于 2021-8-18 17:20
+
+
+今晚必播
+
+
+*****
+
+####  Klience  
+##### 889#       发表于 2021-8-18 17:26
+
+
+？momo老师这个是什么联动？
+
+
+*****
+
+####  T_Hb  
+##### 890#       发表于 2021-8-18 17:28
+
+
+好耶
+<img src="https://p.sda1.dev/2/2a6db272daf0fbaf78e0ce162433824c/IMG_CMP_51477923.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 891#       发表于 2021-8-18 17:29
+
+
+玩的那么开心 推都不转了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 892#       发表于 2021-8-18 17:31
+
+
+不过我想了一下，momo老师和她的画师朋友然后带一个抽象级艺术家，真的有点乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 893#       发表于 2021-8-18 17:32
+
+
+这个口罩的，好像是个蛮se的画师
+
+
+*****
+
+####  2014720  
+##### 894#       发表于 2021-8-18 17:33
+
+
+momo老师好啊
+
+
+*****
+
+####  时间在我手中  
+##### 895#       发表于 2021-8-18 17:34
+
+
+这游戏上个月刚和绿熊他们玩过，还是很值得一看的
+
+
+*****
+
+####  路人庚  
+##### 896#       发表于 2021-8-18 17:35
+
+
+你画我猜的变种吗？
+
+
+之前在推特上约的还是兑现了啊
+
+
+*****
+
+####  Klience  
+##### 897#       发表于 2021-8-18 17:36
+
+
+握草 18/15的阿卡丽拿了四杀 妈的 想看ob啊 伤害还是倒数 估计抢人头的 算了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 898#       发表于 2021-8-18 17:36
+
+
+ 本帖最后由 T_Hb 于 2021-8-18 17:39 编辑 
+
+这游戏不是玩过好几次了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我还盼着她在自频道组织一次呢，懒狗
+
+之前兔妈组织漫画家画的主题是色的兔妈，momo老师能不能组织大家一起画色咩啊<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 899#       发表于 2021-8-18 17:39
+
+
+ 本帖最后由 Klience 于 2021-8-18 17:40 编辑 
+
+懒狗打完该转推了 杀了那么多人别飘了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 哦 她不打了 五人车队你麻离开 剩下的四人自己开了一局
+
+
+*****
+
+####  2014720  
+##### 900#       发表于 2021-8-18 17:40
+
+
+这女人几月没在自己频道联动了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  时间在我手中  
+##### 901#       发表于 2021-8-18 17:53
+
+
+六点歌回，估计两小时左右
+
+
+*****
+
+####  T_Hb  
+##### 902#       发表于 2021-8-18 17:58
+
+
+有点早
+
+
+*****
+
+####  路人庚  
+##### 903#       发表于 2021-8-18 17:58
+
+
+健康作息
+
+
+*****
+
+####  2014720  
+##### 904#       发表于 2021-8-18 18:00
+
+
+阴间…
+
+
+*****
+
+####  时间在我手中  
+##### 905#       发表于 2021-8-18 18:03
+
+
+嘻嘻，不会有人还没到家吧
+
+
+*****
+
+####  T_Hb  
+##### 906#       发表于 2021-8-18 18:05
+
+
+她这个背景，甚至有一点女仆的感觉
+
+
+*****
+
+####  路人庚  
+##### 907#       发表于 2021-8-18 18:06
+
+
+因为就是那首咖啡厅翻唱曲的背景图（
+
+
+*****
+
+####  T_Hb  
+##### 908#       发表于 2021-8-18 18:11
+
+
+ 本帖最后由 T_Hb 于 2021-8-18 18:14 编辑 
+
+0カロリー<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+嘴瓢 抢拍 唱着唱着就笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 909#       发表于 2021-8-18 18:14
+
+
+唱的就很像头debu tan<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 910#       发表于 2021-8-18 18:16
+
+
+ 本帖最后由 T_Hb 于 2021-8-18 18:19 编辑 
+
+今天是KON歌回吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+可惜全忘了怎么唱了
+
+
+*****
+
+####  Cushaw  
+##### 911#       发表于 2021-8-18 18:21
+
+
+ 本帖最后由 Cushaw 于 2021-8-18 18:23 编辑 
+
+忘了开嗓了？怎么这么拉<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+看来和开没开嗓没关系，单纯的拉了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 912#       发表于 2021-8-18 18:31
+
+
+唐突伽椰子
+
+
+                                                

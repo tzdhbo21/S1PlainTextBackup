@@ -618,3 +618,676 @@ kmr是不是现在不管gbf了
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 82552#       发表于 2021-8-18 17:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 更新了个王姐灵衣
+
+
+*****
+
+####  alucardcz  
+##### 82553#       发表于 2021-8-18 17:03
+
+
+王姐光速复课。。。笑死了
+
+
+*****
+
+####  LOLITA  
+##### 82554#       发表于 2021-8-18 17:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415690&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-18 14:20</a>
+
+那就2X00DL活动摩根妖兰最速妇科</blockquote>
+哈哈哈奶中了
+
+
+*****
+
+####  alucardcz  
+##### 82555#       发表于 2021-8-18 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52417572&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-18 17:05</a>
+
+哈哈哈奶中了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没妖兰啊 不过我感觉也快了 
+
+
+这波dw真是废物中的废物了
+
+
+*****
+
+####  承尘  
+##### 82556#       发表于 2021-8-18 17:08
+
+
+绝了，光速复刻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  areklose  
+##### 82557#       发表于 2021-8-18 17:08
+
+
+所以泳装9月纯粹是产能不行
+
+
+*****
+
+####  zakki  
+##### 82558#       发表于 2021-8-18 17:09
+
+
+摩根复刻。。我的感想是还抽个锤子的泳装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82559#       发表于 2021-8-18 17:09
+
+
+风怒编辑
+
+
+*****
+
+####  里村紅葉  
+##### 82560#       发表于 2021-8-18 17:09
+
+
+谢谢阿叶，为了钱包着想请继续保持产能低下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  qixinno2  
+##### 82561#       发表于 2021-8-18 17:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">祝我出个摩根 至今五星狂只有个2宝南丁 好难受啊
+
+
+*****
+
+####  zore  
+##### 82562#       发表于 2021-8-18 17:11
+
+
+有点怀念盐川复刻年了,石头一颗都无了
+
+
+*****
+
+####  rooarr  
+##### 82563#       发表于 2021-8-18 17:13
+
+
+2宝了，又省钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  承尘  
+##### 82564#       发表于 2021-8-18 17:14
+
+
+90石头清零开个摩根妖崔图鉴，泳装明年再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  yangun22  
+##### 82565#       发表于 2021-8-18 17:17
+
+
+与其说产能我倒觉得是错开池子防止玩家没钱抽了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82566#       发表于 2021-8-18 17:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹啊 又沉了
+
+
+*****
+
+####  シャル  
+##### 82567#       发表于 2021-8-18 17:24
+
+
+趋势top了
+
+
+F379E9EE-9722-4FB6-8E64-DBFF4DBD4323.png
+(291.89 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-18 17:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/172433sdznadudrniamh9r.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82568#       发表于 2021-8-18 17:24
+
+
+189石 14呼符就一个妖崔 非洲人就不配拥有限定五星狂么
+
+
+*****
+
+####  exiaexa  
+##### 82569#       发表于 2021-8-18 17:27
+
+
+石头想花花不出去，难受
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82570#       发表于 2021-8-18 17:27
+
+
+随便扔了几张票，妖高妖崔各+1，溜了溜了，反正我摩根已经是2宝了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  里村紅葉  
+##### 82571#       发表于 2021-8-18 17:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52417733&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-8-18 17:17</a>
+
+与其说产能我倒觉得是错开池子防止玩家没钱抽了</blockquote>
+不是前头池子顺序跟剧情脱节现在补回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 82572#       发表于 2021-8-18 17:29
+
+
+裁判！卡池可以这样开了又关 关了又开的么！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 82573#       发表于 2021-8-18 17:30
+
+
+不抽了，看来是直接摸到9月
+
+
+*****
+
+####  シャル  
+##### 82574#       发表于 2021-8-18 17:31
+
+
+摩根短时间再pu真是没人心
+
+
+*****
+
+####  yangun22  
+##### 82575#       发表于 2021-8-18 17:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52417874&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-18 17:28</a>
+
+不是前头池子顺序跟剧情脱节现在补回来吗</blockquote>
+我意思是指把泳装放到9月，毕竟8月都2张新卡了
+
+
+*****
+
+####  alucardcz  
+##### 82576#       发表于 2021-8-18 17:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新把前面抽剩的60石丢了下去  无事发生 4星都没一个
+
+
+*****
+
+####  khxooo  
+##### 82577#       发表于 2021-8-18 17:42
+
+
+石头0出货0，估计是因为之前太欧了，为什么那双黄不是在这里出现<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82578#       发表于 2021-8-18 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52410400&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-18 00:40</a>
+
+反正到时候结果肯定是欧、羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新刚刚把1收费石也抽了！ 什么都没有 该喷你了！
+
+
+*****
+
+####  枪聆弹语  
+##### 82579#       发表于 2021-8-18 17:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是真急着用钱了
+
+
+*****
+
+####  xiongxingyu  
+##### 82580#       发表于 2021-8-18 17:49
+
+
+ 本帖最后由 xiongxingyu 于 2021-8-18 17:53 编辑 
+
+给摩根补宝具，出了个皇女，妈的我要冬之女王，不是冬之皇女啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿提拉  
+##### 82581#       发表于 2021-8-18 17:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">以为摩根只有1宝结果又去抽了几把，巨亏...
+
+
+*****
+
+####  不垃圾屌丝  
+##### 82582#       发表于 2021-8-18 17:50
+
+
+摩根这是最速复刻的限定吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 82583#       发表于 2021-8-18 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418134&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-8-18 17:50</a>
+
+摩根这是最速复刻的限定吗？
+
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弓凛多久复课的？
+
+
+*****
+
+####  qixinno2  
+##### 82584#       发表于 2021-8-18 17:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">痛苦 好痛苦啊
+
+
+*****
+
+####  黑上シグマ  
+##### 82585#       发表于 2021-8-18 17:57
+
+
+<blockquote>引用第82582楼alucardcz于2021-08-18 17:54发表的  :
+
+引用:不垃圾屌丝 发表于 2021-8-18 17:50摩根这是最速复刻的限定吗？—— 来自 Son......</blockquote>
+大概4个月
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  alucardcz  
+##### 82586#       发表于 2021-8-18 17:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418195&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-18 17:55</a>
+
+痛苦 好痛苦啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新妖崔妖高妖兰一个都没有 你敢信
+
+
+*****
+
+####  qixinno2  
+##### 82587#       发表于 2021-8-18 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418210&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 17:57</a>
+
+萌新妖崔妖高妖兰一个都没有 你敢信</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">但你有摩根 欧吃矛
+
+
+*****
+
+####  alucardcz  
+##### 82588#       发表于 2021-8-18 17:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418219&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-18 17:58</a>
+
+但你有摩根 欧吃矛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的你好像没妖兰一样 萌新刚刚补2宝已经炸了 早知道不抽了
+
+
+*****
+
+####  千叶铁矢  
+##### 82589#       发表于 2021-8-18 18:01
+
+
+摩根妇科了，妖兰是不是快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82590#       发表于 2021-8-18 18:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418182&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 17:54</a>
+
+弓凛多久复课的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最快的是紫色老太婆
+
+
+
+
+*****
+
+####  alucardcz  
+##### 82591#       发表于 2021-8-18 18:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418288&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-18 18:04</a>
+
+最快的是紫色老太婆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪个啊 拿枪的还是拿棍的
+
+
+*****
+
+####  qixinno2  
+##### 82592#       发表于 2021-8-18 18:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418233&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 17:59</a>
+
+说的你好像没妖兰一样 萌新刚刚补2宝已经炸了 早知道不抽了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">萝兰我所欲也 摩根亦我所欲也
+
+
+*****
+
+####  alucardcz  
+##### 82593#       发表于 2021-8-18 18:06
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 82594#       发表于 2021-8-18 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418307&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-18 18:06</a>
+
+萝兰我所欲也 摩根亦我所欲也</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉下个星期3会复课妖兰  完了 不应该补什么2宝（而且还炸了）
+
+
+*****
+
+####  qb0079  
+##### 82595#       发表于 2021-8-18 18:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，下个应该复刻村正了
+
+
+*****
+
+####  qixinno2  
+##### 82596#       发表于 2021-8-18 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418304&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 18:05</a>
+
+哪个啊 拿枪的还是拿棍的</blockquote>
+拿枪的 刚看了下 17年元旦出的 然后1月28号新年日替又出来了
+
+
+*****
+
+####  qixinno2  
+##### 82597#       发表于 2021-8-18 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418318&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 18:07</a>
+
+我感觉下个星期3会复课妖兰  完了 不应该补什么2宝（而且还炸了）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">反正石头剩余1 我已经死了
+
+
+*****
+
+####  qixinno2  
+##### 82598#       发表于 2021-8-18 18:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">要是之后复刻芭娜娜才是最傻逼的 我只能干瞪眼
+
+
+*****
+
+####  alucardcz  
+##### 82599#       发表于 2021-8-18 18:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418332&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-18 18:08</a>
+
+拿枪的 刚看了下 17年元旦出的 然后1月28号新年日替又出来了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202108/18/181053qmhmq3ozhsaqma2o.png" referrerpolicy="no-referrer">
+
+
+<strong>２２２２.png</strong> (6.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 18:10 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？
+
+
+*****
+
+####  qixinno2  
+##### 82600#       发表于 2021-8-18 18:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418365&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 18:11</a>
+
+？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看的是国服
+
+
+*****
+
+####  AP0rt_  
+##### 82601#       发表于 2021-8-18 18:15
+
+
+ 本帖最后由 AP0rt_ 于 2021-8-18 18:17 编辑 
+
+<img src="https://p.sda1.dev/2/bb6b261660f6121ffa78d0c8442735b6/IMG_CMP_199427574.jpeg" referrerpolicy="no-referrer">
+最后一发赌命单抽出的货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82602#       发表于 2021-8-18 18:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418415&amp;ptid=1085254" target="_blank">AP0rt_ 发表于 2021-8-18 18:15</a>
+最后一发赌命单抽出的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧不羡慕 然后你发错楼了
+
+
+*****
+
+####  黑上シグマ  
+##### 82603#       发表于 2021-8-18 18:17
+
+
+<blockquote>引用第82600楼AP0rt_于2021-08-18 18:15发表的  :
+
+最后一发赌命单抽出的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你走错楼了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  qixinno2  
+##### 82604#       发表于 2021-8-18 18:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像是个新人
+
+
+*****
+
+####  AP0rt_  
+##### 82605#       发表于 2021-8-18 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418415&amp;ptid=1085254" target="_blank">AP0rt_ 发表于 2021-8-18 18:15</a>
+最后一发赌命单抽出的货</blockquote>
+哦淦，我的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 82606#       发表于 2021-8-18 18:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">妖兰要是也复刻的话我就不抽泳装了
+
+
+*****
+
+####  alucardcz  
+##### 82607#       发表于 2021-8-18 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418498&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-18 18:22</a>
+
+妖兰要是也复刻的话我就不抽泳装了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先欧羡慕  萌新也想要3宝王姐
+
+
+*****
+
+####  qixinno2  
+##### 82608#       发表于 2021-8-18 18:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">非洲人只想要个五星限定狂就这么难么
+
+
+*****
+
+####  森兰丸  
+##### 82609#       发表于 2021-8-18 18:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418503&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 18:23</a>
+
+先欧羡慕  萌新也想要3宝王姐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">非洲人也想要萌新肝一下钱本和羁绊就能全部都出的欧气啊
+
+
+*****
+
+####  黑上シグマ  
+##### 82610#       发表于 2021-8-18 18:25
+
+
+<blockquote>引用第82605楼森兰丸于2021-08-18 18:22发表的  :
+
+妖兰要是也复刻的话我就不抽泳装了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后等到了泳装看你拍大腿后悔
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  alucardcz  
+##### 82611#       发表于 2021-8-18 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418525&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-18 18:25</a>
+
+非洲人也想要萌新肝一下钱本和羁绊就能全部都出的欧气啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你也肝啊 苹果反正和我一样也一大堆  你总不能还刷几百池无限池吧（
+
+
+                                               

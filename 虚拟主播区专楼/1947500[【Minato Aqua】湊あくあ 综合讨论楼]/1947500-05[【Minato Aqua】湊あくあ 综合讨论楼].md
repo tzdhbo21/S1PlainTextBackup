@@ -9895,3 +9895,38 @@ akukin传说，今晚会完结吗？<img src="https://static.saraba1st.com/image
 
 
                                                  
+
+*****
+
+####  Scardy  
+##### 6808#       发表于 2021-8-18 17:21
+
+
+原来不是玩今年新出的重制版尼尔吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 6809#       发表于 2021-8-18 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52414060&amp;ptid=1947500" target="_blank">面具13 发表于 2021-8-18 11:53</a>
+
+昨天好像说今天想白天开始播来着？
+
+什么时候恢复1-2天1播（TC混一混也行啊）就表示不想摆烂了 ...</blockquote><blockquote>https://youtu.be/7Lt-b2Eq99Y?t=11430</blockquote>
+说是“明天继续”来着，确实没说白天播。但是今天去录音，回来播的可能性就没那么大了。而且后面突然决定制酱time去挖金子，说不定在哪个地方改主意了
+
+
+*****
+
+####  nian1538  
+##### 6810#       发表于 2021-8-18 18:04
+
+
+会限的时候说Automata是自己最喜欢的游戏，然后投票又有三分之二的人没看过，就上马了，打算打通之后再去玩Replicant
+不是不能理解，但确实不想再看一遍了
+
+
+                                                 

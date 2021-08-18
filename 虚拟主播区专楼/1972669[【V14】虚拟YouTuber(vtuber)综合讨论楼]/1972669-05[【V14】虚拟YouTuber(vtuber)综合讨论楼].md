@@ -3005,3 +3005,224 @@ irys的高速增长持续到了50w<img src="https://static.saraba1st.com/image/s
 
 
                                                  
+
+*****
+
+####  FCCHua  
+##### 6241#       发表于 2021-8-18 16:33
+
+
+ 本帖最后由 FCCHua 于 2021-8-18 16:34 编辑 
+
+五色对于个人来说要的就是统一后的撕裂感，很期待剩下三位的新衣服，虽然感觉琥珀的新衣服是一件很遥远的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adcdqre  
+##### 6242#       发表于 2021-8-18 16:36
+
+
+ 本帖最后由 adcdqre 于 2021-8-18 16:48 编辑 
+
+啊这底边跟统不统一有什么关系攻击上人了可行
+
+
+*****
+
+####  patema  
+##### 6243#       发表于 2021-8-18 16:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">琥珀再这么下去真就要等到世界末日了，不过最近好像也播了不少吧
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qq845629713  
+##### 6244#       发表于 2021-8-18 16:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 设定上熊猫人和你葵还是同校校友呢，设定有屁用
+
+
+*****
+
+####  shpdw  
+##### 6245#       发表于 2021-8-18 16:40
+
+
+<img src="https://preview.redd.it/8xqlzywjnzh71.png?width=640&amp;crop=smart&amp;auto=webp&amp;s=56a4ecadc65cda820433d63ae6f23499237ad11f" id="aimg_gr68N" onclick="zoom(this, this.src, 0, 0, 0)" width="640"/)
+
+以前的虹可不爱花里胡哨，宝三家的皮也是骂过媚宅的
+
+
+*****
+
+####  OldGlory  
+##### 6246#       发表于 2021-8-18 16:52
+
+
+要看以前是多以前了，种系从设定物种到皮套都挺花里胡哨的
+
+<img src="https://img.saraba1st.com/forum/202108/18/165205e2wchsfkxhgn8czc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210215131103.jpg</strong> (693.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 16:52 上传
+
+
+*****
+
+####  shpdw  
+##### 6247#       发表于 2021-8-18 17:01
+
+
+说的是身上的装饰元素，合着考拉也是花里胡哨吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 6248#       发表于 2021-8-18 17:10
+
+
+身上的装饰元素是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/18/170951ow6d8qqwvdf5mamt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>DnyEe3KXsAYBmSq.jpg</strong> (809.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 17:09 上传
+
+
+*****
+
+####  shpdw  
+##### 6249#       发表于 2021-8-18 17:12
+
+
+种系这样的人像律金TV有几个 无印还有爱丽丝呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rzrbtk  
+##### 6250#       发表于 2021-8-18 17:25
+
+
+本月（算上今天晚上那次）琥珀播了三次，其中两次是被抓去联动，直播次数是六月（还是七月不记得了）的三倍👏
+
+
+*****
+
+####  alcoholic1000  
+##### 6251#       发表于 2021-8-18 17:37
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-18 17:40 编辑 
+
+从3D效果来说还是有复杂度的皮动起来好看
+
+
+Syl，
+
+<img src="https://img.saraba1st.com/forum/202108/18/173539ovf0g2fa2a52jz28.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>【#潮汐祭 ライブ予告】 にじさんじの超人気ライバーたちが白夜極光の新イベント「潮.jpeg</strong> (345.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 17:35 上传
+
+
+属于是长期饭票了
+（这游戏真除了有钱一无是处）
+
+
+*****
+
+####  hulaoda007  
+##### 6252#       发表于 2021-8-18 17:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">宝三家明明是皮最好看的一批。魅宅和谁比啊，V圈里哪怕holo皮设定都没宝三家设定舒服吧。
+
+
+*****
+
+####  poipanchao  
+##### 6253#       发表于 2021-8-18 17:54
+
+
+别记忆修正，宝三家出来的时候中日评价都不行，出道同接也是暴跌
+就hawawa还可以，meari的初皮和釜山的眼镜都差评的
+结果就是一个换了初皮一个死都不肯带眼镜
+
+
+*****
+
+####  Suny08  
+##### 6254#       发表于 2021-8-18 18:12
+
+
+要是没社长和黑客乳山smcblues宝三家这四组全都得死，可以堪称最黑暗的两个月了，出了4组新人疯狂撞车，纯粹是你虹下饺子的问题，和皮关系不是很大，现在我看meari都还会偶尔用初始皮的，至少不像釜山那么讨厌
+
+
+*****
+
+####  qq845629713  
+##### 6255#       发表于 2021-8-18 18:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 谁还记得釜山一开始是探险家来着？
+
+
+*****
+
+####  poipanchao  
+##### 6256#       发表于 2021-8-18 18:18
+
+
+那你也是记忆修正，smc和blues赶上了mc周期尾巴，如日中天
+smc虽然有社长的起手王炸，但是三人马里奥也是功不可没，blues更是有小福
+准确的说虹女就是从宝三家开始衰落，后来虽然有星川sky回光返照了一下，总体而言全成小废物了
+
+
+*****
+
+####  IDIDIDID  
+##### 6257#       发表于 2021-8-18 18:19
+
+
+纯路人：爱园不算媚宅吗🤗
+
+
+*****
+
+####  IDIDIDID  
+##### 6258#       发表于 2021-8-18 18:23
+
+
+没事的，看我被四个同期帅哥宠爱的レインオバmake 虹女 great again
+
+
+*****
+
+####  winda  
+##### 6259#       发表于 2021-8-18 18:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sky开局起飞后面也是第五人格垃了，后面拉人radio来安洁都是救不起水平，郁金香组拆开来前途更光明。赤色组织那更是被特权户森友搞到名存实亡，mnnt集体新年摸鱼玩不到一起也是凉凉，夜王国那真是个人能力+前辈镇火逆天改命了。
+
+
+                                                 

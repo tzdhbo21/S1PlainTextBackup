@@ -13493,3 +13493,114 @@ Xb2这点就饱受诟病，完全可以出一个调节语音频率的功能</blo
 
 
                                                  
+
+*****
+
+####  rak1  
+##### 2510#       发表于 2021-8-18 16:34
+
+，
+
+
+Xbox One: 
+
+972p ~35FPS
+
+Xbox One X: 
+
+1872p ~35FPS
+
+PS4: 
+
+1080p ~35FPS
+
+PS4 Pro: 
+
+1440p ~35FPS
+
+Series S: 
+
+1440p ~45FPS &amp; 1080p 60FPS
+
+Series X:
+
+2160p ~50FPS &amp; 1620p 60FPS
+
+PS5:
+
+2160p ~45FPS &amp; 1620p 60FPS 画质模式帧数xsx比ps5高15%，
+--ElAnalistaDeBits
+
+
+*****
+
+####  六至九  
+##### 2511#       发表于 2021-8-18 16:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52416444&amp;ptid=1860328" target="_blank">chris1987 发表于 2021-8-18 15:36</a>
+
+现在ps4pro运行下来感觉怎么样？帧数不错但风扇响？</blockquote>
+对，画面帧数都很稳，就是风扇狂响
+
+
+*****
+
+####  mazin001  
+##### 2512#       发表于 2021-8-18 16:46
+
+
+打开游戏画面的一刻还有点感动
+
+传说也终于有朝一日<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chris1987  
+##### 2513#       发表于 2021-8-18 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52417232&amp;ptid=1860328" target="_blank">六至九 发表于 2021-8-18 16:35</a>
+
+对，画面帧数都很稳，就是风扇狂响</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">慢点下班回去下demo试试，买了ps4版实体希望体验好点
+
+
+*****
+
+####  金子一马  
+##### 2514#       发表于 2021-8-18 17:28
+
+
+这次人物反差很大，主角像是冷静型，却是是傻白甜。拳师看上去很清秀，实际是个二愣子
+
+
+*****
+
+####  静静在想我  
+##### 2515#       发表于 2021-8-18 17:39
+
+
+虽然预购了ps版，但看到这个画面表现想换pc了，不知道4k60需要什么配置<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  godless2020  
+##### 2516#       发表于 2021-8-18 18:28
+
+
+5版性能模式很稳，PRO真的尽力了........
+
+
+*****
+
+####  415452356  
+##### 2517#       发表于 2021-8-18 18:29
+
+
+  总的来说还是挺满意的，画面也不丢人，ps5有60帧模式足够玩了
+
+
+                                                 

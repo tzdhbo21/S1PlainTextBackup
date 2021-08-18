@@ -10422,3 +10422,24 @@ K社已经成为了一家巨魔公司了吗？<img src="https://static.saraba1st
 
 
                                                  
+
+*****
+
+####  C男  
+##### 824#       发表于 2021-8-18 17:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这一开始就明显是耍猴的，S1应该不会有人相信而且真的在期待什么吧。
+
+
+*****
+
+####  Kojimaru  
+##### 825#       发表于 2021-8-18 17:18
+
+
+<img src="https://p.sda1.dev/2/7d61aaece1d689a996c369f1707d6da1/IMG_CMP_154217595.jpeg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">岛哥哥这次特意不把时间拍进来，怎么回事呢
+
+
+                                                 
