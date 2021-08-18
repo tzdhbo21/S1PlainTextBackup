@@ -20314,3 +20314,17 @@ Kiara bullying her kohai already
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1299#       发表于 2021-8-18 07:19
+
+
+ 本帖最后由 wiig 于 2021-8-18 07:23 编辑 
+
+Calli："Kusotori got a little angry hehe. I did it purposefully to pull her leg. I like to do that sometimes"<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/8becc585ebb145aca7a2943ed4772ee9/20210818_071336.jpg" referrerpolicy="no-referrer">
+
+
+                                                 
