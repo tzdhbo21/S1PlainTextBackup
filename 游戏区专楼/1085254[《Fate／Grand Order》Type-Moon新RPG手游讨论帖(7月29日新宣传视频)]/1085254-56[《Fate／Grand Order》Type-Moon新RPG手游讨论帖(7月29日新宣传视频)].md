@@ -1568,3 +1568,286 @@ F379E9EE-9722-4FB6-8E64-DBFF4DBD4323.png
 
 
                                                 
+
+*****
+
+####  KOBI  
+##### 82632#       发表于 2021-8-18 19:33
+
+
+150石大王+宝石老头。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">连抱怨运气都没资格抱怨。。
+
+各种东西统统爆炸了
+
+
+*****
+
+####  rooarr  
+##### 82633#       发表于 2021-8-18 19:34
+
+
+ 本帖最后由 rooarr 于 2021-8-18 19:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419091&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 19:09</a>
+
+萌新去看了看  奥师傅不开3技能 10万单体 开1个3技能16万单体  最后王姐技能全开32万 
+
+
+https://w ...</blockquote>
+一点也不通用有啥好说的，这种虚空刷本没啥意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看了下，单体10万还是打红字啊，那妖兰都有10万了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82634#       发表于 2021-8-18 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419470&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-18 19:34</a>
+
+一点也不通用有啥好说的，这种虚空刷本没啥意义</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪里虚空刷本了  刷上三+狂不是挺好的 
+
+
+*****
+
+####  rooarr  
+##### 82635#       发表于 2021-8-18 19:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419512&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 19:36</a>
+
+哪里虚空刷本了  刷上三+狂不是挺好的</blockquote>
+这种本，C狗他不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82636#       发表于 2021-8-18 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419533&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-18 19:38</a>
+
+这种本，C狗他不香吗这可是你说的不换人不依赖好友6加成啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？ 
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你不是说c狗伤害低 打白字不行吗 
+
+
+感觉你是不是喝了几斤酒有点不清醒啊
+
+
+*****
+
+####  qixinno2  
+##### 82637#       发表于 2021-8-18 19:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">第五张宝石翁出了 还不如给黑杯 至今还是3等2 摩根 我的摩根
+
+
+*****
+
+####  シャル  
+##### 82638#       发表于 2021-8-18 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419452&amp;ptid=1085254" target="_blank">KOBI 发表于 2021-8-18 19:33</a>
+
+150石大王+宝石老头。。
+
+连抱怨运气都没资格抱怨。。
+
+各种东西统统爆炸了 ...</blockquote>
+之前2次都没有？？
+
+
+*****
+
+####  rooarr  
+##### 82639#       发表于 2021-8-18 19:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419551&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 19:39</a>
+
+？ 
+
+你不是说c狗伤害低 打白字不行吗 </blockquote>
+啊，视频不是打狂吗？
+
+
+*****
+
+####  alucardcz  
+##### 82640#       发表于 2021-8-18 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419601&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-18 19:43</a>
+
+啊，视频不是打狂吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉你有点不太清醒  妖兰不换人第1波必须1 然后这视频只是测的红字伤害 奥师傅打上3也是红字啊
+
+
+*****
+
+####  rooarr  
+##### 82641#       发表于 2021-8-18 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419706&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 19:50</a>
+
+感觉你有点不太清醒  妖兰不换人第1波必须1 然后这视频只是测的红字伤害 奥师傅打上3也是红字啊 ...</blockquote>
+哦，忘记这个职介的克制关系了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82642#       发表于 2021-8-18 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419590&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-18 19:42</a>
+
+第五张宝石翁出了 还不如给黑杯 至今还是3等2 摩根 我的摩根</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不是没石了吗 怎么还能抽
+
+
+*****
+
+####  qixinno2  
+##### 82643#       发表于 2021-8-18 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419734&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 19:54</a>
+
+你不是没石了吗 怎么还能抽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">吃苹果清自由本 边清边抽
+
+
+*****
+
+####  alucardcz  
+##### 82644#       发表于 2021-8-18 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419901&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-18 20:08</a>
+
+吃苹果清自由本 边清边抽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕 萌新我free 幕间 强化本早就挖空了
+
+
+*****
+
+####  khxooo  
+##### 82645#       发表于 2021-8-18 20:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419953&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 20:12</a>
+羡慕 萌新我free 幕间 强化本早就挖空了</blockquote>
+你不是还有一堆没有满15羁绊吗，继续吃苹果肝啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82646#       发表于 2021-8-18 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420037&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-18 20:18</a>
+
+你不是还有一堆没有满15羁绊吗，继续吃苹果肝啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不肝了 不要了 
+
+
+*****
+
+####  白金口袋  
+##### 82647#       发表于 2021-8-18 20:34
+
+
+下一个估计就是妖兰再up了，2.6这段时间是能出的角色全出了+反复横跳，打算把周年发的石头全要回来是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sosgame67  
+##### 82648#       发表于 2021-8-18 20:35
+
+
+反正我安心等泳装，这复刻看的只想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82649#       发表于 2021-8-18 20:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419953&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 20:12</a>
+
+羡慕 萌新我free 幕间 强化本早就挖空了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">然而感觉毫无意义 抽不到就显得自己很傻逼 只能说还好没氪金
+
+
+*****
+
+####  alucardcz  
+##### 82650#       发表于 2021-8-18 20:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好友里没人点奥波龙的20np。。。。。萌新落泪
+
+
+
+
+*****
+
+####  alucardcz  
+##### 82651#       发表于 2021-8-18 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420231&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-18 20:34</a>
+
+下一个估计就是妖兰再up了，2.6这段时间是能出的角色全出了+反复横跳，打算把周年发的石头全要回来是吧[f:0 ...</blockquote>
+你是说下周3再开妖兰up摸一周吗
+
+以前我觉得这绝对不可能的事情 现在。。很有可能
+
+
+*****
+
+####  yangun22  
+##### 82652#       发表于 2021-8-18 21:05
+
+
+双奥也不需要点满20啊，10点就够了，当然各打一面对好友高具等级要求高点，最好有3以上
+
+
+*****
+
+####  黑上シグマ  
+##### 82653#       发表于 2021-8-18 21:06
+
+
+翻页
+
+
+*****
+
+####  LOLITA  
+##### 82654#       发表于 2021-8-18 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418087&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 17:47</a>
+
+萌新刚刚把1收费石也抽了！ 什么都没有 该喷你了！</blockquote>
+喷吧喷吧我也沉了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+彩圈连发大王小太阳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+追5宝什么的真是想多了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+                                                

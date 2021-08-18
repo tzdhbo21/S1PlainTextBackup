@@ -17576,3 +17576,19 @@ an因为换成了出力属性双手剑大专精，打克制伤害要比原版低
 
 
                                                  
+
+*****
+
+####  alialex  
+##### 5867#         楼主| 发表于 2021-8-18 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419176&amp;ptid=1570791" target="_blank">MOOMBA 发表于 2021-8-18 19:15</a>
+
+试了一下 抽到了AN的四谷后 原版就可以更换SP技能了 
+
+开启后是一个BUFF 没玩明白 在时间之内行动自带残影   ...</blockquote>
+an和原版性能倾向是明确的，SP之后也能互换，基本上只上一个顺手的就好，倒是不存在你担心的问题
+
+
+                                                 

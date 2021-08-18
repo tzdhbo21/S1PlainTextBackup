@@ -13686,3 +13686,283 @@ PS5:
 
 
                                                 
+
+*****
+
+####  bgmilk  
+##### 2524#       发表于 2021-8-18 19:27
+
+
+楼上兄弟怎么回事23333
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2525#       发表于 2021-8-18 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419340&amp;ptid=1860328" target="_blank">间桐凛 发表于 2021-8-18 19:24</a>
+
+还有那几个男配角，一个个穿着造型腐态十足，明显的哄宅女购买，唉，如今传说也堕落了，我还是期待一下轨迹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然但是，传说卖腐吸引女玩家早就不是一天两天的事情了，都多少作这样营业了，这次至少没什么腐了，bg是绝对主轴
+
+
+*****
+
+####  听风不是雨  
+##### 2526#       发表于 2021-8-18 19:33
+
+
+被轨迹侠盗号了？
+
+
+*****
+
+####  415452356  
+##### 2527#       发表于 2021-8-18 19:34
+
+
+  有可能是轨迹侠粉借号给他发病
+
+
+*****
+
+####  魂淡放我出去  
+##### 2528#       发表于 2021-8-18 19:46
+
+
+一转轨迹可太乐了，过来活跃气氛的吗
+
+
+*****
+
+####  童贞阿龙  
+##### 2529#       发表于 2021-8-18 20:02
+
+
+食谱图看起来挺有食欲的，希望正式版食谱多点<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DKD  
+##### 2530#       发表于 2021-8-18 20:05
+
+
+小剧场太乐了
+
+
+*****
+
+####  蓝雉  
+##### 2531#       发表于 2021-8-18 20:07
+
+
+话说女主居然是吃货，还是那种刚吃完就想着下一顿的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2532#       发表于 2021-8-18 20:08
+
+
+ 本帖最后由 qiyu1234 于 2021-8-18 20:19 编辑 
+
+BA技的使用，在BOSS战的时候，克制性和功能性要优先于AG回复，因为本来BOSS战就不容易打出BS，BA技对克制敌人的针对性很强，对上直接就down
+
+
+像林薇尔的术技吸收，奇莎拉的盾击，希侬的飞行击落 都是对试玩版最后BOSS克制性很强的，不要随便甩出去
+
+反之如果是对当场BOSS针对性不强的BA就不用刻意保留
+
+
+*****
+
+####  415452356  
+##### 2533#       发表于 2021-8-18 20:28
+
+
+  短发妹饿肚子的语音挺可爱的，不如说这次主角队伍意外的都很喜欢吃
+
+
+*****
+
+####  a2042312  
+##### 2534#       发表于 2021-8-18 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419904&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-18 20:08</a>
+BA技的使用，在BOSS战的时候，克制性和功能性要优先于AG回复，因为本来BOSS战就不容易打出BS，BA技对克制敌 ...</blockquote>
+BA技流程中能学到新的吗，还是每个人就固定这招了。
+
+
+*****
+
+####  qiyu1234  
+##### 2535#       发表于 2021-8-18 20:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420203&amp;ptid=1860328" target="_blank">a2042312 发表于 2021-8-18 20:31</a>
+
+BA技流程中能学到新的吗，还是每个人就固定这招了。</blockquote>
+看说明书教程介绍的意思，基本上应该就这套了？
+
+不过奥尔芬的增幅攻击（BA）介绍标题跟其他人不太一样，多了个 火焰之剑 的补充说明，感觉可能他的BA后面会有不同种类的追加？
+
+
+*****
+
+####  415452356  
+##### 2536#       发表于 2021-8-18 20:49
+
+
+  虽然说老早就预购了，玩了这个demo之后算是吃了定心丸了
+
+
+*****
+
+####  剑起苍斓  
+##### 2537#       发表于 2021-8-18 20:55
+
+
+真不错啊，可惜老版PS4帧数有点低了
+
+—— 来自 OnePlus ONEPLUS A5010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  提挈天地  
+##### 2538#       发表于 2021-8-18 20:57
+
+
+试玩版没中文吗，还是PS4日服的demo没中文？
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  415452356  
+##### 2539#       发表于 2021-8-18 21:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420525&amp;ptid=1860328" target="_blank">提挈天地 发表于 2021-8-18 20:57</a>
+
+试玩版没中文吗，还是PS4日服的demo没中文？
+
+
+—— 来自 OPPO PDEM30, Android 11上的 S1Next-鹅版 v2.4.4. ...</blockquote>
+  港服才有
+
+
+*****
+
+####  nerugigannte  
+##### 2540#       发表于 2021-8-18 21:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">咋还谈起发工资给奴隶之类的来了，md你们都会魔法了都不想着让生产方式先飞跃一下嘛，希望到时候少往这边靠靠，多恋爱一下
+
+
+*****
+
+####  a2042312  
+##### 2541#       发表于 2021-8-18 21:10
+
+
+为何一本童话也能当武器，难道之前的魔典只是装饰吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  名字已被吃  
+##### 2542#       发表于 2021-8-18 21:11
+
+
+战斗中换操控角色，是不是一定得按暂停再r1一个个切？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 2543#       发表于 2021-8-18 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420743&amp;ptid=1860328" target="_blank">名字已被吃 发表于 2021-8-18 21:11</a>
+
+战斗中换操控角色，是不是一定得按暂停再r1一个个切？
+
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Nex ...</blockquote>
+按住L1之后按对应的方向，头像上的旗子会变到要换的角色上去
+
+
+*****
+
+####  隔壁老黄  
+##### 2544#       发表于 2021-8-18 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52414986&amp;ptid=1860328" target="_blank">makar0601 发表于 2021-8-18 13:07</a>
+三个pv都看了，他们真的要做民族矛盾互相理解啊
+我雷达作响了</blockquote>
+民族，种族矛盾一直是传说的最爱，绝大部分传说都是这个为主轴
+
+
+*****
+
+####  名字已被吃  
+##### 2545#       发表于 2021-8-18 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420787&amp;ptid=1860328" target="_blank">五星战世韩玉昆 发表于 2021-8-18 21:14</a>
+按住L1之后按对应的方向，头像上的旗子会变到要换的角色上去</blockquote>
+我看了一遍tips都没看到切角色的，原来是这样换的吗，我等会再开游戏试试
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qiyu1234  
+##### 2546#       发表于 2021-8-18 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420597&amp;ptid=1860328" target="_blank">nerugigannte 发表于 2021-8-18 21:02</a>
+
+咋还谈起发工资给奴隶之类的来了，md你们都会魔法了都不想着让生产方式先飞跃一下嘛，希望到时候少 ...</blockquote>
+那个预告片的意思不是挺明显的吗，杜欧哈林想通过一些绥靖手段维持他国家的统治，保持表面上雷纳和达纳人的和平相处（当然这是有代价的），他也无心参与雷纳人对星灵力的争斗，对达纳反抗的态度也很消极，但这套方式走不通，不然他后面也不会跟着奥尔芬们一起踏上对抗雷纳旅途了
+
+
+*****
+
+####  hkguty  
+##### 2547#       发表于 2021-8-18 21:28
+
+
+玩了下男主，感觉这作好像变简单了啊，就是瞎JB砍，试玩可以发秘奥义么？不过困难难度基本要一直垫着琪莎拉的料理，不然会很容易被秒，闪避的判定感觉不是很大，不是很习惯，男主的招硬直也很大，很多时候还得考虑放火剑招式的时机。这阿周那说话感觉有点郭敬明那味了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，喜欢把一件简单的事说得很复杂。
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 2548#       发表于 2021-8-18 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420851&amp;ptid=1860328" target="_blank">名字已被吃 发表于 2021-8-18 21:18</a>
+
+我看了一遍tips都没看到切角色的，原来是这样换的吗，我等会再开游戏试试
+
+
+—— 来自 HUAWEI LYA-AL00, A ...</blockquote>
+这个好像在打开菜单图书馆的战斗说明里是有的
+
+不过按方块显示大地图反而没说，搞得我开始还觉得这作地图很不友好
+
+
+                                                 

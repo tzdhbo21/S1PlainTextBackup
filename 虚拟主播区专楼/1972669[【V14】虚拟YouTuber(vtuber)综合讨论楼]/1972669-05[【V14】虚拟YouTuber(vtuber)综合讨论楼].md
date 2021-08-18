@@ -3261,3 +3261,69 @@ smc虽然有社长的起手王炸，但是三人马里奥也是功不可没，bl
 
 
                                                  
+
+*****
+
+####  adcdqre  
+##### 6263#       发表于 2021-8-18 19:33
+
+
+ 本帖最后由 adcdqre 于 2021-8-18 19:45 编辑 
+
+按虹的德行下一批就学着找也不意外，个人倒是不喜欢大手妈大概率画完不管了约衣服也是问题
+
+
+*****
+
+####  nian1538  
+##### 6264#       发表于 2021-8-18 20:36
+
+
+昨天Inui兴致好高，状态也在
+
+
+*****
+
+####  墨白凌  
+##### 6265#       发表于 2021-8-18 20:43
+
+
+ 本帖最后由 墨白凌 于 2021-8-18 20:51 编辑 
+
+好久没来专楼了
+刚刚听了小祭和店长的新歌，就是那个summertime
+有没有看木口星的人来告诉我店长唱歌为什么有电音
+我一开始听到还以为拿店长的声音做了utau然后调出来的……真的违和到爆<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+syl，听完了，不知道为什么副歌店长没有用电音，但是听起来有点拉
+估计因为自己一个人唱实在是不行所以套了电音？
+好违和啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 6266#       发表于 2021-8-18 21:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿希也吃鸡了，这届还有几个大师猎杀钻一硬实力大师都加把劲啊·
+
+
+*****
+
+####  adamtheo  
+##### 6267#       发表于 2021-8-18 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420332&amp;ptid=1972669" target="_blank">墨白凌 发表于 2021-8-18 20:43</a>
+
+好久没来专楼了
+
+刚刚听了小祭和店长的新歌，就是那个summertime
+
+有没有看木口星的人来告诉我店长唱歌为什么 ...</blockquote>
+错楼了？
+
+因为原唱就这样
+
+
+                                                 

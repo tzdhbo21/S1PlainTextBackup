@@ -9930,3 +9930,16 @@ akukin传说，今晚会完结吗？<img src="https://static.saraba1st.com/image
 
 
                                                  
+
+*****
+
+####  面具13  
+##### 6811#       发表于 2021-8-18 21:06
+
+
+悲报：ホロライブ反抗军leader 湊あくあ 终于确认被ホロライブ招安了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+明明三周年的时候twitter简介还是没有hololive成分，今天却看到twitter简介打头的“バーチャル”字样已经不知道什么时候被替换成“ホロライブ所属”了
+
+
+                                                 
