@@ -13604,3 +13604,85 @@ PS5:
 
 
                                                  
+
+*****
+
+####  司马千晶  
+##### 2518#       发表于 2021-8-18 19:07
+
+
+ 本帖最后由 司马千晶 于 2021-8-18 19:09 编辑 
+
+[https://www.bilibili.com/video/BV1G341167t5/](https://www.bilibili.com/video/BV1G341167t5/)录了段连招，可以交流下心得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，另外我发现有时候可以瞬间重置支援技形成二连，原理不知道，反正试玩没写
+
+[https://www.bilibili.com/video/BV1HM4y1L78q](https://www.bilibili.com/video/BV1HM4y1L78q)<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">挂机过HARD的BOSS
+
+
+*****
+
+####  rp1993  
+##### 2519#       发表于 2021-8-18 19:07
+
+
+是试玩没有日文配音而已，还是正式版中韩也没有？
+
+
+*****
+
+####  Booorunestud  
+##### 2520#       发表于 2021-8-18 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419062&amp;ptid=1860328" target="_blank">rp1993 发表于 2021-8-18 19:07</a>
+是试玩没有日文配音而已，还是正式版中韩也没有？</blockquote>
+如果你是说“日文语音”，在title页面设置
+如果你是说剧情对话语音，那确实没有
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rp1993| + 1|原来是要去标题设置····感谢.|
+
+
+查看全部评分
+
+
+
+
+*****
+
+####  jbjack1215  
+##### 2521#       发表于 2021-8-18 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52419062&amp;ptid=1860328" target="_blank">rp1993 发表于 2021-8-18 19:07</a>
+是试玩没有日文配音而已，还是正式版中韩也没有？</blockquote>
+正式有，当前版本据说是单独给demo做的
+
+
+*****
+
+####  间桐凛  
+##### 2522#       发表于 2021-8-18 19:22
+
+
+太失望了！女主角跳起来居然能清楚看见胖次！这还是传说吗？简直是地雷社！难怪藤岛大师不愿意掺和进来，你看他的漫画女主什么时候如此服务观众了？
+
+
+*****
+
+####  间桐凛  
+##### 2523#       发表于 2021-8-18 19:24
+
+
+还有那几个男配角，一个个穿着造型腐态十足，明显的哄宅女购买，唉，如今传说也堕落了，我还是期待一下轨迹新作吧。
+
+
+                                                

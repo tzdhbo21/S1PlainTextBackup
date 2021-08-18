@@ -3226,3 +3226,38 @@ smc虽然有社长的起手王炸，但是三人马里奥也是功不可没，bl
 
 
                                                  
+
+*****
+
+####  FCCHua  
+##### 6260#       发表于 2021-8-18 18:34
+
+
+ 本帖最后由 FCCHua 于 2021-8-18 18:40 编辑 
+
+现在应该没多少事业厨关注sky了吧，尤其今年下半年为了学业本人很明智的全休了（虽然联动等活动都参加)，我看挺好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 6261#       发表于 2021-8-18 18:35
+
+
+ 本帖最后由 hulaoda007 于 2021-8-18 19:23 编辑 
+
+才看到...Hakos原来是Mika画的啊...
+
+皇女也是大手啊。藤原蛮大了。而且国内最早CS的教程我记得就是请藤原来教的。
+
+
+*****
+
+####  zerouuz  
+##### 6262#       发表于 2021-8-18 19:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">你杏真会找大手画师画皮，我虹酸死了
+
+
+                                                 

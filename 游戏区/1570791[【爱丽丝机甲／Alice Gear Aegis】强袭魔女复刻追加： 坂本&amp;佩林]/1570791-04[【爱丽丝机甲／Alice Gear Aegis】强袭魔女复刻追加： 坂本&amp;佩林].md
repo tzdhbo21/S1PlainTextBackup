@@ -17540,3 +17540,39 @@ an因为换成了出力属性双手剑大专精，打克制伤害要比原版低
 
 
                                                  
+
+*****
+
+####  MOOMBA  
+##### 5864#       发表于 2021-8-18 19:15
+
+
+试了一下 抽到了AN的四谷后 原版就可以更换SP技能了 
+
+开启后是一个BUFF 没玩明白 在时间之内行动自带残影  近身攻击方式改变? 
+
+
+问题是 AN角色不能和原版一起上就算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就一套专属  A穿了B就裸了  俩人谁上谁穿这还是有点蛋疼的....<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 5865#       发表于 2021-8-18 19:48
+
+
+还好还好，多往后拖几天我就躲回回票.........
+
+
+*****
+
+####  squallx  
+##### 5866#       发表于 2021-8-18 19:54
+
+
+阿金太不懂了吧 没出北欧组也就罢了 这爹妈组怎么还给拆CP了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

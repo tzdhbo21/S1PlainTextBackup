@@ -1291,3 +1291,280 @@ F379E9EE-9722-4FB6-8E64-DBFF4DBD4323.png
 
 
                                                
+
+*****
+
+####  森兰丸  
+##### 82612#       发表于 2021-8-18 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418526&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-18 18:25</a>
+
+然后等到了泳装看你拍大腿后悔
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4星还不知道是谁.....5星不就是加摩和艾蕾么....早就打好预防针了....真后悔的话还能等明年的复刻
+
+
+非洲人BOX里一堆泳装还真都是复刻抽到的
+
+
+*****
+
+####  Jamaisvu  
+##### 82613#       发表于 2021-8-18 18:33
+
+
+2.6最佳陪跑：姚翠+药膏
+
+
+巴格斯特女士和巴班西女士恐成持有率最高的剧情限定<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82614#       发表于 2021-8-18 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418612&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-18 18:33</a>
+
+2.6最佳陪跑：姚翠+药膏
+
+
+巴格斯特女士和巴班西女士恐成持有率最高的剧情限定 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别乱说我一个都没有！
+
+
+*****
+
+####  xiongxingyu  
+##### 82615#       发表于 2021-8-18 18:37
+
+
+说起泳装，今年5星灵衣是脚后跟啊，以往3年5星灵衣都是高人气的限定五星，顺便复刻一波，今年来了个常驻的，还是落后两个版本的绿光炮，这要咋整？男性池up脚后跟的话怕不是大多数人只能等到二池去抽男性礼装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 82616#       发表于 2021-8-18 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418633&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 18:35</a>
+
+你别乱说我一个都没有！</blockquote>
+之前的摩根和奥伯龙池子都没抽吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+（刚才想搏个摩根2宝，毕竟50NP自充红光炮，适合环境......然后妖崔三宝了，每个池子各出一个<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  qixinno2  
+##### 82617#       发表于 2021-8-18 18:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418667&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-18 18:39</a>
+
+之前的摩根和奥伯龙池子都没抽吗
+
+
+（刚才想搏个摩根2宝，毕竟50NP自充红光炮，适合环境......然后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">他狗而已 他摩根奥伯龙都出了 
+
+
+*****
+
+####  Jamaisvu  
+##### 82618#       发表于 2021-8-18 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418654&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-18 18:37</a>
+
+说起泳装，今年5星灵衣是脚后跟啊，以往3年5星灵衣都是高人气的限定五星，顺便复刻一波，今年来了个常驻的 ...</blockquote>
+万策尽了吧，各种馊主意骚操作。FGO这运营除了没克扣福利外（本来也没啥可扣的了）感觉和GBF那位一样混乱疯狂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+也可能是东出要求给亲儿子出一套，如果男池放几个剧情限定男人说不定有点吸引力...
+
+
+（反正他真摆烂就出常驻角色也有人抽...大概）
+
+
+*****
+
+####  alucardcz  
+##### 82619#       发表于 2021-8-18 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418667&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-8-18 18:39</a>
+
+之前的摩根和奥伯龙池子都没抽吗
+
+
+（刚才想搏个摩根2宝，毕竟50NP自充红光炮，适合环境......然后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5星都出了 4星一个没有 
+
+
+*****
+
+####  rooarr  
+##### 82620#       发表于 2021-8-18 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418728&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 18:45</a>
+
+5星都出了 4星一个没有</blockquote>
+欧洲人真的该死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  alucardcz  
+##### 82621#       发表于 2021-8-18 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418741&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-18 18:45</a>
+
+欧洲人真的该死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别以为萌新不知道你刚刚又补了一宝 萌新刚刚也allin了 无事发生！
+
+
+*****
+
+####  qixinno2  
+##### 82622#       发表于 2021-8-18 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418728&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 18:45</a>
+
+5星都出了 4星一个没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我妖高 妖崔都四宝了 好气啊
+
+
+*****
+
+####  alucardcz  
+##### 82623#       发表于 2021-8-18 18:47
+
+
+翻页
+
+
+*****
+
+####  rooarr  
+##### 82624#       发表于 2021-8-18 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418760&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 18:47</a>
+
+别以为萌新不知道你刚刚又补了一宝 萌新刚刚也allin了 无事发生！</blockquote>
+我本来就是2宝摩根啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82625#       发表于 2021-8-18 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418806&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-18 18:51</a>
+
+我本来就是2宝摩根啊今天60石头一点声音都没</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我以为你说今天补了2宝 溜了溜了
+
+
+*****
+
+####  rooarr  
+##### 82626#       发表于 2021-8-18 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418819&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 18:52</a>
+
+我以为你说今天补了2宝 溜了溜了</blockquote>
+想补2宝奥伯龙的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跪得彻底
+
+
+*****
+
+####  alucardcz  
+##### 82627#       发表于 2021-8-18 18:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418837&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-18 18:52</a>
+
+想补2宝奥伯龙的跪得彻底</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">萌新前几天看到个双奥+王姐6加成的测试。。不知道实战如何
+
+
+*****
+
+####  rooarr  
+##### 82628#       发表于 2021-8-18 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418890&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 18:56</a>
+
+萌新前几天看到个双奥+王姐6加成的测试。。不知道实战如何</blockquote>
+不用看都知道，1面2面伤害太低，奥只适合3面打boss，1面2面就一个0.3的buff太低了
+
+
+*****
+
+####  alucardcz  
+##### 82629#       发表于 2021-8-18 19:01
+
+
+ 本帖最后由 alucardcz 于 2021-8-18 19:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418945&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-18 19:00</a>
+
+不用看都知道，1面2面伤害太低，奥只适合3面打boss，1面2面就一个0.3的buff太低了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不一定 都开了20np的  他是3个人一人一面的打法   3技能看面丢
+
+
+*****
+
+####  alucardcz  
+##### 82630#       发表于 2021-8-18 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418945&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-18 19:00</a>
+
+不用看都知道，1面2面伤害太低，奥只适合3面打boss，1面2面就一个0.3的buff太低了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">萌新去看了看  奥师傅不开3技能 10万单体 开1个3技能16万单体  最后王姐技能全开32万 
+
+[https://www.bilibili.com/video/BV1d64y1Y7TX?p=2](https://www.bilibili.com/video/BV1d64y1Y7TX?p=2)
+
+这个 伤害挺高了 但是只能打红字   外加。。全5宝太高贵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 82631#       发表于 2021-8-18 19:23
+
+
+有灵衣换就是好啊
+
+
+0300DD31-2DCA-45A9-B051-B40722DB39D1.png
+(801.68 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-18 19:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/192305baa5la1w1ldwwwpn.png" referrerpolicy="no-referrer">
+
+
+                                                
