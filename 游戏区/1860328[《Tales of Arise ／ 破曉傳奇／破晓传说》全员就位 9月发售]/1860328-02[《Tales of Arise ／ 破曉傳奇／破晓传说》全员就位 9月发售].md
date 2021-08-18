@@ -13966,3 +13966,111 @@ BA技流程中能学到新的吗，还是每个人就固定这招了。</blockqu
 
 
                                                  
+
+*****
+
+####  laoz  
+##### 2549#       发表于 2021-8-18 21:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52421024&amp;ptid=1860328" target="_blank">五星战世韩玉昆 发表于 2021-8-18 21:30</a>
+
+这个好像在打开菜单图书馆的战斗说明里是有的
+
+不过按方块显示大地图反而没说，搞得我开始还觉得这作地图 ...</blockquote>
+你领到打螳螂的任务后，往前走左上角会显示方块打开大地图
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/213627jdgczct1tepx1evb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>破曉傳奇 體驗版_20210818213441.jpg</strong> (492.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 21:36 上传
+
+
+*****
+
+####  alingzero  
+##### 2550#       发表于 2021-8-18 21:55
+
+
+玩了试玩版，远超出我的期待，法师妹子喜欢，这才是法师该有的玩法啊。预购究极版了
+
+
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 2551#       发表于 2021-8-18 21:58
+
+
+4的掉帧感觉有点严重。。。而且队友的人设好一般啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a2042312  
+##### 2552#       发表于 2021-8-18 22:08
+
+
+敌人的倒地时间是不是有点短啊，男主火焰剑的前摇都没好就起来了，难道是要预判倒地提前放火焰剑么。
+
+
+*****
+
+####  iqbsh38  
+##### 2553#       发表于 2021-8-18 22:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420806&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-8-18 21:15</a>
+
+民族，种族矛盾一直是传说的最爱，绝大部分传说都是这个为主轴</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">初代和续作可以说把种族矛盾演绎的十分彻底了 人类和精灵老死不往来 半精灵两边不是人后来干脆分家都跑到卡兰 然后在卡兰的半精灵居然还内战...
+
+
+*****
+
+####  红魔馆的糖  
+##### 2554#       发表于 2021-8-18 22:23
+
+
+小姑娘是只能憨蓄然后放大魔法么，感觉输出没那么高，硬质又大。有没有啥特殊连段<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+被公主的追踪弹爆了
+
+
+*****
+
+####  iqbsh38  
+##### 2555#       发表于 2021-8-18 22:24
+
+
+觉得操作别扭可以试着把跳改成R1 普通改成□ 魔神剑改× 这样手感就回到老传说的感觉了 不过还是有点不适应这个依赖空中技变招的系统
+
+还有场面真的好乱啊 视角能不能调成空中视角 乱七八糟技能都丢过去看不见人了 怪又大...
+
+
+*****
+
+####  sad6504  
+##### 2556#       发表于 2021-8-18 22:26
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/222553a7st7is7li7bh7sb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210818222539.jpg</strong> (91.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 22:25 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我就说怎么会少了爱马仕的服装DLC
+
+
+                                                

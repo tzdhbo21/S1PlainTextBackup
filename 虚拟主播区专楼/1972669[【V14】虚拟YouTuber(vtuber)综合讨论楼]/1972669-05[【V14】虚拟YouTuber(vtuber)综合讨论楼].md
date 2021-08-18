@@ -3327,3 +3327,74 @@ syl，听完了，不知道为什么副歌店长没有用电音，但是听起�
 
 
                                                  
+
+*****
+
+####  mmbk  
+##### 6268#       发表于 2021-8-18 21:43
+
+
+ 本帖最后由 mmbk 于 2021-8-18 21:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418461&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-8-18 18:19</a>
+纯路人：爱园不算媚宅吗🤗</blockquote>
+爱园算个锤子媚宅<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 你对着爱园滑一次试试，勾八都给你吓软，别什么cylx都能媚宅了
+
+
+*****
+
+####  rzrbtk  
+##### 6269#       发表于 2021-8-18 21:51
+
+
+爱园的皮是伊东life老师欲望的具现化啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  墨白凌  
+##### 6270#       发表于 2021-8-18 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420713&amp;ptid=1972669" target="_blank">adamtheo 发表于 2021-8-18 21:10</a>
+错楼了？
+
+因为原唱就这样</blockquote>
+没错楼，脑抽把这里叫成专楼了
+总而言之谢谢
+
+
+
+
+*****
+
+####  poipanchao  
+##### 6271#       发表于 2021-8-18 22:12
+
+
+ 本帖最后由 poipanchao 于 2021-8-18 22:16 编辑 
+
+uge不愧是前最水大师，3v3输夏大师
+
+昨天也是，3v2输千大师
+
+noah倒是各种无双，虽然吃不到鸡，但是帅倒是挺帅的
+
+hnn队的sena每天都在战犯，这次hnn让我想起了上次的bora
+
+nrk……我希望虹楼的nrk吹收收心……她真的只有枪力……
+
+
+*****
+
+####  alcoholic1000  
+##### 6272#       发表于 2021-8-18 22:21
+
+
+舞元这在NS上撒把米鸡啄都比他手抽的卡好
+
+最高92，还有个23的投手
+
+“你为什么要来打棒球啊”——King
+
+
+                                                
