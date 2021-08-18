@@ -14380,3 +14380,197 @@ PS5这手柄震动适配得居然还不错，sbgi属实玩明白了
 
 
                                                  
+
+*****
+
+####  红魔馆的糖  
+##### 2580#       发表于 2021-8-18 23:35
+
+
+boss怪怎么才能击飞呀
+
+
+
+
+*****
+
+####  leystage  
+##### 2581#       发表于 2021-8-18 23:37
+
+
+<blockquote>leystage 发表于 2021-8-18 08:55
+问下 Xbox 美服下载的话，有没有日文文字选项？</blockquote>
+发现机器语言设置成日语，美服下载的也是日文文本了。
+
+然后 PS4 Pro 版也试了下，感觉要爆炸了，遂放弃
+
+
+*****
+
+####  TerryBlues  
+##### 2582#       发表于 2021-8-18 23:42
+
+
+先订个标准版，到时候看情况补DLC
+
+
+*****
+
+####  4ckc  
+##### 2583#       发表于 2021-8-18 23:43
+
+
+试玩通了感觉还是很不错的，虽然我没有完全摸清楚这个战斗系统
+感觉可以预购了，总不能剧情喂屎吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  名字已被吃  
+##### 2584#       发表于 2021-8-18 23:48
+
+
+狗屎js实体盘首发特典加价卖，点卡买数字都是一个价，宁愿转数字去了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  reficul  
+##### 2585#       发表于 2021-8-18 23:52
+
+
+安心预购，打到野猪就不打了，好吃的要留到正式版再品尝<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fuero  
+##### 2586#       发表于 2021-8-18 23:58
+
+
+还没时间体验，ps5有做手柄适配吗？
+
+
+*****
+
+####  415452356  
+##### 2587#       发表于 2021-8-19 00:03
+
+
+  一个男主都够玩一阵子了，一套下来接hold系火焰剑技能不要太爽
+
+
+*****
+
+####  泉美  
+##### 2588#       发表于 2021-8-19 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422848&amp;ptid=1860328" target="_blank">Fuero 发表于 2021-8-18 23:58</a>
+
+还没时间体验，ps5有做手柄适配吗？</blockquote>
+有做手柄震动，大概绯红结系水平吧
+
+
+*****
+
+####  acg_gyanc  
+##### 2589#       发表于 2021-8-19 00:04
+
+
+之前没有玩过传说，玩这个上手只会xjb打，感觉自己好蠢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 这系列的战斗目的就是各种打连段么？
+
+
+*****
+
+####  索田八公  
+##### 2590#       发表于 2021-8-19 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422904&amp;ptid=1860328" target="_blank">泉美 发表于 2021-8-19 00:03</a>
+
+有做手柄震动，大概绯红结系水平吧</blockquote>
+不如绯红结系，就是普通的手柄震动，自适应扳机没做
+
+
+*****
+
+####  只等待明天  
+##### 2591#       发表于 2021-8-19 00:07
+
+
+昨天立flag今天真就加班了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">终于玩上了
+画质是真的好，就是帧数不稳难受，性能模式又糊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+要是能像瑞奇与叮当那样稳40帧就好了
+
+
+*****
+
+####  古明地雷  
+##### 2592#       发表于 2021-8-19 00:19
+
+
+我是slim，除了地图跑路，哪里都掉帧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  泉美  
+##### 2593#       发表于 2021-8-19 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422933&amp;ptid=1860328" target="_blank">索田八公 发表于 2021-8-19 00:07</a>
+
+不如绯红结系，就是普通的手柄震动，自适应扳机没做</blockquote>
+比普通震动还是要强点的，不同攻击带来的震感变化区别还是不小<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+自适应扳机这游戏确实也没法做
+
+
+*****
+
+####  可乐蛋卷  
+##### 2594#       发表于 2021-8-19 00:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422908&amp;ptid=1860328" target="_blank">acg_gyanc 发表于 2021-8-19 00:04</a>
+
+之前没有玩过传说，玩这个上手只会xjb打，感觉自己好蠢 这系列的战斗目的就是各种打连段么？ ...</blockquote>
+体验剧情选简单难度就行了，当无双砍过去，系列风格其实就是打段子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑暗之眼  
+##### 2595#       发表于 2021-8-19 00:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422908&amp;ptid=1860328" target="_blank">acg_gyanc 发表于 2021-8-19 00:04</a>
+
+之前没有玩过传说，玩这个上手只会xjb打，感觉自己好蠢 这系列的战斗目的就是各种打连段么？ ...</blockquote>
+是，打连段，拿高评价，评价点数越高通关后能换的周回奖励项目越多
+
+
+*****
+
+####  black  
+##### 2596#       发表于 2021-8-19 00:23
+
+
+顺带一提好像说明里没有，试玩版单人秘奥义也是有的，使用方法是ovl状态下长按住任意两个招术。然后隐藏BOSS是收集了所有人武器去打剧情BOSS自动触发，打不打隐藏会影响最后对话。
+
+
+*****
+
+####  clstc  
+##### 2597#       发表于 2021-8-19 00:37
+
+
+这次的作战太迷了，感觉只有回复类，攻击类的都没了，队友的优先攻击目标变成了每个人物的专属风格，无法变更，防御类连远离敌人进行防御都没有，boss曝气远程队友还是会傻兮兮攻击被锤。
+
+
+                                                

@@ -1201,3 +1201,34 @@ mmexport1629089368566.jpg
 
 
                                                  
+
+*****
+
+####  ads147147  
+##### 1575#       发表于 2021-8-18 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52420791&amp;ptid=2013091" target="_blank">wyhman 发表于 2021-8-18 21:14</a>
+所以，为什么是NAGISA司令啊 有人能给说说不。。。我总感觉我需要一个四个剧场版的联合解析 ...</blockquote>
+痞子采访说了：破预告后面的内容到q之前是实际存在的，只是因为真嗣没能登场就没做了。里头包含了老碇和冬月下台，渚薰成为nerv司令，加持是副司令。
+
+具体什么情况，痞子说有可能以某种形式做出来。。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  suhanblood  
+##### 1576#       发表于 2021-8-19 00:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52421782&amp;ptid=2013091" target="_blank">Carta_Issue 发表于 2021-8-18 22:16</a>
+
+突然觉得，明日香在剧场版从天才自然人少女降级成克隆量产体后，
+
+绫波丽是不是也降级了，整个终里面就没莉 ...</blockquote>
+老样子主角他妈啊，这自带的好感就是原型留下的吧
+
+
+                                                 

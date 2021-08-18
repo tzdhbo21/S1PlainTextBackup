@@ -1923,3 +1923,49 @@ https://w ...</blockquote>
 
 
                                                  
+
+*****
+
+####  里村紅葉  
+##### 82661#       发表于 2021-8-18 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422522&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-18 23:24</a>
+
+３０变５０充如何　这样王姐就直接无了</blockquote>
+隔壁小福是你师兄吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82662#       发表于 2021-8-18 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422690&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-18 23:41</a>
+
+隔壁小福是你师兄吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁啊　不认识
+
+
+*****
+
+####  qb0079  
+##### 82663#       发表于 2021-8-18 23:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们为什么会觉得下周是妖兰up，yls这么宝才！
+
+我猜下周是村正+友情池哈贝喵up
+
+
+*****
+
+####  stefanie张  
+##### 82664#       发表于 2021-8-18 23:58
+
+
+妖崔妖高正好都五宝了，一个不多一个不少，这俩感觉是常驻了，每次看卡池里面都是他俩
+
+
+                                                 
