@@ -7143,3 +7143,17 @@ image.png
 
 
                                                  
+
+*****
+
+####  lydia5989  
+##### 2019#       发表于 2021-8-18 11:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52381842&amp;ptid=1963832" target="_blank">Skyline_R 发表于 2021-8-15 17:09</a>
+
+以前没怎么看过子供向（只看过去年的甜梦猫），想问一下直接看这部Q娃可以吗，有前作/需要补前作吗？ ...</blockquote>
+每一年都是独立故事，基本上每一集也都是独立的，每年大概会有累计4-5集是连续的故事，跟甜梦猫差不多
+
+
+                                                 

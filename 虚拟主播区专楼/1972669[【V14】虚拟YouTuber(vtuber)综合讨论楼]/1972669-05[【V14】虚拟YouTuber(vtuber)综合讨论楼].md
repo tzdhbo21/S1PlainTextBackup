@@ -2810,3 +2810,58 @@ roha下周回国
 
 
                                                  
+
+*****
+
+####  patema  
+##### 6225#       发表于 2021-8-18 10:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">holo现在的人脉请动画师不是a1cw那边一大把，请个眉毛不是轻轻松松。不过画管皮是一个新的领域，传统领域的绘画技巧不少在画管皮这里没法用，不少画手画管皮观感吊着顶流画手打
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  winda  
+##### 6226#       发表于 2021-8-18 11:01
+
+
+35人设就是田中雄一，结果论而言爹太忙摇不到新衣服也是问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 6227#       发表于 2021-8-18 11:11
+
+
+从国内外的情况来看，画师父母和liver本人绑定的情况比较多。火了之后持续更新新衣服，回馈人气什么的都是持续投资。画师更像是美术资源上的合伙人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空集  
+##### 6228#       发表于 2021-8-18 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412012&amp;ptid=1972669" target="_blank">patema 发表于 2021-8-18 09:26</a>
+杏皮en二期如果作为一个整体一个unit来看的话甚至不如虹的世怜女五色战队。是不是杏约稿子的和写设 ...</blockquote>
+米山是一个人画 ，你再怎么搞也没法让pako wada pizako统一，类比手游业界也是一般各种立绘质量差距大，fgo就是最显著的例子，能统一的一般我们叫他cy
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  空集  
+##### 6229#       发表于 2021-8-18 11:25
+
+
+很期待能不能未来有官方或非官方性质大型合同本了，目前阵容来说如果有的话目前阵容下收藏分量已经相当高了。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

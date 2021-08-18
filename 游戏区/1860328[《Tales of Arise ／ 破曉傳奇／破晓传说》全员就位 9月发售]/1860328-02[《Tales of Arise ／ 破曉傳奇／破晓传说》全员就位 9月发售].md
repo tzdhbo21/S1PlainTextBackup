@@ -12984,3 +12984,150 @@ PS5上性能表现简直就是灾难
 
 
                                                 
+
+*****
+
+####  LT_Harry  
+##### 2465#         楼主| 发表于 2021-8-18 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52411699&amp;ptid=1860328" target="_blank">reficul 发表于 2021-8-18 08:57</a>
+都有哪些平台60帧，xsx，PS5？4pro可以吗</blockquote>
+PS4 版可能没锁定帧率，我感觉有时候画面大于30，有时候又小于30，玩起来很别扭。
+
+
+*****
+
+####  hotsmile  
+##### 2466#       发表于 2021-8-18 10:39
+
+
+这次不用搓招好评，真可以一顿砍瓜切菜了，还有帧数60很稳定吧，没发现有掉帧啊
+
+
+*****
+
+####  laoz  
+##### 2467#       发表于 2021-8-18 10:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412923&amp;ptid=1860328" target="_blank">hotsmile 发表于 2021-8-18 10:39</a>
+
+这次不用搓招好评，真可以一顿砍瓜切菜了，还有帧数60很稳定吧，没发现有掉帧啊 ...</blockquote>
+其他队友输出比较大的魔法后，你用男主打爪龙的火剑派生技能后会掉帧
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 2468#       发表于 2021-8-18 10:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412642&amp;ptid=1860328" target="_blank">laoz 发表于 2021-8-18 10:20</a>
+
+你没被打，你只是用了火剑，火剑的技能会扣血</blockquote>
+不是，我就是菜被打的……
+
+刚才被巨怪野猪冲死了
+
+
+*****
+
+####  hugosol  
+##### 2469#       发表于 2021-8-18 10:50
+
+
+还有半个月直接等正式版了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 2470#       发表于 2021-8-18 10:52
+
+
+这PS5版的背景也太糊了。。。
+
+PC没有试玩版能看看大力出奇迹救不救得了？
+
+
+*****
+
+####  nooooooo  
+##### 2471#       发表于 2021-8-18 10:57
+
+
+pc960能玩吗?<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2472#       发表于 2021-8-18 11:02
+
+
+ 本帖最后由 qiyu1234 于 2021-8-18 11:04 编辑 
+
+一开始默认地上/空中 三个术技槽我觉得还是有必要的，多了有些玩家可能掌握不过来
+
+正式版里一开始术技和skill都很少，没有试玩里这种性能，对新玩家来说学习曲线会更平滑
+
+
+另外设定里默认按键延迟输入时间竟然是长，建议追求动作玩法但又担心自己手快容易误输入的玩家设置为短，不然有可能会导致术技/普攻按多了接不上
+
+
+*****
+
+####  hotsmile  
+##### 2473#       发表于 2021-8-18 11:04
+
+
+男主很多招硬直太长了，又中断不了，硬吃螳螂不少招，而且又没霸体
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 2474#       发表于 2021-8-18 11:08
+
+
+蹲一个国内能看的打得不错的试玩版全流程
+
+
+*****
+
+####  zqqwe  
+##### 2475#       发表于 2021-8-18 11:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52413331&amp;ptid=1860328" target="_blank">hotsmile 发表于 2021-8-18 11:04</a>
+男主很多招硬直太长了，又中断不了，硬吃螳螂不少招，而且又没霸体</blockquote>
+boss的down时间是有点短，破弱点都不够打两套爪龙
+
+
+*****
+
+####  zqqwe  
+##### 2476#       发表于 2021-8-18 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52413288&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-18 11:02</a>
+一开始默认地上/空中 三个术技槽我觉得还是有必要的，多了有些玩家可能掌握不过来
+
+正式版里一开始术技和ski ...</blockquote>
+注意到一个问题是试玩没有空中回避/防御（但是有受身）挑空上天之后就成了活靶子，特别是打霸体boss都不敢用空中技，希望正式版有对应的skill
+
+
+*****
+
+####  椎名mahuyo  
+##### 2477#       发表于 2021-8-18 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52413204&amp;ptid=1860328" target="_blank">nooooooo 发表于 2021-8-18 10:57</a>
+
+pc960能玩吗?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">最低配置要求760
+
+
+                                                 
