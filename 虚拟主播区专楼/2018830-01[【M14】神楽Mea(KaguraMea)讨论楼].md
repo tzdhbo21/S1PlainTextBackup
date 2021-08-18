@@ -9388,3 +9388,210 @@ tc<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrer
 
 
                                                  
+
+*****
+
+####  时间在我手中  
+##### 869#       发表于 2021-8-18 14:58
+
+
+今晚可能播，kamo
+
+
+*****
+
+####  T_Hb  
+##### 870#       发表于 2021-8-18 14:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就是预言家？
+
+
+
+
+*****
+
+####  呓亘  
+##### 871#       发表于 2021-8-18 15:00
+
+
+之前好像聊到戒指了？
+
+
+*****
+
+####  2014720  
+##### 872#       发表于 2021-8-18 15:01
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/150046zj3u6zrqj2z23722.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-08-18 145855.png</strong> (15.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 15:00 上传
+
+
+*****
+
+####  路人庚  
+##### 873#       发表于 2021-8-18 15:01
+
+
+一天可能两动的阿咩
+
+
+你咩姐对疫情的担忧似乎是回来了一点（
+
+
+*****
+
+####  T_Hb  
+##### 874#       发表于 2021-8-18 15:01
+
+
+居安思危 好事
+
+什么时候能把全图放出来
+
+
+*****
+
+####  时间在我手中  
+##### 875#       发表于 2021-8-18 15:02
+
+
+【果然还是个debu tamu呢】<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 876#       发表于 2021-8-18 15:03
+
+
+担忧有个寄吧用 该出去浪还是出去浪 有种每天24小时待在家里不出门试试看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 877#       发表于 2021-8-18 15:04
+
+
+之前也是，这人在tc基本不会回避德布塔姆的（
+
+
+*****
+
+####  T_Hb  
+##### 878#       发表于 2021-8-18 15:05
+
+
+tc有家一样的安心感和包容力
+
+
+*****
+
+####  时间在我手中  
+##### 879#       发表于 2021-8-18 15:05
+
+
+ 本帖最后由 时间在我手中 于 2021-8-18 15:07 编辑 
+
+阿这，怎么忽然唐突一转eva同时视听了，可是老子压根没看过啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+果然debu tamu还是京紫征途泡泡系啦！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+车京复仇者？我看漫画的，动画不care的）
+
+
+*****
+
+####  时间在我手中  
+##### 880#       发表于 2021-8-18 15:13
+
+
+姐姐你泪点还挺丰富的，看柯南会哭，觉得看eva终也会哭，看宝可梦还是会哭，多啦A梦（？）也一样
+
+
+*****
+
+####  T_Hb  
+##### 881#       发表于 2021-8-18 15:13
+
+
+全部都哭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 882#       发表于 2021-8-18 15:14
+
+
+怎么还有人推荐我想要吃你的胰脏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 883#       发表于 2021-8-18 15:15
+
+
+其实yysy eva终的结局又不是不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 884#       发表于 2021-8-18 15:16
+
+
+ 本帖最后由 时间在我手中 于 2021-8-18 15:33 编辑 
+
+她又没看过eva，单纯云人云话罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+恶魔人谔谔
+
+我超，新兰党狂怒言论（x）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+又在对基德大人发春了
+
+
+为什么对赤坂秀一狙击时候感受到的帅气能带入到fps上面啊）喜欢帅气枪男是吧，赶紧去看major<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 885#       发表于 2021-8-18 15:37
+
+
+要下了，今晚反正可能也许或者会播，溜了
+
+
+*****
+
+####  路人庚  
+##### 886#       发表于 2021-8-18 15:47
+
+
+今天的tc挺短的
+
+
+*****
+
+####  时间在我手中  
+##### 887#       发表于 2021-8-18 16:34
+
+
+原来开头说的是出门打的结果雨一下子忽然下的乓大的事，吓到这肥婆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

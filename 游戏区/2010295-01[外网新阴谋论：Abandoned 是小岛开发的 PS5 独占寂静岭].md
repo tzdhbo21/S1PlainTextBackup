@@ -10359,3 +10359,66 @@ https://bbs.a9vg.com/thread-8757823-1-1.html
 
 
                                                  
+
+*****
+
+####  wbtsy  
+##### 818#       发表于 2021-8-18 14:48
+
+
+所以，之前小岛工作室给bluebox点赞取消。小岛发蓝色播放器。小岛弄什么9:54、8:54。是为了啥？
+
+
+*****
+
+####  C男  
+##### 819#       发表于 2021-8-18 14:52
+
+
+就只不过是随便发发的，岛学家是什么都要知道为什么吗？
+
+
+*****
+
+####  谢俊豪  
+##### 820#       发表于 2021-8-18 14:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415996&amp;ptid=2010295" target="_blank">C男 发表于 2021-8-18 14:52</a>
+
+就只不过是随便发发的，岛学家是什么都要知道为什么吗？</blockquote>
+岛学家迪化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  1096beam  
+##### 821#       发表于 2021-8-18 14:58
+
+
+一直以来我觉得应该是真的理由是KONAMI是一个斤斤计较小肚鸡肠的公司，对这种碰瓷营销应该第二天就寄律师信了
+
+K社已经成为了一家巨魔公司了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stary  
+##### 822#       发表于 2021-8-18 15:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 823#       发表于 2021-8-18 15:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52415960&amp;ptid=2010295" target="_blank">wbtsy 发表于 2021-8-18 14:48</a>
+所以，之前小岛工作室给bluebox点赞取消。小岛发蓝色播放器。小岛弄什么9:54、8:54。是为了啥？ ...</blockquote>
+倒计时这个可能是ds的活，跟着游戏没关系
+
+
+                                                 

@@ -2948,3 +2948,60 @@ irys的高速增长持续到了50w<img src="https://static.saraba1st.com/image/s
 
 
                                                  
+
+*****
+
+####  adcdqre  
+##### 6237#       发表于 2021-8-18 15:27
+
+
+ 本帖最后由 adcdqre 于 2021-8-18 16:21 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/18/152515ah95t1664n3f8n1c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210818-152306_Chrome.jpg</strong> (196.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-18 15:25 上传
+
+
+（葵皇最后的价值也没了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">）
+
+开始招各种staff不知道能瘪出什么来，难道是要拆进新项目？
+
+
+*****
+
+####  patema  
+##### 6238#       发表于 2021-8-18 16:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52413618&amp;ptid=1972669" target="_blank">空集 发表于 2021-8-18 11:22</a>
+米山是一个人画 ，你再怎么搞也没法让pako wada pizako统一，类比手游业界也是一般各种立绘质量差距大，f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  winda  
+##### 6239#       发表于 2021-8-18 16:22
+
+
+世怜女本身就是统一人设大失败的例子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蓝色的新衣还能勉强解释成哈韩辣妹，绿色新衣那是把世怜女设定撕碎了再踩几脚做出来的吧
+
+
+*****
+
+####  我不是很好  
+##### 6240#       发表于 2021-8-18 16:26
+
+
+世怜女都底边成啥样了
+
+
+                                                 
