@@ -17605,3 +17605,24 @@ an和原版性能倾向是明确的，SP之后也能互换，基本上只上一�
 
 
                                                  
+
+*****
+
+####  江戸前ルナ  
+##### 5869#       发表于 2021-8-18 23:22
+
+
+ 本帖最后由 江戸前ルナ 于 2021-8-18 23:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422378&amp;ptid=1570791" target="_blank">不灭的旋律 发表于 2021-8-18 23:12</a>
+
+金字塔太懂了，佩林本篇败犬就让她和坂本一起异世界转生发一下糖。感觉佩犬的模型比其他人精致不知是不是错 ...</blockquote>
+岛田亲口说这次的联动监修的是“一期”的佩琳。按之前穿越的剧情时间来说当然是一期的了。虽然我也很喜欢成熟的佩琳。
+
+
+另外佩琳的模型真的很还原（尊贵）啊，还有眼镜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+还有就是今天中午没忍住给阿金发了协力断线不断的邮件，然后今晚就完全正常了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

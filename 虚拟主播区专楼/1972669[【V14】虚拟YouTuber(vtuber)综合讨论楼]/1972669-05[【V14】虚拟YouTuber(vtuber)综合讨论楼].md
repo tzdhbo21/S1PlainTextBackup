@@ -3398,3 +3398,100 @@ nrk……我希望虹楼的nrk吹收收心……她真的只有枪力……
 
 
                                                 
+
+*****
+
+####  fastary  
+##### 6273#       发表于 2021-8-18 22:44
+
+
+ 本帖最后由 fastary 于 2021-8-18 22:50 编辑 
+
+黑客的黑客是不是真的变强了啊，连续三天吃到鸡了（虽然就一次啦）……刷推看到还挺多夸他的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+密客公认(?)用起来难还能被夸上手就觉得很开心<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+这就是gachi纯粹的快乐吗，感觉被他摸到戒断的7月8月初都不算什么了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">（万一大家只是鼓励性质的夸而我因为没玩过APEX误会了就丢人了所以只好意思在冷清的s1说……
+
+甚至突然想学着打APEX了不过实在是fps下手啊）
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|恭喜恭喜|
+
+
+查看全部评分
+
+
+*****
+
+####  古战场亡魂  
+##### 6274#       发表于 2021-8-18 22:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">彩虹甲子园看着挺有意思的，ns不在身边，手机下了个2013玩玩，感觉没直播好玩。
+
+
+*****
+
+####  _Ra1nMaker  
+##### 6275#       发表于 2021-8-18 22:48
+
+
+这比赛就没几个有意识集火打掉密客飞脸上的无人机的。。。
+
+
+*****
+
+####  winda  
+##### 6276#       发表于 2021-8-18 22:52
+
+
+这侵蚀多到倒逼密客都多起来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 6277#       发表于 2021-8-18 22:56
+
+
+除了大腿以外的人枪法整体不行--》中远程打不中，近战地位上升--》角色技能伤害地位上升，同时毒气大增强--》几乎人人带毒气--》倒逼唯一反制手段密客大增
+
+
+*****
+
+####  FCCHua  
+##### 6278#       发表于 2021-8-18 22:59
+
+
+这次最协感觉第一名还挺有悬念的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  _Ra1nMaker  
+##### 6279#       发表于 2021-8-18 23:29
+
+
+看下来reid队还是比较稳的 起码前三没问题吧
+
+
+*****
+
+####  winda  
+##### 6280#       发表于 2021-8-18 23:30
+
+
+油管又开始抽风了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+                                                 

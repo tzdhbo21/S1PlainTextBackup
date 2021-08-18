@@ -2766,3 +2766,30 @@ syl人是不一样的，不能用自己的理性想法去说服别人的感性�
 
 
                                                  
+
+*****
+
+####  IDIDIDID  
+##### 246#       发表于 2021-8-18 22:56
+
+
+ 本帖最后由 IDIDIDID 于 2021-8-18 23:21 编辑 
+
+真的想当偶像就好好管住嘴吧，不然运营打一顿也行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1sq4y1M7Ve](https://www.bilibili.com/video/BV1sq4y1M7Ve)
+
+
+*****
+
+####  丢了五块钱  
+##### 247#       发表于 2021-8-18 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422248&amp;ptid=2013779" target="_blank">IDIDIDID 发表于 2021-8-18 22:56</a>
+真的相当偶像就管住嘴吧阿姨
+
+https://www.bilibili.com/video/BV1sq4y1M7Ve</blockquote>
+我怀疑静姨高考考的是日语吧，什么铸币英文初中水平
+
+
+                                                 
