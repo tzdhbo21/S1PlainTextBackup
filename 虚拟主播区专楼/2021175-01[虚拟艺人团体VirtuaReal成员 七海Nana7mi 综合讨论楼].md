@@ -880,3 +880,17 @@ BMI17如果是真的话，又经常打嗝作息不正常0，胃会不会真的�
 
 
                                                  
+
+*****
+
+####  本间日阳  
+##### 78#       发表于 2021-8-20 06:34
+
+
+ 本帖最后由 本间日阳 于 2021-8-20 06:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52436278&amp;ptid=2021175" target="_blank">GarNoc 发表于 2021-8-20 04:22</a>
+她肠胃不好蛮久了，但是也没检查出什么来，过段时间说再去做个体检</blockquote>
+回错楼了，编辑。
+
+
+                                                 
