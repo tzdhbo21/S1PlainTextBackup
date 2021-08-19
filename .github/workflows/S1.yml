@@ -12,7 +12,10 @@ jobs:
   AddThreads:
     runs-on: ubuntu-latest
     steps:
-    - uses: actions/checkout@v2
+    - name: CheckoutRepo
+      uses: actions/checkout@v2
+      with:
+        ref: master
     - name: Set up Python
       uses: actions/setup-python@v2
       with:
@@ -47,7 +50,10 @@ jobs:
     needs: AddThreads
     runs-on: ubuntu-latest
     steps:
-    - uses: actions/checkout@v2
+    - name: CheckoutRepo
+      uses: actions/checkout@v2
+      with:
+        ref: master
     - name: Set up Python
       uses: actions/setup-python@v2
       with:
@@ -84,6 +90,8 @@ jobs:
     steps:
     - name: CheckoutRepo
       uses: actions/checkout@v2
+      with:
+        ref: master
     - name: Set up Python
       uses: actions/setup-python@v2
       with:
