@@ -1353,3 +1353,49 @@ q之前的14年单独出作品不好安排小受戏份的话，
 
 
                                                  
+
+*****
+
+####  blood_iron  
+##### 1586#       发表于 2021-8-19 10:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52425132&amp;ptid=2013091" target="_blank">woshenc 发表于 2021-8-19 09:53</a>
+
+虽然没有提及，但我觉得还是有联系的
+
+证据就是Q和终里出现的，莉莉丝和负宇宙莉莉丝，依然长了一张绫波丽 ...</blockquote>
+感觉是轮回说，上一次轮回的绫波丽和莉莉丝有关系
+
+但新剧场版真的没啥事，新剧场版的莉莉丝感觉就剩个名字了
+
+一点作用都没体现
+
+
+妈耶，痞子为了捧他的真希波，明日香和绫波丽两个人全部降格了
+
+一个变量产人，一个灵魂变普通
+
+
+*****
+
+####  fuzzytuzi  
+##### 1587#       发表于 2021-8-19 10:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">谁帮忙讲讲空想EVA是怎么回事，负宇宙怎么也有一个莉莉丝？
+
+
+*****
+
+####  mcq_2  
+##### 1588#       发表于 2021-8-19 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52424804&amp;ptid=2013091" target="_blank">七七見奈波 发表于 2021-8-19 09:24</a>
+
+就是那个细节害我反复看了好几遍确认那个疑似磁力鞋用途的足跟部到底是不是高跟，结果也没搞明白 ...</blockquote>
+不用想太多，就是作画错误。赶工问题，看bd有没有修复了
+
+
+                                                 

@@ -780,3 +780,39 @@ apex喜提微博热搜前十<img src="https://static.saraba1st.com/image/smiley/
 
 
                                                  
+
+*****
+
+####  scpS1  
+##### 70#       发表于 2021-8-19 11:12
+
+
+海子姐这能讨论阿梓吗？<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tn_teana  
+##### 71#       发表于 2021-8-19 11:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52408038&amp;ptid=2021175" target="_blank">梅斯之围 发表于 2021-8-17 20:12</a>
+这个拟态七海怎么感觉有点可爱，如果是真的海子姐该有多好</blockquote>
+那我就要怀疑海子姐闲的程度了<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rosefinch  
+##### 72#       发表于 2021-8-19 11:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52424802&amp;ptid=2021175" target="_blank">追风小星星 发表于 2021-8-19 09:24</a>
+我一直是纯良鲨啊
+
+
+SYL,为什么海子姐没有反驳肥婆这个称呼?</blockquote>
+可能真是是小坦克<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

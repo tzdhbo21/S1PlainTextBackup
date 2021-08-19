@@ -14938,3 +14938,96 @@ pro风扇起飞也撑不住，小卡顿和闪现植被层出不穷
 
 
                                                  
+
+*****
+
+####  医生狼多  
+##### 2627#       发表于 2021-8-19 10:26
+
+
+ 本帖最后由 医生狼多 于 2021-8-19 10:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422848&amp;ptid=1860328" target="_blank">Fuero 发表于 2021-8-18 23:58</a>
+还没时间体验，ps5有做手柄适配吗？</blockquote>
+奔跑时跳跃和部分技能有特殊震动
+用的时候感觉还挺明显的，但是平时观感影响不大
+我在犹豫买pc版好还是ps5版好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中泽君  
+##### 2628#       发表于 2021-8-19 10:32
+
+
+战斗中换后备上场是不是必须打开菜单，还以为L2L1按着就行
+
+
+*****
+
+####  rak1  
+##### 2629#       发表于 2021-8-19 10:44
+
+
+没用到啥ps5特性为什么要单独出ps5版？这下连sw都用不了，正式版要是没ps4/5存档转换就买xsx版了
+
+
+*****
+
+####  Yorda028  
+##### 2630#       发表于 2021-8-19 10:57
+
+
+昨天打开玩了10分钟，问下大世界的按键能改吗，O键跳跃真是..... 战斗里的我改了X跳跃，没找到大世界按键在哪改
+
+
+*****
+
+####  qiyu1234  
+##### 2631#       发表于 2021-8-19 10:58
+
+
+ 本帖最后由 qiyu1234 于 2021-8-19 11:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52425660&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-8-19 10:32</a>
+
+战斗中换后备上场是不是必须打开菜单，还以为L2L1按着就行</blockquote>
+可以不通过菜单换替补
+
+
+战斗中按L2 翻页快速切换替补人物上场 需要先在后备页 按住指定人物的十字键 不动到读条满 显示 换人标志，然后在切回第一页按住想换下的人物的十字键到读条满 显示 换人标志才会切换（包括操作角色），如果替补的BA是可发动的，那么会在换人的时候释放BA
+
+<img src="https://img.saraba1st.com/forum/202108/19/110149cp9j9tkkrr34039h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (45.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-19 11:01 上传
+
+
+*****
+
+####  红魔馆的糖  
+##### 2632#       发表于 2021-8-19 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52424905&amp;ptid=1860328" target="_blank">focus 发表于 2021-8-19 09:32</a>
+https://www.bilibili.com/video/BV1yg411579d/
+
+
+录了个希侬水线冲击暴力复读视频，这招真是op，在空中连发 ...</blockquote>
+不需要咏唱的大魔法
+
+小姑娘，时代变了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千年的旅人  
+##### 2633#       发表于 2021-8-19 11:31
+
+
+屁股太赞了，制作人很懂人心嘛<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -1969,3 +1969,29 @@ https://w ...</blockquote>
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 82665#       发表于 2021-8-19 11:16
+
+
+奥伯龙这卡浑身哪个地方都给你限制点儿，二技能加np还要扣，三技能加魔放宝威还要废了打手，宝具是光炮还要加无敌，职介还打不了下四。和杀狐整套技能副作用只有扣1000血的简直不像是前后出的卡，这就是70充的代价吗
+
+
+*****
+
+####  alucardcz  
+##### 82666#       发表于 2021-8-19 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52426350&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-19 11:16</a>
+
+奥伯龙这卡浑身哪个地方都给你限制点儿，二技能加np还要扣，三技能加魔放宝威还要废了打手，宝具是光炮还要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么回事 lag了那么久？ 3技能这增幅度有限制正常 而且还限制只能吃一个  至于2技能扣np等于白给  除非你用蓝呆
+
+
+做为最终面换人选手比杀狐破格多了
+
+
+                                                 
