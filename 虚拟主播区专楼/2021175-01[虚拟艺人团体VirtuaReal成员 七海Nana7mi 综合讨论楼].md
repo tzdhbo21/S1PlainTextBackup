@@ -866,3 +866,17 @@ SYL,为什么海子姐没有反驳肥婆这个称呼?</blockquote>
 
 
                                                  
+
+*****
+
+####  GarNoc  
+##### 77#       发表于 2021-8-20 04:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52436117&amp;ptid=2021175" target="_blank">kaolimadepi 发表于 2021-8-20 02:53</a>
+
+BMI17如果是真的话，又经常打嗝作息不正常0，胃会不会真的有问题啊</blockquote>
+她肠胃不好蛮久了，但是也没检查出什么来，过段时间说再去做个体检
+
+
+                                                 
