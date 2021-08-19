@@ -15246,3 +15246,179 @@ xbox一堆版本给我整不会了
 
 
                                                 
+
+*****
+
+####  金子一马  
+##### 2650#       发表于 2021-8-19 15:29
+
+
+对了，那个sp还是什么，居然还能负数，这个点数是学技能的吧，还能越活越回去？
+
+
+*****
+
+####  benhawk  
+##### 2651#       发表于 2021-8-19 15:30
+
+
+我觉得是打的好就会出，
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2652#       发表于 2021-8-19 15:45
+
+
+打完感觉非常好，bgm豪哥超神发挥了吧，画面剧情人设各方面都很舒适，战斗系统就是老传说拼接不过质量还是很好的
+
+
+*****
+
+####  qiyu1234  
+##### 2653#       发表于 2021-8-19 15:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52429288&amp;ptid=1860328" target="_blank">培根芝士蛋堡XD 发表于 2021-8-19 15:45</a>
+
+打完感觉非常好，bgm豪哥超神发挥了吧，画面剧情人设各方面都很舒适，战斗系统就是老传说拼接不过质量还是 ...</blockquote>
+这作曲目都是樱庭统负责
+
+
+说实话我也很惊讶，不过他的采访里说万南下了本，专门使用乐团去音乐厅收录
+
+
+*****
+
+####  古明地雷  
+##### 2654#       发表于 2021-8-19 15:59
+
+
+各位决定好买哪个平台的版本了吗
+
+
+*****
+
+####  4ckc  
+##### 2655#       发表于 2021-8-19 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52428352&amp;ptid=1860328" target="_blank">roxassix 发表于 2021-8-19 14:18</a>
+主要差别是服装和bgm。。看你是不是我全都要了
+
+
+各个版本区别的话。以港服为例(日港美各个服有一定 ...</blockquote>
+也就是说基本上就那几个典藏组合包有用了，衣服不在意的话就无所谓了？
+不过价格属实感人，看起来只有当土耳其人一条路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zero12  
+##### 2656#       发表于 2021-8-19 16:20
+
+
+有人玩的是ps4pro版吗，为什么我没感觉到手柄震动？
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2657#       发表于 2021-8-19 16:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52429310&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-19 15:47</a>
+这作曲目都是樱庭统负责</blockquote>
+那是我记错了，樱庭之前好长一段时间感觉他江郎才尽了，这次有这个发挥很强啊
+
+
+*****
+
+####  彩虹肥宅  
+##### 2658#       发表于 2021-8-19 16:29
+
+
+我宁愿过场用立绘也不想看到这种僵硬的面部动画<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  izayoi39  
+##### 2659#       发表于 2021-8-19 16:34
+
+
+打了4次试玩，有3次都出隐藏boss了，没出那一次是螳螂战死人了拉起来重打，猜测条件应该是螳螂战时间限制或者死亡次数限制
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  Tomoyo1  
+##### 2660#       发表于 2021-8-19 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52427360&amp;ptid=1860328" target="_blank">Suzutsuki.Mk.II 发表于 2021-8-19 12:34</a>
+xbox战斗外也是B跳，改不了A跳……</blockquote>
+对 还是b跳 我精分了，但用ps大脑会默认x跳，微软好一些
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  roxassix  
+##### 2661#       发表于 2021-8-19 16:46
+
+
+ 本帖最后由 roxassix 于 2021-8-19 16:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52429713&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-8-19 16:19</a>
+
+也就是说基本上就那几个典藏组合包有用了，衣服不在意的话就无所谓了？
+
+不过价格属实感人，看起来只有当 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">土耳其版的话是跟美版一样，各个版本都没有bgm包（没有那个音乐豪华版）
+
+数字豪华版是标准版+道具/服装（8套那个）/旅游三个典藏组合包
+
+数字究极版可以参考我之前发的
+[https://bbs.saraba1st.com/2b/for ... 860328&amp;pid=52276811](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1860328&amp;pid=52276811)
+
+顺便预购特典好像只有日版是发售后一个月内都带。。剩下的版本都要提前预购才行(买key的话买那种预购key)
+
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 2662#       发表于 2021-8-19 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52429288&amp;ptid=1860328" target="_blank">培根芝士蛋堡XD 发表于 2021-8-19 15:45</a>
+
+打完感觉非常好，bgm豪哥超神发挥了吧，画面剧情人设各方面都很舒适，战斗系统就是老传说拼接不过质量还是 ...</blockquote>
+bgm一听就是樱庭统的调调，跟老传说和黑魂一个路子，豪哥的曲风应该是那种大气里还带飘逸的感觉
+
+
+*****
+
+####  4ckc  
+##### 2663#       发表于 2021-8-19 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52430046&amp;ptid=1860328" target="_blank">roxassix 发表于 2021-8-19 16:46</a>
+土耳其版的话是跟美版一样，各个版本都没有bgm包（没有那个音乐豪华版）
+
+数字豪华版是标准版+道具/ ...</blockquote>
+预购那就不能当土耳其人了，锁服找代购不能买预购游戏吧
+退而求其次当哥伦比亚人的话豪华版480大洋也还算能接受
+历代bgm包就以后再补得了，为了这个去买港版好像不太划算，主要港版除了这个别的都太扯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
