@@ -1464,3 +1464,16 @@ wille那个是一把，用来怼穿所有eva了
 
 
                                                 
+
+*****
+
+####  adslnet0519  
+##### 1593#       发表于 2021-8-19 12:47
+
+
+所以加持怎么阻止三冲结束的这个大坑，就留给观众脑补了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

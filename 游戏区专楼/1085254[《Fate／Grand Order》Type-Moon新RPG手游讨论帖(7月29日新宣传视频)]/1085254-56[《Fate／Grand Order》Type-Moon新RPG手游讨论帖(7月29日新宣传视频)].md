@@ -2074,3 +2074,44 @@ https://w ...</blockquote>
 
 
                                                  
+
+*****
+
+####  rooarr  
+##### 82673#       发表于 2021-8-19 12:58
+
+
+谁又把没点20np被动的哈贝猫挂出来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82674#       发表于 2021-8-19 13:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">哈贝喵至今还是3宝 根本没脸挂出来
+
+
+*****
+
+####  alucardcz  
+##### 82675#       发表于 2021-8-19 13:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52427606&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-19 12:58</a>
+
+谁又把没点20np被动的哈贝猫挂出来了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看 萌新甚至把13技能都点满了  我觉得萌新可能是你好友里唯一一个点满的 浪费结晶的
+
+
+*****
+
+####  xiongxingyu  
+##### 82676#       发表于 2021-8-19 14:27
+
+
+我现在长心眼了，刷qb本都带协会服，真点错选了没开被动的还能抢救一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

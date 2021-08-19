@@ -15071,3 +15071,178 @@ xbox战斗外也是B跳，改不了A跳……
 
 
                                                  
+
+*****
+
+####  大小白帝  
+##### 2637#       发表于 2021-8-19 14:14
+
+
+谁知道那个棍子的武器在哪，差这一个找不着了
+
+
+*****
+
+####  Rainwedell  
+##### 2638#       发表于 2021-8-19 14:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52428305&amp;ptid=1860328" target="_blank">大小白帝 发表于 2021-8-19 14:14</a>
+谁知道那个棍子的武器在哪，差这一个找不着了</blockquote>
+大瀑布里面
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  roxassix  
+##### 2639#       发表于 2021-8-19 14:18
+
+
+ 本帖最后由 roxassix 于 2021-8-19 14:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52424721&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-8-19 09:17</a>
+
+xbox一堆版本给我整不会了
+
+
+所以那些什么豪华终极之类的比普通预购多出啥，有必要买吗</blockquote>
+主要差别是服装和bgm。。看你是不是我全都要了<img src="https://static.saraba1st.com/image/smiley/carton2017/289.gif" referrerpolicy="no-referrer">
+
+
+各个版本区别的话。以港服为例(日港美各个服有一定区别)
+
+
+普通版=本体+预购特典
+
+豪華版=本体+预购特典+三套主题服装包(6人各3套+专属bgm三首)+道具典藏組合包
+
+音乐豪华版=本体+预购特典+历代战斗BGM包(48首)
+
+究極版=本体+预购特典+三套主题服装包(6人各3套+专属bgm三首)+历代战斗BGM包(48首)+道具典藏組合包+旅游典藏组合包+服裝典藏組合包(6人各1套+男女主EX各1套)
+
+
+各个组合包内容啥的有坛友总结了。
+[https://bbs.saraba1st.com/2b/for ... 860328&amp;pid=52193661](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1860328&amp;pid=52193661)
+
+
+服装图样可以参考官网
+[https://toarise.tales-ch.jp/special/dlc.php](https://toarise.tales-ch.jp/special/dlc.php)
+
+
+*****
+
+####  Rainwedell  
+##### 2640#       发表于 2021-8-19 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52428319&amp;ptid=1860328" target="_blank">Rainwedell 发表于 2021-8-19 14:15</a>
+大瀑布里面
+
+—— 来自 S1Fun</blockquote>
+专门开自动看ai打，这ai派生是真离谱。风神剑明明派生不是凤凰天驱，ai连段把把自动风神剑接凤凰天驱。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+*****
+
+####  大小白帝  
+##### 2641#       发表于 2021-8-19 14:18
+
+
+<blockquote>Rainwedell 发表于 2021-8-19 14:15
+大瀑布里面
+
+
+—— 来自 S1Fun</blockquote>
+原来如此，找到了
+
+
+*****
+
+####  静静在想我  
+##### 2642#       发表于 2021-8-19 14:37
+
+
+昨天拿到所有武器了还是没解锁隐藏boss，不知道还有啥特殊要求
+
+
+*****
+
+####  asclepiusz  
+##### 2643#       发表于 2021-8-19 14:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52428544&amp;ptid=1860328" target="_blank">静静在想我 发表于 2021-8-19 14:37</a>
+
+昨天拿到所有武器了还是没解锁隐藏boss，不知道还有啥特殊要求</blockquote>
+我怀疑和难度有关，我问了几个没出隐藏的，都是打的普通难度
+
+
+*****
+
+####  zero12  
+##### 2644#       发表于 2021-8-19 15:04
+
+
+<blockquote>asclepiusz 发表于 2021-8-19 14:59
+我怀疑和难度有关，我问了几个没出隐藏的，都是打的普通难度</blockquote>
+我打普通也出了隐藏
+
+
+*****
+
+####  tmmd  
+##### 2645#       发表于 2021-8-19 15:04
+
+
+<blockquote>asclepiusz 发表于 2021-8-19 14:59
+我怀疑和难度有关，我问了几个没出隐藏的，都是打的普通难度</blockquote>
+默认是简单难度吧,打了两次都出了.
+
+
+*****
+
+####  asclepiusz  
+##### 2646#       发表于 2021-8-19 15:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52428847&amp;ptid=1860328" target="_blank">zero12 发表于 2021-8-19 15:04</a>
+
+我打普通也出了隐藏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">那就是纯随机了……吧
+
+
+*****
+
+####  红魔馆的糖  
+##### 2647#       发表于 2021-8-19 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52428790&amp;ptid=1860328" target="_blank">asclepiusz 发表于 2021-8-19 14:59</a>
+我怀疑和难度有关，我问了几个没出隐藏的，都是打的普通难度</blockquote>
+我最高难度来回打了三遍都没有<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laoz  
+##### 2648#       发表于 2021-8-19 15:10
+
+
+纯随机，我困难打了5遍就出了一次，那次武器也没有全部拿完
+
+
+*****
+
+####  金子一马  
+##### 2649#       发表于 2021-8-19 15:28
+
+
+是不是要评价到一定水平
+
+
+                                                

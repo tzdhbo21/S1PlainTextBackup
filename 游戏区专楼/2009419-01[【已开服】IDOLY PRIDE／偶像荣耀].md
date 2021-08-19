@@ -5911,3 +5911,84 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 
 
                                                  
+
+*****
+
+####  ViviR  
+##### 423#       发表于 2021-8-19 13:58
+
+
+下一次的卡池应该不是泳装了吧。我玩偶像游戏一直都对各种泳装无感，还不如多来几套正统王道风的打歌服…
+
+
+*****
+
+####  伊布桑  
+##### 424#         楼主| 发表于 2021-8-19 14:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52428171&amp;ptid=2009419" target="_blank">ViviR 发表于 2021-8-19 13:58</a>
+
+下一次的卡池应该不是泳装了吧。我玩偶像游戏一直都对各种泳装无感，还不如多来几套正统王道风的打歌服… ...</blockquote>
+先说结论：下一个池十成十是泳装。
+
+不仅知道是泳装，而且可以确定是泳装成宮。
+
+
+<img src="https://img.saraba1st.com/forum/202108/19/141152ha3lb3znnzbb8nb8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210819-112627__01.jpg</strong> (314.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-19 14:11 上传
+
+
+证据是今晚生放送，一般这种个人生放就是公布下个卡池的，请谁来就是谁的卡。
+
+为什么确定是泳装？因为目前为止月光风暴其他四个人都有泳装了，不给成宮大小姐来一套凑整说不过去
+
+
+*****
+
+####  404489039  
+##### 425#       发表于 2021-8-19 14:23
+
+
+又是泳装又是同一套 没惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 426#       发表于 2021-8-19 14:24
+
+
+别说下个池子了，下下个池子和下下下个池子大概率也是泳装，其他三个团都全员泳装了，不给黑组来一份说不过去啊，唯一的悬念就是谁白送，谁限定而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuugi  
+##### 427#       发表于 2021-8-19 14:37
+
+
+ 本帖最后由 yuugi 于 2021-8-19 14:39 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/19/143752xi222f7f22vnk87q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-19-14-36-41-973_game.qualiarts.idolypride.jpg</strong> (220.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-8-19 14:37 上传
+
+
+原来后台技能是要专用道具升级呀，有没120级大佬说说
+
+
+                                                 

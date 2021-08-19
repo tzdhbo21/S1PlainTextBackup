@@ -3602,3 +3602,40 @@ https://www.youtube.com/watch?v=AsPvWTKn0g0
 
 
                                                  
+
+*****
+
+####  alcoholic1000  
+##### 6288#       发表于 2021-8-19 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52424115&amp;ptid=1972669" target="_blank">Porsche 发表于 2021-8-19 07:46</a>
+
+这不是达比修么
+
+这还叫运气不好，不是很懂</blockquote>
+达比修是重开以后刷出来的
+
+
+Syl，21号虹又有国际歌联动了
+
+
+*****
+
+####  qq845629713  
+##### 6289#       发表于 2021-8-19 14:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 维阿这次又是因为什么没上场，上次国际apex不是挺出名的么？
+
+
+*****
+
+####  OldGlory  
+##### 6290#       发表于 2021-8-19 14:34
+
+
+接力活动从来就没有维阿的份的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
