@@ -758,3 +758,25 @@ SYL,为什么海子姐没有反驳肥婆这个称呼? <img src="https://static.s
 
 
                                                  
+
+*****
+
+####  糖尸  
+##### 68#       发表于 2021-8-19 09:54
+
+
+apex喜提微博热搜前十<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hokagokenjatime  
+##### 69#       发表于 2021-8-19 10:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52424333&amp;ptid=2021175" target="_blank">hulaoda007 发表于 2021-8-19 08:31</a>
+因为不玩APEX所以一开始没看懂标题，所以个人建议要不改成直白的海子姐XX锦集？这样可以吸引不看A ...</blockquote>
+感谢建议，我去b综发一遍<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+                                                 

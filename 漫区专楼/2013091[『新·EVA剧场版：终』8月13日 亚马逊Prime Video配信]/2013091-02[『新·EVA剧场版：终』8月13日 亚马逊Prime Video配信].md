@@ -1319,3 +1319,37 @@ q之前的14年单独出作品不好安排小受戏份的话，
 
 
                                                  
+
+*****
+
+####  七七見奈波  
+##### 1584#       发表于 2021-8-19 09:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423759&amp;ptid=2013091" target="_blank">冰寒之月 发表于 2021-8-19 02:55</a>
+
+有个细节 玛丽在额外冲击开启后去见冬月 一开始是垫着脚走进去的 走出去一个镜头瞬间脚上就多了长脚跟
+
+这到 ...</blockquote>
+就是那个细节害我反复看了好几遍确认那个疑似磁力鞋用途的足跟部到底是不是高跟，结果也没搞明白
+
+
+*****
+
+####  woshenc  
+##### 1585#       发表于 2021-8-19 09:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423962&amp;ptid=2013091" target="_blank">Carta_Issue 发表于 2021-8-19 06:24</a>
+
+你说啥？
+
+我意思是新剧场版的绫波丽已经跟莉莉丝没啥关系了</blockquote>
+虽然没有提及，但我觉得还是有联系的
+
+证据就是Q和终里出现的，莉莉丝和负宇宙莉莉丝，依然长了一张绫波丽的脸
+
+别提碇唯，碇唯可没有蓝头发红眼镜233
+
+
+                                                 

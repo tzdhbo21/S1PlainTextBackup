@@ -10488,3 +10488,19 @@ Abandoned Gameplay Reveal Is 'a Few Months' Away, But Trailer App Will Be Update
 
 
                                                  
+
+*****
+
+####  luoyianwu  
+##### 830#       发表于 2021-8-19 09:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52417746&amp;ptid=2010295" target="_blank">Kojimaru 发表于 2021-8-18 17:18</a>
+
+岛哥哥这次特意不把时间拍进来，怎么回事呢</blockquote>
+[https://twitter.com/HIDEO_KOJIMA ... 38110851078/photo/1](https://twitter.com/HIDEO_KOJIMA_EN/status/1428145038110851078/photo/1)
+
+没了！
+
+
+                                                 
