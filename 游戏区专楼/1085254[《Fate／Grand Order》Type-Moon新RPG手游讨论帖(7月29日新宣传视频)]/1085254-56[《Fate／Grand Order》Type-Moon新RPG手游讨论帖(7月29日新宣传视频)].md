@@ -2209,3 +2209,33 @@ id是481,947,084</blockquote>
 
 
                                                 
+
+*****
+
+####  qixinno2  
+##### 82685#       发表于 2021-8-19 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">妈的 又一张宝石翁 摩根呢
+
+
+*****
+
+####  007.5  
+##### 82686#       发表于 2021-8-20 01:25
+
+
+国服这泳装池子简直有毒，作为零氪党每个石头都省着用，这次本来想着要求不高，就抽个1宝水伊莉雅回迦舔
+
+结果越抽越上头，把底裤的300石头和37张白嫖全赔进去了，然而并没有出伊莉雅
+
+水杀4宝（其中一次还是双黄），还歪了个南丁new…
+
+就尼玛离谱<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+倾家荡产没有出水伊，感觉自己很非，但理论上又很欧，心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

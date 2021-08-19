@@ -6289,3 +6289,25 @@ Windows 8和8.1都是靠Classic Shell过的
 
 
                                                  
+
+*****
+
+####  V5Style  
+##### 521#       发表于 2021-8-20 01:07
+
+
+这周更了个寂寞。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Litccc  
+##### 522#       发表于 2021-8-20 01:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52435754&amp;ptid=2011727" target="_blank">V5Style 发表于 2021-8-20 01:07</a>
+这周更了个寂寞。</blockquote>
+小道消息说9月就要上正式版了，现在怕不是在全力修bug，新功能估计要等RTM以后了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

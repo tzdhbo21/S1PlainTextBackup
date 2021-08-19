@@ -3773,3 +3773,152 @@ king什么时候能给尊妈输输血啊<img src="https://static.saraba1st.com/i
 
 
                                                 
+
+*****
+
+####  alcoholic1000  
+##### 6303#       发表于 2021-8-19 22:32
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-20 00:10 编辑 
+
+看楼里说豆猫开会限了跑去看了一眼，这sc数量<img src="https://static.saraba1st.com/image/smiley/face2017/196.png" referrerpolicy="no-referrer">
+
+
+Syl，葛叶说想玩委员长那个偶像养成游戏，评论一片シャニマス？（sc，其实是アイドルマネージャー）
+
+火畜能不能跟着king多看点阿委啊
+
+
+Zsyl，舞元第二年：
+
+时雨羽衣（186/外野/内気），めめめ（135/一），マスクドいちから（115/遊二・代打予定），茄子（153/捕・遊撃予定），あくまのゴート（85/投），鬼灯わらべ（107/投/内気），田角（101/捕・守備予定），ぴろぱる（99/二）
+
+
+*****
+
+####  winda  
+##### 6304#       发表于 2021-8-19 22:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">edens组可是虹去年被暴打后痛定思痛憋一年主推的一期，以前失败的负面资产还想和主推的新星吃一锅饭?
+
+
+*****
+
+####  IDIDIDID  
+##### 6305#       发表于 2021-8-19 22:34
+
+
+和有问题的企划切割才是好的，维阿新人也不怎么和1.0玩啊。
+
+
+*****
+
+####  winda  
+##### 6306#       发表于 2021-8-19 22:35
+
+
+mahimahi休息中这队这届这么强关键还是mahimahi这次最协进步夸张啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 6307#       发表于 2021-8-19 22:43
+
+
+另外最近窜得最猛的不是替补上场大口吃黑黑流量日增2000+的土人割割吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|不许黑，这算抗压💢|
+
+
+查看全部评分
+
+
+*****
+
+####  poipanchao  
+##### 6308#       发表于 2021-8-19 22:47
+
+
+顺便下次CR似乎不许职业哥+大师组队了
+
+职业哥又要坐牢了
+
+
+*****
+
+####  我不是很好  
+##### 6309#       发表于 2021-8-19 22:50
+
+
+看见你虹最近这齐刷刷的apex。我已经有心理阴影了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 6310#       发表于 2021-8-19 23:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥楼最近怎么这么真情实感啊，不习惯了
+
+
+*****
+
+####  hulaoda007  
+##### 6311#       发表于 2021-8-19 23:49
+
+
+ 本帖最后由 hulaoda007 于 2021-8-20 00:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">日本疫情越来越严重的，担心Liver被波及。
+
+但隔离归隔离，真的别都A了...真的不有趣。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">...诶？
+
+
+*****
+
+####  死体残留  
+##### 6312#       发表于 2021-8-20 00:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">大空家估计之后就变成27jk一个下场吧
+
+
+*****
+
+####  Ketestrait  
+##### 6313#       发表于 2021-8-20 00:16
+
+
+ 本帖最后由 Ketestrait 于 2021-8-20 00:18 编辑 
+
+舞元刚刚说了，“大家可能都在想怎么到现在都还没用某人的名字，请体察一下，已经向那边提过了，需要等那边确认许可”<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空集  
+##### 6314#       发表于 2021-8-20 01:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都多久没有舞48了 观众太不会度空气
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

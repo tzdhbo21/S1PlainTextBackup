@@ -1580,3 +1580,126 @@ magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
 
 
                                                  
+
+*****
+
+####  卡密sama  
+##### 1601#       发表于 2021-8-19 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52434005&amp;ptid=2013091" target="_blank">NANA1Komatsu 发表于 2021-8-19 22:11</a>
+
+magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
+
+有在线双语字幕，比官方好点，画质也很不 ...</blockquote>
+？？？发福利了？
+
+
+*****
+
+####  霧亥  
+##### 1602#       发表于 2021-8-19 22:56
+
+
+ 本帖最后由 霧亥 于 2021-8-19 23:09 编辑 
+
+比官方好点的黄片可太哲学了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nocode  
+##### 1603#       发表于 2021-8-19 23:10
+
+
+找替代字幕的可以去eva吧顶置贴的网友自制字幕，往后翻找最新版的，经历过几轮众筹修改，质量应该比官方版好些
+
+
+*****
+
+####  奥古斯都  
+##### 1604#       发表于 2021-8-19 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52434005&amp;ptid=2013091" target="_blank">NANA1Komatsu 发表于 2021-8-19 22:11</a>
+
+magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
+
+有在线双语字幕，比官方好点，画质也很不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">车速有点快，我安全带还没系好
+
+
+*****
+
+####  reedwkaka  
+##### 1605#       发表于 2021-8-19 23:27
+
+
+我只看懂了前两部，谁能帮我总结一下后两部<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+*****
+
+####  pkeva  
+##### 1606#       发表于 2021-8-19 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52434941&amp;ptid=2013091" target="_blank">reedwkaka 发表于 2021-8-19 23:27</a>
+
+我只看懂了前两部，谁能帮我总结一下后两部
+
+
+ -- 傲娇地来自 Stage1未知客户端 ...</blockquote>
+谜语。
+
+
+*****
+
+####  HMSWarspite  
+##### 1607#       发表于 2021-8-19 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52434941&amp;ptid=2013091" target="_blank">reedwkaka 发表于 2021-8-19 23:27</a>
+
+我只看懂了前两部，谁能帮我总结一下后两部
+
+
+ -- 傲娇地来自 Stage1未知客户端 ...</blockquote>
+Q：deadline前一天熬夜的你
+
+终：deadline过后一天试图补救的你
+
+
+*****
+
+####  戏言物语  
+##### 1608#       发表于 2021-8-19 23:54
+
+
+字幕去eva贴吧找，15号就出来了，个人做的双语字幕，现在更新了几个版本了，可以看看了。
+
+
+*****
+
+####  wyhman  
+##### 1609#       发表于 2021-8-20 00:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422843&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-18 23:58</a>
+
+痞子采访说了：破预告后面的内容到q之前是实际存在的，只是因为真嗣没能登场就没做了。里头包含了老碇和 ...</blockquote>
+怪不得 放在最后补完画面里够迷的
+
+
+*****
+
+####  KDConan  
+##### 1610#       发表于 2021-8-20 01:00
+
+
+IPX还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

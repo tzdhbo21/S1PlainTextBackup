@@ -15538,3 +15538,158 @@ steam版有什么便宜入手的方法吗，只能余额代购了嘛<img src="ht
 
 
                                                 
+
+*****
+
+####  laoz  
+##### 2672#       发表于 2021-8-19 22:36
+
+
+刷了一晚上的矿石，大地图的全都是3级，就开始那张图有其他等级。。。
+
+
+*****
+
+####  剑布衣  
+##### 2673#       发表于 2021-8-19 23:01
+
+
+试玩版你们是要打几周目啊，好饥渴啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+反正这试玩算是满意，就是有一个问题，抽了5次我还没抽到ps5，看来来不及也只能ps4玩了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  索田八公  
+##### 2674#       发表于 2021-8-19 23:10
+
+
+原来boss进ovl状态的情况下是不能被击杀的，就眼睁睁看黑龙1血读大招，好痛苦
+
+
+*****
+
+####  BigLittle1999  
+##### 2675#       发表于 2021-8-20 00:34
+
+
+忙了一天终于有时间玩demo了，这女主人设也太香了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，配上光的声线估计又要不少人要多一个老婆。
+
+现在怎么遇见黑龙有定论了吗，普通难度通了一遍没碰到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  BigLittle1999  
+##### 2676#       发表于 2021-8-20 00:34
+
+
+ 本帖最后由 BigLittle1999 于 2021-8-20 00:36 编辑 
+
+风怒编辑
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  BigLittle1999  
+##### 2677#       发表于 2021-8-20 00:34
+
+
+ 本帖最后由 BigLittle1999 于 2021-8-20 00:36 编辑 
+
+风怒编辑
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  BigLittle1999  
+##### 2678#       发表于 2021-8-20 00:34
+
+
+ 本帖最后由 BigLittle1999 于 2021-8-20 00:36 编辑 
+
+风怒编辑
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  BigLittle1999  
+##### 2679#       发表于 2021-8-20 00:34
+
+
+ 本帖最后由 BigLittle1999 于 2021-8-20 00:35 编辑 
+
+风怒编辑
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  BigLittle1999  
+##### 2680#       发表于 2021-8-20 00:35
+
+
+ 本帖最后由 BigLittle1999 于 2021-8-20 00:37 编辑 
+
+超级风怒编辑
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qiyu1234  
+##### 2681#       发表于 2021-8-20 00:39
+
+
+ 本帖最后由 qiyu1234 于 2021-8-20 00:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52435542&amp;ptid=1860328" target="_blank">BigLittle1999 发表于 2021-8-20 00:34</a>
+
+忙了一天终于有时间玩demo了，这女主人设也太香了，配上光的声线估计又要不少人要多一个老婆。
+
+
+现 ...</blockquote>
+速杀螳螂BOSS，大概5分钟内击杀一定出
+
+
+虽然也有5分钟多一点出来的
+
+
+*****
+
+####  qiyu1234  
+##### 2682#       发表于 2021-8-20 00:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52434728&amp;ptid=1860328" target="_blank">索田八公 发表于 2021-8-19 23:10</a>
+
+原来boss进ovl状态的情况下是不能被击杀的，就眼睁睁看黑龙1血读大招，好痛苦 ...</blockquote>
+BOSS进OVL以后 强制霸体，连BA技都无法克制
+
+如果是TOG那种OVL方式的话，感觉是有机会让BOSS减少OVL机会的
+
+看正式版了
+
+
+*****
+
+####  qiyu1234  
+##### 2683#       发表于 2021-8-20 01:14
+
+
+这作试玩目前几个BOSS战都是半血强制要求触发BS
+
+
+前几天的正式版第一章试玩演示里也是，跟别祖的剧情BOSS战里，砍到半血也会强制触发BS
+
+
+暂时对这个设计持保留意见，看看正式版是什么样子
+
+
+                                                 
