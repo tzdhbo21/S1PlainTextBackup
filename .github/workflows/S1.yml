@@ -34,7 +34,7 @@ jobs:
         git config --global user.email trembleafterme@outlook.com
         git config --global user.name TomoeMami
         datime=$(date "+%Y年%m月%d日 %H:%M")
-        echo "git commit: 上传于 $datime"
+        echo "git commit: [AddThreads]上传于 $datime"
         if [ -n "$(git status -s)" ];then
             git add .
             git commit -m "上传于 $datime" -a
@@ -69,7 +69,7 @@ jobs:
         git config --global user.email trembleafterme@outlook.com
         git config --global user.name TomoeMami
         datime=$(date "+%Y年%m月%d日 %H:%M")
-        echo "git commit: 上传于 $datime"
+        echo "git commit: [UpdateS1]上传于 $datime"
         if [ -n "$(git status -s)" ];then
             git add .
             git commit -m "上传于 $datime" -a
