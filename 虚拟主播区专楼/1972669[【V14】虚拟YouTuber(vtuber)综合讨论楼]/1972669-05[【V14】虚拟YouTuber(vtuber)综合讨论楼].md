@@ -3722,3 +3722,54 @@ hnn是不是又睡过头，经典kmt代打<img src="https://static.saraba1st.com
 
 
                                                  
+
+*****
+
+####  OldGlory  
+##### 6298#       发表于 2021-8-19 22:06
+
+
+“虹男和虹女联动得益的只有虹女”
+
+看来虹男同接越来越高，虹女同接越来越低，都是因为男女联动联少了，以后一定要加大力度。
+
+
+*****
+
+####  shpdw  
+##### 6299#       发表于 2021-8-19 22:12
+
+
+既然只要是男的就能这么厉害，能不能给我卯月辉一点同接零头啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我不是很好  
+##### 6300#       发表于 2021-8-19 22:13
+
+
+king什么时候能给尊妈输输血啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  dybang  
+##### 6301#       发表于 2021-8-19 22:17
+
+
+你虹感觉就是刷数据不如养gachi<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道liver收入怎么分的，还有没有kpi
+
+
+*****
+
+####  purdre  
+##### 6302#       发表于 2021-8-19 22:26
+
+
+我当然极力支持加大力度无论男女互相联动，越多越好，你虹现在中下游要死不活的样子不就是当初不肯力推新人联动引流的结果，全靠新人自己去努力，现在终于肯给新人天天联动引流推送，那最好也把以前欠下的也好好还还，让顶流男主播别老和3D人社外人联动好好给本社底边引点流好不好啊
+
+
+                                                

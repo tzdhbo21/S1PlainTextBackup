@@ -1552,3 +1552,31 @@ wille那个是一把，用来怼穿所有eva了
 
 
                                                  
+
+*****
+
+####  NANA1Komatsu  
+##### 1599#       发表于 2021-8-19 22:11
+
+
+magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
+有在线双语字幕，比官方好点，画质也很不错。
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  爵士人生  
+##### 1600#       发表于 2021-8-19 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52434005&amp;ptid=2013091" target="_blank">NANA1Komatsu 发表于 2021-8-19 22:11</a>
+
+magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
+
+有在线双语字幕，比官方好点，画质也很不 ...</blockquote>
+你发的这是啥玩意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么我下载下来是黄片
+
+
+                                                 

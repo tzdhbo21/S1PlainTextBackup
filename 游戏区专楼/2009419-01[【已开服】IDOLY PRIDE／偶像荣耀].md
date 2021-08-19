@@ -6017,3 +6017,17 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 
 
                                                  
+
+*****
+
+####  马桶3  
+##### 430#       发表于 2021-8-19 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52432616&amp;ptid=2009419" target="_blank">kos_mos 发表于 2021-8-19 20:21</a>
+
+一直自动编队，现在一窍不通到Main live 19卡了</blockquote>
+只要你愿意收菜咸鱼，可以一直自动编队，没事的
+
+
+                                                 
