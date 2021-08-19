@@ -11035,3 +11035,46 @@ Xperia 5III先行测评</blockquote>
 
 
                                                  
+
+*****
+
+####  leystage  
+##### 773#         楼主| 发表于 2021-8-19 18:56
+
+
+<blockquote>ks_tse 发表于 2021-8-19 14:10
+两个问题，1m3支持支付宝微信的指纹吗？还有就是能不能像***或者菊花一样定向屏蔽各家的营销推送？ ...</blockquote>
+微信能，支付宝没谈拢，最多只能人脸。
+
+
+定向屏蔽是指什么？
+
+
+*****
+
+####  ks_tse  
+##### 774#       发表于 2021-8-19 19:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52431471&amp;ptid=1985265" target="_blank">leystage 发表于 2021-8-19 18:56</a>
+微信能，支付宝没谈拢，最多只能人脸。
+
+
+定向屏蔽是指什么？</blockquote>
+菊花和***可以在推送管理那里单独把app的营销推送给关掉。很好用
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  暗铁  
+##### 775#       发表于 2021-8-19 21:28
+
+
+这次屏幕怎么样了，我看有说发绿的？
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

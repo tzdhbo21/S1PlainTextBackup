@@ -816,3 +816,31 @@ SYL,为什么海子姐没有反驳肥婆这个称呼?</blockquote>
 
 
                                                  
+
+*****
+
+####  天邪鬼  
+##### 73#       发表于 2021-8-19 19:05
+
+
+#查询海子姐bmi#
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hjcxiaowo  
+##### 74#       发表于 2021-8-19 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52431587&amp;ptid=2021175" target="_blank">天邪鬼 发表于 2021-8-19 19:05</a>
+
+#查询海子姐bmi#
+
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+上次说了17
+
+
+                                                 

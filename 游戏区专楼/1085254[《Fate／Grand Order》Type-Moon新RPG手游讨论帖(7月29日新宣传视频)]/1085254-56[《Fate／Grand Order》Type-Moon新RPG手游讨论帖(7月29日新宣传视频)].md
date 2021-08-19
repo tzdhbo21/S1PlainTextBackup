@@ -2130,3 +2130,82 @@ id是481,947,084
 
 
                                                  
+
+*****
+
+####  在海岸  
+##### 82678#       发表于 2021-8-19 17:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几天fgo还买了石头，今天换个游戏课金日服线路也被ban了，楼友有什么办法吗（
+
+
+*****
+
+####  LOLITA  
+##### 82679#       发表于 2021-8-19 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52429479&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-19 16:01</a>
+
+一看好友任务还没做完，求几个好友
+
+
+id是481,947,084</blockquote>
+申请了，昵称是浜风的平假名
+
+
+*****
+
+####  zhc016  
+##### 82680#       发表于 2021-8-19 20:29
+
+
+奥某人池子终于来了一张五星，一看竟是内田姐弟<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  zakki  
+##### 82681#       发表于 2021-8-19 21:06
+
+
+ 本帖最后由 zakki 于 2021-8-19 21:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52432171&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-19 19:45</a>
+申请了，昵称是浜风的平假名</blockquote>
+好的，多谢大佬啦
+
+
+*****
+
+####  zakki  
+##### 82682#       发表于 2021-8-19 21:07
+
+
+翻页
+
+
+*****
+
+####  zakki  
+##### 82683#       发表于 2021-8-19 21:07
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 82684#       发表于 2021-8-19 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52432171&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-19 19:45</a>
+
+申请了，昵称是浜风的平假名</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新好像还没加过好友　ｐｍ个ｉｄ？
+
+
+                                                

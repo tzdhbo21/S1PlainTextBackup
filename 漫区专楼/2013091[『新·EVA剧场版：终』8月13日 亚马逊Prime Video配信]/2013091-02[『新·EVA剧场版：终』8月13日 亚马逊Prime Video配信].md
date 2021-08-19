@@ -1513,3 +1513,42 @@ wille那个是一把，用来怼穿所有eva了
 
 
                                                  
+
+*****
+
+####  X(iaolw)S  
+##### 1597#       发表于 2021-8-19 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52427280&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-19 12:27</a>
+
+两把枪一直握在13号机手上吧，直到真嗣到负宇宙后抢了一把，不过好像两个人打着打着枪就插在地上不用了， ...</blockquote>
+插黑莉莉丝的是朗枪和卡枪，有变形镜头
+
+黑月枪插进地上的GULF门引发四冲后就没了
+
+<img src="https://img.saraba1st.com/forum/202108/19/184416m787zz8ut185u5d8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210819184116.JPG</strong> (62.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-19 18:44 上传
+
+
+*****
+
+####  ads147147  
+##### 1598#       发表于 2021-8-19 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52431352&amp;ptid=2013091" target="_blank">X(iaolw)S 发表于 2021-8-19 18:44</a>
+
+插黑莉莉丝的是朗枪和卡枪，有变形镜头
+
+黑月枪插进地上的GULF门引发四冲后就没了</blockquote>
+看来老了，记忆力衰退（捂脸
+
+
+                                                 

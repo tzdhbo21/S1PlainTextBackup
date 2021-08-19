@@ -3639,3 +3639,86 @@ Syl，21号虹又有国际歌联动了
 
 
                                                  
+
+*****
+
+####  IDIDIDID  
+##### 6291#       发表于 2021-8-19 17:55
+
+
+<blockquote>バンドしたいと思うたび学生時代は貧乏だったので金銭的問題で部活入れず、</blockquote>太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  harry3  
+##### 6292#       发表于 2021-8-19 18:39
+
+
+[https://boards.4channel.org/vt/thread/8158763](https://boards.4channel.org/vt/thread/8158763)
+
+
+经典营业
+
+
+*****
+
+####  FCCHua  
+##### 6293#       发表于 2021-8-19 19:35
+
+
+ 本帖最后由 FCCHua 于 2021-8-19 21:21 编辑 
+
+hnn是不是又睡过头，经典kmt代打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+草，10杀，3000伤害，看来醒了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 6294#       发表于 2021-8-19 20:56
+
+
+日本都这样了为何还坚持开线下live<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202108/19/205705fiznjon0247uuk4m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (122.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-19 20:57 上传
+
+
+*****
+
+####  purdre  
+##### 6295#       发表于 2021-8-19 21:06
+
+
+ 本帖最后由 purdre 于 2021-8-19 21:09 编辑 
+
+我一开始还觉得豆猫这配信新人得靠整活上位，结果和异性联动之后立马会限杂谈，这人养GACHI也有一手啊，立回pro得一笔，感觉小瞧他了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 6296#       发表于 2021-8-19 21:13
+
+
+这么会养能不能不要和鲨鱼妹联动了啊，放虹女一条生路好吗。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 6297#       发表于 2021-8-19 21:16
+
+
+只要不是底边，虹男和虹女联动得益的只有虹女好吧，再说联动一开鲨鱼妹订阅立马上230k连同接都上了15k，这都不乐意的怕不是独角兽了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 

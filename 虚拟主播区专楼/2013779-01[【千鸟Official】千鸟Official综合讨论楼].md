@@ -2860,3 +2860,63 @@ http://b23.tv/pyJhmB
 
 
                                                  
+
+*****
+
+####  IDIDIDID  
+##### 254#       发表于 2021-8-19 17:45
+
+
+有一说一杂谈系200多舰差不多到头了。真正香顶边要么游戏特别有效果要么偶像力真的强，她挨不上啊。
+
+
+*****
+
+####  斯大林的拖拉机  
+##### 255#       发表于 2021-8-19 17:50
+
+
+我觉得鲨鱼头也是杂谈系
+
+
+*****
+
+####  夜潇箫  
+##### 256#       发表于 2021-8-19 17:53
+
+
+文静唱歌到底行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IDIDIDID  
+##### 257#       发表于 2021-8-19 17:57
+
+
+鲨鱼头打游戏虽然菜的一比但是效果拉满啊，这是主播职业素养。文静打游戏就像一条被车碾过的死狗。
+
+
+*****
+
+####  天邪鬼  
+##### 258#       发表于 2021-8-19 19:03
+
+
+轮椅人怎么做偶像，霍金？
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  莫洛骑士  
+##### 259#       发表于 2021-8-19 20:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52430828&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-8-19 17:53</a>
+文静唱歌到底行不行啊</blockquote>
+我听过半首，感觉不太行，完整的没听到过，也是我看的少，但杂谈随口哼两句还挺有感觉的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+                                                 

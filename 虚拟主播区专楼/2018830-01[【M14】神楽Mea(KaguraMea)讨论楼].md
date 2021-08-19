@@ -10408,3 +10408,184 @@ syl   26号联动，苔总这个脸格格不入
 
 
                                                 
+
+*****
+
+####  T_Hb  
+##### 965#       发表于 2021-8-19 17:47
+
+
+101民差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听歌不好吗
+
+
+*****
+
+####  Klience  
+##### 966#       发表于 2021-8-19 18:32
+
+
+ 本帖最后由 Klience 于 2021-8-19 18:36 编辑 
+
+天天听歌烦不烦啊 唱来唱去都是那几样 还不如不播私下lol当我下饭菜不就更好（仅限波比）<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 967#       发表于 2021-8-19 18:37
+
+
+你猜猜是烦她唱歌的人多，还是烦你整天发她私下lol记录的人多？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 968#       发表于 2021-8-19 18:38
+
+
+ 本帖最后由 Klience 于 2021-8-19 18:42 编辑 
+
+那肯定是烦我啊 这还用想吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过你楼玩lol的挺少的吧
+
+
+*****
+
+####  路人庚  
+##### 969#       发表于 2021-8-19 18:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟玩不玩lol有个jb关系，可以视奸她小号，但说逼话还是算了吧
+
+
+*****
+
+####  时间在我手中  
+##### 970#       发表于 2021-8-19 18:45
+
+
+我看owl比赛一样双开看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 971#       发表于 2021-8-19 18:46
+
+
+比赛这东西直播看才有意思 录播没那味 要的就是那种玩跳楼机的刺激感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 972#       发表于 2021-8-19 18:58
+
+
+ 本帖最后由 T_Hb 于 2021-8-19 19:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  恰饭了
+
+<img src="https://img.saraba1st.com/forum/202108/19/190019dr6e2jezztnzrju4.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (16.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-19 19:00 上传
+
+
+*****
+
+####  Klience  
+##### 973#       发表于 2021-8-19 19:08
+
+
+看她这战绩我也饱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  专业划水人员  
+##### 974#       发表于 2021-8-19 20:15
+
+
+今晚没了吧
+
+
+*****
+
+####  T_Hb  
+##### 975#       发表于 2021-8-19 20:20
+
+
+昨天说有，我觉得是10点
+
+
+*****
+
+####  时间在我手中  
+##### 976#       发表于 2021-8-19 20:39
+
+
+感觉今天没了
+
+
+*****
+
+####  T_Hb  
+##### 977#       发表于 2021-8-19 20:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 978#       发表于 2021-8-19 20:51
+
+
+感谢麻麻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 979#       发表于 2021-8-19 21:34
+
+
+神必的周边联动
+
+
+*****
+
+####  Klience  
+##### 980#       发表于 2021-8-19 21:35
+
+
+草 你别边打边转推啊
+
+
+*****
+
+####  Ky·Kiske  
+##### 981#       发表于 2021-8-19 21:35
+
+
+恳请小麻一定要当心
+
+日本政府彻底弃疗了，触目惊心
+
+
+*****
+
+####  rosevalley46  
+##### 982#       发表于 2021-8-19 21:36
+
+
+没说要播啊,还以为播了
+
+
+                                                 

@@ -15422,3 +15422,84 @@ bgm一听就是樱庭统的调调，跟老传说和黑魂一个路子，豪哥�
 
 
                                                  
+
+*****
+
+####  focus  
+##### 2664#       发表于 2021-8-19 17:46
+
+
+<img src="https://img.saraba1st.com/forum/202108/19/174440jtpazaljz4l1pefn.png" referrerpolicy="no-referrer">
+
+
+<strong>Screen Shot 2021-08-19 at 5.43.29 PM.png</strong> (8.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-19 17:44 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/19/174440krlc93i29iyull44.png" referrerpolicy="no-referrer">
+
+
+<strong>Screen Shot 2021-08-19 at 5.43.52 PM.png</strong> (37.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-19 17:44 上传
+
+
+发现这游戏伤害统计有严重问题。图1满血91931，图2一套打了9000多，boss血量还有85387
+
+
+*****
+
+####  听风不是雨  
+##### 2665#       发表于 2021-8-19 17:48
+
+
+<blockquote>focus 发表于 2021-8-19 17:46
+发现这游戏伤害统计有严重问题。图1满血91931，图2一套打了9000多，boss血量还有85387 ...</blockquote>
+boss弱点血量单独计算的吧
+
+
+*****
+
+####  hotsmile  
+##### 2666#       发表于 2021-8-19 17:59
+
+
+如果弱点单独算，那不打好过大了，倒地时间太太太短了
+
+
+*****
+
+####  roxassix  
+##### 2667#       发表于 2021-8-19 18:00
+
+
+ 本帖最后由 roxassix 于 2021-8-19 18:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52430275&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-8-19 17:06</a>
+
+预购那就不能当土耳其人了，锁服找代购不能买预购游戏吧
+
+退而求其次当哥伦比亚人的话豪华版480大洋也还算 ...</blockquote>
+预购游戏在微软商店里应该是没法直接买成礼物的。有第三方商店（比如美亚）卖预约key的还好说，没有的话这种要买估计只能给对方账号了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且硬要说的话发售后预购特典也是能买到的，因为盒装游戏一般都是带预购特典的key，发售后ebay啥的也是有不少单独卖的(有可能价格感人就是了。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  focus  
+##### 2668#       发表于 2021-8-19 18:05
+
+
+ 本帖最后由 focus 于 2021-8-19 18:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52430773&amp;ptid=1860328" target="_blank">听风不是雨 发表于 2021-8-19 17:48</a>
+
+boss弱点血量单独计算的吧</blockquote>
+我又仔细看了一下，应该是有弱点的情况下，aoe伤害同时打中本体和弱点伤害统计上会算2次，实际只减一次血
+
+
+                                                 

@@ -17699,3 +17699,25 @@ an和原版性能倾向是明确的，SP之后也能互换，基本上只上一�
 
 
                                                  
+
+*****
+
+####  schwow  
+##### 5876#       发表于 2021-8-19 19:13
+
+
+升了朱音的近战分支发现防反没了有点后悔, 我还挺喜欢那套动作的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 5877#       发表于 2021-8-19 20:11
+
+
+看说明朱音的派生发动中又是侧滑变攻击，生存能力直线下滑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+因为过了AN试用期间派生武器都没法试用再决定了，金字塔罪大恶极
+
+
+                                                 
