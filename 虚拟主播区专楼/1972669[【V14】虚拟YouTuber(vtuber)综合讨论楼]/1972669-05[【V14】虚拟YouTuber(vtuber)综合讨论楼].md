@@ -3533,3 +3533,44 @@ https://www.youtube.com/watch?v=AsPvWTKn0g0
 
 
                                                  
+
+*****
+
+####  Porsche  
+##### 6284#       发表于 2021-8-19 07:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52421868&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-8-18 22:21</a>
+舞元这在NS上撒把米鸡啄都比他手抽的卡好
+
+最高92，还有个23的投手
+
+“你为什么要来打棒球啊”——King</blockquote>
+这不是达比修么<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+这还叫运气不好，不是很懂
+
+
+*****
+
+####  Suny08  
+##### 6285#       发表于 2021-8-19 08:20
+
+
+<blockquote>リスカ 发表于 2021-8-19 03:07
+https://www.youtube.com/watch?v=AsPvWTKn0g0
+
+听说很多v  就认得ましろ
+</blockquote>
+看名字不还有mega先端和タラ松么
+
+
+*****
+
+####  ヒトニナル  
+##### 6286#       发表于 2021-8-19 09:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是先有混ぜメン再有后来的套皮主播的啊，这个にどみ就是杏星的店长
+
+
+                                                 

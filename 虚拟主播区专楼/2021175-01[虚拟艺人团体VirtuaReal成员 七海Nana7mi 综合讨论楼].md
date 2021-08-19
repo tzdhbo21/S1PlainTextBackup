@@ -703,3 +703,58 @@ s1一直是我们小海最坚实的阵地呀（记忆修正）
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 64#       发表于 2021-8-19 08:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423918&amp;ptid=2021175" target="_blank">hokagokenjatime 发表于 2021-8-19 05:31</a>
+
+https://b23.tv/tau6E5
+
+厚颜**的推一下自己剪的海子姐击杀集锦，从200g录像辛辛苦苦里找的，各位能给个赞吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为不玩APEX所以一开始没看懂标题，所以个人建议要不改成直白的海子姐XX锦集？这样可以吸引不看A的人也点进去，提高点击量....虽然只是个人意见...
+
+以及确实放B综更好。
+
+
+*****
+
+####  Nanachi  
+##### 65#       发表于 2021-8-19 08:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423664&amp;ptid=2021175" target="_blank">4396yoga7 发表于 2021-8-19 02:21</a>
+好事，本来花了五块钱只看b综，现在又有新楼了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+我超，全网同ID
+
+—— 来自 HUAWEI NOH-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  莫洛骑士  
+##### 66#       发表于 2021-8-19 08:36
+
+
+哇，4396yoga7
+什么时候把脆鲨12138也拉来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  追风小星星  
+##### 67#       发表于 2021-8-19 09:24
+
+
+我一直是纯良鲨啊
+
+
+SYL,为什么海子姐没有反驳肥婆这个称呼? <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

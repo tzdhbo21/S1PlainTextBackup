@@ -14773,3 +14773,83 @@ pro风扇起飞也撑不住，小卡顿和闪现植被层出不穷
 
 
                                                  
+
+*****
+
+####  conanoysq  
+##### 2615#       发表于 2021-8-19 08:01
+
+
+为啥都在骂ps5的ssd，读盘慢不是NB厂的问题<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  司马千晶  
+##### 2616#       发表于 2021-8-19 08:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52422528&amp;ptid=1860328" target="_blank">heseran 发表于 2021-8-18 23:25</a>
+
+试了一把男主试了一把琳薇尔，感觉我不会用男主，用琳薇尔的时候ai控制得男主比我猛多了琳薇尔真的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主其实思路特别清晰，尤其是对于刚接触的，地面连招就平A接技能出BREAK以后接迅雷浮空，空中随便发挥，风神剑以后阳炎落地，落地瞬间BA矫正身位接抓龙然后按住出派生，单人连就几十HITS了
+
+
+*****
+
+####  Tomoyo1  
+##### 2617#       发表于 2021-8-19 08:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423713&amp;ptid=1860328" target="_blank">haru橙子 发表于 2021-8-19 02:35</a>
+话说这xbox的预购，港版和欧美版的有啥区别吗，中文是港版独占吗。</blockquote>
+亚洲版豪华版有历代战斗bgm，我也在想要买哪个版，欧美终极版便宜但不知道以后会不会单出音乐dlc
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Tomoyo1  
+##### 2618#       发表于 2021-8-19 08:09
+
+
+⭕跳真sb，双版本试了一下还是xbox的a跳舒服点，在ps上玩太多x跳游戏实在难改
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  arsenalfcc  
+##### 2619#       发表于 2021-8-19 08:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52412805&amp;ptid=1860328" target="_blank">ccow 发表于 2021-8-18 10:31</a>
+喷了啊，官方把CP全分好了吧。</blockquote>
+6对cp齐撒狗粮？
+
+
+*****
+
+####  zero12  
+##### 2620#       发表于 2021-8-19 08:25
+
+
+<blockquote>arsenalfcc 发表于 2021-8-19 08:16
+6对cp齐撒狗粮？</blockquote>
+排列组合有15对cp
+
+
+*****
+
+####  a2042312  
+##### 2621#       发表于 2021-8-19 08:37
+
+
+这CP按身高分的
+
+
+                                                 

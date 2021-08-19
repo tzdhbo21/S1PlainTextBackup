@@ -1304,3 +1304,18 @@ q之前的14年单独出作品不好安排小受戏份的话，
 
 
                                                  
+
+*****
+
+####  LLLLLuB  
+##### 1583#       发表于 2021-8-19 07:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423962&amp;ptid=2013091" target="_blank">Carta_Issue 发表于 2021-8-19 06:24</a>
+你说啥？
+
+我意思是新剧场版的绫波丽已经跟莉莉丝没啥关系了</blockquote>
+的确从没提到过莉莉丝的联系，只是从q开始的时候提到了是adams的容器，当然黑丽在成为adams的容器之前就选择了去寻找自我了，终里成为adams容器的是4个定制的无性别克隆体
+
+
+                                                 

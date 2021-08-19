@@ -17626,3 +17626,35 @@ an和原版性能倾向是明确的，SP之后也能互换，基本上只上一�
 
 
                                                  
+
+*****
+
+####  lxh00770077  
+##### 5870#       发表于 2021-8-19 09:19
+
+
+“一期”的坂本美绪CV还是千叶纱子呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+佩妮：这是……假冒的坂本少佐！
+
+
+*****
+
+####  江戸前ルナ  
+##### 5871#       发表于 2021-8-19 09:40
+
+
+喷了，早上登录时办公室会听到应该是鸽子的“咕咕咕”叫声，是阿金在明示这个月各种鸽吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 5872#       发表于 2021-8-19 09:45
+
+
+话说坂本为啥换cv了...
+还挺喜欢千叶纱子的
+
+
+                                                 
