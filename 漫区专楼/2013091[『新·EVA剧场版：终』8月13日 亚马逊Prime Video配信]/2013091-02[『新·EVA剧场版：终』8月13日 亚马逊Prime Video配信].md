@@ -1399,3 +1399,68 @@ q之前的14年单独出作品不好安排小受戏份的话，
 
 
                                                  
+
+*****
+
+####  alien  
+##### 1589#       发表于 2021-8-19 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52423800&amp;ptid=2013091" target="_blank">laphire 发表于 2021-8-19 03:20</a>
+
+开始看eva新的剧场版
+
+序感觉就是shuang 片（对不起</blockquote>
+1结尾确实很爽啊！当年看的时候都以为会一改tv的态势雄起了！结果q被打了一闷棍~~
+
+
+*****
+
+####  blood_iron  
+##### 1590#       发表于 2021-8-19 11:49
+
+
+对了，13号机的两把枪去哪里了？
+
+希望号变枪后那两把枪也不见了？
+
+
+
+
+*****
+
+####  ads147147  
+##### 1591#       发表于 2021-8-19 12:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52426774&amp;ptid=2013091" target="_blank">blood_iron 发表于 2021-8-19 11:49</a>
+对了，13号机的两把枪去哪里了？
+
+希望号变枪后那两把枪也不见了？</blockquote>
+两把枪一直握在13号机手上吧，直到真嗣到负宇宙后抢了一把，不过好像两个人打着打着枪就插在地上不用了，最后补完也是用的希望号变得盖乌斯枪。
+
+黑之月变得两把枪直接融入幻想eva了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  X(iaolw)S  
+##### 1592#       发表于 2021-8-19 12:32
+
+
+<blockquote>引用第1589楼blood_iron于2021-08-19 11:49发表的  :
+
+对了，13号机的两把枪去哪里了？希望号变枪后那两把枪也不见了？</blockquote>
+@blood_iron
+
+黑月两把打开负宇宙大门
+13号两把和黑莉莉丝融合发动加冲
+wille那个是一把，用来怼穿所有eva了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+                                                

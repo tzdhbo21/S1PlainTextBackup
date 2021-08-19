@@ -5898,3 +5898,16 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 
 
                                                  
+
+*****
+
+####  pansherry  
+##### 422#       发表于 2021-8-19 12:16
+
+
+蹲了个把礼拜终于突破350了，红卡战力不足真要命，放弃主c，副c位要差不多6万6vo才能打出sp<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

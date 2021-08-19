@@ -1995,3 +1995,82 @@ https://w ...</blockquote>
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 82667#       发表于 2021-8-19 11:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这自由本刷着好烦 就不能改成打一次就给石头么
+
+
+*****
+
+####  bikalu  
+##### 82668#       发表于 2021-8-19 11:49
+
+
+没石头抽2宝了
+
+摩根一宝用上三个红拐的战斗力怎么样？
+
+
+*****
+
+####  alucardcz  
+##### 82669#       发表于 2021-8-19 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52426776&amp;ptid=1085254" target="_blank">bikalu 发表于 2021-8-19 11:49</a>
+
+没石头抽2宝了
+
+摩根一宝用上三个红拐的战斗力怎么样？</blockquote>
+三个红拐是啥 不就2个吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+摩根1宝不特攻伤害低的不能看
+
+
+*****
+
+####  zakki  
+##### 82670#       发表于 2021-8-19 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52426454&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-19 11:23</a>
+
+你怎么回事 lag了那么久？ 3技能这增幅度有限制正常 而且还限制只能吃一个  至于2技能扣np等于白 ...</blockquote>
+用的挺舒服的，就是越用越觉得限制太多，杀狐技能也挺放飞的，限制只有一个扣血。杀狐的一技能不光爆了cba的三技能，连C狐的宝具都爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82671#       发表于 2021-8-19 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52426849&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-19 11:56</a>
+
+用的挺舒服的，就是越用越觉得限制太多，杀狐技能也挺放飞的，限制只有一个扣血。杀狐的一技能不光爆了cb ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cba是谁啊 真不熟（
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你看奥某人50充其实还有20星呢！ 
+
+
+*****
+
+####  bikalu  
+##### 82672#       发表于 2021-8-19 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52426791&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-19 11:51</a>
+
+三个红拐是啥 不就2个吗
+
+摩根1宝不特攻伤害低的不能看</blockquote>
+算上借的，狐狐奥
+
+看看下个活动能不能发挥吧，不行就躺仓库了
+
+
+                                                 

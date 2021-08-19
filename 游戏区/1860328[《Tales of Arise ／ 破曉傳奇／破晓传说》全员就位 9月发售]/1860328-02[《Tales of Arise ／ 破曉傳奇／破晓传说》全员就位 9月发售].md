@@ -15031,3 +15031,43 @@ https://www.bilibili.com/video/BV1yg411579d/
 
 
                                                  
+
+*****
+
+####  clstc  
+##### 2634#       发表于 2021-8-19 11:45
+
+
+<blockquote>Yorda028 发表于 2021-8-19 10:57
+昨天打开玩了10分钟，问下大世界的按键能改吗，O键跳跃真是..... 战斗里的我改了X跳跃，没找到大世界按键在 ...</blockquote>
+大地图没法改，硬要改只能在主机系统里把键位互换了。。。。
+
+
+*****
+
+####  Yorda028  
+##### 2635#       发表于 2021-8-19 11:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52426717&amp;ptid=1860328" target="_blank">clstc 发表于 2021-8-19 11:45</a>
+
+大地图没法改，硬要改只能在主机系统里把键位互换了。。。。</blockquote>
+呃，难受。希望正式版能改...
+
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 2636#       发表于 2021-8-19 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52424213&amp;ptid=1860328" target="_blank">Tomoyo1 发表于 2021-8-19 08:09</a>
+
+⭕跳真sb，双版本试了一下还是xbox的a跳舒服点，在ps上玩太多x跳游戏实在难改
+
+
+—— 来自 meizu 17, Androi ...</blockquote>
+xbox战斗外也是B跳，改不了A跳……
+
+
+                                                 
