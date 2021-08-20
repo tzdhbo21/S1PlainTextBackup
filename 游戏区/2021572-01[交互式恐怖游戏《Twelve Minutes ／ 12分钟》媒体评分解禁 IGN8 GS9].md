@@ -1227,3 +1227,17 @@ XGP PC闪退, 咋整
 
 
                                                  
+
+*****
+
+####  HONG-  
+##### 109#       发表于 2021-8-21 06:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52450136&amp;ptid=2021572" target="_blank">whzfjk 发表于 2021-8-20 13:26</a>
+
+继续结局真删档了吧，攻略说可以拨指针，我无论系统界面的分针和厕所里逃出来的分针都摸不了？正念结局看视 ...</blockquote>
+拨指针应该只存在于分开结局
+
+
+                                                 
