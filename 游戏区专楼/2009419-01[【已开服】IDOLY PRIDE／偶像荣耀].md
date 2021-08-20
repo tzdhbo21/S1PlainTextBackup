@@ -6090,3 +6090,23 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 
 
                                                  
+
+*****
+
+####  伊布桑  
+##### 435#         楼主| 发表于 2021-8-20 10:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52437022&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-08-20 08:46:12</a>
+照片不用说80级前了，一直到后期都是最大影响
+
+
+装备爬主线爬塔直接送，差不多的位置的一样的
+
+
+等级的提升是 ...</blockquote>也不是说后面照片不重要，但是80前照片对开荒提升太大了，早期本来也带不了几张照片，技能没开到第三个，很多卡都没成体型，这时候有一张高属性的直接就飞跃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+                                                 

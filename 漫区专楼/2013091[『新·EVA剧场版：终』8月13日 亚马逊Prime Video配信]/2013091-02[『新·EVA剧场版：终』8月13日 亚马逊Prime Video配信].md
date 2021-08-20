@@ -1728,3 +1728,139 @@ IPX还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 
                                                  
+
+*****
+
+####  pkeva  
+##### 1613#       发表于 2021-8-20 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52437185&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-20 09:03</a>
+
+说起来，这两天看了不少人看终直播的表情，哭的稀里哗啦的人真的挺多的，说明人和人之前确实有感性上的区别 ...</blockquote>
+《终》和纪录片是完全相同的两部纪录片。
+
+一部是神棍刀刀的动画片，用比喻的手法将k社和痞子这几年的事情都讲一遍，
+
+一部是老老实实的真人记录。看了哪部其实都一样。
+
+
+*****
+
+####  dafangwoo  
+##### 1614#       发表于 2021-8-20 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52416656&amp;ptid=2013091" target="_blank">mcq_2 发表于 2021-8-18 15:52</a>
+
+跑题一下，萤火虫确实是沙雕哥哥害死妹妹。尽管错不在他，但是依然沙雕没跑。看不下去第二遍的动画之一。 ...</blockquote>
+惨剧，老哥人话听不进，只吃喝拉撒不干活，等死
+
+
+一想到这作品，满脑子只有高级糖罐子和妹妹的骨片
+
+
+*****
+
+####  emmer  
+##### 1615#       发表于 2021-8-20 11:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52434005&amp;ptid=2013091" target="_blank">NANA1Komatsu 发表于 2021-8-19 22:11</a>
+
+magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
+
+有在线双语字幕，比官方好点，画质也很不 ...</blockquote>
+哥，链接开车了
+
+
+*****
+
+####  ads147147  
+##### 1616#       发表于 2021-8-20 11:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52438002&amp;ptid=2013091" target="_blank">pkeva 发表于 2021-8-20 10:13</a>
+
+《终》和纪录片是完全相同的两部纪录片。
+
+一部是神棍刀刀的动画片，用比喻的手法将k社和痞子这几年的事情 ...</blockquote>
+确实，加长版说是痞子自己剪辑的感觉也不奇怪，前期那个摄像小姐姐确实不太会拍，后面明显磨练出来了，非常懂。
+
+
+不过纪录片没石头登场，会让国民homo爱好者不满意的。
+
+
+*****
+
+####  NANA1Komatsu  
+##### 1617#       发表于 2021-8-20 11:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52434283&amp;ptid=2013091" target="_blank">卡密sama 发表于 2021-8-19 22:36</a>
+？？？发福利了？</blockquote>
+已编辑
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  NANA1Komatsu  
+##### 1618#       发表于 2021-8-20 11:51
+
+
+草，发成车了
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| reekilynn| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  pkeva  
+##### 1619#       发表于 2021-8-20 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52439529&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-20 11:39</a>
+
+确实，加长版说是痞子自己剪辑的感觉也不奇怪，前期那个摄像小姐姐确实不太会拍，后面明显磨练出来了，非 ...</blockquote>
+因为纪录片没请几原来做访谈啊。
+
+
+*****
+
+####  laphire  
+##### 1620#       发表于 2021-8-20 12:56
+
+
+（之前只看过旧tv，前几天看了序）
+看完破了，感觉…eva是不是男生的过家家啊（親ごっこ）…
+现实中很难实现的事情（指巨量和巨型武器都能随自己一声令下操控，还有登上巨大机器人做超出常理的事），还有自己的妄想混合在一起…真嗣如果说是这个舞台和演员的中心，那么司令感觉就像个还未成熟的男人在想象中扮演他心中帅气男人的样子<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+还有那个谁油得不成样子，可能监督剧本的觉得这样很帅很风情（？），但是现在来看没有声音和作画的加持（哦，原来叫加持，记起来了）感觉就油油油油油。
+
+然后是明日香，充满了福利镜头。突如其来的暗恋和三角关系让我感觉男女的yy来来去去还蛮相似的…放在电影里如果没看过从cp考虑会觉得发展太快了…
+明日香感觉那种粗鲁的高高在上的态度，但是本身是女生有脆弱的地方，是不是让作者觉得很想欺负这种女生/这种人啊…感觉是对欺凌者的一种暴力美学，折中取了个平衡的感觉…（当然个人并不觉得这段很美）
+
+玛丽，怎么说呢，很帅气的打了一场，兽化形态也不算是少见的设定了…凌波写的挺完整了，看完之后也不会很多疑问。
+
+虽然救出来很帅，但是总体来说我是没感觉到太多的恋爱感情的，核心还是日本二次元作品里重视朋友那一套，强调羁绊吧…新剧场版目前看不出党争就是了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+当然作画和演出依然太漂亮了…结合这两个剧场版，第一次觉得运动，暴力和机械结合可以这么美，开始有点理解男生的美学了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+                                                 

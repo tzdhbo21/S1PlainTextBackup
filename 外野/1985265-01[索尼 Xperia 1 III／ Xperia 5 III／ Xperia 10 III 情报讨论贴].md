@@ -11228,3 +11228,24 @@ X2和510也都只是微提升的架构
 
 
                                                 
+
+*****
+
+####  我很费纸  
+##### 785#       发表于 2021-8-20 12:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52436655&amp;ptid=1985265" target="_blank">8400gs 发表于 2021-8-20 07:58</a>
+那888翻车和下一代一定翻车有什么必然联系？
+
+三星工艺产出过能耗比神u也产出过火龙，那你怎么知道下一个 ...</blockquote>
+有什么必然联系？
+
+从这一代看下一代总比从老祖宗看下一代有说服力啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，正常思路都是老子不行儿子不看好才对吧，还有人祖宗牛逼所以看好曾曾曾孙的？
+
+不是……三星这代工艺普遍翻车，怎么还有人对下一代如此乐观啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

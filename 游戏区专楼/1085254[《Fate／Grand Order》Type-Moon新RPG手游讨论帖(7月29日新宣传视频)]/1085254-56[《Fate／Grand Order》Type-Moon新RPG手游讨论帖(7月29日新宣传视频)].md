@@ -2256,3 +2256,96 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 82688#       发表于 2021-8-20 12:23
+
+
+ 本帖最后由 zakki 于 2021-8-20 12:25 编辑 
+
+打幕间拿了15个石头，前两抽镀金弓阶妖崔＋1，想着让她们母女团聚出个摩根吧，然后第四抽镀金狂阶摩根<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82689#       发表于 2021-8-20 12:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52440136&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 12:23</a>
+
+打幕间拿了15个石头，前两抽镀金弓阶妖崔＋1，想着让她们母女团聚出个摩根吧，然后第四抽镀金狂阶摩根[f:06 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲人恐怖如斯  羡慕.jpg
+
+
+*****
+
+####  黑上シグマ  
+##### 82690#       发表于 2021-8-20 12:55
+
+
+<blockquote>引用第82687楼zakki于2021-08-20 12:23发表的  :
+
+本帖最后由 zakki 于 2021-8-20 12:25 编辑 打幕间拿了15个石头，前两抽镀金弓......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧，羡慕
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  zakki  
+##### 82691#       发表于 2021-8-20 13:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52440575&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 12:54</a>
+欧洲人恐怖如斯  羡慕.jpg</blockquote>
+经我长期看这楼下来，大家都彼此彼此吧，你们也别说我欧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82692#       发表于 2021-8-20 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52440745&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 13:08</a>
+
+经我长期看这楼下来，大家都彼此彼此吧，你们也别说我欧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">误会了 萌新可是本楼里唯一一个妖高妖崔都没有的人
+
+
+*****
+
+####  黑上シグマ  
+##### 82693#       发表于 2021-8-20 13:20
+
+
+<blockquote>引用第82691楼alucardcz于2021-08-20 13:13发表的  :
+
+引用:zakki 发表于 2021-8-20 13:08经我长期看这楼下来，大家都彼此彼此吧，你们也......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这俩不是限定啊，你个欧洲限定佬没有不是很正常吗
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  alucardcz  
+##### 82694#       发表于 2021-8-20 13:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52440882&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-20 13:20</a>
+
+这俩不是限定啊，你个欧洲限定佬没有不是很正常吗
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情限定也是限定
+
+
+                                                 
