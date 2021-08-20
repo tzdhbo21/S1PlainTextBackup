@@ -1714,3 +1714,17 @@ IPX还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 
                                                  
+
+*****
+
+####  天涯夹心人  
+##### 1612#       发表于 2021-8-20 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52437185&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-20 09:03</a>
+
+说起来，这两天看了不少人看终直播的表情，哭的稀里哗啦的人真的挺多的，说明人和人之前确实有感性上的区别 ...</blockquote>
+你们知道的太多了啊，那注意力自然转移到其他方面了。
+
+
+                                                 
