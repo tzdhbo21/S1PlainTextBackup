@@ -3070,3 +3070,16 @@ https://sp.shonenjump.com/p/sp/million-tag/works/6/8
 
 
                                                  
+
+*****
+
+####  最强惠酱  
+##### 208#       发表于 2021-8-20 15:29
+
+
+宇宙旅行，题材上最年少已经是我心目中的第一了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

@@ -1864,3 +1864,159 @@ magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
 
 
                                                  
+
+*****
+
+####  最低人间肥宅  
+##### 1621#       发表于 2021-8-20 13:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52440604&amp;ptid=2013091" target="_blank">laphire 发表于 2021-8-20 12:56</a>
+（之前只看过旧tv，前几天看了序）
+看完破了，感觉…eva是不是男生的过家家啊（親ごっこ）…
+现实中很难实 ...</blockquote>
+传闻
+痞子追过宫村被拒
+）
+
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  pkeva  
+##### 1622#       发表于 2021-8-20 13:37
+
+
+剑介家的插入栓根本不可能是明日香的。
+
+插入栓的驾驶座位是反着的。
+
+也就是说驾驶座是被整个儿撬下来过。
+
+让明日香出驾驶舱完全不需要搞那么复杂。
+
+这个驾驶舱就是Q里面真4的那个驾驶舱。被Willy的人在决战前扔掉，剑介有捡垃圾的习惯就顺便拿来用了。
+
+
+<img src="https://img.saraba1st.com/forum/202108/20/133401u7j8xam8jds7s52g.png" referrerpolicy="no-referrer">
+
+
+<strong>ecd42e2eb9389b50eab73bea9235e5dde6116ec0.png</strong> (324.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-20 13:34 上传
+
+
+*****
+
+####  piigzyq  
+##### 1623#       发表于 2021-8-20 13:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441081&amp;ptid=2013091" target="_blank">pkeva 发表于 2021-8-20 13:37</a>
+
+剑介家的插入栓根本不可能是明日香的。
+
+插入栓的驾驶座位是反着的。
+
+也就是说驾驶座是被整个儿撬下来过。</blockquote>
+是真嗣的13号机的没错
+
+
+*****
+
+####  pkeva  
+##### 1624#       发表于 2021-8-20 13:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441098&amp;ptid=2013091" target="_blank">piigzyq 发表于 2021-8-20 13:38</a>
+
+是真嗣的13号机的没错</blockquote>
+这个驾驶舱可以解释为何Willy能够有资料制作十三号机的停止信号插入栓。
+
+
+*****
+
+####  ads147147  
+##### 1625#       发表于 2021-8-20 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441013&amp;ptid=2013091" target="_blank">最低人间肥宅 发表于 2021-8-20 13:32</a>
+
+传闻
+
+痞子追过宫村被拒
+
+）</blockquote>
+传闻是日高范子。
+
+
+*****
+
+####  ads147147  
+##### 1626#       发表于 2021-8-20 14:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52440604&amp;ptid=2013091" target="_blank">laphire 发表于 2021-8-20 12:56</a>
+
+（之前只看过旧tv，前几天看了序）
+
+看完破了，感觉…eva是不是男生的过家家啊（親ごっこ）…
+
+现实中很难实 ...</blockquote>
+幻想作品这个过家家，其实形容的挺贴切的，男人致死是少年。说起来加持这么油，据说是大学时期的痞子就是这个尿性的，大学时候女朋友没有断过。
+
+
+*****
+
+####  emmer  
+##### 1627#       发表于 2021-8-20 14:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441681&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-20 14:26</a>
+
+幻想作品这个过家家，其实形容的挺贴切的，男人致死是少年。说起来加持这么油，据说是大学时期的痞子就是 ...</blockquote>
+不太可能
+
+
+他年轻时候要是这么现充，就做不了EVA
+
+
+*****
+
+####  flymop  
+##### 1628#       发表于 2021-8-20 15:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441081&amp;ptid=2013091" target="_blank">pkeva 发表于 2021-8-20 13:37</a>
+
+剑介家的插入栓根本不可能是明日香的。
+
+插入栓的驾驶座位是反着的。
+
+也就是说驾驶座是被整个儿撬下来过。</blockquote>
+这个驾驶舱有降落伞
+
+
+*****
+
+####  ads147147  
+##### 1629#       发表于 2021-8-20 15:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441838&amp;ptid=2013091" target="_blank">emmer 发表于 2021-8-20 14:39</a>
+
+不太可能
+
+
+他年轻时候要是这么现充，就做不了EVA</blockquote>
+好像是壁吧的痞子纪录片里说的，当时痞子周围人都没有女朋友，但是痞子自己有女朋友，而且经常换。
+
+
+变成eva那个样子大概率是没找到真爱（还被传闻被日高范子甩了），终是终于遇到了真爱。
+
+
+                                                 

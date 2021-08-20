@@ -4110,3 +4110,243 @@ ngo切片mylist200都不能破了，赏味期到了。趁早混进vww养老吧<i
 
 
                                                  
+
+*****
+
+####  帕克桑  
+##### 6331#       发表于 2021-8-20 13:47
+
+
+功德箱罢了
+
+
+*****
+
+####  OldGlory  
+##### 6332#       发表于 2021-8-20 13:59
+
+
+阿喵喵肯来b限的话肯定有租收的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adcdqre  
+##### 6333#       发表于 2021-8-20 14:04
+
+
+ 本帖最后由 adcdqre 于 2021-8-20 14:20 编辑 
+
+还用收租黑呢版本落后太多了，裁狗一直有一批粉丝的
+
+
+*****
+
+####  adcdqre  
+##### 6334#       发表于 2021-8-20 14:05
+
+
+ 本帖最后由 adcdqre 于 2021-8-20 14:13 编辑 
+
+收租不是hololive专属技能吗，神乐七奈都不收租。杏仁被甩以后突然就觉醒了，想必在youtube看也是发中文吧
+
+
+*****
+
+####  渡鸦骑士  
+##### 6335#       发表于 2021-8-20 14:09
+
+
+彩虹在国内也是卖谷子吧官方淘宝店都有<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空集  
+##### 6336#       发表于 2021-8-20 14:23
+
+
+<blockquote>adcdqre 发表于 2021-8-20 14:05
+收租不是hololive专属技能吗，神乐七奈都不收租。杏仁被甩以后突然就觉醒了，想必在youtube看也是发中文吧 ...</blockquote>
+按那套收租理论算本来就人人收租，然后这个理论可就非常源远流长了别修正历史，当然虹这个纯转播号式入驻本来就够草生了，
+
+
+*****
+
+####  空集  
+##### 6337#       发表于 2021-8-20 14:26
+
+
+<blockquote>_Ra1nMaker 发表于 2021-8-20 12:38
+不懂就问，这种B站入驻号的意义就是收租吗</blockquote>
+意义就是将第n次体现田角急了以及急了也没liver真的肯配合他
+
+
+*****
+
+####  adcdqre  
+##### 6338#       发表于 2021-8-20 14:41
+
+
+ 本帖最后由 adcdqre 于 2021-8-20 15:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441649&amp;ptid=1972669" target="_blank">空集 发表于 2021-8-20 14:23</a>
+按那套收租理论算本来就人人收租，然后这个理论可就非常源远流长了别修正历史，当然虹这个纯转播号式入驻 ...</blockquote>
+按说杏公司还安排她们每月b限结果突然来这么一手，难怪没有安全感。月租嘛要么租字怎么来的。就是看个主播而已真没必要，结果很多人回踩换了个寄托还是老样子。
+虹管以外数据都不进没法给主播加成nb都没有，这破事还能yy田角和主播心理也是厉害👍
+
+
+*****
+
+####  FlinN  
+##### 6339#       发表于 2021-8-20 14:54
+
+
+字幕组个人号播官号不能转的时候才会强调不要打钱
+
+
+*****
+
+####  winda  
+##### 6340#       发表于 2021-8-20 14:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种连入驻视频都不发的转播专用号就是投视频捋羊毛的，比以前b限“收租”可恶劣多了
+
+
+*****
+
+####  我不是很好  
+##### 6341#       发表于 2021-8-20 14:57
+
+
+只要不播就不算收租，偶尔来一次算粉丝福利。
+
+
+*****
+
+####  free  
+##### 6342#       发表于 2021-8-20 15:00
+
+
+B站早就是国V版本了，爱丽丝对B够上心了吧现在也就剩200多舰了，彩虹不可能把重心放到B的，国内就卖卖谷子每年BML来混个脸熟差不多了
+
+
+*****
+
+####  asdhai  
+##### 6343#       发表于 2021-8-20 15:01
+
+
+4ID被图图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SuntoryNomu  
+##### 6344#       发表于 2021-8-20 15:02
+
+
+【AD】致远星慢报。
+
+
+tara artwork X 鈴原るる（元）
+
+同款耳饰↓
+[https://taraartwork.official.ec/items/42518023](https://taraartwork.official.ec/items/42518023)
+
+
+<img src="https://img.saraba1st.com/forum/202108/20/145836gfbzwbkbaxf2739x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E7_Y2s5VoAUl0dg.jpg</strong> (240.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-20 14:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/20/145833ptp6eg4go4jggntd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E7_Y2s9VkAEyBno.jpg</strong> (238.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-20 14:58 上传
+
+
+*****
+
+####  OldGlory  
+##### 6345#       发表于 2021-8-20 15:03
+
+
+爱丽丝在b站本质个人势，不联动不引流能维持200舰很厉害了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  podball  
+##### 6346#       发表于 2021-8-20 15:05
+
+
+她真好
+
+
+*****
+
+####  adcdqre  
+##### 6347#       发表于 2021-8-20 15:07
+
+
+ 本帖最后由 adcdqre 于 2021-8-20 15:14 编辑 
+
+只是想不到管综这么多版本落后的b站民，版本免费不是给你讲了
+
+
+*****
+
+####  admentus  
+##### 6348#       发表于 2021-8-20 15:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442223&amp;ptid=1972669" target="_blank">adcdqre 发表于 2021-8-20 15:07</a>
+只是想不到管综这么多版本落后的b站民</blockquote>
+你综人不从来就是去油管看的，哪怕不讨厌批限，对批限也是中立态度并没有多看重批限
+冒出来正儿八经聊“收租”，现在版本进化到哪了？确实跟不上
+
+
+*****
+
+####  adcdqre  
+##### 6349#       发表于 2021-8-20 15:13
+
+
+ 本帖最后由 adcdqre 于 2021-8-20 15:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442164&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-8-20 15:03</a>
+爱丽丝在b站本质个人势，不联动不引流能维持200舰很厉害了。</blockquote>
+爱丽丝是真不喜欢联动箱内还是b站活动的都几乎没有。以前好歹吃过天狗crew流现在也没有了，话说回来她要是事业型也不会来b就是了。有些人的视力版本都不大行就不在下面回了
+
+
+*****
+
+####  越动天下  
+##### 6350#       发表于 2021-8-20 15:16
+
+
+怎么一进来就是收租 版本回滚了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  OldGlory  
+##### 6351#       发表于 2021-8-20 15:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442302&amp;ptid=1972669" target="_blank">adcdqre 发表于 2021-8-20 15:13</a>
+
+爱丽丝是真不喜欢联动箱内还是b站活动的都几乎没有。以前好歹吃过天狗crew流现在也没有了，话说回来她要 ...</blockquote>
+喜欢联动的彩虹人也没把联动搬到b站啊，也就床狗搞过一次mc联动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

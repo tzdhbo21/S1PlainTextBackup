@@ -2349,3 +2349,131 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 82695#       发表于 2021-8-20 13:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52440136&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 12:23</a>
+
+打幕间拿了15个石头，前两抽镀金弓阶妖崔＋1，想着让她们母女团聚出个摩根吧，然后第四抽镀金狂阶摩根[f:06 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">欧 羡慕 感觉我是唯一一个没出摩根的人了
+
+
+*****
+
+####  khxooo  
+##### 82696#       发表于 2021-8-20 14:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441153&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-20 13:43</a>
+欧 羡慕 感觉我是唯一一个没出摩根的人了</blockquote>
+我也没有<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82697#       发表于 2021-8-20 14:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441375&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-20 14:01</a>
+
+我也没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这两天清自由本拿石头 扔进去全是绿方块 痛苦
+
+
+*****
+
+####  zakki  
+##### 82698#       发表于 2021-8-20 14:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441661&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-20 14:24</a>
+
+这两天清自由本拿石头 扔进去全是绿方块 痛苦</blockquote>
+9月1号中午才关，有5发希望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82699#       发表于 2021-8-20 14:31
+
+
+话说你们狗粮一般怎么刷的，我用三宝石海伦娜时不时会miss<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82700#       发表于 2021-8-20 14:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441692&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 14:27</a>
+
+9月1号中午才关，有5发希望</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总感觉出货跟号有关系 这号就是抽不到某些角色
+
+最主要还是我太穷了 也许氪金会出吧
+
+
+*****
+
+####  alucardcz  
+##### 82701#       发表于 2021-8-20 14:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441735&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 14:31</a>
+
+话说你们狗粮一般怎么刷的，我用三宝石海伦娜时不时会miss</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202108/20/145747sfxkw2fffc4bb9wo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>234.jpg</strong> (540.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-20 14:57 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新尽力了 舍弃3个加成也要点2（3）下
+
+
+*****
+
+####  qixinno2  
+##### 82702#       发表于 2021-8-20 15:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442077&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 14:57</a>
+
+萌新尽力了 舍弃3个加成也要点2（3）下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">好羡慕 渣渣五星狂只有南丁
+
+
+*****
+
+####  里村紅葉  
+##### 82703#       发表于 2021-8-20 15:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442077&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 14:57</a>
+
+萌新尽力了 舍弃3个加成也要点2（3）下</blockquote>
+无 氪 玩 家 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82704#       发表于 2021-8-20 15:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能不能给南丁个技能本 使用后把辅助宝具变为光炮
+
+
+                                                 
