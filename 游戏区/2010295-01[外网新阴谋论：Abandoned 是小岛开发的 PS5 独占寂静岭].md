@@ -10548,3 +10548,14 @@ Abandoned Gameplay Reveal Is 'a Few Months' Away, But Trailer App Will Be Update
 
 
                                                  
+
+*****
+
+####  GarfieldX  
+##### 835#       发表于 2021-8-20 15:55
+
+
+我觉得这事可以引用某vtb名言：我真是怀疑某些人闲的程度啊
+
+
+                                                 

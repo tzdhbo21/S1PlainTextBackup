@@ -2020,3 +2020,21 @@ magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
 
 
                                                  
+
+*****
+
+####  任天索尼子  
+##### 1630#       发表于 2021-8-20 15:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442391&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-20 15:20</a>
+好像是壁吧的痞子纪录片里说的，当时痞子周围人都没有女朋友，但是痞子自己有女朋友，而且经常换。
+
+
+变成 ...</blockquote>
+痞子早年穷得叮当响的时候找女朋友经常几天就被踢了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

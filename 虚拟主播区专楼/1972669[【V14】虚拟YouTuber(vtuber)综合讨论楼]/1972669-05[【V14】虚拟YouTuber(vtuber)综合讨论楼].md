@@ -4350,3 +4350,155 @@ tara artwork X 鈴原るる（元）
 
 
                                                  
+
+*****
+
+####  ヒトニナル  
+##### 6352#       发表于 2021-8-20 15:27
+
+
+版本回滚×
+车轱辘 ✓
+
+
+*****
+
+####  红叶糖茶  
+##### 6353#       发表于 2021-8-20 15:33
+
+
+<blockquote>まだ38℃以上あるので今日もお休みします…病院行ったら扁桃炎疑われてるので抗生物質飲んでおきます
+
+それでも治らなかったら別の検査受ける形です</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 6354#       发表于 2021-8-20 15:40
+
+
+快速了解B站版本：VTB观测日报，数据截至昨天
+[https://www.bilibili.com/read/cv12766522](https://www.bilibili.com/read/cv12766522)
+
+
+<img src="https://img.saraba1st.com/forum/202108/20/154004aeg9d4p4dem9dqga.png" referrerpolicy="no-referrer">
+
+
+<strong>舰长.png</strong> (81.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-20 15:40 上传
+
+
+*****
+
+####  alcoholic1000  
+##### 6355#       发表于 2021-8-20 15:49
+
+
+趁人多问问，好久没上まとめ怎么把所有虹相关的版权绘下了（包括头图），出台新的利用规约了吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 6356#       发表于 2021-8-20 15:49
+
+
+万万没想到现在这里还能看到说虹收租的，精彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 6357#       发表于 2021-8-20 16:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏是收租虹不是这种双标论能在NGA吃开在这里可吃不开，是不是“收租”和收不收到钱有什么关系，收不到钱那是你自己FW。
+
+我看黑黑SSK之前来刮钱还挺开心的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adcdqre  
+##### 6358#       发表于 2021-8-20 16:03
+
+
+ 本帖最后由 adcdqre 于 2021-8-20 16:29 编辑 
+
+这裁狗版本也不太行啊，还拿夏色祭蹭流量呢（真别说在b站发管人粉丝不注册b站确实奈何不了他）
+
+
+*****
+
+####  flyskywalker92  
+##### 6359#       发表于 2021-8-20 16:11
+
+
+收就收啊 虹又没包庇fk u
+
+虹en可快来收8
+
+
+*****
+
+####  空集  
+##### 6360#       发表于 2021-8-20 16:19
+
+
+<blockquote>adcdqre 发表于 2021-8-20 15:07
+只是想不到管综这么多版本落后的b站民，版本免费不是给你讲了</blockquote>
+首先你语文好差回的自己读的通么，能不能说明白点。其次第一次看v综么，还b站民，v综基本都是直接看油管的。最后现在啥版本以前啥版本这里每个人都清楚，不需要什么你或者免费来说，以及什么版本好像和大家说的一点关系也没有
+
+
+
+
+*****
+
+####  空集  
+##### 6361#       发表于 2021-8-20 16:24
+
+
+<blockquote>adcdqre 发表于 2021-8-20 14:41
+按说杏公司还安排她们每月b限结果突然来这么一手，难怪没有安全感。月租嘛要么租字怎么来的。就是看个主 ...</blockquote>
+所以你这段想表达啥，又看懂了我说啥么，我可没说我支持收租这个说法，我第一句话就告诉你按收租那个标准那以前虹杏其他各种yhm都能被算，第二句话告诉你收租理论源远流长和什么杏润不润国v版本变化没关系
+
+
+*****
+
+####  空集  
+##### 6362#       发表于 2021-8-20 16:27
+
+
+<blockquote>adcdqre 发表于 2021-8-20 14:41
+按说杏公司还安排她们每月b限结果突然来这么一手，难怪没有安全感。月租嘛要么租字怎么来的。就是看个主 ...</blockquote>
+以及可没人愿意yy谁的心理，这只是如吃饭喝水般随便嘲一句罢了，该说welcome to v综？  以及我时差党现在先睡了几小时后可以接着掰扯
+
+
+*****
+
+####  Suny08  
+##### 6363#       发表于 2021-8-20 16:31
+
+
+车轱辘差不多得了，你虹就是因为收不到租才来转播号的
+
+
+还是来点银趴，帮着装了电脑以后去干什么了呢
+
+
+<img src="https://img.saraba1st.com/forum/202108/20/163128xb8gvnh763yhttj9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E3E6690A-11FC-4004-8B7E-F38E51E9C404.jpeg</strong> (214.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-20 16:31 上传
+
+
+                                                

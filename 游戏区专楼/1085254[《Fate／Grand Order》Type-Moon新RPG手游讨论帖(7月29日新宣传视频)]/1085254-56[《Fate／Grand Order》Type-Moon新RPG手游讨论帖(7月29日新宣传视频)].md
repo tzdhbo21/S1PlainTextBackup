@@ -2477,3 +2477,76 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 82705#       发表于 2021-8-20 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442393&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-20 15:21</a>
+
+无 氪 玩 家</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">啥 这和氪有啥关系
+
+
+*****
+
+####  zakki  
+##### 82706#       发表于 2021-8-20 16:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442077&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 14:57</a>
+
+萌新尽力了 舍弃3个加成也要点2（3）下</blockquote>
+全五星也太大材小用了吧，我一般打狗粮qp都尽量上4星<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 你这三个都是一宝的吗？
+
+
+*****
+
+####  alucardcz  
+##### 82707#       发表于 2021-8-20 16:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442934&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 16:07</a>
+
+全五星也太大材小用了吧，我一般打狗粮qp都尽量上4星 你这三个都是一宝的吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">121
+
+
+*****
+
+####  zakki  
+##### 82708#       发表于 2021-8-20 16:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442368&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-20 15:19</a>
+
+好羡慕 渣渣五星狂只有南丁</blockquote>
+前两年不是有个限定的职介福袋吗，我觉得那个福袋基本都会抽狂吧，虽然我出了土方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82709#       发表于 2021-8-20 16:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442968&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 16:09</a>
+
+前两年不是有个限定的职介福袋吗，我觉得那个福袋基本都会抽狂吧，虽然我出了土方 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日服我是纯白嫖 连福袋都没氪
+
+
+*****
+
+####  zakki  
+##### 82710#       发表于 2021-8-20 16:22
+
+
+这是我的狗粮阵容，太依赖海伦娜二技能中不中了，而且还不能第一回合全放完技能
+
+<img src="https://p.sda1.dev/2/7ca7c78d6d213b1e05e35fb1353ed814/IMG_CMP_32114595.jpeg" referrerpolicy="no-referrer">
+
+
+                                                 
