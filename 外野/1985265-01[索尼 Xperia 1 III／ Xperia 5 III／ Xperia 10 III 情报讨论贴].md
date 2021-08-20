@@ -11137,3 +11137,94 @@ Xperia 5III先行测评</blockquote>
 
 
                                                  
+
+*****
+
+####  我很费纸  
+##### 780#       发表于 2021-8-20 07:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52435560&amp;ptid=1985265" target="_blank">8400gs 发表于 2021-8-20 00:36</a>
+泥潭一代神U 835就是三星的10nm工艺啊
+
+
+也没见谁说不能用</blockquote>
+三星出过一次好工艺=三星一直是好工艺？
+
+835那代没翻车和现在888翻车有什么必然联系？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今年用了三星工艺的产品，隔壁NV的显卡一样也是能耗比不如台积电7nm的小AA，你说<strong>现在的</strong>到底是让人放心还是让人心慌啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  8400gs  
+##### 781#       发表于 2021-8-20 07:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52436636&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-8-20 07:55</a>
+三星出过一次好工艺=三星一直是好工艺？
+
+835那代没翻车和现在888翻车有什么必然联系？</blockquote>
+那888翻车和下一代一定翻车有什么必然联系？
+
+三星工艺产出过能耗比神u也产出过火龙，那你怎么知道下一个一定是火龙？
+
+
+*****
+
+####  gofbayrf  
+##### 782#       发表于 2021-8-20 08:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52436655&amp;ptid=1985265" target="_blank">8400gs 发表于 2021-8-20 07:58</a>
+那888翻车和下一代一定翻车有什么必然联系？
+
+三星工艺产出过能耗比神u也产出过火龙，那你怎么知道下一个 ...</blockquote>
+2200翻車到不上市了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  starash  
+##### 783#       发表于 2021-8-20 08:31
+
+
+ 本帖最后由 starash 于 2021-8-20 08:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52436655&amp;ptid=1985265" target="_blank">8400gs 发表于 2021-8-20 07:58</a>
+
+那888翻车和下一代一定翻车有什么必然联系？
+
+
+三星工艺产出过能耗比神u也产出过火龙，那你怎么知道下一个 ...</blockquote>
+三星的实际性能没有优于ppt过。
+
+21年能上的三星工艺只有4nm，而4nm只不过又是一个7nm的优化版本，按三星ppt也就在N7P和N5之间
+
+X2和510也都只是微提升的架构
+
+最后，高通现在已经没有像样的对手了（苹果A*系列高通是完全放弃追赶了，反正不外卖），做出来火龙厂家也只能舔。
+
+
+凭着以上几点，我敢说895/898肯定还是新一代火龙。
+
+
+*****
+
+####  Lisylfn  
+##### 784#       发表于 2021-8-20 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52435291&amp;ptid=1985265" target="_blank">shunfeng 发表于 2021-8-20 00:01</a>
+
+可视角问题，都这样</blockquote>
+你要说都这样, 那确实, iPhone12 pro我看了一下也会
+
+不过也确实十分明显地发绿, 我一开始还以为是个体问题换了一台
+
+
+                                                

@@ -15719,3 +15719,89 @@ BOSS进OVL以后 强制霸体，连BA技都无法克制
 
 
                                                  
+
+*****
+
+####  qiyu1234  
+##### 2686#       发表于 2021-8-20 08:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52435989&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-20 02:02</a>
+虽然我在五月底已经猜出 CP == Cure Points，但是我还是轻视了战斗中对这个点数的管理——在试玩的过程中， ...</blockquote>
+这作换金道具会在售卖时单独提示这点不错，我是觉得单纯对boss战消耗cp的话，配合cp药来说其实还好，即使是前期，普通战斗也不太有机会进行大规模的消耗
+
+
+*****
+
+####  最浅的语言  
+##### 2687#       发表于 2021-8-20 08:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52434141&amp;ptid=1860328" target="_blank">阿卵真是牛逼 发表于 2021-8-19 22:25</a>
+
+steam版有什么便宜入手的方法吗，只能余额代购了嘛</blockquote>
+现在steam国区礼物貌似都得加好友30天以上才能送了，不然感觉国区只能是充值卡了，便宜个20RMB左右
+
+
+*****
+
+####  zero33333  
+##### 2688#       发表于 2021-8-20 08:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52434141&amp;ptid=1860328" target="_blank">阿卵真是牛逼 发表于 2021-8-19 22:25</a>
+
+steam版有什么便宜入手的方法吗，只能余额代购了嘛</blockquote>
+俄罗斯人表示，直接买了究极版，比国区普通版还便宜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  EdSheeran  
+##### 2689#       发表于 2021-8-20 08:44
+
+
+弱弱问下 普通ps4版玩TOA体验如何？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
+
+
+*****
+
+####  童贞阿龙  
+##### 2690#       发表于 2021-8-20 08:46
+
+
+打了三遍,原来还有黑龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 2691#       发表于 2021-8-20 08:57
+
+
+正式版应该不会还有这种随机出现的隐藏怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2692#       发表于 2021-8-20 09:11
+
+
+试玩版的剧情，完全虚构的可能性比较大
+
+
+从几段强制触发的剧情对话上来说，这时候的队伍应该只有奥尔芬和希侬，但是他们要前往的梅南西亚是奇莎拉和杜欧哈林所属的国家
+
+小剧场对话首先可以忽略，因为以前作品也有这种只需要队员在队就可以触发的对话（部分作品多周目队友不需要剧情开头直接入队）
+
+
+从之前放出的演示来看，剧情上应该是从卡拉葛利亚 开始 到 西斯罗狄亚 遇到 琳薇尔 和 洛 ，然后才到 耶利德·梅南西亚 遇见最后一对组合
+
+
+虽然也不排除先路过了梅南西亚的可能，但是从这段对话延申出的 BOSS战任务 的角度来说也不太可能，只靠奥尔芬和希侬打可太难了，而且到这个阶段25级没遇到男二女二也不太可能，场景里的装备也正好是6个人的武器，所以应该是刻意安排的试玩部分
+
+
+                                                 

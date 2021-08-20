@@ -6061,3 +6061,32 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 
 
                                                  
+
+*****
+
+####  伊布桑  
+##### 433#         楼主| 发表于 2021-8-20 08:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52432616&amp;ptid=2009419" target="_blank">kos_mos 发表于 2021-08-19 20:21:50</a>
+一直自动编队，现在一窍不通到Main live 19卡了</blockquote>80级前照片影响可能更大就是了，运气好拍到好照片属性直接提升一大截<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  yuugi  
+##### 434#       发表于 2021-8-20 08:46
+
+
+照片不用说80级前了，一直到后期都是最大影响
+
+
+装备爬主线爬塔直接送，差不多的位置的一样的
+
+
+等级的提升是很少的
+
+
+                                                 

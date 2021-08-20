@@ -3985,3 +3985,38 @@ mahimahi休息中这队这届这么强关键还是mahimahi这次最协进步夸�
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 6319#       发表于 2021-8-20 07:35
+
+
+ 本帖最后由 hulaoda007 于 2021-8-20 08:31 编辑 
+
+对社畜+死宅这种生物还是请温柔一点。<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+说起来，有些人和游戏电波对不上的话，人气再高直播也不有趣。印象最深的是阿夸玩shinymas直播的很烂，但兔头直播得很好。
+
+
+*****
+
+####  adcdqre  
+##### 6320#       发表于 2021-8-20 08:19
+
+
+king能不给给兔头留个活路啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Suny08  
+##### 6321#       发表于 2021-8-20 09:12
+
+
+挂的月之的tag给月之引流呢，以后干脆让king把全社的tag都挂上算了，vip引流位
+
+
+                                                 

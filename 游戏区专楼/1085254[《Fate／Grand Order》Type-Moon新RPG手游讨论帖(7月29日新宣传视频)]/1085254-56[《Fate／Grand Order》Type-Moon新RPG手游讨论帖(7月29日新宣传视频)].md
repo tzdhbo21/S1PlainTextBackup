@@ -2239,3 +2239,20 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  areklose  
+##### 82687#       发表于 2021-8-20 08:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52435840&amp;ptid=1085254" target="_blank">007.5 发表于 2021-8-20 01:25</a>
+
+国服这泳装池子简直有毒，作为零氪党每个石头都省着用，这次本来想着要求不高，就抽个1宝水伊莉雅回迦舔
+
+
+ ...</blockquote>
+黑字的那个才是国服楼。这个是日服楼
+
+
+                                                 
