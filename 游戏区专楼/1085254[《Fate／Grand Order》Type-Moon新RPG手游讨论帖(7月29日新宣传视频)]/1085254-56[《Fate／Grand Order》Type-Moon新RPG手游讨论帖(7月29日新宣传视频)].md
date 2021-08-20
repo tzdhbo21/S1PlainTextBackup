@@ -2550,3 +2550,363 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 82711#       发表于 2021-8-20 16:26
+
+
+我好像一次都没打过新的狗粮和QP本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82712#       发表于 2021-8-20 16:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443141&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 16:22</a>
+
+这是我的狗粮阵容，太依赖海伦娜二技能中不中了，而且还不能第一回合全放完技能
+
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你把海妈撕了换个爱酱不就行了
+
+
+*****
+
+####  zakki  
+##### 82713#       发表于 2021-8-20 16:39
+
+
+翻页
+
+
+*****
+
+####  zakki  
+##### 82714#       发表于 2021-8-20 16:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443353&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 16:38</a>
+
+你把海妈撕了换个爱酱不就行了</blockquote>
+得靠海妈的魔放buff保罗，要不第一面都打不掉
+
+
+*****
+
+####  alucardcz  
+##### 82715#       发表于 2021-8-20 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443401&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 16:40</a>
+
+得靠海妈的魔放buff保罗，要不第一面都打不掉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">包罗这么菜的吗  但你都满破宝石了 没必要上什么保罗啊  
+
+
+*****
+
+####  zakki  
+##### 82716#       发表于 2021-8-20 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443433&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 16:42</a>
+
+包罗这么菜的吗  但你都满破宝石了 没必要上什么保罗啊</blockquote>
+得靠保罗的一技能buff黑贞要不打不掉三面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82717#       发表于 2021-8-20 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442368&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-20 15:19</a>
+
+好羡慕 渣渣五星狂只有南丁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新和狂阶比较有缘 只差手办和狗蛋
+
+
+*****
+
+####  alucardcz  
+##### 82718#       发表于 2021-8-20 16:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443452&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 16:44</a>
+
+得靠保罗的一技能buff黑贞要不打不掉三面</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。。你这得点几下？  不如直接6加成蓝卡冲了
+
+
+话说你不是抽到王姐了吗 换掉保罗  王姐有领导力 说不定能拐住你的水黑贞
+
+
+*****
+
+####  zakki  
+##### 82719#       发表于 2021-8-20 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443503&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 16:48</a>
+
+。。你这得点几下？  不如直接6加成蓝卡冲了
+
+
+话说你不是抽到王姐了吗 换掉保罗  王姐有领导力 说 ...</blockquote>
+海伦娜三个技能，黑贞一个，保罗两个。话说你福袋党总共多少种五星？欧的太离谱了狂阶只差两个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82720#       发表于 2021-8-20 16:56
+
+
+<blockquote>引用第82717楼alucardcz于2021-08-20 16:48发表的  :
+
+引用:zakki 发表于 2021-8-20 16:44得靠保罗的一技能buff黑贞要不打不掉三面。......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他不是没狗粮吗
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  alucardcz  
+##### 82721#       发表于 2021-8-20 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443604&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 16:55</a>
+
+海伦娜三个技能，黑贞一个，保罗两个。话说你福袋党总共多少种五星？欧的太离谱了狂阶只差两个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下 不算宝具60  算上宝具75
+
+
+*****
+
+####  仰望神的括约肌  
+##### 82722#       发表于 2021-8-20 17:02
+
+
+艹 狩猎本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82723#       发表于 2021-8-20 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443670&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-8-20 17:02</a>
+
+艹 狩猎本</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该掏出无敌的红卡周回了  
+
+
+然后一看是骨头 再见
+
+
+*****
+
+####  zakki  
+##### 82724#       发表于 2021-8-20 17:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443652&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 17:00</a>
+
+看了下 不算宝具60  算上宝具75</blockquote>
+我算上刚豹的这个也就50，而且基本都是一宝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82725#       发表于 2021-8-20 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443610&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-20 16:56</a>
+
+他不是没狗粮吗
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+已经拉到90级310了，狗粮本效率太高只刷两罐就能拉满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82726#       发表于 2021-8-20 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443715&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 17:05</a>
+
+我算上刚豹的这个也就50，而且基本都是一宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你开服玩家？
+
+
+*****
+
+####  zakki  
+##### 82727#       发表于 2021-8-20 17:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443723&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 17:06</a>
+
+你开服玩家？</blockquote>
+不是，1.5那年入的
+
+
+*****
+
+####  alucardcz  
+##### 82728#       发表于 2021-8-20 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443734&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 17:07</a>
+
+不是，1.5那年入的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那这不是差了1。5年吗！ 很多了！
+
+
+*****
+
+####  yangun22  
+##### 82729#       发表于 2021-8-20 17:12
+
+
+隐藏敌人居然是魔法杖
+
+
+*****
+
+####  zakki  
+##### 82730#       发表于 2021-8-20 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443739&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 17:08</a>
+
+那这不是差了1。5年吗！ 很多了！</blockquote>
+追上萌新的脚步还路途遥远<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 82731#       发表于 2021-8-20 17:49
+
+
+有qp和种火减半谁去打狩猎本啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82732#       发表于 2021-8-20 18:16
+
+
+ 本帖最后由 alucardcz 于 2021-8-20 18:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻了 第1面13万  c狗初战就翻了  这是硬抬妖兰吗
+
+
+*****
+
+####  黑上シグマ  
+##### 82733#       发表于 2021-8-20 18:20
+
+
+<blockquote>引用第82730楼白金口袋于2021-08-20 17:49发表的  :
+
+有qp和种火减半谁去打狩猎本啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一把还是要打的，给苹果
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  angelooo  
+##### 82734#       发表于 2021-8-20 18:25
+
+
+还掉的四星狗粮，新程序还没写是吧，后面有铃了再说233
+
+
+*****
+
+####  仰望神的括约肌  
+##### 82735#       发表于 2021-8-20 18:50
+
+
+没有妖兰的流下羡慕的泪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82736#       发表于 2021-8-20 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52444875&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-8-20 18:50</a>
+
+没有妖兰的流下羡慕的泪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用狂娜一样的  第1面暴鸡（ 第2面甚至也能暴鸡  反正一张红卡一个小朋友
+
+
+*****
+
+####  quanlix  
+##### 82737#       发表于 2021-8-20 18:53
+
+
+还掉4星狗粮，叶狗爬啊
+
+
+*****
+
+####  仰望神的括约肌  
+##### 82738#       发表于 2021-8-20 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52444900&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 18:52</a>
+
+用狂娜一样的  第1面暴鸡（ 第2面甚至也能暴鸡  反正一张红卡一个小朋友 ...</blockquote>
+然后翻了下仓库 发现并不缺骨头 于是释然了 决定打个首通就下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后狗粮还是四星 yls你行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 82739#       发表于 2021-8-20 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52444492&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 18:16</a>
+
+麻了 第1面13万  c狗初战就翻了  这是硬抬妖兰吗</blockquote>
+醒醒，明明是抬狐狸，狐狸特攻没触发哪来那伤害
+
+
+*****
+
+####  qixinno2  
+##### 82740#       发表于 2021-8-20 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52443652&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 17:00</a>
+
+看了下 不算宝具60  算上宝具75</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狗 羡慕
+
+
+                                                 

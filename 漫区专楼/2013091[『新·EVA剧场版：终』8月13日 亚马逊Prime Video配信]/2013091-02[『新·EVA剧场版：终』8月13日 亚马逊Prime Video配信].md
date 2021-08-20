@@ -2038,3 +2038,22 @@ magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
 
 
                                                  
+
+*****
+
+####  XSK小龙王  
+##### 1631#       发表于 2021-8-20 17:15
+
+
+ 本帖最后由 XSK小龙王 于 2021-8-20 17:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441081&amp;ptid=2013091" target="_blank">pkeva 发表于 2021-8-20 13:37</a>
+
+剑介家的插入栓根本不可能是明日香的。
+
+插入栓的驾驶座位是反着的。
+
+也就是说驾驶座是被整个儿撬下来过。</blockquote>
+作画失误吧
+
+
+                                                 

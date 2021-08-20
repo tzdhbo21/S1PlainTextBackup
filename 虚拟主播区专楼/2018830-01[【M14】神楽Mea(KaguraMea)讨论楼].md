@@ -10729,3 +10729,99 @@ https://t.co/vCQJMd4xFG
 
 
                                                  
+
+*****
+
+####  时间在我手中  
+##### 994#       发表于 2021-8-20 17:15
+
+
+肥猪还不动，今晚多半没了，就算有也播不久，难顶
+
+
+*****
+
+####  Cushaw  
+##### 995#       发表于 2021-8-20 17:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  十九号大侠  
+##### 996#       发表于 2021-8-20 17:41
+
+
+赤坂能不能好好画漫画啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  T_Hb  
+##### 997#       发表于 2021-8-20 17:44
+
+
+赤坂不如给自己整个皮，天天apex
+
+
+*****
+
+####  Dualist彩  
+##### 998#       发表于 2021-8-20 17:47
+
+
+赤坂？舞元！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 999#       发表于 2021-8-20 18:02
+
+
+赤坂好像没有出过声吧 整个无声vtb？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1000#       发表于 2021-8-20 18:02
+
+
+赤坂好多次凸待了，怎么可能没出过声
+
+
+*****
+
+####  2014720  
+##### 1001#       发表于 2021-8-20 18:06
+
+
+怎么大家都这么云啊，是都不看联动吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 1002#       发表于 2021-8-20 18:46
+
+
+那我确实没怎么关注过赤坂的联动 印象里只记得犬山和赤坂和咩的三人联动那次 其他关于赤坂的联动就没有看过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 1003#       发表于 2021-8-20 18:47
+
+
+官组新肉里阿咩的声音稍稍有点令人怜爱的哭腔 爱了
+
+
+                                                 

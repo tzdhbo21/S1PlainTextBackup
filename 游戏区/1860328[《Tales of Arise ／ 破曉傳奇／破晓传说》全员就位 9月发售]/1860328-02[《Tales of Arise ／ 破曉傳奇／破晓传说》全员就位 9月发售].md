@@ -15878,3 +15878,43 @@ xsx 4k都不能稳60帧
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2700#         楼主| 发表于 2021-8-20 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52436719&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-20 08:07</a>
+
+这作换金道具会在售卖时单独提示这点不错，我是觉得单纯对boss战消耗cp的话，配合cp药来说其实还好，即使 ...</blockquote>
+进商店看一眼，回复 CP 的软糖最低3000起步，最贵的9000，还有个王者软糖（CP 完全回复）商店暂时还买不到。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">与此同时补充 HP 的软糖就便宜很多，但是 HP 软糖都是给定回复数值，CP 软糖都是按百分比回复，属于是黑心商人了。
+
+
+如果是 Hard 难度，操作一旦不谨慎 HP 真的会掉得很快，不能沉浸在贴身攻击大型魔怪的状况里，否则 CP 转眼就剩几十了。
+
+
+
+
+*****
+
+####  qiyu1234  
+##### 2701#       发表于 2021-8-20 19:21
+
+
+ 本帖最后由 qiyu1234 于 2021-8-20 19:25 编辑 
+
+科隆游戏展的开幕式上会有 林赛·斯特林(Lindsey Stirling) 演奏的 TALES OF ARISE 曲目表演，我猜是那首通常战斗曲
+
+
+<img src="https://img.saraba1st.com/forum/202108/20/192144zpppkpchtndpcd62.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (210.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-20 19:21 上传
+
+
+                                                

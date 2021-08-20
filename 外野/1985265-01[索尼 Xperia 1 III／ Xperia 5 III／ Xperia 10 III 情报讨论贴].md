@@ -11249,3 +11249,16 @@ X2和510也都只是微提升的架构
 
 
                                                  
+
+*****
+
+####  暗铁  
+##### 786#       发表于 2021-8-20 17:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">895不是说搞四丛集，感觉调度要崩
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
