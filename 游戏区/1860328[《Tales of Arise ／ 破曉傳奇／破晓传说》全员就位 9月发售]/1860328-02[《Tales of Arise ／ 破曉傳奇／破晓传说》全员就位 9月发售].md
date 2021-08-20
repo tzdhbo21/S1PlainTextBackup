@@ -15932,3 +15932,27 @@ xsx 4k都不能稳60帧
 
 
                                                  
+
+*****
+
+####  ts1abaras  
+##### 2703#       发表于 2021-8-21 01:40
+
+
+水彩风格的画面总觉得模糊
+
+—— 来自 Xiaomi MI 8 SE, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+*****
+
+####  ts1abaras  
+##### 2704#       发表于 2021-8-21 02:04
+
+
+还有就是战斗场景都是随着大地图固定的几个，然后画个圈子，不是无缝就是让人不爽
+
+—— 来自 Xiaomi MI 8 SE, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+                                                 

@@ -1173,3 +1173,25 @@ XGP PC闪退, 咋整
 
 
                                                  
+
+*****
+
+####  manysun  
+##### 105#       发表于 2021-8-21 02:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52448896&amp;ptid=2021572" target="_blank">古战场亡魂 发表于 2021-8-20 23:47</a>
+没删档，你去洗手间拿了表把时间调回56分，还会从单身变成循环的</blockquote>
+他说的应该是返回循环后，在岳父大人的二人世界里和他讨论文学，这个结局真的删存档了。我玩到这里也是懵逼的，大概游戏是想告诉我真的走出循环了吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  慕兰  
+##### 106#       发表于 2021-8-21 02:33
+
+
+完全不行。游戏性、剧情都拉。自己玩就是折磨，云个剧情看个乐就好
+
+
+                                                 

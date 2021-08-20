@@ -2081,3 +2081,18 @@ magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
 
 
                                                  
+
+*****
+
+####  arcanearcher  
+##### 1633#       发表于 2021-8-21 02:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52418838&amp;ptid=2013091" target="_blank">stevenzero 发表于 2021-8-18 18:52</a>
+除了伯克级，其它战舰都是什么型号？</blockquote>
+从近到远除伯克外，无畏1，榛名，金刚，光荣，金刚，金刚，现代，金刚，榛名，现代，最远处那艘遮挡有点多，大概率是伯克。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

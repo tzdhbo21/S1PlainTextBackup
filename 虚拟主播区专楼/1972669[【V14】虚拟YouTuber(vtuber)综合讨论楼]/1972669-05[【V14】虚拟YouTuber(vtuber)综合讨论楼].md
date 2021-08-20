@@ -4933,3 +4933,115 @@ v8变样是很后期的事了那现在的作风批没什么意义，你要不知
 
 
                                                 
+
+*****
+
+####  OldGlory  
+##### 6393#       发表于 2021-8-21 01:34
+
+
+也不是为了收钱，这些人能收几个钱啊，有个官号方便海盗组发投稿而已。
+
+
+*****
+
+####  free  
+##### 6394#       发表于 2021-8-21 02:01
+
+
+批小将的收租逻辑不是挺好理解的，如果在B站的节目效果对不起在B站获得的资源，就算收租。至于怎么才算对得起，批小将也不全是傻子，杏的B限频率和节目效果咋样都看得见。
+
+
+当然反过来说，无求到处人情好，不靠B站吃饭的就不会被车收租，你看有人车HH收租吗。虹也一样，反正我不吃中国这碗饭，只有转播你们爱看不看，当然人家也不求你B站什么资源。
+
+
+*****
+
+####  flyskywalker92  
+##### 6395#       发表于 2021-8-21 02:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">收就收了 老板就算b站不给也会去yt给的 多个选择有啥不好
+
+
+*****
+
+####  空集  
+##### 6396#       发表于 2021-8-21 02:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449624&amp;ptid=1972669" target="_blank">adcdqre 发表于 2021-8-21 01:28</a>
+v8变样是很后期的事了那现在的作风批没什么意义，你要不知道真别辩了反正撤都撤了里面也有一些我喜欢ｖ换 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实不知道这个以前现在后期说那么模糊指啥时候毕竟大转折点雪空死了都过了一万年，但是无论啥时候收租都不是什么某个时点开始被乱用的词因为这词一出现就不是什么正经词，如果真有人觉得存在一种没被错误使用的是否“收租”道德规范，而不是只是一个随意用在日v的一个词，那才比较奇怪。有没有什么“怨气”都不能改变这事本身的性质。
+以及把我这种夸黑当crew还是挺满足巨魔需求的，谢谢(?)
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  _Ra1nMaker  
+##### 6397#       发表于 2021-8-21 02:10
+
+
+<blockquote>free 发表于 2021-8-21 02:01
+批小将的收租逻辑不是挺好理解的，如果在B站的节目效果对不起在B站获得的资源，就算收租。至于怎么才算对得 ...</blockquote>
+你说的这些不就单纯b站没多少人看掀不起什么风浪么，搞得好像b站的活动虹和hh少上过了一样
+
+
+*****
+
+####  空集  
+##### 6398#       发表于 2021-8-21 02:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449767&amp;ptid=1972669" target="_blank">free 发表于 2021-8-21 02:01</a>
+批小将的收租逻辑不是挺好理解的，如果在B站的节目效果对不起在B站获得的资源，就算收租。至于怎么才算对得 ...</blockquote>
+那经典问题来了 怎么界定靠不靠吃饭啊 具体到公司和个人 各种标准千差万别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，对于bzml和夸夸 b的意义那是天差地别啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  flyskywalker92  
+##### 6399#       发表于 2021-8-21 02:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449808&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2021-8-21 02:10</a>
+你说的这些不就单纯b站没多少人看掀不起什么风浪么，搞得好像b站的活动虹和hh少上过了一样 ...</blockquote>
+所以你想说啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  _Ra1nMaker  
+##### 6400#       发表于 2021-8-21 02:15
+
+
+<blockquote>flyskywalker92 发表于 2021-8-21 02:13
+所以你想说啥呢</blockquote>
+反驳一下他的观点而已，至于谁被车收租或者别的之类的，b站和v8这环境不就是谁火黑谁么，哪来那么多理由
+
+
+*****
+
+####  我不是很好  
+##### 6401#       发表于 2021-8-21 02:17
+
+
+ 本帖最后由 我不是很好 于 2021-8-21 02:20 编辑 
+
+连富士葵都被骂过收租<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flyskywalker92  
+##### 6402#       发表于 2021-8-21 02:22
+
+
+日常v综车轱辘回来了
+
+
+                                                 
