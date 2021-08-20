@@ -4807,3 +4807,129 @@ billbillを通じて沢山の人に私の歌を知ってもらえたら嬉しい
 
 
                                                  
+
+*****
+
+####  リスカ  
+##### 6385#       发表于 2021-8-20 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52442718&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-8-20 15:49</a>
+趁人多问问，好久没上まとめ怎么把所有虹相关的版权绘下了（包括头图），出台新的利用规约了吗 ...</blockquote>
+https://p2y.jp/notice-about-improve-of-article-handling-of-vtuber-group-nijisanji/
+开始使用版权了而已
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|原来如此，感谢|
+
+
+查看全部评分
+
+
+*****
+
+####  空集  
+##### 6386#       发表于 2021-8-21 00:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52441860&amp;ptid=1972669" target="_blank">adcdqre 发表于 2021-8-20 14:41</a>
+
+按说杏公司还安排她们每月b限结果突然来这么一手，难怪没有安全感。月租嘛要么租字怎么来的。至于为什么是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">你这不新建回复直接编辑不重新翻还看不到。
+
+以及还是没看懂你的态度，如果你觉得收租理论本质就是个经不起推敲的嘲弄式说法(如同V综一如既往的这样），那就你一本正经在这边说一些类似是杏收租别人没收租的话以及还要说谁背锅谁没背锅，就莫名其妙，黑我夸夸是吧。如果你真信这套叙事，那这是最典型的PXJ的观点，那觉得是收租的人可多了，以及反过来说楼友是PXJ也是莫名其妙。除非以一种灵活的双标思维方式，不然我想你不可能同时持有以上两个中的一个。
+
+
+*****
+
+####  adcdqre  
+##### 6387#       发表于 2021-8-21 00:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449424&amp;ptid=1972669" target="_blank">空集 发表于 2021-8-21 00:52</a>
+
+你这不新建回复直接编辑不重新翻还看不到。
+
+以及还是没看懂你的态度，如果你觉得收租理论本质就是 ...</blockquote>
+我经历过的谈不上信不信啊朋友。杏没撤退以前，我当时在看贴吧是想到杏月租的时候发现已经很多人用了所以印象很深而已。
+
+
+*****
+
+####  リスカ  
+##### 6388#       发表于 2021-8-21 00:59
+
+
+看了下天使这个mv
+感觉不如ンゴ的暴走。。。梗
+
+【【试着唱了】周央サンゴの暴走_cover【周央サンゴ_にじさんじ】-哔哩哔哩】https://b23.tv/jwlRAs
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  空集  
+##### 6389#       发表于 2021-8-21 01:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449458&amp;ptid=1972669" target="_blank">adcdqre 发表于 2021-8-21 00:58</a>
+我经历过的谈不上信不信啊朋友。杏没撤退以前，我当时在看贴吧是想到杏月租的时候发现已经很多人用了所以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  真飞鸟i  
+##### 6390#       发表于 2021-8-21 01:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧有人用收租来黑就代表是正确的吗？那as和海子姐还有阿梓都得自我反省下了。
+所以是不是该梳理一下虹杏入驻人员的b限频率来看看到底是谁来收租了？另外虹这种不咋b限只来参加live和拿工商的形式，是不是另一种形式的收租呢？
+不过搞这一套属实麻烦也没什么意思，楼友能不能和谐点，别动不动就想着踩一脚对面和掰头啊，火不起来和不可燃物，被时代抛弃的古董还在为过去而战斗吗。
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+*****
+
+####  adcdqre  
+##### 6391#       发表于 2021-8-21 01:28
+
+
+ 本帖最后由 adcdqre 于 2021-8-21 01:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449519&amp;ptid=1972669" target="_blank">空集 发表于 2021-8-21 01:10</a>
+
+额 ，问题是难道不是每个人都知道v8只是在每个时期都想出一些东西开团么，每个人都知道以前v吧喜 ...</blockquote>
+v8变样是很后期的事了那现在的作风批没什么意义，你要不知道真别辩了反正撤都撤了里面也有一些我喜欢ｖ换成我是她们也不能做什么只能说可惜吧。你说的收租是后来乱用的结果但是这个怨气哪来的？
+
+反正我是不喜欢cover这公司运营至于你夸以前怎么想现在怎么想自由心证就好。
+
+
+*****
+
+####  _Ra1nMaker  
+##### 6392#       发表于 2021-8-21 01:31
+
+
+啊，其实我最开始的意思是问这种转播号的作用就是官方拿来收钱的吗，毕竟我海盗转播看得也挺好的而且也不会有任天堂什么没版权不能转播的限制，没想到这么多人车轱辘收租这茬了。而且讲道理按照v8收租的理论，虹这种行为确实很收租啊，有些甚至比收租还牛，人都可以不来。
+
+
+                                                

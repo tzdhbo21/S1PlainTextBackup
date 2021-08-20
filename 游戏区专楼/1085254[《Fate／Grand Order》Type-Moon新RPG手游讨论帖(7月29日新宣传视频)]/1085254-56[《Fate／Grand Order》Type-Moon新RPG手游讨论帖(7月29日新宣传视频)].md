@@ -3118,3 +3118,180 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 82759#       发表于 2021-8-20 23:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是仇凛给力啊 11绊的30石终于抽到了摩根 妖崔六宝了
+
+
+*****
+
+####  alucardcz  
+##### 82760#       发表于 2021-8-20 23:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52448845&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-20 23:41</a>
+
+还是仇凛给力啊 11绊的30石终于抽到了摩根 妖崔六宝了</blockquote>
+这就是欧洲人 欧羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 82761#       发表于 2021-8-20 23:51
+
+
+听你们说的梦火给的石头好像很有灵魂一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82762#       发表于 2021-8-20 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52448914&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-20 23:49</a>
+
+这就是欧洲人 欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">欧个P 摩根第一次开池子我是扔进所有石头呼符沉了的非酋啊 这次肝的自由本只剩2.3到2.55这几个没打了 反正后面彻底随缘了
+
+
+*****
+
+####  rooarr  
+##### 82763#       发表于 2021-8-20 23:53
+
+
+好像确实是啊，好多刷羁绊的石头都出货了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82764#       发表于 2021-8-21 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52448934&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-20 23:51</a>
+
+听你们说的梦火给的石头好像很有灵魂一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本质就是心理安慰的玄学 反正感觉自从把小芬奇挂在中意从者并标记红花后的出货率就比以前高
+
+
+*****
+
+####  里村紅葉  
+##### 82765#       发表于 2021-8-21 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449015&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-21 00:01</a>
+
+本质就是心理安慰的玄学 反正感觉自从把小芬奇挂在中意从者并标记红花后的出货率就比以前高 ...</blockquote>
+我只是看了下发现自己一个11绊都没有而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82766#       发表于 2021-8-21 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449032&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-21 00:03</a>
+
+我只是看了下发现自己一个11绊都没有而已</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为太强了随便刷 完全不像我基本只能一个阵容用到底
+
+
+*****
+
+####  里村紅葉  
+##### 82767#       发表于 2021-8-21 00:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449044&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-21 00:04</a>
+
+因为太强了随便刷 完全不像我基本只能一个阵容用到底</blockquote>
+只是我太懒了而已，这一年我几乎都在用水武藏冲，一看武藏的绊还没过8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82768#       发表于 2021-8-21 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449062&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-21 00:06</a>
+
+只是我太懒了而已，这一年我几乎都在用水武藏冲，一看武藏的绊还没过8 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬都是一排满破加成礼装 随便刷刷就毕业了吧
+
+
+*****
+
+####  khxooo  
+##### 82769#       发表于 2021-8-21 00:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449072&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-21 00:07</a>
+大佬都是一排满破加成礼装 随便刷刷就毕业了吧</blockquote>
+欧，羡慕了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82770#       发表于 2021-8-21 00:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449137&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-21 00:14</a>
+
+欧，羡慕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完全不欧吧 而且没银芙芙了 现在大蛾子和摩根都是0银芙芙状态
+
+
+
+
+*****
+
+####  黑上シグマ  
+##### 82771#       发表于 2021-8-21 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449062&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-21 00:06</a>
+
+只是我太懒了而已，这一年我几乎都在用水武藏冲，一看武藏的绊还没过8 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么弱鸡的吗？我都快第三个15绊了
+
+
+*****
+
+####  qixinno2  
+##### 82772#       发表于 2021-8-21 00:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">翻页
+
+
+*****
+
+####  qixinno2  
+##### 82773#       发表于 2021-8-21 00:34
+
+
+翻页
+
+
+*****
+
+####  在海岸  
+##### 82774#       发表于 2021-8-21 01:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羁绊的石头有没有灵魂我不知道，反正50天登录的石头，到了现在两三千天，我从 没 出 过 货 
+
+
+                                                
