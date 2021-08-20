@@ -2096,3 +2096,17 @@ magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
 
 
                                                  
+
+*****
+
+####  laphire  
+##### 1634#       发表于 2021-8-21 05:09
+
+
+锦织脸感觉在偶像大师以外的片子看到有点不适（（（
+看完了，庵野秀明老了。不过也和自己和解了，那么华丽的手笔给别人表演和自己的和解真是奢侈啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+不玩和自己的过家家了啊…おめでとう
+
+
+                                                 
