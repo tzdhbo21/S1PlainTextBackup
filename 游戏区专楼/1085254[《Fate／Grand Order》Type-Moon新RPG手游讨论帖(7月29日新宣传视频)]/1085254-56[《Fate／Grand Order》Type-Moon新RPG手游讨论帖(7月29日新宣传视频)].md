@@ -2910,3 +2910,211 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  xiongxingyu  
+##### 82741#       发表于 2021-8-20 19:17
+
+
+好家伙，妖兰点满被动的话可以不换人不绑衣服3连。妖兰c呆奥伯龙，妖兰吃单c呆buff回收33左右，加上被动和自充第一回合启动正好，第二回合奥伯龙充满，第三回合变身。我的4宝妖兰伤害完全溢出，三面是70W+。低宝的话上04服，正好顺便解决1t回收可能不够的问题，衣服的宝威还能吃到奥伯龙的加成。这一波体验极佳（毕竟吃了24个妖精灰），下礼拜复刻一波妖兰骗氪马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82742#       发表于 2021-8-20 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52445122&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-20 19:14</a>
+醒醒，明明是抬狐狸，狐狸特攻没触发哪来那伤害</blockquote>
+狐狸特攻范围那么大怎么也说不上是抬吧，比C呆那个添头的特攻实用多了
+
+
+*****
+
+####  alucardcz  
+##### 82743#       发表于 2021-8-20 19:34
+
+
+翻页
+
+
+*****
+
+####  areklose  
+##### 82744#       发表于 2021-8-20 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52445335&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 19:32</a>
+
+狐狸特攻范围那么大怎么也说不上是抬吧，比C呆那个添头的特攻实用多了</blockquote>
+我这是针对他硬抬妖兰的说法。有狐狸50充的枪光炮随便打。如果按照你的说法，那妖兰算什么硬抬。不是自身够强吗。
+
+
+*****
+
+####  千叶铁矢  
+##### 82745#       发表于 2021-8-20 20:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52445173&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-20 19:17</a>
+好家伙，妖兰点满被动的话可以不换人不绑衣服3连。妖兰c呆奥伯龙，妖兰吃单c呆buff回收33左右，加上被动和 ...</blockquote>
+哪来的结晶喂妖兰2技能呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我换了2个结晶就喂狐狸奥博龙了
+
+
+*****
+
+####  zakki  
+##### 82746#       发表于 2021-8-20 20:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52445596&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-20 19:57</a>
+我这是针对他硬抬妖兰的说法。有狐狸50充的枪光炮随便打。如果按照你的说法，那妖兰算什么硬抬。不是自身 ...</blockquote>
+我没说抬妖兰啊，我是说杀狐的特攻很广比C呆的添头要实用
+
+
+*****
+
+####  areklose  
+##### 82747#       发表于 2021-8-20 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52445841&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 20:15</a>
+
+我没说抬妖兰啊，我是说杀狐的特攻很广比C呆的添头要实用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你能不能看我当时说抬狐狸的回复的是啥
+
+
+*****
+
+####  rooarr  
+##### 82748#       发表于 2021-8-20 20:24
+
+
+打狗粮还是要用水信长啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+狗粮.jpg
+(533.34 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-20 20:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/20/202319wsocmitplk1mvnsk.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 82749#       发表于 2021-8-20 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52445981&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-20 20:24</a>
+
+打狗粮还是要用水信长啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">这2个满破宝石。羡慕！
+
+
+*****
+
+####  alucardcz  
+##### 82750#       发表于 2021-8-20 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52445981&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-20 20:24</a>
+
+打狗粮还是要用水信长啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 2个满破宝石
+
+
+*****
+
+####  rooarr  
+##### 82751#       发表于 2021-8-20 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52446000&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-20 20:25</a>
+
+这2个满破宝石。羡慕！</blockquote>
+都是花钱买来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82752#       发表于 2021-8-20 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52445870&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-20 20:17</a>
+你能不能看我当时说抬狐狸的回复的是啥</blockquote>
+我的，没理解你什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82753#       发表于 2021-8-20 20:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52445981&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-20 20:24</a>
+打狗粮还是要用水信长啊</blockquote>
+本来还差一个宝石就两个满破宝石了，结果特么抽了张新宝石<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过被动技能出来后满破宝石的重要性降低了吧
+
+
+*****
+
+####  rooarr  
+##### 82754#       发表于 2021-8-20 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52446260&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-20 20:40</a>
+
+本来还差一个宝石就两个满破宝石了，结果特么抽了张新宝石不过被动技能出来后满破宝石的重要性降 ...</blockquote>
+狗粮本是满破宝石唯一能用的地方了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82755#       发表于 2021-8-20 21:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52446392&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-20 20:48</a>
+
+狗粮本是满破宝石唯一能用的地方了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爬塔：你别用
+
+
+*****
+
+####  khxooo  
+##### 82756#       发表于 2021-8-20 21:17
+
+
+将狐狸满破和1、3技能需要的胸骨耍够就算了，谁知道后面会不会来个火药，留点苹果吧。
+
+
+*****
+
+####  zakki  
+##### 82757#       发表于 2021-8-20 22:38
+
+
+越来越觉得狂娜迟迟不复刻是因为单卡强度做的太高了，又不能削所以就长时间不复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82758#       发表于 2021-8-20 23:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">妖崔五宝了 啊啊啊 摩根呢
+
+
+                                                 

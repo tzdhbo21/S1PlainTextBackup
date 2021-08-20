@@ -15918,3 +15918,17 @@ xsx 4k都不能稳60帧
 
 
                                                 
+
+*****
+
+####  laoz  
+##### 2702#       发表于 2021-8-20 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52445071&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-20 19:10</a>
+
+进商店看一眼，回复 CP 的软糖最低3000起步，最贵的9000，还有个王者软糖（CP 完全回复）商店暂时还买不 ...</blockquote>
+这demo金钱获取快，找小怪练一下连段cp糖基本上随便买，hard难度掉血快基本上都能把锅丢给ai，能刷出被锁定率降低大的石头大概会好点
+
+
+                                                 

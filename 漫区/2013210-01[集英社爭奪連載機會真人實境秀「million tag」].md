@@ -3238,3 +3238,60 @@ https://sp.shonenjump.com/p/sp/million-tag/works/6/8
 
 
                                                 
+
+*****
+
+####  flyfish  
+##### 221#       发表于 2021-8-20 20:59
+
+
+恭喜消极，恰巧消极的风格很合我口味，而性癖猫的风格算是我最不喜欢的，之前第一时藤本给的建议感觉被她完全无视了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  过气页游  
+##### 222#       发表于 2021-8-20 21:10
+
+
+感觉消极哥的作品适合剧场版
+
+
+*****
+
+####  最强惠酱  
+##### 223#       发表于 2021-8-20 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52446605&amp;ptid=2013210" target="_blank">flyfish 发表于 2021-8-20 20:59</a>
+
+恭喜消极，恰巧消极的风格很合我口味，而性癖猫的风格算是我最不喜欢的，之前第一时藤本给的建议感觉被她完 ...</blockquote>
+没有吧，xp猫这连载不就是角色随意破坏吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acejoe  
+##### 224#       发表于 2021-8-20 21:50
+
+
+消极哥赢了啊，也算是意料中吧。
+
+其实我感觉消极哥分镜能力最高，所以画分镜看起来体验最高，其他几个分镜一般但是画力好的看分镜体验就不行。
+
+
+*****
+
+####  mgame001220  
+##### 225#       发表于 2021-8-20 22:26
+
+
+最终课题藤田真是压胜了，其他所有人都低了至少一个rank的感觉。
+就个人喜好而言，希望哪天能看到夏井的连载……
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
