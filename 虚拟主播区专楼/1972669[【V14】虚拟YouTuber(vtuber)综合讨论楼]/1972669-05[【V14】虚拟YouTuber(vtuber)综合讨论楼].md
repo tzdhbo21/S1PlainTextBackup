@@ -6206,3 +6206,17 @@ github有c综存档
 
 
                                                  
+
+*****
+
+####  Zaphikel  
+##### 6491#       发表于 2021-8-21 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52454282&amp;ptid=1972669" target="_blank">越动天下 发表于 2021-8-21 15:28</a>
+
+对于免费的话 第一点是同意的 个人也是在nga先看到的 只不过V8正好在后面爆炸 一些人直接向一些不合理事情 ...</blockquote>
+[https://tieba.baidu.com/p/6660526845](https://tieba.baidu.com/p/6660526845)
+
+
+                                                 
