@@ -16046,3 +16046,38 @@ xsx 4k都不能稳60帧
 
 
                                                  
+
+*****
+
+####  godless2020  
+##### 2711#       发表于 2021-8-21 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52453849&amp;ptid=1860328" target="_blank">Nosgoth 发表于 2021-8-21 14:34</a>
+
+由于pc不出试玩，把ps4通电下了个试玩，感觉这游戏还是别用ps4打了。</blockquote>
+直升机<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xunit  
+##### 2712#       发表于 2021-8-21 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52453849&amp;ptid=1860328" target="_blank">Nosgoth 发表于 2021-8-21 14:34</a>
+
+由于pc不出试玩，把ps4通电下了个试玩，感觉这游戏还是别用ps4打了。</blockquote>
+PS4版唯一的优点是X键跳跃，天杀的索尼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  司马千晶  
+##### 2713#       发表于 2021-8-21 18:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">女骑士复读平A前两下能无限连杂鱼
+
+
+                                                 

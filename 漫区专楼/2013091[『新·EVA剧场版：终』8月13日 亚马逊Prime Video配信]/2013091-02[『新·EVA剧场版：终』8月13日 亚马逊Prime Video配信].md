@@ -2110,3 +2110,16 @@ magnet:?xt=urn:btih:F2A7E448EA518FA8DBE125C21A36FB4B6D7A1D39
 
 
                                                  
+
+*****
+
+####  stevenzero  
+##### 1635#       发表于 2021-8-21 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449863&amp;ptid=2013091" target="_blank">arcanearcher 发表于 2021-8-21 02:32</a>
+从近到远除伯克外，无畏1，榛名，金刚，光荣，金刚，金刚，现代，金刚，榛名，现代，最远处那艘遮挡有点 ...</blockquote>
+把自己喜欢的战舰用自己喜欢的火箭当导弹发射出去，真是宅的浪漫啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+                                                 
