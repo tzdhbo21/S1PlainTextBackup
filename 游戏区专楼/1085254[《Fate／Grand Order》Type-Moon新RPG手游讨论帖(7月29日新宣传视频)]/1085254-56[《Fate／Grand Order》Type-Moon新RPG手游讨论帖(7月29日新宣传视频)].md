@@ -3449,3 +3449,53 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 82788#       发表于 2021-8-21 18:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这狩猎本就是杀狐奥伯龙体验本吧
+
+
+*****
+
+####  alucardcz  
+##### 82789#       发表于 2021-8-21 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52456027&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-21 18:51</a>
+
+这狩猎本就是杀狐奥伯龙体验本吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先欧再羡慕 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这红卡队的致命缺陷也暴露了 那就是技能容易点错  一边看片一边刷本一个不小心就凉了
+
+
+*****
+
+####  qixinno2  
+##### 82790#       发表于 2021-8-21 19:02
+
+
+ 本帖最后由 qixinno2 于 2021-8-21 19:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52456101&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-21 18:58</a>
+
+先欧再羡慕 
+
+
+不过这红卡队的致命缺陷也暴露了 那就是技能容易点错  一边看片一边刷本一个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你不也抽到了 羡慕个P 我都直接模拟器操作记录
+
+
+*****
+
+####  xiongxingyu  
+##### 82791#       发表于 2021-8-21 19:13
+
+
+妖兰真就万能啊，131照样上班，配合奥伯龙一人解决两面，3面找个高自充的收走boss就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

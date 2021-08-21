@@ -6118,3 +6118,91 @@ seffyna真好
 
 
                                                  
+
+*****
+
+####  winsloven  
+##### 6486#       发表于 2021-8-21 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52453151&amp;ptid=1972669" target="_blank">free 发表于 2021-8-21 13:20</a>
+
+我就再问一遍：收租一词什么时候出现的，最早是用来形容什么人什么现象，怎么就没人正面回答呢
+
+
+当然也不用 ...</blockquote>
+收租这个词“最早”出现早就不可考了，印象中大概是19年就有了。
+
+最早形容谁的都有可能。
+
+
+杏只是最大规模被用“收租”来形容而已，既然不是最早“收租”，也不是最早“被收租”的。
+
+
+*****
+
+####  FCCHua  
+##### 6487#       发表于 2021-8-21 18:37
+
+
+小偶像真的厉害...那个翻唱剪影是黛灰吧？而且还是图灵爱的衣服<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑暗剑  
+##### 6488#       发表于 2021-8-21 18:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">阿喵喵3.0已经完全变成引人犯罪的类型了
+
+
+*****
+
+####  winsloven  
+##### 6489#       发表于 2021-8-21 18:56
+
+
+顺便，V8不要说贵物时代了，V8粪坑化之后星街还没B限呢。
+
+那段日子是最开心的，在各大论坛杏综四处SJ，看各个论坛的老哥们对着V们ZQSG。
+
+
+然后这股屎就从V8开始流传，以泥潭魔怔到彻底炸了为收尾。
+
+整个华语论坛，只有C综才有一丝温暖。每隔个把月我还回顾下历史，直到COLODES老哥把老C综隐藏了，完了，都完了，啥都么的了。
+
+
+再顺便感叹下，我印象最深，最喜欢的4ID老哥还要快30天才能出狱，赶不上今天的免费批斗大会了，捂脸。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|确实，真情实感多好。还有快开始了.|
+
+
+查看全部评分
+
+
+*****
+
+####  OldGlory  
+##### 6490#       发表于 2021-8-21 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52456081&amp;ptid=1972669" target="_blank">winsloven 发表于 2021-8-21 18:56</a>
+
+顺便，V8不要说贵物时代了，V8粪坑化之后星街还没B限呢。
+
+那段日子是最开心的，在各大论坛杏综四处SJ，看各 ...</blockquote>
+github有c综存档
+
+
+                                                 
