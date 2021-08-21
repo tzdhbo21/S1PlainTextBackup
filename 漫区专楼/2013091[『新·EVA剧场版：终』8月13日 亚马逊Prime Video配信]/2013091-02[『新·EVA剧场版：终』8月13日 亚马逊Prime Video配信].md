@@ -2215,3 +2215,18 @@ EVA在此之前搞的多虚都不是问题，都 ...</blockquote>
 
 
                                                  
+
+*****
+
+####  arcanearcher  
+##### 1643#       发表于 2021-8-21 23:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52455609&amp;ptid=2013091" target="_blank">stevenzero 发表于 2021-8-21 18:07</a>
+把自己喜欢的战舰用自己喜欢的火箭当导弹发射出去，真是宅的浪漫啊 ...</blockquote>
+有一点说错了，两艘榛名应该是白根，是根据这个视频：https://share.api.weibo.cn/share/245480142.html?weibo_id=4641523343820560。另外，看这设定N2爆雷是装在N1的前端的舰尾处，不仔细看注意不到，而军舰大概就是装饰。所以就是要让观众看到一票军舰发射，算是非常任性的浪漫了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

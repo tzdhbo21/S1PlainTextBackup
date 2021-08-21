@@ -16101,3 +16101,64 @@ PS4版唯一的优点是X键跳跃，天杀的索尼<img src="https://static.sar
 
 
                                                  
+
+*****
+
+####  godless2020  
+##### 2715#       发表于 2021-8-21 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52458093&amp;ptid=1860328" target="_blank">laoz 发表于 2021-8-21 21:50</a>
+
+5级石头才有个降低cp消耗10%</blockquote>
+试玩版刷出来的？？？
+
+
+*****
+
+####  laoz  
+##### 2716#       发表于 2021-8-21 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52458728&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-8-21 22:35</a>
+
+试玩版刷出来的？？？</blockquote>
+是的
+
+
+*****
+
+####  lolozp  
+##### 2717#       发表于 2021-8-21 22:46
+
+
+ps5是不是也要繁中系统才能中文，实在受不了把xsx设置成繁体，考虑要买那个平台的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  laoz  
+##### 2718#       发表于 2021-8-21 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52458831&amp;ptid=1860328" target="_blank">lolozp 发表于 2021-8-21 22:46</a>
+
+ps5是不是也要繁中系统才能中文，实在受不了把xsx设置成繁体，考虑要买那个平台的
+
+
+—— 来自 Sony  ...</blockquote>
+不需要
+
+
+*****
+
+####  蓝雉  
+##### 2719#       发表于 2021-8-21 23:10
+
+
+说起来目前大部分角色的背景大家心里都差不多有底了，就男主的背景被官方捂的死死的，包括宿敌也是一点情报都不给，看样子主角的身世会是个大爆点
+
+
+                                                 

@@ -776,3 +776,50 @@ hCaptcha还行啊，比谷歌找红绿灯好多了</blockquote>
 
 
                                                
+
+*****
+
+####  EP2  
+##### 69#       发表于 2021-8-21 23:30
+
+
+因为美国佬就真的这么卑鄙**下流
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  晓寒  
+##### 70#       发表于 2021-8-21 23:48
+
+
+这逻辑是怎么成立的……怎么排除不是自己下线的呢？
+
+
+*****
+
+####  山东  
+##### 71#       发表于 2021-8-22 00:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52457730&amp;ptid=2022036" target="_blank">sqd 发表于 2021-8-21 21:24</a>
+
+验证码有一说一都很死🐴，费半天劲验证完还无偿为AI打工</blockquote>
+每次我都故意选错一个，照样能通过<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新闻工作者  
+##### 72#       发表于 2021-8-22 00:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52455696&amp;ptid=2022036" target="_blank">Evelynn 发表于 2021-8-21 18:17</a>
+我实在是不明白国内这些人这么支持塔是为什么？国家也没承认他们啊。
+
+美国人走了是好事，但还没到支持他们 ...</blockquote>
+我们对塔们的支持的还不明显吗……
+
+
+                                                 
