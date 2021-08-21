@@ -5154,3 +5154,437 @@ b站不是日V的版本了 之前彩虹也入驻了挺多但是都没怎么b限�
 
 
                                                  
+
+*****
+
+####  渡鸦骑士  
+##### 6412#       发表于 2021-8-21 11:34
+
+
+不是，免费你自己看看你说的话一方面说不是v吧发明的，一方面又说v吧开始是特指那几个。
+
+乐府入驻都什么时候的事情了？我可没有要区分什么时期的v吧的意思，或者换句话说，我就指那些炒作的人，他们针对这些的行为不过在v吧才能得到一些簇拥罢了。
+
+免费你好歹也是工作的人了，不要老是让我怀疑你的智商好不好。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 6413#       发表于 2021-8-21 11:39
+
+
+收租本来就是绿帽坛发明的，Vtuber吧拿去用，你连V吧什么时候从vtuber吧分出来都不知道在这说什么呢
+
+
+收租一开始就是特指杏那几个人气高B限少的，糊、星街、夸，给你找个20年3月骂收租的帖子看看？有兴趣就继续往前翻，看看这个词到底是怎么发明出来的，是不是觉得绿帽坛把收租帖子都删了你就可以发明历史啊
+
+[https://tieba.baidu.com/p/6575826019](https://tieba.baidu.com/p/6575826019)
+[https://tieba.baidu.com/p/6618979732](https://tieba.baidu.com/p/6618979732)
+
+
+*****
+
+####  空集  
+##### 6414#       发表于 2021-8-21 11:42
+
+
+ 本帖最后由 空集 于 2021-8-21 11:45 编辑 
+
+免费在说什么鸡儿，雪空炸了后v吧就很官人抗压吧了，而且以前绿帽坛还是净土坛 ，兔子4月节奏就是b和v8发酵的，我当时亲见证了整个过程。主导者都是兔组和v8几个宝，和当时净土坛有毛关系。
+
+
+*****
+
+####  hulaoda007  
+##### 6415#       发表于 2021-8-21 11:50
+
+
+收租我印象里应该是19年的事。
+
+
+*****
+
+####  空集  
+##### 6416#       发表于 2021-8-21 11:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以及还大规模批判呢，你是真忘了以前净土坛啥样还是装糊涂，以前你要是开贴直球喷收租最后帖子不没你信么，还大规模呢，你是要到走廊还是木口版开啊，你当年又不是没在v综巨魔完去净土坛装纯良空友，当大家不记得还是咋的。
+
+
+*****
+
+####  free  
+##### 6417#       发表于 2021-8-21 11:55
+
+
+兔皇B限那事谁都看了全程，绿帽坛一样是半个版骂“收租”
+
+
+收租发明的时间：20年初
+
+收租最开始针对的：就是杏，尤其是在B人气高B限频少的那几个
+
+
+整个20年到杏滚蛋这个期间，收租这个词90%就是用在杏那几个V身上的，杏滚蛋以后这个词又怎么被扩大化谁都看着呢
+
+
+至于我支不支持收租，我又不是B限民，就是提醒一下不要发明历史，没有杏这种模式根本就不会有这个词的出现
+
+
+*****
+
+####  空集  
+##### 6418#       发表于 2021-8-21 11:56
+
+
+至于乐府入主vtuber吧，V8从vtuber分出来又慢慢变成贵物聚集地。单就这一句，就是云中云了，但凡在乐符入住之前稍微看过v8的都不会说出这么云的话，还“慢慢变成”呢 那你觉得那之前那些宝是哪里来的
+
+
+*****
+
+####  渡鸦骑士  
+##### 6419#       发表于 2021-8-21 11:57
+
+
+难道免费最近真的去混贴吧了？
+
+记忆力衰退，语言逻辑能力回溯。
+
+免费，你要不要检查一下你的生活环境啊<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  _Ra1nMaker  
+##### 6420#       发表于 2021-8-21 11:58
+
+
+所以有没有V老嗨来科普下这种万恶的转播模式最开始到底是谁发明的啊，太可恶了，万恶之源了属于是！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  free  
+##### 6421#       发表于 2021-8-21 12:03
+
+
+Vtuber吧选吧主我还给有空有空投票呢，是不是觉得就你看V吧啊
+
+
+歌力榜怎么来的，就是Vtuber吧被乐府占了以后跑出来的一群人怂恿我做的，前几天还整什么辩论会要拉我去呢我都不去
+
+
+收租这词就是绿帽坛小将不爱看杏摆烂B限搞出来的，一开始根本就没形容过其他人，搁着装什么傻呢
+
+
+*****
+
+####  bluebaby  
+##### 6422#       发表于 2021-8-21 12:05
+
+
+搞笑吧，雪空爬了那时候v吧就是粪坑了这还能修正记忆的？
+
+
+*****
+
+####  渡鸦骑士  
+##### 6423#       发表于 2021-8-21 12:07
+
+
+ 本帖最后由 渡鸦骑士 于 2021-8-21 12:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52452371&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2021-8-21 11:58</a>
+
+所以有没有V老嗨来科普下这种万恶的转播模式最开始到底是谁发明的啊，太可恶了，万恶之源了属于是！ ...</blockquote>
+蛮搞笑的是，一开始大家都是转播，至于为啥转播变成万恶了，那得反过来说b限了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+再省一楼，免费，难道不是他们会联系你就意味着你已经进入了他们炒作狗的圈子了嘛，整天听他们聊的话题，觉得他们说法是对的然后修正自己的记忆。
+
+都说了比起具体的v吧这个论坛，那帮炒作狗才是真正的灵魂核心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  窓付き  
+##### 6424#       发表于 2021-8-21 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52452371&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2021-8-21 11:58</a>
+
+所以有没有V老嗨来科普下这种万恶的转播模式最开始到底是谁发明的啊，太可恶了，万恶之源了属于是！ ...</blockquote>
+第一个在官号转播的是himehina
+
+
+*****
+
+####  空集  
+##### 6425#       发表于 2021-8-21 12:08
+
+
+ 本帖最后由 空集 于 2021-8-21 12:10 编辑 
+
+你自称看过还能讲出“ 慢慢变成贵物聚集地”这话要么你是瞎子要么你也是贵物了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，别搁这说话不认啊，或者就认个怂自己说话如放屁也行
+
+
+*****
+
+####  semire  
+##### 6426#       发表于 2021-8-21 12:11
+
+
+许久没见过v综这么热闹了，都回来了🐳
+
+
+*****
+
+####  pansherry  
+##### 6427#       发表于 2021-8-21 12:19
+
+
+别的不清楚，兔子4月时间发酵到会限那会我呆了一阵子nga，那会杏版大抵都在开字幕组，不知道一半版面开兔子收租是哪个位面的nga
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qq845629713  
+##### 6428#       发表于 2021-8-21 12:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 最早杏来批站直播也是定期的，你虹呢？别说定期了，直播一次就跑路的人又多多少？
+
+
+搬家一年的gbr现在也润了，
+
+
+囚人看自家月丿因为某些原因没法来批站，就开始拉踩来批限的底边，笑嘻了
+
+
+*****
+
+####  hulaoda007  
+##### 6429#       发表于 2021-8-21 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52452648&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-8-21 12:27</a>
+
+最早杏来批站直播也是定期的，你虹呢？别说定期了，直播一次就跑路的人又多多少？
+
+
+搬家一年的gbr ...</blockquote>
+谁拉踩来B限的？
+
+
+*****
+
+####  qq845629713  
+##### 6430#       发表于 2021-8-21 12:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52452738&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-8-21 12:34</a>
+
+谁拉踩来B限的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 不知道当时囚人说的：“为什么不叫月丿来批站入住，反而找了这么一些订阅不高的人来啊”
+
+
+这算不算yygq和拉踩，你要说不算，那我也没辙
+
+
+*****
+
+####  hulaoda007  
+##### 6431#       发表于 2021-8-21 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52452779&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-8-21 12:39</a>
+
+不知道当时囚人说的：“为什么不叫月丿来批站入住，反而找了这么一些订阅不高的人来啊”
+
+
+这算不 ...</blockquote>
+是蛮那啥的...不过比我想象中好。
+
+我以为有些人很勤奋B限后还被嘲讽...原来是之前的事。
+
+
+*****
+
+####  越动天下  
+##### 6432#       发表于 2021-8-21 12:44
+
+
+V8不是一直都是贵物地吗 不都是一些mmr恶坠吗 收租我记得当时nga也确实很多骂了字幕组 大家都不记得是不是最后一次b限就看你们了吗 收租也当时确实说是杏的
+
+
+*****
+
+####  黑漆漆的漆漆  
+##### 6433#       发表于 2021-8-21 12:45
+
+
+时光流逝，版本更迭，但v综的时间放佛被冻结了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  越动天下  
+##### 6434#       发表于 2021-8-21 12:47
+
+
+ 本帖最后由 越动天下 于 2021-8-21 12:50 编辑 
+
+当时也有不少s1的人在v8吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 小博禹 黑宝 2000 某种意义上也确实贵物多
+
+
+*****
+
+####  我不是很好  
+##### 6435#       发表于 2021-8-21 12:51
+
+
+v综的v是v吧的v
+
+
+*****
+
+####  adcdqre  
+##### 6436#       发表于 2021-8-21 12:55
+
+
+贴吧如何也不改变月租起源这个事实，当时也不只是贴吧在讲。杏run了杏仁就拿收租到处攻击，不就这回事（搞笑的是月播收舰长从此成为绝唱，这些人只能牵强附会掩饰自己的滑稽）
+
+
+*****
+
+####  free  
+##### 6437#       发表于 2021-8-21 13:08
+
+
+不用顾左右言他，就正面回答收租一词什么时候出现的，最早是用来形容什么人什么现象，不就完事了
+
+
+按照杏奴塑造共同敌人的一贯话术，收租就是V吧贵物搞出来黑屁你大杏的嘛，反正V吧现在已经变成府吧彻底臭了又不会反驳你们对不对？
+
+
+*****
+
+####  FCCHua  
+##### 6438#       发表于 2021-8-21 13:08
+
+
+确实笑嘻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  _Ra1nMaker  
+##### 6439#       发表于 2021-8-21 13:09
+
+
+都是打钱的人的错啦，只要没人打钱就不算收租了。
+
+猴楼一个月来一次跟虹一年来一次的又有什么区别，因为当初holo火所以黑holo的帖子同接高所以到处都是骂holo的，黑虹的帖子也有的然而没多久就沉下去了没人看的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空集  
+##### 6440#       发表于 2021-8-21 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52452903&amp;ptid=1972669" target="_blank">adcdqre 发表于 2021-8-21 12:55</a>
+
+贴吧如何也不改变月租起源这个事实，当时也不只是贴吧在讲。杏run了杏仁就拿收租到处攻击，不就这回事（搞 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你不会真觉得我如果真要攻击什么我需要说什么收租吧，V综从来都把B站活动当个搞笑的东西。想要攻击靠单纯的数据和各种黑料武器就够了。
+
+
+*****
+
+####  渡鸦骑士  
+##### 6441#       发表于 2021-8-21 13:18
+
+
+而且有一说一holo都跑了，留下来讨厌收租的观众们肯定都不是杏仁咯，他们干嘛去油管看收租的啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+那那些拿着收租大棒到处挥的观众到底什么成分啊，好奇怪噢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空集  
+##### 6442#       发表于 2021-8-21 13:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52453028&amp;ptid=1972669" target="_blank">free 发表于 2021-8-21 13:08</a>
+
+不用顾左右言他，就正面回答收租一词什么时候出现的，最早是用来形容什么人什么现象，不就完事了
+
+
+按照杏奴 ...</blockquote>
+顾左右而言他的人不是你么，N个人都提醒你V8在变成什么府吧前早就臭了，<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 6443#       发表于 2021-8-21 13:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还搁这儿车轱辘呢
+
+
+*****
+
+####  free  
+##### 6444#       发表于 2021-8-21 13:20
+
+
+我就再问一遍：收租一词什么时候出现的，最早是用来形容什么人什么现象，怎么就没人正面回答呢
+
+
+当然也不用追着我问，我又不是B限民，这不是讨论收租的起源，有人一定要发明历史吗？
+
+收租一词什么时候出现的，最早是用来形容什么人什么现象
+收租一词什么时候出现的，最早是用来形容什么人什么现象
+收租一词什么时候出现的，最早是用来形容什么人什么现象
+
+
+来杏奴继续发明一个历史给大家看看好不好？
+
+
+*****
+
+####  空集  
+##### 6445#       发表于 2021-8-21 13:22
+
+
+ 本帖最后由 空集 于 2021-8-21 13:25 编辑 
+
+至于乐府入主vtuber吧，V8从vtuber分出来又慢慢变成贵物聚集地，这都什么时候的事了。所以这话到底是不是免费说的，要么你承认你认个怂自己是个修改历史嘴里放屁的货色大家再来讨论历史<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，或者你说句这其实只是一个路过的傻逼说的。搁着气势汹汹红字半天一直不敢正面回答也挺乐的。
+
+
+*****
+
+####  渡鸦骑士  
+##### 6446#       发表于 2021-8-21 13:23
+
+
+免费笑话：一旦说不过别人，免费的脑子就卡死了变成复读机，噢，这次还升级了，还会标红<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  越动天下  
+##### 6447#       发表于 2021-8-21 13:24
+
+
+ 本帖最后由 越动天下 于 2021-8-21 13:25 编辑 
+
+收租这个话题真是经久不衰 来回答几个问题吧 收租这个就是形容日V的 只不过杏一家独大 就变成杏了 v吧原来你谭的几个大宝就在V吧 已经不用多说吧 大家都不正面回答也是蛮怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

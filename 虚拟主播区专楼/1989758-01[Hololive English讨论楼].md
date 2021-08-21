@@ -20657,3 +20657,68 @@ image.png
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1320#       发表于 2021-8-21 12:17
+
+
+<img src="https://img.saraba1st.com/forum/202108/21/121738a2j3s3vxs0xz0zk6.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (461.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-21 12:17 上传
+
+
+
+
+*****
+
+####  smy20011  
+##### 1321#         楼主| 发表于 2021-8-21 13:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52452563&amp;ptid=1989758" target="_blank">wiig 发表于 2021-8-21 12:17</a></blockquote>
+一共三个半会英文/日文的
+
+
+*****
+
+####  wiig  
+##### 1322#       发表于 2021-8-21 13:16
+
+
+<img src="https://img.saraba1st.com/forum/202108/21/131608d2080iz902v88q0r.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (655.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-21 13:16 上传
+
+
+*****
+
+####  smy20011  
+##### 1323#         楼主| 发表于 2021-8-21 13:17
+
+
+<img src="https://img.saraba1st.com/forum/202108/21/131739gttwfw5927scxztq.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot 2021-08-20 22.17.34.png</strong> (101.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-21 13:17 上传
+
+
+有种莫名的仪式感
+
+
+                                                

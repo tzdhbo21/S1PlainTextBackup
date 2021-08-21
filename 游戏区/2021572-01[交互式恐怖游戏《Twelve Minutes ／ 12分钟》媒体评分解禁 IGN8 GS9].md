@@ -1260,3 +1260,26 @@ loop系的内容大致都差不多吧，没有特别大的意外，就是加入�
 
 
                                                  
+
+*****
+
+####  yanhan0410  
+##### 111#       发表于 2021-8-21 13:01
+
+
+这游戏想出门重启循环时有bug
+经常卡在门口走不出去
+
+
+*****
+
+####  yanhan0410  
+##### 112#       发表于 2021-8-21 13:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52446414&amp;ptid=2021572" target="_blank">多拉贡荡不死 发表于 2021-8-20 21:49</a>
+为什么我的房间就突然啥都没有了，这么彻底的吗</blockquote>
+alone结局
+
+
+                                                 
