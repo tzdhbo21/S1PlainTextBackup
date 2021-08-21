@@ -1101,3 +1101,16 @@ emmm 看过他几个视频，翻来覆去就那几个破观点复读，以前有
 
 
                                                  
+
+*****
+
+####  不热爱讨论  
+##### 95#       发表于 2021-8-22 06:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52460708&amp;ptid=2022036" target="_blank">MARBLE 发表于 2021-8-22 03:11</a>
+有没有懂行的说一下如果上面信了这套，哪块蛋糕会动，哪家公司能发财？</blockquote>
+诈骗岛搞DDoS攻击勒索的公司会发财。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
