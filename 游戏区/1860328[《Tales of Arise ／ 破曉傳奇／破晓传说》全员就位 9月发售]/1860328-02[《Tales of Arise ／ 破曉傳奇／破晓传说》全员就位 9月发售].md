@@ -15980,3 +15980,43 @@ xsx 4k都不能稳60帧
 
 
                                                  
+
+*****
+
+####  瑕在瑾中  
+##### 2707#       发表于 2021-8-21 10:45
+
+
+战斗时怎么切替补角色啊，看了半天说明没找到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2708#       发表于 2021-8-21 10:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52451648&amp;ptid=1860328" target="_blank">瑕在瑾中 发表于 2021-8-21 10:45</a>
+
+战斗时怎么切替补角色啊，看了半天说明没找到</blockquote>
+两种方法，一种是通过暂停菜单界面换人
+
+第二种看我2631楼的回复
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 瑕在瑾中| + 1|感谢|
+
+
+查看全部评分
+
+
+                                                 
