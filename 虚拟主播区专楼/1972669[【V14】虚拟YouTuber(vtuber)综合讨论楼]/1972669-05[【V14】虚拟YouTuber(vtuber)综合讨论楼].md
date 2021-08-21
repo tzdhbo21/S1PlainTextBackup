@@ -6220,3 +6220,79 @@ github有c综存档
 
 
                                                  
+
+*****
+
+####  free  
+##### 6492#       发表于 2021-8-21 21:40
+
+
+嗨呀这个帖子当初就应该带上hachi一起吹，不过反正发完这贴没几天，那几个货就开始怂恿我做歌力榜了，hachi现在也好起来了前几天5万人歌回3000同接呢
+
+
+省一楼，阿裁B站黑屁夏色祭的视频删掉又回来了，阿裁你要跟上版本啊！B站群众已经对圆脸不人气声优不感兴趣了
+
+
+*****
+
+####  free  
+##### 6493#       发表于 2021-8-21 21:42
+
+
+不省一楼了，原定明天凌晨2点的杏en二期首播因“系统故障”延期，什么时候首播另行通知
+
+
+一个首播，能有啥系统故障呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 6494#       发表于 2021-8-21 21:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次歌接力最精彩的应该是reza，不过seffyna台风很好啊，像是上过台的人。
+
+
+*****
+
+####  FCCHua  
+##### 6495#       发表于 2021-8-21 21:46
+
+
+ 本帖最后由 FCCHua 于 2021-8-21 22:06 编辑 
+
+最协前夜祭有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+hnn队怎会如此搞笑...
+
+
+*****
+
+####  poipanchao  
+##### 6496#       发表于 2021-8-21 21:47
+
+
+king刚才单吃猩猩全队，1v3，这不排卵
+
+
+*****
+
+####  真飞鸟i  
+##### 6497#       发表于 2021-8-21 21:52
+
+
+答案是山田赫敏领导的论证cover买数据和快爆炸的专栏和视频被hen二期看见，发现自己的前辈里居然还有这种魔怔粉丝团体，出于恐惧选择了跑路。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  OldGlory  
+##### 6498#       发表于 2021-8-21 21:59
+
+
+king这个月能金盾吗？
+
+
+                                                 
