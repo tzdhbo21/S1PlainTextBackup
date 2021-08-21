@@ -3351,3 +3351,47 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  LOLITA  
+##### 82779#       发表于 2021-8-21 13:26
+
+
+还是不明白你游为啥对妇科活动那么抠门，玩家花钱抽了那么多卡你新活动搞不出来多妇科老活动给点结晶圣杯没什么吧，莫非他们觉得这样会降低氪金率。。。？
+
+
+*****
+
+####  qixinno2  
+##### 82780#       发表于 2021-8-21 13:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52453222&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-21 13:26</a>
+
+还是不明白你游为啥对妇科活动那么抠门，玩家花钱抽了那么多卡你新活动搞不出来多妇科老活动给点结晶圣杯没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看玩家各种不爽但还是边骂边掏钱的样子就是他们最大的乐趣
+
+
+*****
+
+####  黑上シグマ  
+##### 82781#       发表于 2021-8-21 14:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我怎么就管不住我这手呢……
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">今天alter的私服武藏塑料小人到手，我打开来装好，盯着看了3分钟…………然后打开alter网站把泳装武藏也订下去了orz
+
+
+*****
+
+####  khxooo  
+##### 82782#       发表于 2021-8-21 15:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52453008&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-8-21 13:06</a>
+火星才发现终章第三周特典有尼禄和艾蕾，所以今年真有艾蕾泳装？</blockquote>
+不正是因为上了礼装所以今年就没机会了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+                                                 

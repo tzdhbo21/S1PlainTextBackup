@@ -11043,3 +11043,86 @@ gamers和fams都已经无了 有的只剩smok了<img src="https://static.saraba1
 
 
                                                  
+
+*****
+
+####  nian1538  
+##### 12957#       发表于 2021-8-21 13:32
+
+
+ 本帖最后由 nian1538 于 2021-8-21 14:03 编辑 
+
+看了打APEX那天的聊天室，说是在准备回趟老家
+
+[https://youtu.be/bvdH3nY98i8?t=14525](https://youtu.be/bvdH3nY98i8?t=14525)
+
+4:02:08 Nakiri Ayame Ch. 百鬼あやめ  おくれました
+
+4:02:51 Nakiri Ayame Ch. 百鬼あやめ  寝てました
+
+4:03:25 Nakiri Ayame Ch. 百鬼あやめ  あそびたいですはい
+
+4:04:01 Nakiri Ayame Ch. 百鬼あやめ  WWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
+
+4:04:50 Nakiri Ayame Ch. 百鬼あやめ  実家に帰る準備します
+
+4:09:15 Nakiri Ayame Ch. 百鬼あやめ  準備できました
+
+
+*****
+
+####  因为你不会  
+##### 12958#       发表于 2021-8-21 13:33
+
+
+好，烂掉，8月，GG
+
+
+*****
+
+####  stedckk  
+##### 12959#       发表于 2021-8-21 13:55
+
+
+妈嗨，真就放暑假回老家呗
+
+
+*****
+
+####  昆西昆希昆  
+##### 12960#       发表于 2021-8-21 13:56
+
+
+回就回啦，反正不回也不咋播
+
+
+
+
+*****
+
+####  stedckk  
+##### 12961#       发表于 2021-8-21 14:03
+
+
+百鬼众想等绫总不拜烂多直播就像宅男想等渣女玩累了接盘一样，基本没戏。
+
+
+*****
+
+####  FCCHua  
+##### 12962#       发表于 2021-8-21 14:15
+
+
+播是不会多播的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一仙  
+##### 12963#       发表于 2021-8-21 14:19
+
+
+距离绫总的三周年还有两周<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
