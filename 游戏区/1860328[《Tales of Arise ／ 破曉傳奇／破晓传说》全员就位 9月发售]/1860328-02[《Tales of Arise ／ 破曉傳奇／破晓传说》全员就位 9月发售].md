@@ -15956,3 +15956,27 @@ xsx 4k都不能稳60帧
 
 
                                                  
+
+*****
+
+####  信长的呕吐  
+##### 2705#       发表于 2021-8-21 08:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52449780&amp;ptid=1860328" target="_blank">ts1abaras 发表于 2021-8-21 02:04</a>
+还有就是战斗场景都是随着大地图固定的几个，然后画个圈子，不是无缝就是让人不爽
+
+—— 来自 Xiaomi MI 8  ...</blockquote>
+想玩无缝战斗的传说去玩TOZ呀<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reficul  
+##### 2706#       发表于 2021-8-21 08:51
+
+
+地图上小怪战斗拖久了，附近的小怪也会参加进来，暂时不清楚怎么触发的，单纯离得近所以打着打着进来了？
+
+
+                                                 
