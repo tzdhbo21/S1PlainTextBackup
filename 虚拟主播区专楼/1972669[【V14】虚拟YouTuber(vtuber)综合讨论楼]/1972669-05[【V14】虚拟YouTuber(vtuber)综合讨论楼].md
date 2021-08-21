@@ -6309,3 +6309,25 @@ hachi最近的状态是不是更恐怖了，说好的混呢<img src="https://sta
 
 
                                                  
+
+*****
+
+####  リスカ  
+##### 6500#       发表于 2021-8-22 00:16
+
+
+老混了 同接世界16都要说一说
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  free  
+##### 6501#       发表于 2021-8-22 00:41
+
+
+hachi虽然4500同接破了自己的纪录，不过粉丝群里全在喷“低音怎么还是这么菜”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                 

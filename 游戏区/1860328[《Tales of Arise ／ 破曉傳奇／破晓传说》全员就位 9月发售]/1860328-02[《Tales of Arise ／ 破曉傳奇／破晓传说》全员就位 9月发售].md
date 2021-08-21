@@ -16162,3 +16162,26 @@ ps5是不是也要繁中系统才能中文，实在受不了把xsx设置成繁�
 
 
                                                  
+
+*****
+
+####  听风不是雨  
+##### 2720#       发表于 2021-8-21 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52459063&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-8-21 23:10</a>
+
+说起来目前大部分角色的背景大家心里都差不多有底了，就男主的背景被官方捂的死死的，包括宿敌也是一点情报 ...</blockquote>
+主角莫名其妙失忆肯定是有来头的，怕不是流落民间的雷纳皇子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 2721#       发表于 2021-8-22 00:28
+
+
+感觉大概是罗密欧与朱丽叶那种套路吧，女主一股公主气，男主失忆前说不定也是个NB角色
+
+
+                                                 

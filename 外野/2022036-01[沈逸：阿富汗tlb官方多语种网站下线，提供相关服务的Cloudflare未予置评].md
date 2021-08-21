@@ -823,3 +823,154 @@ hCaptcha还行啊，比谷歌找红绿灯好多了</blockquote>
 
 
                                                  
+
+*****
+
+####  bas3721  
+##### 73#       发表于 2021-8-22 00:17
+
+
+emmm 看过他几个视频，翻来覆去就那几个破观点复读，以前有个**给他送弹药让他骂吸粉，现在没那么舒服了
+
+
+*****
+
+####  twwa17  
+##### 74#       发表于 2021-8-22 00:20
+
+
+<blockquote>Evelynn 发表于 2021-8-21 18:17
+我实在是不明白国内这些人这么支持塔是为什么？国家也没承认他们啊。
+
+美国人走了是好事，但还没到支持他们 ...</blockquote>
+敌人的敌人是朋友，很多人的脑回路就是这么简单的
+
+
+*****
+
+####  不热爱讨论  
+##### 75#       发表于 2021-8-22 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52459272&amp;ptid=2022036" target="_blank">EP2 发表于 2021-8-21 23:30</a>
+因为美国佬就真的这么卑鄙**下流
+
+—— 来自 samsung SM-G9810, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+传说中的大是大非洗法？  <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kichikuchan  
+##### 76#       发表于 2021-8-22 00:26
+
+
+他刚在b站出道的时候感觉还行，现在越来越觉得他有点反美反得魔怔了。
+
+
+*****
+
+####  kinta  
+##### 77#       发表于 2021-8-22 00:27
+
+
+把cf，akamai都给x了吧
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kinta  
+##### 78#       发表于 2021-8-22 00:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52456310&amp;ptid=2022036" target="_blank">ffggty 发表于 2021-8-21 19:19</a>
+简单研究了下，如果说的是al****ahenglish.net这个网站，现在域名解析已经没了，记得用cf的话解析也要放在c ...</blockquote>
+域名用cdn加速权威不用放在服务商那里，只要在你的权威上把资源域名的别名配置成cdn服务商的就行了
+
+—— 来自 samsung SM-G9910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ヴェルビン  
+##### 79#       发表于 2021-8-22 00:35
+
+
+看来立“爱国公知”人设的网红,最终都会朝着心医林霖的方向狂奔
+
+
+*****
+
+####  宗汝  
+##### 80#       发表于 2021-8-22 00:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52459926&amp;ptid=2022036" target="_blank">ヴェルビン 发表于 2021-8-22 00:35</a>
+
+看来立“爱国公知”人设的网红,最终都会朝着心医林霖的方向狂奔</blockquote>
+恰饭而已，在商言商的最期
+
+
+*****
+
+####  indtability  
+##### 81#       发表于 2021-8-22 00:42
+
+
+看来是完全没把之前那回事当教训…
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  風舞雪  
+##### 82#       发表于 2021-8-22 00:48
+
+
+我给割割提供一个点
+
+想干CF可以干baidu cf国内是和百度合作的
+
+另外cdn国内要有牌照才可以做 国外的cdn是进不来的
+
+所以干掉akamai和cf 其实本质上人家根本就进不来<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LeonsCat  
+##### 83#       发表于 2021-8-22 00:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52459836&amp;ptid=2022036" target="_blank">kichikuchan 发表于 2021-8-22 00:26</a>
+
+他刚在b站出道的时候感觉还行，现在越来越觉得他有点反美反得魔怔了。</blockquote>
+他搞起来是靠蹭懂王，懂王下去后就没人carry了。
+
+这方面可以参考崔娃，人在美国所以崩坏比较快，官网肖战因为隔着大西洋ping值过高，lag了一段时间才开始暴露。
+
+懂王毕竟是懂王，是造梗的。玩梗的还指望和造梗的比？
+
+
+*****
+
+####  ashunicorn  
+##### 84#       发表于 2021-8-22 00:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52460025&amp;ptid=2022036" target="_blank">風舞雪 发表于 2021-8-22 00:48</a>
+
+我给割割提供一个点
+
+想干CF可以干baidu cf国内是和百度合作的
+
+另外cdn国内要有牌照才可以做 国外的cdn是进 ...</blockquote>
+虽然百度确实挺欠打，但是CF和百度的合作部分备案要求可严格了，这弹药不够格
+
+而且干死了akamai的话steam都要炸，那就真群魔乱舞了
+
+
+                                                 
