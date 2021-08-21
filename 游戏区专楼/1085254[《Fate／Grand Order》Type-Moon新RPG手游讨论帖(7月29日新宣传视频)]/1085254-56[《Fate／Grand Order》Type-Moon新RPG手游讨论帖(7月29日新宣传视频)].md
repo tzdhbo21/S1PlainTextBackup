@@ -3395,3 +3395,17 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  黑上シグマ  
+##### 82783#       发表于 2021-8-21 15:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52454238&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-21 15:23</a>
+
+不正是因为上了礼装所以今年就没机会了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但，这不是礼装啊
+
+
+                                                 

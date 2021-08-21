@@ -6010,3 +6010,68 @@ ssk这边找回密码了实属难得
 
 
                                                 
+
+*****
+
+####  越动天下  
+##### 6476#       发表于 2021-8-21 15:28
+
+
+ 本帖最后由 越动天下 于 2021-8-21 15:30 编辑 
+
+对于免费的话 第一点是同意的 个人也是在nga先看到的 只不过V8正好在后面爆炸 一些人直接向一些不合理事情开炮 第一就是holo 第二 现在还有人为当时的V8说话 很开心 当时的两个月的V8一直是我认为体感较好的时代 第三我也没什么说的
+
+
+*****
+
+####  集合酱  
+##### 6477#       发表于 2021-8-21 15:36
+
+
+在楼友吵架的时候插播一个 my seffyna组催的虹国际歌接力开始了 欢迎来看
+
+
+*****
+
+####  FCCHua  
+##### 6478#       发表于 2021-8-21 15:37
+
+
+天开司这封面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 6479#       发表于 2021-8-21 15:39
+
+
+刚好两边都在接力就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+elira真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bluebaby  
+##### 6480#       发表于 2021-8-21 15:55
+
+
+记忆美化也太吓人了，爆炸的v8是较好的时代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  adcdqre  
+##### 6481#       发表于 2021-8-21 16:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52454262&amp;ptid=1972669" target="_blank">空集 发表于 2021-8-21 15:26</a>
+
+收租发明出来不就是形容你杏的有没有道理我又没交过组你问谁啊： 为什么要“交过租”才能评价，一种观点， ...</blockquote>
+不是你要谈收租历史嘛，我就谈谈历史而已哪里让你不开心吗。你要非觉得从古至今贴吧pxj坏透了说的话没一句对那我无话可说。你说的都对
+
+
+                                                
