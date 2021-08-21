@@ -16185,3 +16185,39 @@ ps5是不是也要繁中系统才能中文，实在受不了把xsx设置成繁�
 
 
                                                  
+
+*****
+
+####  qiyu1234  
+##### 2722#       发表于 2021-8-22 01:08
+
+
+ 本帖最后由 qiyu1234 于 2021-8-22 01:12 编辑 
+
+下载了体验版的玩家，将在游戏发售后免费获得 假期芙露露人偶 配件（需另外去商店下载）
+
+
+官推表示虽然PC版没有体验版，但是以后这个配件会上架售卖所以不用担心
+
+
+<img src="https://img.saraba1st.com/forum/202108/22/010801bazf9uyuhh42yy2u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (294.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-22 01:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/22/010802iq2e8zriqwid12b1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (82.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-22 01:08 上传
+
+
+                                                 

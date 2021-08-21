@@ -3542,3 +3542,49 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 82796#       发表于 2021-8-22 00:49
+
+
+看不懂nga这来来回回拿泳装杀生院字撒癔症，本来就一个二档蓝光炮，奥伯龙杀狐出来后，适用面会更窄。说了强度没到必抽不听非要抽来当仇凛用，抽到了后还非要别人吹好听的，然后再自欺欺人一波抽来当泛用光炮用不亏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82797#       发表于 2021-8-22 00:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是我说，你们成天乐此不疲跑去LGA看傻屌智障言论，再跑过来吐槽累不累啊……
+
+
+*****
+
+####  zakki  
+##### 82798#       发表于 2021-8-22 01:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52460089&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-22 00:58</a>
+不是我说，你们成天乐此不疲跑去LGA看傻屌智障言论，再跑过来吐槽累不累啊…… ...</blockquote>
+因为在那说这个就是逆风输出会被喷爆的，只敢来这楼说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82799#       发表于 2021-8-22 01:28
+
+
+<blockquote>引用第82797楼zakki于2021-08-22 01:11发表的  :
+
+引用:黑上シグマ 发表于 2021-8-22 00:58不是我说，你们成天乐此不疲跑去LGA看傻屌智......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们这样搞得我这种对LGA傻逼言论毫无兴趣的也得跟着你们一起看，就很痛苦
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+                                                 

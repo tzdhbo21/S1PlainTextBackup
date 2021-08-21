@@ -974,3 +974,82 @@ emmm 看过他几个视频，翻来覆去就那几个破观点复读，以前有
 
 
                                                  
+
+*****
+
+####  破罐子  
+##### 85#       发表于 2021-8-22 01:37
+
+
+一切都像中国看齐，看来上次来递投名状教了不少啊
+
+
+*****
+
+####  julius0147  
+##### 86#       发表于 2021-8-22 01:38
+
+
+如果CF确实不是基于某种“公平”的规则，切断了特定对象的服务，那确实有问题吧，其实就是属于美国长臂管辖的一些单边手段，只是不是都有反制裁的能力。
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+*****
+
+####  不热爱讨论  
+##### 87#       发表于 2021-8-22 02:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52460367&amp;ptid=2022036" target="_blank">julius0147 发表于 2021-8-22 01:38</a>
+如果CF确实不是基于某种“公平”的规则，切断了特定对象的服务，那确实有问题吧，其实就是属于美国长臂管辖 ...</blockquote>
+学到了，洗法二。
+
+无视楼里面的科普，用(如果)来附和割割的弱智言论，然后在此之上继续发挥，把观众的注意力引向发挥的内容。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  johan·liebert  
+##### 88#       发表于 2021-8-22 02:36
+
+
+ 本帖最后由 johan·liebert 于 2021-8-22 02:38 编辑 
+
+所以国内打算什么时候禁掉这些，给个准话
+
+
+*****
+
+####  Ton  
+##### 89#       发表于 2021-8-22 03:06
+
+
+看懵了，我还以为这事他会大事化小小事化了，没想到还在那说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MARBLE  
+##### 90#       发表于 2021-8-22 03:11
+
+
+有没有懂行的说一下如果上面信了这套，哪块蛋糕会动，哪家公司能发财？
+
+
+
+
+*****
+
+####  冬凉夏暖  
+##### 91#       发表于 2021-8-22 03:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52460087&amp;ptid=2022036" target="_blank">ashunicorn 发表于 2021-8-22 00:58</a>
+虽然百度确实挺欠打，但是CF和百度的合作部分备案要求可严格了，这弹药不够格
+
+而且干死了akamai的话steam ...</blockquote>
+那steam还是炸了好，想看看泥潭巨魔乱舞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
