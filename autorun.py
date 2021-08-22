@@ -59,11 +59,12 @@ if __name__ == '__main__':
     forumdict = {'外野': '75','虚拟主播区专楼':'151','游戏区':'4','漫区':'6',}
     # forumdict = {'外野': '75','游戏区':'4','漫区':'6'}
     rootdir="./"
+    session = requests.session()
     for k in forumdict.keys():
         threadict = {}
         for i in range(1,4):
             RURL = 'https://bbs.saraba1st.com/2b/forum-'+forumdict[k]+'-'+str(i)+'.html'
-            s1 = requests.get(RURL, headers=headers,  cookies=cookies)
+            s1 = session.get(RURL, headers=headers,  cookies=cookies)
             # s1 = requests.get(RURL, headers=headers)
             # s1.encoding='utf-8'
             data = s1.content

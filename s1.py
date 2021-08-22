@@ -152,6 +152,7 @@ if __name__ == '__main__':
     下面的page为帖子号，默认从第一页开始下载
     '''
     rootdir="./"
+    session = requests.session()
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
         thdata=json.load(f)
     bar = Bar('Main', max=len(thdata))
@@ -166,7 +167,7 @@ if __name__ == '__main__':
             #    lastpage = totalreply//30
             lastpage = totalreply//30 #无论是否是第30*n层，都应该把整除30当成上次的页数
             RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-1-1.html'
-            s1 = requests.get(RURL, headers=headers,  cookies=cookies)
+            s1 = session.get(RURL, headers=headers,  cookies=cookies)
             # s1 = requests.get(RURL, headers=headers)
             # s1.encoding='utf-8'
             data = s1.content
@@ -195,8 +196,8 @@ if __name__ == '__main__':
                 bar2 = Bar('No.'+str(i)+' Progress', max=(totalpage+1 - lastpage))
                 for thread in range(lastpage+1,totalpage+1):
                     RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-'+str(thread)+'-1.html'
-                    # s1 = requests.get(RURL, headers=headers)
-                    s1 = requests.get(RURL, headers=headers,  cookies=cookies)
+                    # s1 = session.get(RURL, headers=headers)
+                    s1 = session.get(RURL, headers=headers,  cookies=cookies)
                     data = s1.content
                     namelist, replylist,totalpage,newtitles= parse_html(data)
                     ThreadContent[PageCount],lastreply= FormatStr(namelist, replylist,totalreply)
