@@ -20761,3 +20761,31 @@ Thank you for your understanding.
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1327#       发表于 2021-8-22 16:02
+
+
+ホロライブプロダクション【公式】 @hololivetv (2021/08/22 17:00:00)
+
+延期中の「hololive English -議会-」デビュー配信について、下記日程で改めて実施させていただきます。
+
+
+Sana：8月23日(月) 2時 ～
+
+Fauna：8月23日(月) 3時半～
+
+Kronii：8月23日(月) 5時～
+
+Mumei：8月23日(月) 6時半～
+
+Baelz：8月23日(月) 8時～
+
+
+時間は変わらず、日付のみ後ろ倒しとなります。
+[http://twitter.com/hololivetv/status/1429352643613188098](http://twitter.com/hololivetv/status/1429352643613188098)
+
+
+                                                 
