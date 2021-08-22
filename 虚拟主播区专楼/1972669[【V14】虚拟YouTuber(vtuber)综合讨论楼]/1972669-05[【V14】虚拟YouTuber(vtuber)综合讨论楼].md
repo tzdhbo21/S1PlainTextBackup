@@ -7022,3 +7022,34 @@ rrm代打第二局的公主位<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+*****
+
+####  free  
+##### 6566#       发表于 2021-8-23 02:23
+
+
+声线没啥感觉不过这口音有点怪怪的，不知道是哪里人
+
+挺开朗阳角爱笑的我喜欢
+
+画力很高，在杏内部应该仅次于ina
+
+唱歌普通人水平
+
+多次强调自己爱好天文宇宙，不知道能用这个玩出啥花样来
+
+
+睡觉去了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空集  
+##### 6567#       发表于 2021-8-23 02:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十有八九就是namie
+
+
+                                                 
