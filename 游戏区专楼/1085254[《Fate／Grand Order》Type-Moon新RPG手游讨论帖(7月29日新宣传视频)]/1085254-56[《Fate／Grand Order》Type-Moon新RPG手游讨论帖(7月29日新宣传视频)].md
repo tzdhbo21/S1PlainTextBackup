@@ -4168,3 +4168,19 @@ cnm贝壳我日
 
 
                                                  
+
+*****
+
+####  eyeego  
+##### 82850#       发表于 2021-8-23 03:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467195&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 20:12</a>
+你这也太麻烦了　　还是banana不换人双狐舒服　　
+
+
+你这不如干脆直接用ｃ狗。。。。</blockquote>
+C狗不换人第一面大概率射不死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
