@@ -2495,3 +2495,63 @@ https://share.dmhy.o ...</blockquote>
 
 
                                                  
+
+*****
+
+####  HMSWarspite  
+##### 1659#       发表于 2021-8-22 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52464360&amp;ptid=2013091" target="_blank">gaoxuanl 发表于 2021-8-22 15:18</a>
+
+这么看终完全变成了jzgg的形状</blockquote>
+我受不了这该死的锥子脸<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JOHNCHCHAN  
+##### 1660#       发表于 2021-8-22 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52429712&amp;ptid=2013091" target="_blank">skullgreymon 发表于 2021-8-19 16:19</a>
+
+人都死绝了，这14年是怎么做到战舰多如狗eva遍地走的？</blockquote>
+当年Q出来的时候就已经很想吐槽了，都已经进行入废土世界线了技术力、生产力、战斗力反而大跃进，从画面表现力来看双方势力都能把力天使随便秒了，如果说这些都是旧时代的遗产那前两部好几次看似孤注一掷的绝地反击都成笑话了
+
+
+*****
+
+####  海底铁锚  
+##### 1661#       发表于 2021-8-22 23:18
+
+
+别忘了破和q中间还藏着14年的故事，这期间至少能明确nerv建造完毕了四艘战舰，中间葛城起义抢了一艘，使徒科技飞速发展，人类完全掌握使用方法。
+吃老本的阶段至少是q的后期了。
+
+
+*****
+
+####  伊可费斯  
+##### 1662#       发表于 2021-8-22 23:20
+
+
+终于等到了字幕，我也该收拾好心情看了。
+
+
+*****
+
+####  ads147147  
+##### 1663#       发表于 2021-8-22 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52469412&amp;ptid=2013091" target="_blank">JOHNCHCHAN 发表于 2021-8-22 23:09</a>
+当年Q出来的时候就已经很想吐槽了，都已经进行入废土世界线了技术力、生产力、战斗力反而大跃进，从画面 ...</blockquote>
+严格说还真不是废土。在l结界内还是可以正常生产生活，太空也是无影响的，严重怀疑飞船的生产工厂在月球。
+
+破的时候研究第三使徒就体现这次轮回里人类的技术强了很多。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

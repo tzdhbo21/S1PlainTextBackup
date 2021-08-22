@@ -4048,3 +4048,112 @@ cnm贝壳我日
 
 
                                                  
+
+*****
+
+####  areklose  
+##### 82839#       发表于 2021-8-22 22:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打了这几次狩猎觉得这轮新卡最离谱还是奥伯龙。这3技能加成打手太厉害了
+
+
+*****
+
+####  zakki  
+##### 82840#       发表于 2021-8-22 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52468955&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-22 22:32</a>
+打了这几次狩猎觉得这轮新卡最离谱还是奥伯龙。这3技能加成打手太厉害了 ...</blockquote>
+奥伯龙太灵活了，能当打手能拐。杀狐的爆伤也很好用。蓝卡队就完全没法不换人打了
+
+
+*****
+
+####  alucardcz  
+##### 82841#       发表于 2021-8-22 22:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52469041&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-22 22:39</a>
+
+奥伯龙太灵活了，能当打手能拐。杀狐的爆伤也很好用。蓝卡队就完全没法不换人打了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这话在隔壁又要被喷了
+
+
+*****
+
+####  areklose  
+##### 82842#       发表于 2021-8-22 22:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相比之下，今年出的鹤小姐这个拐菜到不行
+
+
+*****
+
+####  zakki  
+##### 82843#       发表于 2021-8-22 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52469074&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 22:42</a>
+你这话在隔壁又要被喷了</blockquote>
+在隔壁这叫“贩卖焦虑”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82844#       发表于 2021-8-22 22:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鹤仙人至今技能还是8108 宝具要20星太弱智了总是忘了要星星开不出来宝具 就直接扔仓库吃灰了
+
+
+*****
+
+####  alucardcz  
+##### 82845#       发表于 2021-8-22 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52469259&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-22 22:56</a>
+
+鹤仙人至今技能还是8108 宝具要20星太弱智了总是忘了要星星开不出来宝具 就直接扔仓库吃灰了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么还有鹤仙人的　太欧了
+
+
+*****
+
+####  qixinno2  
+##### 82846#       发表于 2021-8-22 23:06
+
+
+ 本帖最后由 qixinno2 于 2021-8-22 23:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52469329&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 23:03</a>
+
+你怎么还有鹤仙人的　太欧了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也不想的啊 就随便扔了发十连就出了 但我想要的BX当时也是扔光石头呼符都没出 基本上我就只有在微妙角色上出货率会变得奇高无比 
+
+
+*****
+
+####  khxooo  
+##### 82847#       发表于 2021-8-22 23:18
+
+
+这楼就我一个非洲酋长<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82848#       发表于 2021-8-22 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52469495&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-22 23:18</a>
+
+这楼就我一个非洲酋长</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">我也是啊 就今年日服怪而已 国服就很正常今年才五个NEW 而且还氪了几单
+
+
+                                                 

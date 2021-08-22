@@ -6934,3 +6934,65 @@ hnn真大腿，把队伍带成这样，坐牢不算多
 
 
                                                  
+
+*****
+
+####  _Ra1nMaker  
+##### 6558#       发表于 2021-8-22 22:30
+
+
+别夸夸了，她各种游戏水平出了holo哪点能吹，也就crew跟井底之蛙一样天天吹
+
+
+*****
+
+####  烯丝短尾猫  
+##### 6559#       发表于 2021-8-22 22:48
+
+
+乾殿把全部队伍的队伍配置、皮肤和降落地点全记下来真的厉害
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://i.loli.net/2021/08/22/YLGjK8xHkIsRyJz.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nian1538  
+##### 6560#       发表于 2021-8-22 23:01
+
+
+夸夸的实力倒也不光是和社内比出来的，在一个阿葵都是你虹游戏高手的时候，夸夸算高中高也不过分吧
+
+回去翻V1的话当时女V里头小白还是PUBG强者呢，现在看都什么下饭操作
+
+
+*****
+
+####  winda  
+##### 6561#       发表于 2021-8-22 23:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不至于，夸夸在女v里lol和大乱斗还能吹吹，平台跳跃类放v圈也很强了，但fps这块就太卷了，光vspo这一家一群元pro竞争就很激烈了
+
+
+*****
+
+####  _Ra1nMaker  
+##### 6562#       发表于 2021-8-22 23:06
+
+
+lol能吹吗，其他人玩的少，也没搞过什么比赛，看不出她放vtb里到底多强，反正看她直播打也就正常水平
+
+
+*****
+
+####  FCCHua  
+##### 6563#       发表于 2021-8-22 23:37
+
+
+ 本帖最后由 FCCHua 于 2021-8-23 00:17 编辑 
+
+后夜祭是不是就小千没来，生病了那好好休息吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+rrm代打第二局的公主位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

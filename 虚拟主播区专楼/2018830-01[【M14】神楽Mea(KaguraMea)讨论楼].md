@@ -13113,3 +13113,144 @@ syl并不是说佛系粉cp粉就不算你麻粉丝了，不过总感觉哪里不
 
 
                                                  
+
+*****
+
+####  2014720  
+##### 1206#       发表于 2021-8-22 22:40
+
+
+ 本帖最后由 2014720 于 2021-8-22 22:41 编辑 
+
+😄原来大家聊了这么多啊,刚才被麻麻榨昏过去了,现在刚醒
+
+云无所谓啊，但云的很自豪不看直播坚信自己爱主播还默默送钱这tm是个啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不拦你就是了
+
+et发疯时看着就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1207#       发表于 2021-8-22 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52468371&amp;ptid=2018830" target="_blank">往世雷书 发表于 2021-8-22 21:51</a>
+
+我想到会有人拿这个当做笑料当做团建素材，我以为是黑子，没想到是楼友也拿出来当成打压手段了。
+
+怎么说 ...</blockquote>
+那我一直就这个态度
+
+知道吗，我很讨厌你这种轻飘飘一句就来否定我看直播事实的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你不会真觉得靠官组加同好会现在的产出就能让你有底气在我面前扯皮舞咩这玩意儿有多无聊的事实吧
+
+一个没看直播的人滚我面前来拱火或者黑屁我的态度向来很一致的，你猜猜以前clay没看直播还硬要看同传然后犯病是什么弱智程度的行为，然后我追着骂了多久<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+听不懂的话，我直接点，一个喝醉酒直接打一万的人
+
+我很羡慕他有钱，从主播角度来说我甚至不会拦着
+
+
+但是常识来说这就是纯种hape行为
+
+希望你能搞明白点
+
+我也请你多少尊重点其他算是还在看直播的楼友，而不是滚来主播楼里跟我说你**妈的不看直播也没问题
+
+
+按照你这个理论我就该直接退坑，免得看到你和谷雨加事业民这三个纯种hape<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1208#       发表于 2021-8-22 22:54
+
+
+早安推来了，会播吗
+
+
+*****
+
+####  makourisu-2  
+##### 1209#       发表于 2021-8-22 23:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">应该不会播了吧，睡了
+
+
+*****
+
+####  Klience  
+##### 1210#       发表于 2021-8-22 23:46
+
+
+打游戏了 今晚又是和野男人的不眠夜 该干嘛干嘛去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1211#       发表于 2021-8-22 23:48
+
+
+明天中午是不是又准备迟到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时雨rain  
+##### 1212#       发表于 2021-8-23 00:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈，大家还能聊你麻的事业啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">有这个闲心不如想想你麻麦琪盾还能用多久
+
+
+*****
+
+####  路人庚  
+##### 1213#       发表于 2021-8-23 00:42
+
+
+深夜醒来做点小工作，随手摸两盘lol，然后凌晨开启直播间，阿咩的一天就是这样的宁静舒适
+
+
+（该补的深夜档会加一吗
+
+
+*****
+
+####  Cushaw  
+##### 1214#       发表于 2021-8-23 00:42
+
+
+黄毛盾维护的就是🦄的精神卫生啊，小麻，你好温柔<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  时间在我手中  
+##### 1215#       发表于 2021-8-23 00:44
+
+
+考虑买魔爪中
+
+
+*****
+
+####  Cushaw  
+##### 1216#       发表于 2021-8-23 00:48
+
+
+bsyl，深夜好，不就摆烂吗，早该摆摆了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

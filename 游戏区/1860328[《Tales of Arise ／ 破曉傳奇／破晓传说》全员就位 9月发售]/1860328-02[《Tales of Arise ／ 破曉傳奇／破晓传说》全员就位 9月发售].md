@@ -16747,3 +16747,58 @@ Reddit r/tales 有人说魔神剑升到三星级后，刚华爆炎阵会多砍�
 
 
                                                  
+
+*****
+
+####  DelPiero  
+##### 2760#       发表于 2021-8-22 22:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">胜利POSE和对话呢，像卡死一样然后回大地图
+
+
+
+
+*****
+
+####  法拉  
+##### 2761#       发表于 2021-8-22 22:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52468879&amp;ptid=1860328" target="_blank">DelPiero 发表于 2021-8-22 22:28</a>
+
+胜利POSE和对话呢，像卡死一样然后回大地图</blockquote>
+有对话，没动作
+
+
+*****
+
+####  Rainwedell  
+##### 2762#       发表于 2021-8-23 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52468879&amp;ptid=1860328" target="_blank">DelPiero 发表于 2021-8-22 22:28</a>
+胜利POSE和对话呢，像卡死一样然后回大地图</blockquote>
+对话有，pose砍了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  LT_Harry  
+##### 2763#         楼主| 发表于 2021-8-23 00:39
+
+
+昨天和今天我上传了两个视频
+https://youtu.be/pnnNnoPTTW4
+https://youtu.be/H7kwo4X9tak
+
+第一个是一些战斗的精彩内容剪辑，第二个是应他人委托进行的秘奥义伤害范围测试。看了一下我发现三个问题。
+
+一、Vegas 14 制作视频插入转场动画，在转场动画执行的过程中会重复播放上一段视频的开头部分，不插入转场则没有这种情况；
+二、极限突破状态有时候两次之间间隔时间可以特别短，似乎回避和伤害的进度是分开累积的；
+三、第一个视频里，有一个片段使用秘奥义结束战斗，慢放了秘奥义的结尾动作（就像使用增幅强击结束战斗一样）。而第二个视频里，同样使用秘奥义执行了战斗的最后一击，播放速度却和正常状态无异，暂且费解中。
+
+
+                                                
