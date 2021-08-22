@@ -12356,3 +12356,404 @@ WOA~五咩贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072
 
 
                                                  
+
+*****
+
+####  2014720  
+##### 1145#       发表于 2021-8-22 16:37
+
+
+【黒猫ななし 推特发布】
+内容：明日のスケジュールの続きです！
+
+8/23(月)
+20:00 るい
+21:00 いちか(島村シャルロットさん 虎城アンナさん 不磨わっとさん コラボ)＊島村シャルロットさんch
+22:00 はねる(しぐれういさん 伊藤ライフさん 神楽めあさん ななかぐらさん ももしきさん なつめえりさん コラボ)
+24:00 みみ
+
+#あにまーれ
+时间：2021-08-22 16:26:58 UTC+08:00
+
+
+*****
+
+####  T_Hb  
+##### 1146#       发表于 2021-8-22 16:42
+
+
+ 本帖最后由 T_Hb 于 2021-8-22 16:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打错了吧，这联动不是卡古拉娜娜吗
+
+<img src="https://img.saraba1st.com/forum/202108/22/164403zm8ek9kk36k94kkm.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (25.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-22 16:44 上传
+
+
+不过明天中午桃铁最后一回
+
+
+*****
+
+####  GRMeA104  
+##### 1147#       发表于 2021-8-22 16:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465067&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-8-22 16:42</a>
+
+打错了吧，这联动不是卡古拉娜娜吗</blockquote>
+消息来源可靠吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1148#       发表于 2021-8-22 16:51
+
+
+ 本帖最后由 T_Hb 于 2021-8-22 16:53 编辑 
+
+这是兔妈频道的直播间啊，开好1个星期了吧
+
+<img src="https://img.saraba1st.com/forum/202108/22/165120qir1qougz16gguqt.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (19.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-22 16:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/22/165353clblcbrqqt0rowzw.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (29.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-22 16:53 上传
+
+
+*****
+
+####  呓亘  
+##### 1149#       发表于 2021-8-22 16:56
+
+
+桃铁可算完结了
+
+
+*****
+
+####  GRMeA104  
+##### 1150#       发表于 2021-8-22 16:56
+
+
+ 本帖最后由 GRMeA104 于 2021-8-22 16:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465150&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-8-22 16:51</a>
+
+这是兔妈频道的直播间啊，开好1个星期了吧</blockquote>
+我完全理解了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+桃铁完结了不知道是继续打麻将还是搞什么长期企划,反正舞咩这块牌子黄兔子又不可能放手的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 1151#       发表于 2021-8-22 17:00
+
+
+舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死舞元去死
+
+
+*****
+
+####  thisisaspider  
+##### 1152#       发表于 2021-8-22 17:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 1153#       发表于 2021-8-22 17:10
+
+
+今天低气压，很难受，希望小麻能播来治愈一下我<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 1154#       发表于 2021-8-22 17:11
+
+
+后面还会有舞咩的 请放心 你可以永远相信犬山和组长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1155#       发表于 2021-8-22 17:12
+
+
+ 本帖最后由 T_Hb 于 2021-8-22 17:15 编辑 
+
+目前已知的舞咩不就在26号
+
+今天都已经睡死过去了，要播也是大半夜tc吃播了
+
+
+*****
+
+####  2014720  
+##### 1156#       发表于 2021-8-22 17:31
+
+
+妈的联动多到人都麻了，不看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 1157#       发表于 2021-8-22 17:33
+
+
+这世界还是毁灭掉比较好
+
+
+*****
+
+####  呓亘  
+##### 1158#       发表于 2021-8-22 17:35
+
+
+ 本帖最后由 呓亘 于 2021-8-22 17:40 编辑 
+
+我...输掉了吗？不!这种事情我怎么可能承认啊!咩!再一次!（震音）再一次创造一个没有舞咩的世界!（震音）
+
+
+*****
+
+####  2014720  
+##### 1159#       发表于 2021-8-22 17:57
+
+
+确实有点看不懂如此高频的五元是在干啥了，没感觉五咩有多少热度啊
+
+除了你麻真想和五元联动我找不到别的解释<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1160#       发表于 2021-8-22 18:01
+
+
+舞咩联动=基本2万左右同接=没感觉有多少热度
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 1161#       发表于 2021-8-22 18:08
+
+
+ 本帖最后由 草牛 于 2021-8-22 18:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">也就舞元愿意理你麻了，换个养女粉gachi的你麻早就被干死了
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">入土主播还那么挑，谁给你的脸
+
+
+*****
+
+####  2014720  
+##### 1162#       发表于 2021-8-22 18:09
+
+
+ 本帖最后由 2014720 于 2021-8-22 18:11 编辑 
+
+你也不看昨天都是谁，昨天都是你麻认识的最能打的了
+
+平时那已经变成阴间联动的桃铁也才多少啊，苔苔那边一般带五元的也真就那样了，没有麻他们也能有不错的数据不是，你麻自己的数据已经快滑倒自己最低的时候了
+
+只能理解为这是麻麻合伙兔妈妈苔苔虐杀独角兽的一次长久而又细密的计划了，一切都是为了舞咩cp<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+痛哭流涕的独角兽也好，退坑回踩的独角兽也好，打脸充胖子的独角兽也好，为了舞元都可以去死<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1163#       发表于 2021-8-22 18:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">独角兽还是早点去死比较好，你咩姐就该兑现之前说的把独角兽全都杀了
+
+
+看现在独角兽反应这么大那正好说明大舞特舞效果好了，坐等一个舞咩线下<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 1164#       发表于 2021-8-22 18:21
+
+
+我只能说加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  JY要塞  
+##### 1165#       发表于 2021-8-22 18:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">线下被粉红坦克创死吗
+
+
+*****
+
+####  2014720  
+##### 1166#       发表于 2021-8-22 18:23
+
+
+不，你麻还是舍不得单独和五元联动，啊一定是为了五元不招致独角兽的怒火<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">太感动了
+
+舞咩ddd我赌个今年内好吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1167#       发表于 2021-8-22 18:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐独角兽粉的数量在压倒性的cp粉面前基本上屁用没有，她现在还没跟舞元线下我觉得至少有4成原因是疫情，还有4成原因是你咩姐觉得对舞元还没好到可以线下的程度，还有2成大概是懒罢
+
+
+*****
+
+####  Klience  
+##### 1168#       发表于 2021-8-22 18:31
+
+
+然后舞元3D直播邀请了咩来当嘉宾 两位都是有说有笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 1169#       发表于 2021-8-22 18:41
+
+
+ 本帖最后由 2014720 于 2021-8-22 18:49 编辑 
+
+cp粉连单人直播都不看关注也不点，和现在批站评论区活跃至今的贝贝人何其相似，我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+说起来我就想起了隔壁七海，蹭as成功蹭成as第六人了，而麻麻蹭五元了两年快把自己蹭死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，时也命也，很神奇呐
+
+syl并不是说佛系粉cp粉就不算你麻粉丝了，不过总感觉哪里不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 1170#       发表于 2021-8-22 18:48
+
+
+难道不蹭就不会死吗，太高看你麻了，承认吧，真没人看，其他都是虚的🤣
+
+
+
+
+*****
+
+####  T_Hb  
+##### 1171#       发表于 2021-8-22 18:52
+
+
+怎么今天是发病版本，没意思
+
+
+*****
+
+####  呓亘  
+##### 1172#       发表于 2021-8-22 18:57
+
+
+[http://tap.meagames.cn](http://tap.meagames.cn)
+
+这个网站还挺乐 
+
+
+*****
+
+####  2014720  
+##### 1173#       发表于 2021-8-22 19:11
+
+
+我自己看业内明显是养噶吃的更吃香，白雪这个后辈的数据已经全面碾压你麻了，虹杏这些就不提了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘛车轱辘了不说了
+
+是mix这类人太多了才让你麻这个样子还是你麻才让mix那么疯我暂且蒙在鼓里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总之越来越多的联动里有五元有种蛋糕里塞了大蒜的感觉，欣赏不来欣赏不来
+
+干活去了不能闲的跟小麻一样，那也太堕落了<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dualist彩  
+##### 1174#       发表于 2021-8-22 19:13
+
+
+你楼独角兽对你麻不是很友好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JY要塞  
+##### 1175#       发表于 2021-8-22 19:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">你麻给舞元垫屁股还挺涩的，能出张图吗
+
+
+*****
+
+####  Klience  
+##### 1176#       发表于 2021-8-22 19:23
+
+
+自己动手画甚至能当主角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1177#       发表于 2021-8-22 19:25
+
+
+别的先不说，一个滚来论坛发情没事发病的人说什么闭嘴打钱无可指摘<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+我没兴趣给所谓天狗统一下结论和标准划分优秀或者劣质产品的区分。不过还请稍微搞懂一件事，一个对着他心中我都不知道是什么的东西创造出一套偶像崇拜理论玩意儿自我高潮，然后忽然来句，其实我不看直播的，因为我已经得到了【真理】
+
+你猜猜这种东西我换几个词，替换一下对象，然后看看他扯的狗屎话等于什么
+
+楼里来句多来点舞咩然后连多来点的是什么都不知道的狗屁云人是不是可以默认成当年六字母人那套我不看直播但是我就是要吃六字母糖的傻批逻辑啊，挺好的，你怎么不加入六字母二创组呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想必共同语言那叫一个源源不绝
+
+直播不看只看熟肉的人还挺多的，一脸自豪发表信教言论的还请先考虑一下自己是不是信了什么鞋教，毕竟当年打钱多的也不是没有像你这种不跳到主播脸上弱智而是专门给粉丝表演行为艺术的脑瘫的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

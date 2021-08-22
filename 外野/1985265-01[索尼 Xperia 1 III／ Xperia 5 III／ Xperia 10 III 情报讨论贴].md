@@ -11262,3 +11262,31 @@ X2和510也都只是微提升的架构
 
 
                                                  
+
+*****
+
+####  leystage  
+##### 787#         楼主| 发表于 2021-8-22 18:30
+
+
+交作业 XD   
+
+
+https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2022193&amp;extra=page%3D1&amp;mobile=2
+
+
+*****
+
+####  leystage  
+##### 788#         楼主| 发表于 2021-8-22 18:31
+
+
+<blockquote>暗铁 发表于 2021-8-20 17:24
+895不是说搞四丛集，感觉调度要崩
+
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next-鹅版 v2.4. ...</blockquote>
+确实有传言说 895 不会比 888 更不热，感觉完蛋
+
+
+                                                 

@@ -2372,3 +2372,78 @@ eva tv是高中看的，连带后面的旧电影版一起————简单来�
 
 
                                                  
+
+*****
+
+####  shinjico  
+##### 1651#       发表于 2021-8-22 16:58
+
+
+[https://acg.rip/t/241533](https://acg.rip/t/241533)  
+[https://bangumi.moe/torrent/612208a12525b000074ac1f5](https://bangumi.moe/torrent/612208a12525b000074ac1f5)
+[https://share.dmhy.org/topics/vi ... 16_AMZN-WEBRip.html](https://share.dmhy.org/topics/view/577182_Evangelion_3_0_1_01_Thrice_Upon_a_Time_1920X816_AMZN-WEBRip.html)
+
+magnet:?xt=urn:btih:JR4RZIFTKT2VHFRJVAYMWMRODVEH37Q5
+
+
+字幕终于做好了，欢迎福音学家指正 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| mhss| + 2|好评加鹅|
+| qrlfafner| + 1|好评加鹅|
+| ads147147| + 1||
+
+
+查看全部评分
+
+
+*****
+
+####  sanxgh571  
+##### 1652#       发表于 2021-8-22 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52349889&amp;ptid=2013091" target="_blank">pzk 发表于 2021-8-13 02:18</a>
+其实我一直在想，真嗣吃了那么多饼干，他这么多天是在哪拉屎的呢？明明很悲伤却不得不去拉屎，拉完 ...</blockquote>
+我看时也在想这个
+
+—— 来自 realme RMX2121, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  霧亥  
+##### 1653#       发表于 2021-8-22 17:11
+
+
+啧，我正打算看遍V7
+
+
+*****
+
+####  alien  
+##### 1654#       发表于 2021-8-22 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465228&amp;ptid=2013091" target="_blank">shinjico 发表于 2021-8-22 16:58</a>
+
+https://acg.rip/t/241533  
+
+https://bangumi.moe/torrent/612208a12525b000074ac1f5
+
+https://share.dmhy.o ...</blockquote>
+感谢！！！
+
+今天没时间了，下周末抽时间再看一次。
+
+
+                                                 

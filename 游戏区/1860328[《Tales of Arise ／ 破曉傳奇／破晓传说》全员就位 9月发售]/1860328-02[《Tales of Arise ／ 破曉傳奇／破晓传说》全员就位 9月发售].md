@@ -16463,3 +16463,170 @@ https://youtu.be/pnnNnoPTTW4
 
 
                                                  
+
+*****
+
+####  听风不是雨  
+##### 2741#       发表于 2021-8-22 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52464175&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-8-22 14:55</a>
+
+我反而感觉toz/tob/tov hd这一套下来拉了不少新人入坑，我，我身边好几个小伙伴都是这么进来的。。。 ...</blockquote>
+借的STEAM和PS4在国内普及的东风，欧美那边TOS也靠STEAM的PC重置冲到系列第一
+
+
+*****
+
+####  qiyu1234  
+##### 2742#       发表于 2021-8-22 17:35
+
+
+ 本帖最后由 qiyu1234 于 2021-8-22 17:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52464175&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-8-22 14:55</a>
+
+我反而感觉toz/tob/tov hd这一套下来拉了不少新人入坑，我，我身边好几个小伙伴都是这么进来的。。。 ...</blockquote>
+之前官方公布总销量上 TOZ 和 TOB 分别排第四第五
+
+
+然后富泽说最近这几作 单作中全新玩家数量不到总量的10%
+
+
+可以理解为 TOB跟TOZ相比，销量下降了，但是新玩家的占比没有明显的提高，连补上缺口的量都不够
+
+
+TOV HD属于老游戏复刻 卖2年才宣布破100万就不用比了（TOP在总销量榜上排第六，亚洲/日本销量133万，说明TOZ TOB 销量肯定要大于133万）
+
+
+*****
+
+####  nozomitech  
+##### 2743#       发表于 2021-8-22 17:49
+
+
+不知道为什么我的ps5画面实在是鲜艳过头了，看的眼睛受不了，而且没了vrr感觉没有xsx流畅，话说这游戏让我第一次清楚地听到ps5的风扇声音。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2744#       发表于 2021-8-22 17:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465561&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-22 17:35</a>
+
+之前官方公布总销量上 TOZ 和 TOB 分别排第四第五
+
+
+然后富泽说最近这几作 单作中全新玩家数量不到总量的10 ...</blockquote>
+其实他昨天就讲了，TO系列的新玩家数量很不乐观，甚至用了个位数范围的说法
+
+
+身为TALES系列制作人，ARISE无论是对他还是对这个系列都有非常重要的意义
+
+包括创建品牌标志，重组过去作品，全都是为了创造和延续这个系列的未来
+
+
+*****
+
+####  中泽君  
+##### 2745#       发表于 2021-8-22 18:21
+
+
+现在破晓的制作团队是哪一个？
+
+只是把富泽调到以前的传说组还是交给他一起做噬神者的团队
+
+
+*****
+
+####  qiyu1234  
+##### 2746#       发表于 2021-8-22 18:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465976&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-8-22 18:21</a>
+
+现在破晓的制作团队是哪一个？
+
+只是把富泽调到以前的传说组还是交给他一起做噬神者的团队 ...</blockquote>
+按他自己的说法是从新人到参加过TOP的老人都有
+
+目前访谈里出来的核心STAFF都是参加过传说旧作开发的老面孔
+
+
+鉴于这个游戏很早就开始企划了（至少不会晚于17年），应该跟噬神者组没多大关系
+
+
+*****
+
+####  laoz  
+##### 2747#       发表于 2021-8-22 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465976&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-8-22 18:21</a>
+
+现在破晓的制作团队是哪一个？
+
+只是把富泽调到以前的传说组还是交给他一起做噬神者的团队 ...</blockquote>
+以前传说组部分人员+bns其他人员，战斗系统是2D组的香川主导。做噬神者和噬血代码的シフト在招人做自己的游戏
+
+
+*****
+
+####  tstx2005  
+##### 2748#       发表于 2021-8-22 18:38
+
+
+战斗系统不满意的一点， 合体技做成斩杀，奥义要被打和闪避到一定程度才能触发暴气
+
+
+*****
+
+####  qiyu1234  
+##### 2749#       发表于 2021-8-22 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465976&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-8-22 18:21</a>
+
+现在破晓的制作团队是哪一个？
+
+只是把富泽调到以前的传说组还是交给他一起做噬神者的团队 ...</blockquote>
+我记错了一点，以为噬神者3就是万南工作室开发的了，查了下原来是Marvelous第一工作室开发
+
+那噬神者系列其实跟万南工作室关系不大，都是外包
+
+
+*****
+
+####  中泽君  
+##### 2750#       发表于 2021-8-22 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466032&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-22 18:26</a>
+
+按他自己的说法是从新人到参加过TOP的老人都有
+
+目前访谈里出来的核心STAFF都是参加过传说旧作开发的老面孔 ...</blockquote>
+如果还是原本那批人换个制作人就有这么大改变，那真是马场英雄罪大恶极了
+
+
+*****
+
+####  qiyu1234  
+##### 2751#       发表于 2021-8-22 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466220&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-8-22 18:45</a>
+
+如果还是原本那批人换个制作人就有这么大改变，那真是马场英雄罪大恶极了 ...</blockquote>
+核心位置有变化
+
+除了马场以外
+
+主剧本 山本尚基 离职去了SE 参与了浅野组新作
+
+
+首席战斗策划 有働龍郎，现在在负责镜光传说的项目（老资历，优秀作品如TODR、TOG的战斗策划都是他，但TOZ的问题包括战斗方面也很严重，跟他具体有多少关系就不清楚了）
+
+
+                                                 

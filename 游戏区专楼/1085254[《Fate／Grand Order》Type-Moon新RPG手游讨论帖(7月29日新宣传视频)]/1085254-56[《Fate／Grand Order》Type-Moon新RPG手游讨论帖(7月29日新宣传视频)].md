@@ -3628,3 +3628,132 @@ id是481,947,084</blockquote>
 
 
                                                 
+
+*****
+
+####  千叶铁矢  
+##### 82804#       发表于 2021-8-22 17:03
+
+
+cnm贝壳我日
+
+
+*****
+
+####  alucardcz  
+##### 82805#       发表于 2021-8-22 17:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贝壳　剑本　妖兰狂怒
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">１２３　狂娜该上班了
+
+
+*****
+
+####  alucardcz  
+##### 82806#       发表于 2021-8-22 17:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等等　楼主怎么被封了
+
+
+*****
+
+####  qb0079  
+##### 82807#       发表于 2021-8-22 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465376&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 17:15</a>
+
+贝壳　剑本　妖兰狂怒
+
+
+１２３　狂娜该上班了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">隔壁5宝妖兰换人强行上班也能3T，不怒不怒
+
+
+*****
+
+####  alucardcz  
+##### 82808#       发表于 2021-8-22 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465515&amp;ptid=1085254" target="_blank">qb0079 发表于 2021-8-22 17:31</a>
+
+隔壁5宝妖兰换人强行上班也能3T，不怒不怒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近这１ｘｘ的本用狂娜双狐非常舒适　反正我本来就不在乎什么６加成
+
+
+*****
+
+####  qb0079  
+##### 82809#       发表于 2021-8-22 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465627&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 17:44</a>
+
+最近这１ｘｘ的本用狂娜双狐非常舒适　反正我本来就不在乎什么６加成 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有些人6加成魔怔了，6加成的本质是6自由礼装位，不是真就一定要6张加成礼装
+
+
+*****
+
+####  zakki  
+##### 82810#       发表于 2021-8-22 18:44
+
+
+黑杯摩根双奥5加成，但贝壳还有一百多，石头耗尽泳装估计也抽不到，不打算刷了，继续qp本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82811#       发表于 2021-8-22 18:46
+
+
+ 本帖最后由 zakki 于 2021-8-22 18:47 编辑 
+
+对了，早就想吐槽了，那些所谓的舅舅，怎么一个都没透一下达芬奇的职阶啊，活动从者提都不提可信度很让人怀疑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82812#       发表于 2021-8-22 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466212&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-22 18:44</a>
+
+黑杯摩根双奥5加成，但贝壳还有一百多，石头耗尽泳装估计也抽不到，不打算刷了，继续qp本 ...</blockquote>
+怎么操作 萌新想试试<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 82813#       发表于 2021-8-22 19:10
+
+
+这些1面暴击的组队都不靠谱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82814#       发表于 2021-8-22 19:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">懒得刷 毕竟0石 必定泳装抽不到新角色 完全不需要贝壳
+
+
+*****
+
+####  黑上シグマ  
+##### 82815#       发表于 2021-8-22 19:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">贝壳还有200多，不慌
+
+
+                                                 

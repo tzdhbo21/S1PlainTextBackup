@@ -7267,3 +7267,37 @@ OBA8
 
 
                                                  
+
+*****
+
+####  达达葱2  
+##### 2027#       发表于 2021-8-22 17:06
+
+
+今天这集就算珊瑚回了？
+
+
+*****
+
+####  leleq  
+##### 2028#       发表于 2021-8-22 18:18
+
+
+中老年偶像OBA8 老师老爹唐突打电话 喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+又水了一集再这样下去有点担忧啊……
+
+
+*****
+
+####  傲娇的章鱼  
+##### 2029#       发表于 2021-8-22 18:31
+
+
+可恶的新冠，你把q娃给毁了！
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+                                                 

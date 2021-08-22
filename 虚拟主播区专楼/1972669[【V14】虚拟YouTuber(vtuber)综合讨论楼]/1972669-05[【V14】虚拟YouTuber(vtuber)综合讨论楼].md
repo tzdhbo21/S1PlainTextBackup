@@ -6519,3 +6519,98 @@ iwaiwa，我的阴湿超人<img src="https://static.saraba1st.com/image/smiley/f
 
 
                                                  
+
+*****
+
+####  winda  
+##### 6519#       发表于 2021-8-22 17:24
+
+
+<img src="https://img.saraba1st.com/forum/202108/22/172337njzzudc2vktv747u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_0822_172102.jpg</strong> (89.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-8-22 17:23 上传
+
+
+哈弟这最协除了本战窗还开了map转播窗，这规格搞得很高啊
+
+
+*****
+
+####  FCCHua  
+##### 6520#       发表于 2021-8-22 18:03
+
+
+hnn居然没对过elu，另外第一局星川杀疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Map-2  
+##### 6521#       发表于 2021-8-22 18:04
+
+
+<[img src="https://i.loli.net/2021/08/22/k1PORC8TYNMzbLi.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Map-2  
+##### 6522#       发表于 2021-8-22 18:41
+
+
+<[img src="https://i.loli.net/2021/08/22/4Si8MmhDqzXo1y9.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 6523#       发表于 2021-8-22 18:42
+
+
+大福队意外的稳定<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+马自立这人头分抢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 6524#       发表于 2021-8-22 18:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绝境马自立，本来被猩猩抽到雪崩了
+
+
+*****
+
+####  Map-2  
+##### 6525#       发表于 2021-8-22 19:10
+
+
+Astel击杀马大师！
+
+
+*****
+
+####  Map-2  
+##### 6526#       发表于 2021-8-22 19:18
+
+
+<[img src="https://i.loli.net/2021/08/22/2yr3KdnQpgaIEou.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 6527#       发表于 2021-8-22 19:18
+
+
+<[img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
