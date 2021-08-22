@@ -6614,3 +6614,150 @@ Astel击杀马大师！
 
 
                                                  
+
+*****
+
+####  十四洲  
+##### 6528#       发表于 2021-8-22 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466574&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-8-22 19:18</a>
+
+还有这种形式的</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Map-2  
+##### 6529#       发表于 2021-8-22 19:25
+
+
+<[img src="https://i.loli.net/2021/08/22/bPkZKvSJWHwry89.png" referrerpolicy="no-referrer">
+
+总成绩
+
+
+*****
+
+####  OldGlory  
+##### 6530#       发表于 2021-8-22 19:27
+
+
+千皇怎么回事
+
+
+*****
+
+####  hulaoda007  
+##### 6531#       发表于 2021-8-22 19:30
+
+
+去洗完澡怎么金发小男孩第一了...？
+
+
+*****
+
+####  FCCHua  
+##### 6532#       发表于 2021-8-22 19:31
+
+
+ 本帖最后由 FCCHua 于 2021-8-22 19:33 编辑 
+
+小千肯定带不动花妈和天使啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+卵用队最后拿冠军都不意外，毕竟有白雪
+目前来看现黄泉参加最协终于不算是坐牢了
+
+
+*****
+
+####  hulaoda007  
+##### 6533#       发表于 2021-8-22 19:42
+
+
+ 本帖最后由 hulaoda007 于 2021-8-22 20:06 编辑 
+
+金发Boy的apex我一直没看...毕竟没兴趣。我看5ch好像说他们那一组很安定。
+
+大姐头话说也太惨了吧。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">受过完全听从指示厨的训练而完美接受白雪的指示的Live王。
+
+
+*****
+
+####  FCCHua  
+##### 6534#       发表于 2021-8-22 20:05
+
+
+ 本帖最后由 FCCHua 于 2021-8-22 20:21 编辑 
+
+花芽姐我的超人，病号无伤一打三
+hnn终于决赛圈了
+马自立这把杀疯了，大师含金量
+草，不磨和口吃神怎么都哭了，马自立还是那么乐天我就安心了
+
+
+*****
+
+####  Map-2  
+##### 6535#       发表于 2021-8-22 20:15
+
+
+<[img src="https://i.loli.net/2021/08/22/BAqxzNlrpJvkyd3.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Map-2  
+##### 6536#       发表于 2021-8-22 20:19
+
+
+草，还没结束呢就喜极而泣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  talse  
+##### 6537#       发表于 2021-8-22 20:19
+
+
+电竞少女希小姐，实打实的大师级
+
+
+*****
+
+####  winda  
+##### 6538#       发表于 2021-8-22 20:22
+
+
+这把完就是nrk队垫底了，她实力当主c太勉强了。
+啊，paka队居然更惨
+
+
+*****
+
+####  突然空虚  
+##### 6539#       发表于 2021-8-22 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52448171&amp;ptid=1972669" target="_blank">adcdqre 发表于 2021-8-20 22:40</a>
+慢慢投视频也能恰点比全删了强那么一点，可惜是个底边也就多恰一点点
+这位也可能要投稿？虽然可能性很小 ...</blockquote>
+锁那跟meari，nameless跟nozomi，这些姐妹前后现在一对比，只能说历史的进程了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  talse  
+##### 6540#       发表于 2021-8-22 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467311&amp;ptid=1972669" target="_blank">winda 发表于 2021-8-22 20:22</a>
+
+这把完就是nrk队垫底了，她实力当主c太勉强了。
+
+啊，paka队居然更惨</blockquote>
+鹦鹉哥空窗期太长了，弦月也补不上，paka一个人太难了
+
+
+                                                 

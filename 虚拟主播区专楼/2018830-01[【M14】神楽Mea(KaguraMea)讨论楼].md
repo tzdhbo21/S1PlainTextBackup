@@ -12757,3 +12757,287 @@ syl并不是说佛系粉cp粉就不算你麻粉丝了，不过总感觉哪里不
 
 
                                                 
+
+*****
+
+####  草牛  
+##### 1178#       发表于 2021-8-22 19:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你麻都寄吧这样了还有什么吃香不吃香一说吗，你说人刚死你做个心肺复苏，太平间躺了快一年了，你拉出来抢救是否有些
+
+
+*****
+
+####  时间在我手中  
+##### 1179#       发表于 2021-8-22 19:34
+
+
+哦对，顺便一提，白雪同接和数据比你麻好你还是换个人，再怎么扯皮人家没事也能混到犬山给的【企业资源】
+
+
+跟养gachi的正相关关系说服力可不够，别的例子我估摸着不少，没必要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+而且养gachi养出雷书这种奇行种还是算了吧，看到弱智也不会比现在更好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+还有某个傻批事业民别滚来楼里弱智，哪天恶堕成矩阵种了我第一个杀你表子妈<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">弱智独角兽已经品鉴的够多了
+
+
+*****
+
+####  雪风utopia  
+##### 1180#       发表于 2021-8-22 19:41
+
+
+你麻都这样了，为什么不顺从她呢，tc歌回刚养好噶吃，然后五元联动就给你鲨了，这种脑溢血的操作除了你麻还有谁能做出来，欧，隔壁阿希<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">要我说你麻当了这么久管人怕不是还不知道自己究竟该干啥<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">人人都谈双向奔赴，你麻和天狗也是双向奔赴，大家都希望对方死，多么美妙的关系
+
+
+*****
+
+####  草牛  
+##### 1181#       发表于 2021-8-22 19:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">她知道个屁，她就一厂妹，干啥啥不行，还弱智
+
+
+*****
+
+####  时间在我手中  
+##### 1182#       发表于 2021-8-22 19:44
+
+
+那就死呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+批站85.7卡的死死的，404起码还有动，但本质的确也就是个狗屎底边没跑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+傻批事业民和独角兽加云人神乐女士不死都难啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 1183#       发表于 2021-8-22 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466739&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-8-22 19:34</a>
+
+哦对，顺便一提，白雪同接和数据比你麻好你还是换个人，再怎么扯皮人家没事也能混到犬山给的【企业资源】
+
+
+ ...</blockquote>
+扯 你麻少蹭犬山了是吧
+
+
+*****
+
+####  呓亘  
+##### 1184#       发表于 2021-8-22 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466857&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-8-22 19:44</a>
+
+那就死呗路是自己选的，反正说的跟不和舞元联动现在这吊样能有救一样，笑死壬惹
+
+
+批站85.7卡 ...</blockquote>
+不是她自己作的？？？！！！
+
+
+*****
+
+####  时间在我手中  
+##### 1185#       发表于 2021-8-22 19:53
+
+
+ 本帖最后由 时间在我手中 于 2021-8-22 19:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466918&amp;ptid=2018830" target="_blank">呓亘 发表于 2021-8-22 19:50</a>
+
+不是她自己作的？？？！！！</blockquote>
+我没说不是她自己作的啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">很喜欢千里夜雨说的一句话，20年初的剪辑没官组某几位的传话筒你猜猜那破事能传到谁的耳朵里嘛，弱智玩意儿狗叫你彪子ma呢，嘻嘻
+
+是不是考研的或者读研的容易出你这类hape品种，选择性忽略某些事实来和正常人狗叫啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+蹭犬山你这说法还挺乐的，难听点你最爱的数据说不定404那一周一千都有一半是因为犬山来的呢，傻逼事业民不会连这点事实都看不懂吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">喜欢数据你怎么不看虹或者杏吗，大可以学黄泉找个TC台樱花妹加入彩虹社整起来
+
+
+哦，你没那个日语水平，所以你不配，懂了吗，你连推特云P的资格和能力都没有，纯种死废物，我是你就赶紧闭嘴滚去学习，而不是像个过时的弱智一样，这么难受还不退坑是吊人吃了你家大米缠着你不让走了是吧
+
+天天臭几把狗叫的吊样子我建议赶紧remake，看个管人把自己看成脑瘫属于是纯种24K管人痴，做人要知道廉耻，而不是入魔了还搁这里复读机，你算个寄吧呢，hape
+
+
+*****
+
+####  路人庚  
+##### 1186#       发表于 2021-8-22 19:53
+
+
+ 本帖最后由 路人庚 于 2021-8-22 20:00 编辑 
+
+别的先不谈，不会真有人觉得观众跟主播能“双向奔赴”吧，哦，打钱榜第一名也许确实可以跟主播双向奔赴，或者身边一直在一起工作的staff大概也可以双向奔赴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+不得不说这个词被用到直播行业可以说是相当有诈骗内味了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 1187#       发表于 2021-8-22 19:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">作就作呗，以前你痛斥她作，我觉得合理，因为活人要活，现在我觉得可笑，因为死人已经死了，关心就烧点纸吧
+
+
+*****
+
+####  路人庚  
+##### 1188#       发表于 2021-8-22 19:56
+
+
+有人觉得一个油管虚拟人在b站没涨粉了就等于死了，是谁我不说🤭
+
+
+*****
+
+####  呓亘  
+##### 1189#       发表于 2021-8-22 19:56
+
+
+算了吧 至少得来个大的再死吧
+
+
+*****
+
+####  时间在我手中  
+##### 1190#       发表于 2021-8-22 20:01
+
+
+批站这块死不死我又无所谓，我反正真的不急，没事搜mea这个词默认傻批官组到我脸上不记得都难只能说
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+拿事业民的尸体来丶波烟花是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 1191#       发表于 2021-8-22 20:05
+
+
+ 本帖最后由 Klience 于 2021-8-22 20:07 编辑 
+
+看这人只要保持佛系心态就无所谓 播就看 不播就去打游戏 私下lol就去ob一下 生活美滋滋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1192#       发表于 2021-8-22 20:08
+
+
+我也懒得和某个傻批事业民多比比了，你真这么牛逼建议自己滚去整点有用的事
+
+
+而不是在这里扯了大半年狗屁话给老子表演弱智魔怔发言，赶紧和谷雨个小废物畜生一起双向奔赴，别来我面前弱智就成
+
+
+可以加油努力弱智到主播面前，加油成为下一个mixi的嗷
+
+
+这年头主播这行业认真来说努力上进能整活的还挺多的，建议开阔一下眼界，而不是整天脑补着你那点狗屁小心思自以为为了XXXXXX好
+
+
+相信我，到最后你只会觉得是个寄吧，你自己做的一切都是个寄吧，毫无意义，一触即碎
+
+
+*****
+
+####  时间在我手中  
+##### 1193#       发表于 2021-8-22 20:08
+
+
+风怒，反正打游戏去了
+
+和你这弱智鬼扯我还不如多想想啥时候发工资，麻麻的
+
+
+*****
+
+####  草牛  
+##### 1194#       发表于 2021-8-22 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467096&amp;ptid=2018830" target="_blank">Klience 发表于 2021-8-22 20:05</a>
+看这人只要保持佛系心态就无所谓 播就看 不播就去打游戏 私下lol就去ob一下 生活美滋滋 顺便问一下  ...</blockquote>
+是不是麻将脸的问题，你打两个回车试试
+
+
+*****
+
+####  Klience  
+##### 1195#       发表于 2021-8-22 20:12
+
+
+好了 问题解决 妈的 这问题纠结到现在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 1196#       发表于 2021-8-22 20:15
+
+
+ 本帖最后由 往世雷书 于 2021-8-22 20:16 编辑 
+
+如果我的哪些话让楼友不舒服了，我会彼此尊重收敛点。但是要说我这粉丝当的有问题，甚至把她的变化归因于我，我只当在放屁，因为确实在放屁<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  汇聚群光  
+##### 1197#       发表于 2021-8-22 20:23
+
+
+要我说，你楼不说全部，90%以上都是纯种事业民<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+如果你们推过一天都不一定能上一次推特账号的主播，你们就能体会到推特点一次赞相当于过年、发一次推相当于中百万彩票、播一次（不管在哪里播、内容如何、质量如何）相当于祖坟冒青烟的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主播还有动静就不错了，还在争什么在Y播还是在B播、播歌回还是打游戏、单人直播还是联动、是和苔姨联动还是和舞元联动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1198#       发表于 2021-8-22 20:27
+
+
+只要是18年看过来的都不会有这种问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当然只能说一代粉有一代粉的想法
+
+
+*****
+
+####  时间在我手中  
+##### 1199#       发表于 2021-8-22 20:28
+
+
+我不想说什么狗屁话，但是很遗憾的是2018年乃至2019年上半年的这人还挺符合你扯的皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年播一次都像过年那样的感觉我自认发言权还是有的
+
+
+而且你说的例子我直接都可以举一个出来，比如sana<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+还有，雷书你不会真觉得把精液XXXX的这类发言【很正常】吧，我不是在骂你当粉丝，而是当粉丝前能不能好歹有点人样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

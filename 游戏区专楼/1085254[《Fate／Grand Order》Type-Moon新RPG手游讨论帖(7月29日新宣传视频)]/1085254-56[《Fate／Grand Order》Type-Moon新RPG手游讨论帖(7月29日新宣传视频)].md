@@ -3757,3 +3757,158 @@ cnm贝壳我日
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 82816#       发表于 2021-8-22 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466480&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-22 19:10</a>
+
+这些1面暴击的组队都不靠谱啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂娜带洗牌　　第１面一张红卡都没的概率太低了　就算真没有大不了第１回合空过　
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我没遇到过
+
+
+*****
+
+####  森兰丸  
+##### 82817#       发表于 2021-8-22 19:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">尼玛.......我这号抽4星是真的有问题吧......最早是泳装攒了1000多石抽拉姆达......结果真就石头抽完了后4个兔呆....0拉姆达....还是过了1年后复刻才补齐的2宝
+
+
+还是去年泳装.....攒了500多石头想抽个2宝泳装巴御前.....吸取了上次的教训后等巴御前单UP时才开始抽.....结果抽完后就给我3阿比....1巴御前
+
+
+今天看到妖高有单UP了....看这剧情的表现想着就接回家弄个2宝吧.....虽然对摩根已经没需求了....然后身上攒到现在的500多石头和30多护符都丢进去后.....摩根满宝了....妖高就出了1个....看到歪出兰陵王和伪娘时真的是整个人的血线都被拉高了.....现在就是后悔.....非常后悔
+
+
+*****
+
+####  黑上シグマ  
+##### 82818#       发表于 2021-8-22 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466708&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-22 19:30</a>
+
+尼玛.......我这号抽4星是真的有问题吧......最早是泳装攒了1000多石抽拉姆达......结果真就石头抽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">摩根满宝，太欧了
+
+
+*****
+
+####  alucardcz  
+##### 82819#       发表于 2021-8-22 19:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466708&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-22 19:30</a>
+
+尼玛.......我这号抽4星是真的有问题吧......最早是泳装攒了1000多石抽拉姆达......结果真就石头抽 ...</blockquote>
+这就是真正的欧皇 无课满宝
+
+羡慕了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 82820#       发表于 2021-8-22 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466708&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-22 19:30</a>
+
+尼玛.......我这号抽4星是真的有问题吧......最早是泳装攒了1000多石抽拉姆达......结果真就石头抽 ...</blockquote>
+读心这块让YLS玩明白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82821#       发表于 2021-8-22 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466753&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-22 19:35</a>
+
+读心这块让YLS玩明白了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">什么时候也读下萌新的心给个5宝啊
+
+
+*****
+
+####  qixinno2  
+##### 82822#       发表于 2021-8-22 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466708&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-8-22 19:30</a>
+
+尼玛.......我这号抽4星是真的有问题吧......最早是泳装攒了1000多石抽拉姆达......结果真就石头抽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">非洲人好羡慕
+
+
+*****
+
+####  alucardcz  
+##### 82823#       发表于 2021-8-22 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466862&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-22 19:45</a>
+
+非洲人好羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你非个猫儿　２。６不是全了　　萌新我有３个没有呢！
+
+
+*****
+
+####  里村紅葉  
+##### 82824#       发表于 2021-8-22 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466805&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 19:39</a>
+
+什么时候也读下萌新的心给个5宝啊</blockquote>
+你得有那个心啊（指充钱）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82825#       发表于 2021-8-22 19:54
+
+
+ 本帖最后由 alucardcz 于 2021-8-22 19:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466943&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-8-22 19:53</a>
+
+你得有那个心啊（指充钱）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新福袋钱从来没拉下过！　　楼上的森师傅可是真无课　　福袋都不课的
+
+
+*****
+
+####  zakki  
+##### 82826#       发表于 2021-8-22 20:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466253&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 18:48</a>
+怎么操作 萌新想试试</blockquote>
+一面摩根开所有技能，两个奥伯龙开群冲，一个奥伯龙冲自己，有35个星星随便两张卡加奥伯龙宝具就能打掉。二面奥伯龙二号冲自己给自己用3技能组，2宝的话伤害比较富裕，能打死。3面摩根吃奥伯龙技能一炮打死。前提是两个奥伯龙必须开10np的被动，如果没开的话一面就靠摩根暴击
+
+
+*****
+
+####  alucardcz  
+##### 82827#       发表于 2021-8-22 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467183&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-22 20:11</a>
+
+一面摩根开所有技能，两个奥伯龙开群冲，一个奥伯龙冲自己，有35个星星随便两张卡加奥伯龙宝具就能打掉。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这也太麻烦了　　还是banana不换人双狐舒服　　
+
+
+你这不如干脆直接用ｃ狗。。。。
+
+
+                                                 

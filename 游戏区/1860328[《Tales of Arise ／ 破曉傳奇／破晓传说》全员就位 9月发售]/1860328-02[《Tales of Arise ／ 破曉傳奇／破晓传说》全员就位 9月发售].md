@@ -16630,3 +16630,29 @@ TOV HD属于老游戏复刻 卖2年才宣布破100万就不用比了（TOP在总
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2752#         楼主| 发表于 2021-8-22 20:21
+
+
+Reddit r/tales 有人说魔神剑升到三星级后，刚华爆炎阵会多砍几刀<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2753#       发表于 2021-8-22 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467295&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-22 20:21</a>
+
+Reddit r/tales 有人说魔神剑升到三星级后，刚华爆炎阵会多砍几刀</blockquote>
+术技累计次数/强化后 性能动作变化这个也是经典之一了
+
+
+不过这也太能刷了，刷到三星<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
