@@ -3,6 +3,7 @@
 
 import os,re
 from pathlib import Path
+from urllib import request
 
 def getallfile(dirpath,allpath=[]):
     for pa in Path(dirpath).iterdir():
