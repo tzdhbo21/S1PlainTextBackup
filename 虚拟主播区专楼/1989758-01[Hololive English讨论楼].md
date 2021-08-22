@@ -20744,3 +20744,20 @@ olie说日语好紧张的样子<img src="https://static.saraba1st.com/image/smil
 
 
                                                  
+
+*****
+
+####  wiig  
+##### 1326#       发表于 2021-8-22 08:52
+
+
+[Debut Postponement 1/2]
+We regret to inform you that the debut of hololive English -Council-, originally scheduled from 2 AM, Sunday, August 22 (JST), has been postponed due to unforeseen circumstances.
+[Debut Postponement 2/2]
+We apologize for the inconvenience caused to those who had been looking forward to this event.
+We will announce the new date as soon as it can be decided.
+
+Thank you for your understanding.
+
+
+                                                 

@@ -6379,3 +6379,25 @@ noah虽然成绩一般，但是打的很无爽，还不算牢
 
 
                                                  
+
+*****
+
+####  winda  
+##### 6506#       发表于 2021-8-22 08:17
+
+
+牡丹跑dwu箱去了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 6507#       发表于 2021-8-22 08:49
+
+
+ 本帖最后由 hulaoda007 于 2021-8-22 08:52 编辑 
+
+昨天在说收租，想问一下，大家对废柴巨婴太郎（gbr）在六月份开通了pixivfanbox有什么看法？
+
+
+                                                 
