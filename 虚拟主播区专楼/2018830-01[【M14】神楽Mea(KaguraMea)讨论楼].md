@@ -13074,3 +13074,42 @@ syl并不是说佛系粉cp粉就不算你麻粉丝了，不过总感觉哪里不
 
 
                                                 
+
+*****
+
+####  往世雷书  
+##### 1203#       发表于 2021-8-22 21:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467385&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-8-22 20:28</a>
+我不想说什么狗屁话，但是很遗憾的是2018年乃至2019年上半年的这人还挺符合你扯的皮当年播一次都像 ...</blockquote>
+我想到会有人拿这个当做笑料当做团建素材，我以为是黑子，没想到是楼友也拿出来当成打压手段了。
+怎么说呢，挺失望的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  thisisaspider  
+##### 1204#       发表于 2021-8-22 22:11
+
+
+ 本帖最后由 thisisaspider 于 2021-8-22 22:12 编辑 
+
+云人对粉丝之间的关系有感情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+解释一下，我不是说云人不好啊，看主播也有很多云的。
+
+
+*****
+
+####  Klience  
+##### 1205#       发表于 2021-8-22 22:23
+
+
+云其实也无所谓 只要发言的时候不要暴露自己云的事实就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

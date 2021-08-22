@@ -16679,3 +16679,71 @@ Reddit r/tales 有人说魔神剑升到三星级后，刚华爆炎阵会多砍�
 
 
                                                  
+
+*****
+
+####  武者小路紫苑  
+##### 2756#       发表于 2021-8-22 21:33
+
+
+我做梦都想要D2+DR+DRDC打包复刻，乌乌乌
+
+
+*****
+
+####  qiyu1234  
+##### 2757#       发表于 2021-8-22 21:36
+
+
+ 本帖最后由 qiyu1234 于 2021-8-22 21:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52468109&amp;ptid=1860328" target="_blank">神道设教 发表于 2021-8-22 21:29</a>
+
+我还是觉得他说的不对，如果只有百分之个位数的是新玩家，toz，tob怎么可能会有全系列第死第五的销量，他这 ...</blockquote>
+第三名 宿命传说 172万套
+
+
+前两名都是200万套以上
+
+这里的新玩家是指没接触过TALES OF的
+
+你玩了TOZ 玩TOB的时候就不算新玩家了
+
+100多万套 不到10%新玩家是有可能的，说明大部分销量是靠老粉和中生代粉
+
+新玩家增长率本身并不是关键，关键是自身留存降了
+
+
+*****
+
+####  qiyu1234  
+##### 2758#       发表于 2021-8-22 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467295&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-22 20:21</a>
+
+Reddit r/tales 有人说魔神剑升到三星级后，刚华爆炎阵会多砍几刀</blockquote>
+实践出真知
+
+
+我用了1000下魔神剑
+
+
+三星级了以后发现刚华爆炎阵并没有变化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LT_Harry  
+##### 2759#         楼主| 发表于 2021-8-22 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52468286&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-22 21:44</a>
+
+实践出真知
+
+
+我用了1000下魔神剑</blockquote>
+看来游戏里的提示是真的，等级影响伤害，没说影响动作。
+
+
+                                                 

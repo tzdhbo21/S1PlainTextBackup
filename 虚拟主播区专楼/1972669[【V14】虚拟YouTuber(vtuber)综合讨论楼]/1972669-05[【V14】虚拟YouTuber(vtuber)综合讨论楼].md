@@ -6869,3 +6869,68 @@ hnn真大腿，把队伍带成这样，坐牢不算多
 
 
                                                  
+
+*****
+
+####  CAserlumos  
+##### 6551#       发表于 2021-8-22 21:34
+
+
+马大师这下次不得加到10分
+
+
+*****
+
+####  poipanchao  
+##### 6552#       发表于 2021-8-22 21:36
+
+
+那么问题来了，大亏还是杏女apex最强吗
+
+
+*****
+
+####  越动天下  
+##### 6553#       发表于 2021-8-22 21:39
+
+
+下次把夸请来 支持夸和马自立碰碰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  Suny08  
+##### 6554#       发表于 2021-8-22 21:45
+
+
+早就说了阿希比夸夸强多了，夸夸还是不要来参加这种比赛击碎crew的幻想了
+
+
+*****
+
+####  winda  
+##### 6555#       发表于 2021-8-22 21:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大赛环境和rank差别还是很大的，夸夸过来就要当主c那估计比小千这次还惨了
+
+
+*****
+
+####  渡鸦骑士  
+##### 6556#       发表于 2021-8-22 21:52
+
+
+阿夸要是参加大赛的话，别的不说……真的得被迫暴露新的一面了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nian1538  
+##### 6557#       发表于 2021-8-22 21:55
+
+
+夸夸游戏都不打了还apex呢，先把您那能绕地球一圈的单机backlog清了再说好吗
+
+
+                                                 

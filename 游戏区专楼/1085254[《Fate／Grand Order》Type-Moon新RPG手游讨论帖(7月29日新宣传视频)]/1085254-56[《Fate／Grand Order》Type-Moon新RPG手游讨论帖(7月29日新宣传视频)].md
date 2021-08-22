@@ -4011,3 +4011,40 @@ cnm贝壳我日
 
 
                                                 
+
+*****
+
+####  zakki  
+##### 82836#       发表于 2021-8-22 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467880&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 21:10</a>
+试了下　不太舒适　因为没硬币开ｎｐ１０我还手动给了他５０ｎｐ　最终还是不如娜狐狐简单粗暴
+
+
+ ...</blockquote>
+用新年那个衣服就行。不过有狂娜没必要这么打，狂娜暴击更高
+
+
+*****
+
+####  qixinno2  
+##### 82837#       发表于 2021-8-22 22:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">准备一直攒石头攒到明年了 希望新年日替UP芭娜娜
+
+
+*****
+
+####  alucardcz  
+##### 82838#       发表于 2021-8-22 22:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52468460&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-22 21:59</a>
+
+用新年那个衣服就行。不过有狂娜没必要这么打，狂娜暴击更高</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狂娜的首红我估计能有１５万左右。。。毕竟能直接吃到万物特攻
+
+
+                                                 

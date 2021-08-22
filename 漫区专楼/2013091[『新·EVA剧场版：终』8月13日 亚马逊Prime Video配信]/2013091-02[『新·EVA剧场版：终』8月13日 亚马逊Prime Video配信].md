@@ -2458,3 +2458,40 @@ https://share.dmhy.o ...</blockquote>
 
 
                                                  
+
+*****
+
+####  霧亥  
+##### 1656#       发表于 2021-8-22 21:51
+
+
+在终里就唤醒真嗣这一点来说，式波和黑丽简直就是北风和太阳的故事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1657#       发表于 2021-8-22 22:12
+
+
+说起来，和群里的人讨论的时候提到这次的13发动补全的时候曲依然选了巴赫的曲子做改编，个人不懂音乐，有人知道这次是巴赫的啥不？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 1658#       发表于 2021-8-22 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52468374&amp;ptid=2013091" target="_blank">霧亥 发表于 2021-8-22 21:51</a>
+在终里就唤醒真嗣这一点来说，式波和黑丽简直就是北风和太阳的故事啊 ...</blockquote>
+是小不点和豪猪（笑
+
+丽看的那本童话和北风与太阳应该是一个意思，不过为了扣豪猪理论用了这本，小不点估计还是痞子老婆梗。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
