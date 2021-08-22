@@ -12176,3 +12176,80 @@ WOA~五咩贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072
 
 
                                                  
+
+*****
+
+####  Ky·Kiske  
+##### 1127#       发表于 2021-8-22 11:40
+
+
+不知为啥不是很想看联动了
+
+
+*****
+
+####  往世雷书  
+##### 1128#       发表于 2021-8-22 12:00
+
+
+没事，我现在什么直播都不看了，需要用直播来维系的感情和热情都是易碎的。
+声音画面文字都只是成长中需要的养料，而我已经摘得了果实
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 1129#       发表于 2021-8-22 12:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 1130#       发表于 2021-8-22 12:01
+
+
+不看直播是不是该退坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1131#       发表于 2021-8-22 12:04
+
+
+不看直播其实没啥
+
+
+*****
+
+####  雪风utopia  
+##### 1132#       发表于 2021-8-22 12:36
+
+
+前两天的tc歌回错过可太可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 1133#       发表于 2021-8-22 13:22
+
+
+有点哈人了信教这是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1134#       发表于 2021-8-22 13:26
+
+
+直播都不看还是尽早remake，蠢货的信教论再多狗屁假大空理论支撑也改变不了本质就是个云人的事实<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+                                                 
