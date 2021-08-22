@@ -6996,3 +6996,29 @@ rrm代打第二局的公主位<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+*****
+
+####  free  
+##### 6564#       发表于 2021-8-23 00:59
+
+
+ 本帖最后由 free 于 2021-8-23 01:16 编辑 
+
+[https://www.youtube.com/watch?v=3Tv5GyebhQo](https://www.youtube.com/watch?v=3Tv5GyebhQo)
+
+【DEBUT STREAM】BIG STREAM🪐 #holoCouncil #hololiveEnglish
+
+这啥呀，走近科学吗，看完这个睡觉去了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 6565#       发表于 2021-8-23 01:17
+
+
+声音不行啊
+
+
+                                                 

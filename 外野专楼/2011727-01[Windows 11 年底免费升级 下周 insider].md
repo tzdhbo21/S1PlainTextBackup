@@ -6322,3 +6322,18 @@ Windows 8和8.1都是靠Classic Shell过的
 
 
                                                  
+
+*****
+
+####  V5Style  
+##### 524#       发表于 2021-8-23 01:13
+
+
+ 本帖最后由 V5Style 于 2021-8-23 01:15 编辑 
+
+切换回旧版文件资源管理器，但是右键菜单还是新的。
+ Windows Registry Editor Version 5.00 [HKEY_LOCAL_MACHINE\SOFTWARE\Microsoft\Windows\CurrentVersion\Shell Extensions\Blocked] "{e2bf9676-5f8f-435c-97eb-11607a5bedf7}"=""复制代码
+感觉以前那种流畅的感觉又回来了，再也不用通过控制面板中转了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
