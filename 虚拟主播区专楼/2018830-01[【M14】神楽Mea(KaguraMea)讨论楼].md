@@ -12147,3 +12147,32 @@ WOA~五咩贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072
 
 
                                                  
+
+*****
+
+####  鷹書たかしょ  
+##### 1124#       发表于 2021-8-22 09:40
+
+
+这属于瘾大，我也玩了一个通宵的ES2
+
+
+*****
+
+####  T_Hb  
+##### 1125#       发表于 2021-8-22 10:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">101你害了多少人！
+
+
+*****
+
+####  Klience  
+##### 1126#       发表于 2021-8-22 10:41
+
+
+人菜瘾大 不过我觉得她是想把那30把场次打完领取任务奖励 每次出新皮肤都基本会有30把场次任务 我的现在都还没做完 最近在打别的游戏 都没什么时间去肝这30场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
