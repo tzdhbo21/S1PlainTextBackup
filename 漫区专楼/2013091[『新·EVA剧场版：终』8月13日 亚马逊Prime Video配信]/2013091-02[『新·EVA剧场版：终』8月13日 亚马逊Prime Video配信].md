@@ -2305,3 +2305,70 @@ EVA在此之前搞的多虚都不是问题，都 ...</blockquote>
 
 
                                                  
+
+*****
+
+####  alien  
+##### 1648#       发表于 2021-8-22 13:53
+
+
+序：时代不同了大人，我（碇真嗣）也可以雄起的！
+
+破：我TM可以力挽狂澜！
+
+Q：搞什么鬼，各个都是自说自话。搞砸了不是我的本意啊！还有这一切都是大人们乱来啊！
+
+终：好吧，接受现实吧！先把这大人们弄糟的一切收拾干净！而且我也不是一个人了！（天降女神大胜利~）
+
+
+总算用贴吧的v7版字幕看完了，官方简中就是英文字幕机翻，2重翻译不烂就没天理了~官方繁中字幕又或多或少有些问题。贴吧那经过同好们多人多次校对的不是最优但也能看不影响观赏了。台湾配音最初的战斗没什么问题……但初次观影听台配不甘心，等到今天才看完了。
+
+
+eva tv是高中看的，连带后面的旧电影版一起————简单来说就是不明觉厉~~跨世纪的动画中优秀的作品。
+
+新剧场版用了新技术重新制作，前2部也把剧情导向了新的方向——————然后Q一闷棍把人打回现实，最后这部也就看出了接受现实，尽自己的力量，把现实导向更好的方向这感觉吧。
+
+毕竟EVA也不是爆米花打怪兽的片子~~至少主线剧情不能是~
+
+至于中间那14年如果能拍出来的话~·可以不拘泥于这种形式了吧~~
+
+
+*****
+
+####  七七見奈波  
+##### 1649#       发表于 2021-8-22 14:57
+
+
+<[img src="https://i.loli.net/2021/08/22/sPRrogd89aDvQG6.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/22/PjksvKA2nM4TGDU.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/22/Efy5TDNida9cxAP.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/22/LKyuhGDMa8Afpts.png" referrerpolicy="no-referrer">
+
+序、破、Q、终里的真嗣
+<[img src="https://i.loli.net/2021/08/22/tsGOic9jUzKbfFr.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/22/ebToBrNxh9JAImH.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/22/IWo4YnkU7S836GJ.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/22/AyhRGdvTSBHo67Q.png" referrerpolicy="no-referrer">
+
+序、破、Q、终里的丽
+<[img src="https://i.loli.net/2021/08/22/3MsdTzEyNuUciLA.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2021/08/22/ycn9OgpW8heLDCr.png" referrerpolicy="no-referrer">
+
+破、终里的香（外表年龄14岁ver）
+
+
+截的都是终开头回顾和正片里的，没有合适的正面、侧面画面就没截了。这么一看，仿佛是还珠一、还珠二、还珠三和新还珠之间的差别
+
+
+*****
+
+####  gaoxuanl  
+##### 1650#       发表于 2021-8-22 15:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52464186&amp;ptid=2013091" target="_blank">七七見奈波 发表于 2021-8-22 14:57</a>
+序、破、Q、终里的真嗣</blockquote>
+这么看终完全变成了jzgg的形状<img src="https://static.saraba1st.com/image/smiley/carton2017/291.gif" referrerpolicy="no-referrer">
+
+
+                                                 

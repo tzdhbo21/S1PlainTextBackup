@@ -6110,3 +6110,14 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 
 
                                                  
+
+*****
+
+####  xiongxingyu  
+##### 436#       发表于 2021-8-22 14:17
+
+
+卧槽刚刚手快没截下图，爬塔打370层时恋一发sp打了29.3m的分数，老子打肉鸽挂了一串buff都没打出过这么扯的伤害。泳装渚加4星遥子的爆分组合太夸张了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

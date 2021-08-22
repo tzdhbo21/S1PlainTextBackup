@@ -12253,3 +12253,75 @@ WOA~五咩贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072
 
 
                                                  
+
+*****
+
+####  路人庚  
+##### 1135#       发表于 2021-8-22 14:12
+
+
+晚安推还行，不出意外应该是凌晨or明早见（
+
+
+*****
+
+####  T_Hb  
+##### 1136#       发表于 2021-8-22 14:14
+
+
+2点钟晚安推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 1137#       发表于 2021-8-22 14:15
+
+
+麻了，这作息也太厉害了
+
+
+*****
+
+####  呓亘  
+##### 1138#       发表于 2021-8-22 14:22
+
+
+看来今天又没了
+
+
+*****
+
+####  Klience  
+##### 1139#       发表于 2021-8-22 14:23
+
+
+也就是凌晨12点打游戏打到现在才睡觉 这人迟早猝死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 1140#       发表于 2021-8-22 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52463458&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-8-22 13:26</a>
+直播都不看还是尽早remake，蠢货的信教论再多狗屁假大空理论支撑也改变不了本质就是个云人的事实
+ ...</blockquote>
+云了又如何呀，莫非还有人要给天狗下个定义立个标准？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+*****
+
+####  thisisaspider  
+##### 1141#       发表于 2021-8-22 15:18
+
+
+卧槽 是云人<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+                                                

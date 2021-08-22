@@ -3588,3 +3588,43 @@ id是481,947,084</blockquote>
 
 
                                                  
+
+*****
+
+####  里村紅葉  
+##### 82800#       发表于 2021-8-22 13:31
+
+
+泥潭也需要一个折叠功能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  alucardcz  
+##### 82801#       发表于 2021-8-22 13:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是挺好的吗 不然也没东西能说啊 总不能讨论今天狩猎掉了个双晶吧
+
+
+*****
+
+####  在海岸  
+##### 82802#       发表于 2021-8-22 13:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷了40W羁绊拿的石头无了 这游戏果然只能签到玩玩
+
+
+*****
+
+####  zakki  
+##### 82803#       发表于 2021-8-22 13:58
+
+
+刚发现妖兰的红龙灵衣宝具特效也变成红色了，很帅，可惜没法用啊，什么时候才能修复。。
+
+
+                                                
