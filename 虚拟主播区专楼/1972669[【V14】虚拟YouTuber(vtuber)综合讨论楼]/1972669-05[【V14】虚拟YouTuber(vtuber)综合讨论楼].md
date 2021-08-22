@@ -6761,3 +6761,111 @@ hnn终于决赛圈了
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 6541#       发表于 2021-8-22 20:43
+
+
+ 本帖最后由 hulaoda007 于 2021-8-22 20:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">光...
+
+看来强强猩猩要赢了。
+
+我看有人说大姐头才1杀...
+
+
+*****
+
+####  FCCHua  
+##### 6542#       发表于 2021-8-22 20:49
+
+
+ 本帖最后由 FCCHua 于 2021-8-22 21:01 编辑 
+
+狱卒最后一局爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+争冠热门一个接一个出门，星川所在的猩猩队伍稳冠军了吧，恭喜
+hnn真大腿，把队伍带成这样，坐牢不算多
+小千不是倒数第一就好，胜利了
+
+
+*****
+
+####  Map-2  
+##### 6543#       发表于 2021-8-22 20:50
+
+
+<[img src="https://i.loli.net/2021/08/22/PgfdwD7j3pnochr.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  烯丝短尾猫  
+##### 6544#       发表于 2021-8-22 20:51
+
+
+星川乾殿和猩猩应该第一了
+
+
+*****
+
+####  talse  
+##### 6545#       发表于 2021-8-22 20:51
+
+
+一之濑这最后的位置太好了，还是3个进攻角色，能最后入场劝架几乎是必胜
+
+
+*****
+
+####  hulaoda007  
+##### 6546#       发表于 2021-8-22 20:59
+
+
+大姐头倒数第二太惨了吧。
+
+猩猩第一，光君第二，myy第三应该是。
+
+
+*****
+
+####  Map-2  
+##### 6547#       发表于 2021-8-22 21:00
+
+
+<[img src="https://i.loli.net/2021/08/22/sowdQFbZ3Nn8TVc.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 6548#       发表于 2021-8-22 21:12
+
+
+ 本帖最后由 FCCHua 于 2021-8-22 21:22 编辑 
+
+马自立击杀王并列第三，12<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+贝妮赢麻了，昨天前夜祭的10万和今天的16名
+
+
+*****
+
+####  poipanchao  
+##### 6549#       发表于 2021-8-22 21:14
+
+
+夏大师天道酬勤，把你们脸都打肿
+
+
+*****
+
+####  winda  
+##### 6550#       发表于 2021-8-22 21:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">马自立12kill击杀榜并列第三，这就是大师的含金量啊
+
+
+                                                 

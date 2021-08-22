@@ -3912,3 +3912,102 @@ cnm贝壳我日
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 82828#       发表于 2021-8-22 20:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467195&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 20:12</a>
+你这也太麻烦了　　还是banana不换人双狐舒服　　
+
+
+你这不如干脆直接用ｃ狗。。。。</blockquote>
+不麻烦啊，只是你看我打了一堆看起来很复杂，其实就是X奥奥的常规操作方法，说白了就是一个奥伯龙当拐一个当打手。不过比较吃奥伯龙的宝具等级，一宝二面可能打不死
+
+
+*****
+
+####  qixinno2  
+##### 82829#       发表于 2021-8-22 21:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52466909&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 19:50</a>
+
+你非个猫儿　２。６不是全了　　萌新我有３个没有呢！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">年初没抽到村正啊 彩光剑转身棉被我很绝望啊
+
+
+*****
+
+####  alucardcz  
+##### 82830#       发表于 2021-8-22 21:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467817&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-22 21:05</a>
+
+年初没抽到村正啊 彩光剑转身棉被我很绝望啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">２。６又没ｕｐ村正　当然不算
+
+
+
+
+*****
+
+####  alucardcz  
+##### 82831#       发表于 2021-8-22 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467710&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-22 20:57</a>
+
+不麻烦啊，只是你看我打了一堆看起来很复杂，其实就是X奥奥的常规操作方法，说白了就是一个奥伯龙当拐一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下　不太舒适　因为没硬币开ｎｐ１０我还手动给了他５０ｎｐ　最终还是不如娜狐狐简单粗暴
+
+
+*****
+
+####  qixinno2  
+##### 82832#       发表于 2021-8-22 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52467834&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 21:06</a>
+
+２。６又没ｕｐ村正　当然不算</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只能说今年日服出货率比较高而已 感觉绝大多数人都能白嫖到
+
+
+*****
+
+####  alucardcz  
+##### 82833#       发表于 2021-8-22 21:23
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 82834#       发表于 2021-8-22 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52468003&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-22 21:21</a>
+
+只能说今年日服出货率比较高而已 感觉绝大多数人都能白嫖到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这叫什么　这就叫欧
+
+
+*****
+
+####  qixinno2  
+##### 82835#       发表于 2021-8-22 21:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52468040&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-22 21:23</a>
+
+这叫什么　这就叫欧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">也就是亚洲人水平吧 过去的出货率跟今年完全不能比啊 感觉像献祭了什么一样
+
+
+                                                
