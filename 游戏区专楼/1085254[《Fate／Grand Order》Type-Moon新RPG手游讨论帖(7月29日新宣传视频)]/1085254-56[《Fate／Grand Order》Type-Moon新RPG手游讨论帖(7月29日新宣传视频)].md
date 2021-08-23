@@ -4184,3 +4184,689 @@ C狗不换人第一面大概率射不死<img src="https://static.saraba1st.com/i
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 82851#       发表于 2021-8-23 12:02
+
+
+QP刷到9亿实在不想刷了，暂时应该够用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82852#       发表于 2021-8-23 12:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我15亿，开始清强化本
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  khxooo  
+##### 82853#       发表于 2021-8-23 12:16
+
+
+只有两亿，毫无压力<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82854#       发表于 2021-8-23 12:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只有1亿多点的完全不慌
+
+
+*****
+
+####  alucardcz  
+##### 82855#       发表于 2021-8-23 12:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">稳定控制在19。6亿的萌新看着你们
+
+
+*****
+
+####  被子十三  
+##### 82856#       发表于 2021-8-23 12:46
+
+
+2.6终于通关了，今天一口气打了六七个小时
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">感想过几天整理一下吧（正好可以爬楼看看大家的感想），就有个问题
+<img src="https://p.sda1.dev/2/fc970720f6d8795e0bc9cf509b54807c/Screenshot_20210822-235337_13e7a6b1087387188a64bd1592e629e3__01.jpg" referrerpolicy="no-referrer">
+在妖崔领地附近的那个水晶森林，好像是剧情从头到尾都没出现过？
+贝利尔Beryl是绿柱石，他叫妖崔Spinel，尖晶石。我还以为这里会有梗的。看上去这一块就完全被搁置了？
+而且这个水晶森林在地图上看还很明显的，我从第一次进地图开始就盯着这个点了，应该不会漏掉才对。Free本的地点也是达灵顿的地牢
+
+
+*****
+
+####  被子十三  
+##### 82857#       发表于 2021-8-23 12:52
+
+
+说到名字这里，佩佩全名斯堪地纳维亚•佩佩隆奇诺。我还记得在2.2时候CBA提到他名字的时候还刻意说了句「佩佩隆奇诺，好有趣的名字」，我当时就想吐槽老姐你自己身在斯堪地纳维亚居然看到这个名字没别的触动的吗…
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">说不定A组的人名就真的是瞎起的
+
+
+*****
+
+####  zakki  
+##### 82858#       发表于 2021-8-23 13:55
+
+
+ 本帖最后由 zakki 于 2021-8-23 14:04 编辑 
+
+刚发现这个本用一宝道满加双奥伯龙都能不换人六加成，而且比打暴击的稳定，完全不看发卡，奥伯龙自己打三面伤害竟然这么高，奥伯龙这卡强度实在太破格了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/ff160f8e546bc32c5b96114e612edd3e/IMG_CMP_699965.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82859#       发表于 2021-8-23 14:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52475320&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 13:55</a>
+
+刚发现这个本用一宝道满加双奥伯龙都能不换人六加成，而且比打暴击的稳定，完全不看发卡，奥伯龙自己打三面 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么能天天贩卖焦虑呢
+
+
+*****
+
+####  zakki  
+##### 82860#       发表于 2021-8-23 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52475426&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 14:07</a>
+
+你怎么能天天贩卖焦虑呢</blockquote>
+这伤害实在太高了，3宝弓凛也才76w，不行我得去nga贩卖一波，之前他们那普遍认定奥伯龙没要抽高宝，高宝奥伯龙是大佬的玩具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  alucardcz  
+##### 82861#       发表于 2021-8-23 14:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52475475&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 14:11</a>
+
+这伤害实在太高了，3宝弓凛也才76w，不行我得去nga贩卖一波，之前他们那普遍认定奥伯龙没要抽高宝，高宝奥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你对nga是真爱啊（
+
+
+*****
+
+####  zakki  
+##### 82862#       发表于 2021-8-23 14:22
+
+
+翻页
+
+
+*****
+
+####  zakki  
+##### 82863#       发表于 2021-8-23 14:22
+
+
+翻页
+
+
+*****
+
+####  zakki  
+##### 82864#       发表于 2021-8-23 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52475546&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 14:17</a>
+
+你对nga是真爱啊（</blockquote>
+只是想反驳那些说奥伯龙高宝没用的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82865#       发表于 2021-8-23 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52475892&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 14:48</a>
+
+只是想反驳那些说奥伯龙高宝没用的人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去看了下 打起来打起来了（
+
+
+*****
+
+####  千叶铁矢  
+##### 82866#       发表于 2021-8-23 15:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52475475&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 14:11</a>
+这伤害实在太高了，3宝弓凛也才76w，不行我得去nga贩卖一波，之前他们那普遍认定奥伯龙没要抽高宝，高宝奥 ...</blockquote>
+奥博龙一瞅就要抽高宝的啊，不用衣服6加成打上三吸引力太大了
+
+
+*****
+
+####  千叶铁矢  
+##### 82867#       发表于 2021-8-23 15:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52475892&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 14:48</a>
+只是想反驳那些说奥伯龙高宝没用的人</blockquote>
+甚至前几天nga到处都能看到不用抽杀狐奥博龙的言论
+
+
+*****
+
+####  xiongxingyu  
+##### 82868#       发表于 2021-8-23 15:25
+
+
+ 本帖最后由 xiongxingyu 于 2021-8-23 15:26 编辑 
+
+奥伯龙作为打手类似小芬奇和小王子这种吧，抽1宝也能靠辅助能力上班，抽满宝则可以极大提升自己（以及好友）的游戏（偷懒）体验，反正有钱就抽呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82869#       发表于 2021-8-23 15:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52475892&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 14:48</a>
+
+只是想反驳那些说奥伯龙高宝没用的人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了看最新战况 宝鸡队已经前来喷你了  下面也没几个人是站你这边的 形式非常不妙啊？
+
+
+*****
+
+####  zakki  
+##### 82870#       发表于 2021-8-23 15:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52476158&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-23 15:05</a>
+
+甚至前几天nga到处都能看到不用抽杀狐奥博龙的言论</blockquote>
+本质是因为自己刚抽了蓝卡队，不想看到一年后蓝卡不如红卡高光的场景出现，带着立场吹黑的，这几天的狩猎蓝卡队是真不好上场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82871#       发表于 2021-8-23 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52476423&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 15:25</a>
+
+看了看最新战况 宝鸡队已经前来喷你了  下面也没几个人是站你这边的 形式非常不妙啊？ ...</blockquote>
+还行吧，总共就没几个回复，倒是一开始还有俩赞，刚才一看就一个赞了，看来吹奥伯龙确实让有的人不爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82872#       发表于 2021-8-23 15:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52476500&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 15:30</a>
+
+还行吧，总共就没几个回复，倒是一开始还有俩赞，刚才一看就一个赞了，看来吹奥伯龙确实让有的人不爽了[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定现在已经是负数了 可惜现在不显示
+
+
+*****
+
+####  千叶铁矢  
+##### 82873#       发表于 2021-8-23 15:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52476470&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 15:28</a>
+本质是因为自己刚抽了蓝卡队，不想看到一年后蓝卡不如红卡高光的场景出现，带着立场吹黑的，这几天的狩猎 ...</blockquote>
+等他们多打几个90+就闭嘴了
+
+
+*****
+
+####  alucardcz  
+##### 82874#       发表于 2021-8-23 15:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52476599&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-23 15:38</a>
+
+等他们多打几个90+就闭嘴了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闭嘴是不可能闭嘴的  他们甚至会掏出陈宫还用奥师傅拐 就这样依然说奥师傅没必要抽  
+
+
+*****
+
+####  zakki  
+##### 82875#       发表于 2021-8-23 15:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52476612&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 15:39</a>
+
+闭嘴是不可能闭嘴的  他们甚至会掏出陈宫还用奥师傅拐 就这样依然说奥师傅没必要抽   ...</blockquote>
+他们那现在真的是把仇凛吹上天了，未来一年抽什么，别问问就是攒石all in仇凛，杀狐奥伯龙都可以不要，铁打的仇凛流水的拐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82876#       发表于 2021-8-23 17:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天的还吃狐狸特攻 c狗师傅+奥狐闭眼6加成
+
+
+*****
+
+####  khxooo  
+##### 82877#       发表于 2021-8-23 17:47
+
+
+爪子，黑灰，我TM刷爆<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82878#       发表于 2021-8-23 17:54
+
+
+<blockquote>引用第82876楼khxooo于2021-08-23 17:47发表的  :
+
+爪子，黑灰，我TM刷爆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">瞄了眼仓库里1000坨灰和360个爪子………………
+你缺这个？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  sosgame67  
+##### 82879#       发表于 2021-8-23 18:01
+
+
+nga狂吹仇凛已经到了自我洗  脑的地步了（前一个这么吹的角色是陈宫），明明是日服云玩家居多一个个比日服玩家还纠结强度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82880#       发表于 2021-8-23 18:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狂娜这首红爆击到底能打多少伤害 最后一跳80000 是不是加起来过30万了？
+
+
+*****
+
+####  zakki  
+##### 82881#       发表于 2021-8-23 18:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478528&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 18:04</a>
+狂娜这首红爆击到底能打多少伤害 最后一跳80000 是不是加起来过30万了？ ...</blockquote>
+也没多高吧，肯定不到20w。特攻就相当于爆伤
+
+
+*****
+
+####  zakki  
+##### 82882#       发表于 2021-8-23 18:11
+
+
+给C狗点技能术饼干竟然差两个，想去刷，一看减半结束了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82883#       发表于 2021-8-23 18:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478573&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 18:10</a>
+
+也没多高吧，肯定不到20w。特攻就相当于爆伤</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一跳8万应该不只20万吧 
+
+
+*****
+
+####  zakki  
+##### 82884#       发表于 2021-8-23 18:22
+
+
+ 本帖最后由 zakki 于 2021-8-23 18:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478589&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 18:11</a>
+最后一跳8万应该不只20万吧</blockquote>
+用那个计算器按了下，打满纹章的狂娜确实挺高的，但其实和摩根差不多
+
+
+*****
+
+####  alucardcz  
+##### 82885#       发表于 2021-8-23 18:25
+
+
+ 本帖最后由 alucardcz 于 2021-8-23 18:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478712&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 18:22</a>
+
+用那个计算器按了下，打满纹章的狂娜确实挺高的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 多段伤害 到底总伤多少都看不到  刚刚试了下吃2个万物特攻就第1张红卡后面都不是最后一跳也过10万了  我狂娜是百级满金狗的
+
+
+*****
+
+####  zakki  
+##### 82886#       发表于 2021-8-23 18:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478740&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 18:25</a>
+哎 多段伤害 到底总伤多少都看不到  刚刚试了下吃2个万物特攻就第1张红卡后面都不是最后一跳也过10 ...</blockquote>
+计算器按的不知道对不对，特不特攻暴击伤害也就差两三万
+<img src="https://p.sda1.dev/2/bf338c275d9a879281b3315074a8d2ca/IMG_CMP_25328524.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82887#       发表于 2021-8-23 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478792&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 18:28</a>
+
+计算器按的不知道对不对，特不特攻暴击伤害也就差两三万</blockquote>
+错的挺离谱的。。我最后一跳都10万了。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82888#       发表于 2021-8-23 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478831&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 18:31</a>
+错的挺离谱的。。我最后一跳都10万了。。</blockquote>
+你上了多少buff？我就是双杀狐，然后摩根和狂娜不带礼装。摩根红蓝红暴击31w，狂娜特攻的话三红是39w。
+
+
+*****
+
+####  alucardcz  
+##### 82889#       发表于 2021-8-23 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478866&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 18:33</a>
+
+你上了多少buff？我就是双杀狐，然后摩根和狂娜不带礼装。摩根红蓝红暴击31w，狂娜特攻的话三红是39w。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就杀狐啊 等我录个视频去
+
+
+*****
+
+####  zakki  
+##### 82890#       发表于 2021-8-23 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478875&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 18:34</a>
+就杀狐啊 等我录个视频去</blockquote>
+没必要录<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">算着玩玩而已，可能是你的2000芙芙提升很高，百级的狂娜单看atk不如摩根高
+
+
+
+
+*****
+
+####  alucardcz  
+##### 82891#       发表于 2021-8-23 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478887&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 18:35</a>
+
+没必要录算着玩玩而已，可能是你的2000芙芙提升很高，百级的狂娜单看atk不如摩根高 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我闲 看了看录像粗略估计单红卡差不多30万 我去传阿b玩玩
+
+
+*****
+
+####  alucardcz  
+##### 82892#       发表于 2021-8-23 18:47
+
+
+翻页
+
+
+*****
+
+####  zakki  
+##### 82893#       发表于 2021-8-23 18:54
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 82894#       发表于 2021-8-23 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478887&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 18:35</a>
+
+没必要录算着玩玩而已，可能是你的2000芙芙提升很高，百级的狂娜单看atk不如摩根高 ...</blockquote>
+[https://www.bilibili.com/video/BV15A411c7bz/](https://www.bilibili.com/video/BV15A411c7bz/)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">视频 反正就几秒  暂停粗略算了算大概29万？  3红估计得上百万了。。。跟你计算出的3红才39差了10万八千里  
+
+
+*****
+
+####  zakki  
+##### 82895#       发表于 2021-8-23 19:05
+
+
+ 本帖最后由 zakki 于 2021-8-23 19:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479124&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 18:57</a>
+https://www.bilibili.com/video/BV15A411c7bz/
+
+
+视频 反正就几秒  暂停粗略算了算大概29万？  3 ...</blockquote>
+你这个狂娜的礼装带爆伤吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82896#       发表于 2021-8-23 19:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479216&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 19:05</a>
+
+你这个狂娜的礼装带爆伤吧</blockquote>
+宝石翁啊
+
+
+*****
+
+####  zakki  
+##### 82897#       发表于 2021-8-23 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479219&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 19:06</a>
+宝石翁啊</blockquote>
+想起来了，是杀狐的特攻，我算的那个是不考虑礼装和杀狐特攻的
+
+
+*****
+
+####  khxooo  
+##### 82898#       发表于 2021-8-23 19:09
+
+
+ 本帖最后由 khxooo 于 2021-8-23 19:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478408&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-23 17:54</a>
+
+瞄了眼仓库里1000坨灰和360个爪子………………
+
+你缺这个？</blockquote>
+缺，就算圣诞加尼禄祭复刻总共刷了400多池，就算有空就住在夏洛特，我一样缺黑灰
+
+
+*****
+
+####  alucardcz  
+##### 82899#       发表于 2021-8-23 19:09
+
+
+ 本帖最后由 alucardcz 于 2021-8-23 19:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479248&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 19:08</a>
+
+想起来了，是杀狐的特攻，我算的那个是不考虑礼装和杀狐特攻的</blockquote>
+想试下不开特攻的 但是不开没星 只能算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过也没能差这么多吧。单红约等于3红？
+
+
+*****
+
+####  zakki  
+##### 82900#       发表于 2021-8-23 19:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479263&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 19:09</a>
+想试下不开特攻的 但是不开没星 只能算了</blockquote>
+二技能给杀狐自己呗
+
+
+*****
+
+####  alucardcz  
+##### 82901#       发表于 2021-8-23 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479270&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 19:11</a>
+
+二技能给杀狐自己呗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下 21万  和你算的差距也挺大的     
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不过这么看20万血左右的都是狂娜单红射程内。。挺好
+
+
+*****
+
+####  zakki  
+##### 82902#       发表于 2021-8-23 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479307&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 19:15</a>
+试了下 21万  和你算的差距也挺大的     </blockquote>
+你那个毕竟是2000金芙芙的，1000攻击力对暴击伤害提升很多的，而且还有百级宝石的2000攻，比我算得这个多了3000攻，可能还要加上兽足纹章啥的，误差大很正常，我其实想说的是单论一张红卡的暴击伤害，相同条件下狂娜不如摩根，但狂娜赢在多一张红卡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82903#       发表于 2021-8-23 19:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479427&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 19:25</a>
+
+你那个毕竟是2000金芙芙的，1000攻击力对暴击伤害提升很多的，而且还有百级宝石的2000攻，比我算得这个多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这阵容换摸根第3面打不死 很真实
+
+
+*****
+
+####  zakki  
+##### 82904#       发表于 2021-8-23 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479439&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 19:26</a>
+这阵容换摸根第3面打不死 很真实</blockquote>
+摩根宝具伤害肯定和狂娜没得比
+
+
+*****
+
+####  alucardcz  
+##### 82905#       发表于 2021-8-23 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479453&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 19:27</a>
+
+摩根宝具伤害肯定和狂娜没得比</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到你说兽足 我去看了 不够拉满3张红卡  还差8个
+
+
+*****
+
+####  zakki  
+##### 82906#       发表于 2021-8-23 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479473&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 19:28</a>
+看到你说兽足 我去看了 不够拉满3张红卡  还差8个</blockquote>
+太费qp了，而且只能拉两个
+
+
+*****
+
+####  alucardcz  
+##### 82907#       发表于 2021-8-23 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479511&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-23 19:32</a>
+
+太费qp了，而且只能拉两个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">qp那是什么 满中满了  主要我小时候把伯爵的绿卡拉满了
+
+
+*****
+
+####  黑上シグマ  
+##### 82908#       发表于 2021-8-23 19:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像我就不一样了，兽足我一个都没用过
+
+
+*****
+
+####  alucardcz  
+##### 82909#       发表于 2021-8-23 19:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新现在在考虑拉一个120  但是还没想到拉谁好
+
+
+*****
+
+####  qb0079  
+##### 82910#       发表于 2021-8-23 20:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这212的杀本，妖兰还是3T杀穿
+
+
+                                               

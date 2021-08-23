@@ -7053,3 +7053,307 @@ rrm代打第二局的公主位<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+*****
+
+####  free  
+##### 6568#       发表于 2021-8-23 11:35
+
+
+ 本帖最后由 free 于 2021-8-23 11:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52470656&amp;ptid=1972669" target="_blank">free 发表于 2021-8-23 02:23</a>
+
+声线没啥感觉不过这口音有点怪怪的，不知道是哪里人
+
+挺开朗阳角爱笑的我喜欢
+
+画力很高，在杏内部应该仅次于 ...</blockquote>
+上午快速拉着看了下后面四位
+
+
+自然：温柔萌音声线养gachi型的，最喜欢奥数魔刃每周都要搞，唱歌普通人，可能会是SC比较多的那种
+
+
+时间：英日韩三语，御姐声线，听着有点紧张，头顶那个表居然真的会转......
+
+
+文明：据说是金盾转生不过看起来也挺紧张的，上来放了首原创曲，皮应该是最好的一个，吉祥物挺可爱
+
+
+混沌：有点刻意捏了类似月月那种元气闹腾声线，能聊爱笑，最后5人联动也是C位主持，以后大概就是联动担当了
+
+
+除了第一个sana的画力之外还没有人表现出其他特别出众的才艺特长，唱歌全部是普通人水平
+
+每个人都在长篇大论念自己的中二设定，这种创世神级别的设定，如果后面不能和直播RP结合起来的话可能会比较尬
+
+最后预告了还有个第六人 omegaα，不知道是干啥的
+
+
+总结来说远没有en一期有意思，不太看好能更进一步扩圈
+
+
+我自己最喜欢第一个空间sana，不过皮太糟糕了可能是底边，发展最看好的可能是最后的混沌吧
+
+
+*****
+
+####  winsloven  
+##### 6569#       发表于 2021-8-23 14:10
+
+
+1期直接把UR,SSR都抽完了，只剩下SR了，还不能换池子。
+
+
+*****
+
+####  OldGlory  
+##### 6570#       发表于 2021-8-23 15:13
+
+
+谁说池子不能换的，holoes也是时候该准备起来了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  aptx318  
+##### 6571#       发表于 2021-8-23 18:36
+
+
+看起来你虹新人buff消散了
+
+
+*****
+
+####  qq845629713  
+##### 6572#       发表于 2021-8-23 19:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 尊这新衣服和KING什么情侣装
+
+
+*****
+
+####  alcoholic1000  
+##### 6573#       发表于 2021-8-23 19:24
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-23 19:57 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/23/192026il4eccaalbxe34bx.png" referrerpolicy="no-referrer">
+
+
+<strong>鬼に恋しちゃダメですか？ 5ルート目 　【 #竜胆尊新衣装 】-2.png</strong> (158.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 19:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/23/192028ugk54wkwrtq4tzqh.png" referrerpolicy="no-referrer">
+
+
+<strong>鬼に恋しちゃダメですか？ 5ルート目 　【 #竜胆尊新衣装 】-1.png</strong> (107.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 19:20 上传
+
+
+男友衬衫
+
+
+<img src="https://img.saraba1st.com/forum/202108/23/195703qhwgyll4o1hqoyof.png" referrerpolicy="no-referrer">
+
+
+<strong>鬼に恋しちゃダメですか？ 5ルート目 　【 #竜胆尊新衣装 】-3.png</strong> (156.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 19:57 上传
+
+
+*****
+
+####  Suny08  
+##### 6574#       发表于 2021-8-23 19:39
+
+
+众所周知私服都会参考本人的设计，所以尊平时是不是就是穿这套和king约会的
+
+
+*****
+
+####  超能力者stven  
+##### 6575#       发表于 2021-8-23 19:40
+
+
+居家穿衣服吗
+
+
+*****
+
+####  FCCHua  
+##### 6576#       发表于 2021-8-23 19:46
+
+
+去掉外套的版本也很好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 6577#       发表于 2021-8-23 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 以KING和尊的身高差，不穿个这种高跟鞋，可能都挽不到KING的胳膊，，
+
+
+*****
+
+####  十四洲  
+##### 6578#       发表于 2021-8-23 19:54
+
+
+ 本帖最后由 十四洲 于 2021-8-23 20:01 编辑 
+
+白雪新衣服披露拖得油管都看不下去了
+
+哈！？？帅哥你谁！？？整容了？
+
+
+*****
+
+####  alcoholic1000  
+##### 6579#       发表于 2021-8-23 20:00
+
+
+无言投下
+
+<img src="https://img.saraba1st.com/forum/202108/23/200001t11r51iui1ya4yrh.png" referrerpolicy="no-referrer">
+
+
+<strong>葛葉 初期.png</strong> (68.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 20:00 上传
+
+
+*****
+
+####  qq845629713  
+##### 6580#       发表于 2021-8-23 20:05
+
+
+<img src="https://img.saraba1st.com/forum/202108/23/200443yhczftgotvgeth5x.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210823200106.png</strong> (85.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 20:04 上传
+
+
+笑嘻了，早该换换了
+
+
+*****
+
+####  SuntoryNomu  
+##### 6581#       发表于 2021-8-23 20:07
+
+
+口八我的口八 <blockquote>Roha @RohaLee2434
+
+🔔START 21:00~
+
+
+日本での最後のYoutube配信！ちょっと悲しいかも
+
+思い出を振り返ってみようか
+
+
+일본에서의 마지막 유튜브방송! 조금 슬플지도 
+
+추억들 되돌아보자</blockquote>
+👇
+[https://youtu.be/cQbWP7eCrVw](https://youtu.be/cQbWP7eCrVw)
+
+
+<img src="https://img.saraba1st.com/forum/202108/23/200656o7ednnub2555ojs2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E9d7NhgVIAEXRlD.jpg</strong> (205.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 20:06 上传
+
+
+*****
+
+####  hulaoda007  
+##### 6582#       发表于 2021-8-23 20:15
+
+
+阿柴该展现种人的超实力了。
+
+
+*****
+
+####  talse  
+##### 6583#       发表于 2021-8-23 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52479790&amp;ptid=1972669" target="_blank">十四洲 发表于 2021-8-23 19:54</a>
+
+白雪新衣服披露拖得油管都看不下去了
+
+哈！？？帅哥你谁！？？整容了？</blockquote>
+然后全程歪头看一边太草了
+
+
+*****
+
+####  dybang  
+##### 6584#       发表于 2021-8-23 20:21
+
+
+3d卡拉ok真不错<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">有没有3d酒会的
+
+
+*****
+
+####  FCCHua  
+##### 6585#       发表于 2021-8-23 20:30
+
+
+kemt原来唱了图灵爱啊，有必要补一补<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 6586#       发表于 2021-8-23 20:48
+
+
+[https://www.youtube.com/watch?v=wuj3JiMM-f0](https://www.youtube.com/watch?v=wuj3JiMM-f0)
+
+裸春又出了个新人 明透，米山舞画的
+
+
+*****
+
+####  Map-2  
+##### 6587#       发表于 2021-8-23 20:53
+
+
+卧槽，米山舞<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+                                                

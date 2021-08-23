@@ -2701,3 +2701,116 @@ https://share.dmhy.o ...</blockquote>
 
 
                                                  
+
+*****
+
+####  杂灰  
+##### 1669#       发表于 2021-8-23 12:46
+
+
+上周总算一口气补完这系列了，除了依旧不能理解cp党以外，总体来说还是不错的体验，就是一口气看下来感觉就是相比前面，终变得有点土，农家乐那段真的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1670#       发表于 2021-8-23 13:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52474557&amp;ptid=2013091" target="_blank">杂灰 发表于 2021-8-23 12:46</a>
+上周总算一口气补完这系列了，除了依旧不能理解cp党以外，总体来说还是不错的体验，就是一口气看下来感觉就 ...</blockquote>
+看纪录片里的情况，痞子太执着于让人看懂了，毕竟是最后了，土才是想要的效果吧，大概率和eoe里那样的模棱两可的装逼台词都被改过了，像是司令的自白。
+
+终里我唯一要思考这是干啥的地方只有新2和8号机那个从天而降的掌法了，好像是atf组成像是盾构机一样的东西。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  牧濑kurisu  
+##### 1671#       发表于 2021-8-23 13:53
+
+
+昨天看了个lolihouse字幕的 看得难受 
+
+回头看看漫游的怎么样
+
+
+*****
+
+####  霧亥  
+##### 1672#       发表于 2021-8-23 13:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52474921&amp;ptid=2013091" target="_blank">ads147147 发表于 2021-8-23 13:14</a>
+看纪录片里的情况，痞子太执着于让人看懂了，毕竟是最后了，土才是想要的效果吧，大概率和eoe里那样的模 ...</blockquote>
+那是破里初号机用过的招数，你就当能量密度太高导致力场晶体化就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  秋开  
+##### 1673#       发表于 2021-8-23 14:57
+
+
+话说轮回说有没有官方定论
+
+
+*****
+
+####  rhubarb  
+##### 1674#       发表于 2021-8-23 17:39
+
+
+<blockquote>任天索尼子 发表于 2021-8-23 03:08
+差不多得了 前面一个个都说真希波是安野 这两天又开始说明日香才是安野 啥都让你们说完了 哦对了 前几天 ...</blockquote>
+不要理磕cp磕到魔怔的宗教哥
+
+
+*****
+
+####  liwangli1983  
+##### 1675#       发表于 2021-8-23 17:55
+
+
+美里最后用来生成新枪那玩意是什么东西，字幕说是脊柱，但看着好像是中间有两条很粗的线外面包着金属？飞船靠这玩意和初号机相联？
+
+
+*****
+
+####  password  
+##### 1676#       发表于 2021-8-23 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52475294&amp;ptid=2013091" target="_blank">牧濑kurisu 发表于 2021-8-23 13:53</a>
+昨天看了个lolihouse字幕的 看得难受 
+
+回头看看漫游的怎么样</blockquote>
+lolihouse是压制组，里面的字幕就是差评一片的亚马逊官中
+
+
+*****
+
+####  夏延  
+##### 1677#       发表于 2021-8-23 18:54
+
+
+如果说tv版是让观众理解主动去理解庵野想表达什么，新剧场版就是庵野照着观众的剧评又重新抄了一遍。当然tv版本身也只对95年的日本有意义而已。
+
+
+*****
+
+####  pkeva  
+##### 1678#       发表于 2021-8-23 20:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52478255&amp;ptid=2013091" target="_blank">rhubarb 发表于 2021-8-23 17:39</a>
+
+不要理磕cp磕到魔怔的宗教哥</blockquote>
+老哥，你要拆cp当然可以，但是你得搞清楚拆cp能体现什么东西，能不能提升作品的艺术价值。痞子花10年拍一部作品就是来恶心自己，那他就不可能敢以大师自居了。
+
+
+                                                 

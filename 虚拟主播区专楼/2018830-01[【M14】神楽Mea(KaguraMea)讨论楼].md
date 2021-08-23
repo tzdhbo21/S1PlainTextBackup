@@ -13593,3 +13593,517 @@ citrus  可以
 
 
                                                  
+
+*****
+
+####  Mr.shelter  
+##### 1247#       发表于 2021-8-23 12:13
+
+
+一觉起来你楼车了这么多，一看全都没营养<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mr.shelter  
+##### 1248#       发表于 2021-8-23 12:13
+
+
+一觉起来你楼车了这么多，一看全都没营养<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1249#       发表于 2021-8-23 12:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">车轱辘还能有营养吗
+
+
+*****
+
+####  Klience  
+##### 1250#       发表于 2021-8-23 12:15
+
+
+坦克车能算营养吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1251#       发表于 2021-8-23 12:27
+
+
+坦克营养丰富<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1252#       发表于 2021-8-23 13:03
+
+
+ 本帖最后由 T_Hb 于 2021-8-23 13:06 编辑 
+
+桃铁续了50年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/23/130429ycoj3wwy3rwcx6pp.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (3.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 13:04 上传
+
+
+*****
+
+####  时间在我手中  
+##### 1253#       发表于 2021-8-23 13:17
+
+
+希望今天能完事<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1254#       发表于 2021-8-23 13:32
+
+
+<img src="https://img.saraba1st.com/forum/202108/23/133218xn5kwc5zdm533kw8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (69.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 13:32 上传
+
+
+*****
+
+####  肥到终点  
+##### 1255#       发表于 2021-8-23 13:39
+
+
+不是很懂你们S1，这都能车轱辘<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1256#       发表于 2021-8-23 13:53
+
+
+吊人今天多半寄了，连续大波比
+
+
+*****
+
+####  T_Hb  
+##### 1257#       发表于 2021-8-23 13:57
+
+
+<img src="https://img.saraba1st.com/forum/202108/23/135658g68oij6q98w678g9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (74.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 13:56 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以摆烂了
+
+
+*****
+
+####  专业划水人员  
+##### 1258#       发表于 2021-8-23 14:02
+
+
+这游戏平衡性啊。。。刚变完一回合又变。
+
+
+*****
+
+####  路人庚  
+##### 1259#       发表于 2021-8-23 14:02
+
+
+这笑声是健康的证明（）
+
+
+*****
+
+####  时间在我手中  
+##### 1260#       发表于 2021-8-23 14:04
+
+
+已经可以大喊**退钱了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  T_Hb  
+##### 1261#       发表于 2021-8-23 14:05
+
+
+ 本帖最后由 T_Hb 于 2021-8-23 14:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> X3
+
+<img src="https://img.saraba1st.com/forum/202108/23/140600lhgerebwh1bbtwto.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (16.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 14:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/23/140826qjn1dqnfy10n01yr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (17.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 14:08 上传
+
+
+卧槽，无敌了
+
+
+*****
+
+####  往世雷书  
+##### 1262#       发表于 2021-8-23 14:06
+
+
+如果30分钟5万，这些钱要多久还清
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  时间在我手中  
+##### 1263#       发表于 2021-8-23 14:13
+
+
+ 本帖最后由 时间在我手中 于 2021-8-23 14:21 编辑 
+
+不用还，有机制可以直接归零
+
+但是房产这些是没了，看脸吧接下来
+
+syl 被说个big就怀疑haneru骂她debu，看来是戳到痛处了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克民，赢！
+
+
+*****
+
+####  JY要塞  
+##### 1264#       发表于 2021-8-23 14:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克民已经赢无可赢了
+
+
+*****
+
+####  JY要塞  
+##### 1265#       发表于 2021-8-23 14:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克民已经赢无可赢了
+
+
+*****
+
+####  专业划水人员  
+##### 1266#       发表于 2021-8-23 14:26
+
+
+线下过的人说的，这就是坦克石锤了
+
+
+*****
+
+####  T_Hb  
+##### 1267#       发表于 2021-8-23 14:28
+
+
+但是兔妈刚刚还说了年轻可爱的肉体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 1268#       发表于 2021-8-23 14:29
+
+
+肉体民永远有一颗想把你麻抱起来透的心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1269#       发表于 2021-8-23 14:31
+
+
+小肥猪也很可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肉质白嫩不代表不肥
+
+
+syl  看来是从负债地狱爬出来了，开始诅咒别人遭重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1270#       发表于 2021-8-23 14:33
+
+
+汤河原替你咩背了10兆的欠债，属实大善人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1271#       发表于 2021-8-23 15:01
+
+
+ 本帖最后由 T_Hb 于 2021-8-23 15:03 编辑 
+
+舞元刚刚好像说2434甲子园 兔妈和咩
+
+<img src="https://img.saraba1st.com/forum/202108/23/150357c19v2izjrg11rhr9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (39.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 15:03 上传
+
+
+*****
+
+####  2014720  
+##### 1272#       发表于 2021-8-23 15:05
+
+
+神乐mea：我忍辱负重都是为了今天！
+
+
+*****
+
+####  时间在我手中  
+##### 1273#       发表于 2021-8-23 15:06
+
+
+ 本帖最后由 时间在我手中 于 2021-8-23 15:08 编辑 
+
+真就一茬又一茬啊，不过这玩意儿我记得同接乓高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然没啥意义就是了，我看不懂棒球
+
+哦不对，这玩意儿我想起来了，是捏人五元解说系列吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1274#       发表于 2021-8-23 15:10
+
+
+那挺好，不用看了
+
+
+*****
+
+####  路人庚  
+##### 1275#       发表于 2021-8-23 15:15
+
+
+2434甲子园本质还是虹社内部团建玩梗大联动，外社的基本都是路人npc的感觉，大概也不需要太当回事（
+
+
+*****
+
+####  时间在我手中  
+##### 1276#       发表于 2021-8-23 15:21
+
+
+本质来说和吊人的确没啥关系就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+问题来了，这人今天还会播吗，记得今晚有盒限吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 1277#       发表于 2021-8-23 20:22
+
+
+这种联动这人一般屁都不放一个，过去当个花瓶给五元垫屁股救完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在这人整的舞咩连体比以前的贝贝连体味还大，算是给我省时间了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 1278#       发表于 2021-8-23 20:29
+
+
+那倒不至于，至少字幕组不会给你整个舞咩私货加急烤肉之类的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  时间在我手中  
+##### 1279#       发表于 2021-8-23 20:33
+
+
+yysy，这桃铁联动啥的吊人能半天不说话，剪个几把呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说无聊的东西整起来就很没劲
+
+
+*****
+
+####  路人庚  
+##### 1280#       发表于 2021-8-23 20:34
+
+
+神乐mea一部分拆腻子独角兽粉丝的共同特征：
+
+联动基本云（但喜欢说联动不行✋
+
+舞元无脑黑（就汗meaqua无脑粉一样令人尴尬🤷‍♂️
+
+歌回挂后台（因为要忙着打游戏😊
+
+TC全不追（也不会去补，因为全是日语谁听得懂啊😨
+
+
+syl，感觉咩啊怕不是联动完之后直接去补觉了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时间在我手中| + 1|联动看情况吧，前天那个真不行是真的.|
+
+
+查看全部评分
+
+
+*****
+
+####  T_Hb  
+##### 1281#       发表于 2021-8-23 20:43
+
+
+我坦白，这么多年我全是云的
+
+今天桃铁不就是怨妇模式，然后复读，切啥
+
+
+*****
+
+####  Klience  
+##### 1282#       发表于 2021-8-23 20:44
+
+
+歌会一般来讲不都是挂后台吗 谁会一直盯着画面看啊 本质也是一边听歌一边打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1283#       发表于 2021-8-23 20:47
+
+
+ 本帖最后由 时间在我手中 于 2021-8-23 20:48 编辑 
+
+桃铁只是个缩影我只能说，最近舞元我没太搞懂为什么愿意口头自称是吊人男朋友而已。
+
+
+也懒得补以前录播找原因，反正听了这么久套路还是那样，复读复读复读
+
+
+今年有意思的联动有倒是有，但是最近感觉就挺复读机的，看到棉花糖问题都觉得犯困的那种
+
+上次和haneru两人杂谈也有点不错的片段，可是我校对哥哥要上学了
+
+
+想了想要不要干脆认真点学日语算了，老指望和麻烦别人我也过意不去，蛋疼
+
+
+*****
+
+####  草牛  
+##### 1284#       发表于 2021-8-23 20:50
+
+
+有没有一种可能，舞元真的是吊人男朋友，只是一种猜想，不一定对🤔
+
+
+*****
+
+####  路人庚  
+##### 1285#       发表于 2021-8-23 20:50
+
+
+今天桃铁切啥这个问题我觉得可以等一个剪辑man·黄兔子来公布答案
+
+
+愿意口头自称是吊人男朋友也只是顺着当时联动气氛往下说罢了，之前都已婚夫妇了现在反倒是男朋友了也属于是玩回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1286#       发表于 2021-8-23 20:58
+
+
+主要是我感觉像是我跳过几集了一样，感官上就挺怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+这个月还有三次联动，我估计这人这周末要回老家一趟了，到时候努努力整点东西试试吧
+
+
+感觉时间过得乓快只能说，恨不得把自己拆成四个一个学日语一个学AE一个看直播一个认真工作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 1287#       发表于 2021-8-23 20:58
+
+
+ 本帖最后由 2014720 于 2021-8-23 21:02 编辑 
+
+第一次和路小北联动我还激动了一下，结果点开苔姨频道nm给蹦出来个五元，这么爱塞咋不塞个 ****** ****呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+点开联动就是个五元，爷兔鞠呢，nmmd
+<img src="https://p.sda1.dev/2/41970d892bf3f6bcfb6c01ad3c89b5c6/7ca62916584631b4.jpg" referrerpolicy="no-referrer">
+
+
+                                                

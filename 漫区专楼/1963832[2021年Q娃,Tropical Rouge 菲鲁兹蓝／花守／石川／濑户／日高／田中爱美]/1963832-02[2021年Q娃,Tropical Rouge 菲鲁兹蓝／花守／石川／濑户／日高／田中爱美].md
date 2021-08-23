@@ -7327,3 +7327,69 @@ OBA8
 
 
                                                  
+
+*****
+
+####  PrincessBanana  
+##### 2032#       发表于 2021-8-23 12:05
+
+
+ 本帖最后由 PrincessBanana 于 2021-8-23 12:14 编辑 
+
+这期的新片尾实在是太可爱，太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">妈妈，那两个姐姐好像同性恋哦
+
+<img src="https://z3.ax1x.com/2021/08/23/h9566f.gif" referrerpolicy="no-referrer">
+
+
+啊这……希望声优没事
+
+可恶的新冠！
+
+
+*****
+
+####  PrincessBanana  
+##### 2033#       发表于 2021-8-23 12:11
+
+
+这话虾姑和海参的母女感也愈发变强了
+
+这波是两边家长都来上公开课了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/23/121059hf2k1f91vx1511e7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (63.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 12:10 上传
+
+
+*****
+
+####  hgcg-ix  
+##### 2034#       发表于 2021-8-23 17:53
+
+
+[@看机翻会头疼的松鼠](https://weibo.com/u/2994661623?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)
+企划书上写着珊瑚“喜欢可爱之物的普通女孩子”但很难想象得出是何种形象，很容易变成路人角色，所以加了很多饰品让她看起来像主要角色。
+
+
+其实现在的剧情珊瑚除了可爱好像就没别的看点了<img src="https://img.t.sinajs.cn/t4/appstyle/expression/ext/normal/83/2018new_kuxiao_org.png" referrerpolicy="no-referrer"> ​​​​
+
+
+image.png
+(61.61 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-23 17:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/23/175303ufpnkjs4auukm44o.png" referrerpolicy="no-referrer">
+
+
+                                                 
