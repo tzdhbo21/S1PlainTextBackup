@@ -78,8 +78,12 @@ if __name__ == '__main__':
             if l in ids:
                 thdata[l]['active'] = True
             else:
-                newthread = {"id": l,"totalreply": 0,"title": "待更新","lastedit": int(threadict[l]),"category": k,"active": True}
-                thdata.append(newthread)
+                thdata[l] = {}
+                thdata[l]['totalreply'] =0
+                thdata[l]['title'] = "待更新"
+                thdata[l]['lastedit'] = int(threadict[l])
+                thdata[l]['category']= k
+                thdata[l]["active"] =  True
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
     activethdata={}
