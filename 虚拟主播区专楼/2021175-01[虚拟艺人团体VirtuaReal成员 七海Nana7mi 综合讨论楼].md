@@ -1134,3 +1134,50 @@ https://b23.tv/1xan40 ...</blockquote>
 
 
                                                  
+
+*****
+
+####  -SLSL-  
+##### 100#       发表于 2021-8-24 02:54
+
+
+老观众讲讲，海子姐Apex吃过鸡吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王淳煜  
+##### 101#         楼主| 发表于 2021-8-24 02:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52483560&amp;ptid=2021175" target="_blank">-SLSL- 发表于 2021-8-24 02:54</a>
+
+老观众讲讲，海子姐Apex吃过鸡吗</blockquote>
+疑似有点不尊重人了
+
+
+*****
+
+####  -SLSL-  
+##### 102#       发表于 2021-8-24 02:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52483566&amp;ptid=2021175" target="_blank">王淳煜 发表于 2021-8-24 02:58</a>
+
+疑似有点不尊重人了</blockquote>
+我不懂啊，新观众，鸡哥引流过来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  443421870  
+##### 103#       发表于 2021-8-24 03:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52483570&amp;ptid=2021175" target="_blank">-SLSL- 发表于 2021-08-24 02:59:56</a>
+我不懂啊，新观众，鸡哥引流过来的</blockquote>海子姐可是单排上钻石的，在v区算是很强的存在，虽然在a的电竞界不值一提
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+                                                 
