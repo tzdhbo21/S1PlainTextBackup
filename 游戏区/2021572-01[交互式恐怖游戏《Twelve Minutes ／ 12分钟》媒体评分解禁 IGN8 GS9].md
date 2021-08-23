@@ -1692,3 +1692,20 @@ Dahlia（大丽花）既是花名也是人名，是英文推理常见的一种�
 
 
                                                  
+
+*****
+
+####  percy1234  
+##### 144#       发表于 2021-8-24 03:47
+
+
+我是第一页预购的伞兵<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+其实打完之后虽然远低于预期，但体感也没那么差。主要问题是流程实在太太太短了，前期悬疑到叙述诡计揭秘的过程和后期的心理治疗谜语人都没讲太好，轮回系的优势没把握住，最显眼的就只剩下家庭伦理剧的烂俗外皮。
+
+
+另外，看看那一堆和故事没什么关系的成就设置和staff表里那一大堆的动捕演员，就能知道这游戏6年的开发时间都花在哪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说十分遗憾
+
+
+                                                 
