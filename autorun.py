@@ -8,6 +8,7 @@ import io
 import os
 import json
 
+
 def parse_html(html,threadict):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
     soup = BeautifulSoup(html, 'html.parser')
@@ -72,9 +73,7 @@ if __name__ == '__main__':
         with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
         flag = 1
-        ids = []
-        for j in range(len(thdata)):
-            ids.append(thdata[j]['id'])
+        ids = thdata.keys()
         for l in threadict.keys():
             if l in ids:
                 thdata[ids.index(l)]['active'] = True
@@ -83,12 +82,12 @@ if __name__ == '__main__':
                 thdata.append(newthread)
         with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
-    activethdata=[]
+    activethdata={}
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
             thdata=json.load(f)
-    for i in range(len(thdata)):
+    for i in thdata.keys():
         if(thdata[i]['active']) or ((int(time.time()) -thdata[i]['lastedit']) < 2592000) :
-            activethdata.append(thdata[i])
+            activethdata[i] = thdata[i]
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(activethdata,indent=2,ensure_ascii=False))
         

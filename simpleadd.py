@@ -12,9 +12,7 @@ rootdir="/home/riko/S1PlainTextBackup/"
 with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
     thdata=json.load(f)
 flag = 1
-ids = []
-for i in range(len(thdata)):
-    ids.append(thdata[i]['id'])
+ids = thdata.keys()
 while(flag):
     threadid = input(u"S1 thread ID: ")
     if(threadid == '0'):
