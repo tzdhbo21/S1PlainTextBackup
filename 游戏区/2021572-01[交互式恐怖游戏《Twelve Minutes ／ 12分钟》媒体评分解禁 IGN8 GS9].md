@@ -1640,3 +1640,55 @@ Dahlia（大丽花）既是花名也是人名，是英文推理常见的一种�
 
 
                                                  
+
+*****
+
+####  760194962  
+##### 140#       发表于 2021-8-24 01:51
+
+
+我评分跟ign一样8/10 这么多人骂看着不太爽
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  myep  
+##### 141#       发表于 2021-8-24 01:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52483418&amp;ptid=2021572" target="_blank">760194962 发表于 2021-8-24 01:51</a>
+
+我评分跟ign一样8/10 这么多人骂看着不太爽
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我跟PC Gamer的看法一致，除了翻log没有任何体验价值
+
+
+*****
+
+####  415452356  
+##### 142#       发表于 2021-8-24 02:15
+
+
+  看攻略打完了，无论是屋子里面发生的事情还是脑内和亲爹/心理医生的对话都挺没劲的，感觉编剧就是觉得自己在写个很吊的东西，结果实际上拿出来卖了大家并不觉得这很吊甚至觉得他是傻逼
+
+
+*****
+
+####  wzh5555  
+##### 143#       发表于 2021-8-24 02:50
+
+
+ 本帖最后由 wzh5555 于 2021-8-24 02:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52448133&amp;ptid=2021572" target="_blank">myep 发表于 2021-8-20 22:36</a>
+
+最大槽点是一个轮回作品几乎没有解释轮回的理由，为什么回忆事情一定要用轮回形式？
+
+也许是这样：男主看了 ...</blockquote>
+我看有人说摩斯码的画转成文字是：All endings are beginnings, we just don't know it at the time。  按照这个逻辑说，那么【普通结局】的最后医生催眠-时钟蓝光闪烁正转算是轮回开始，催眠进入轮回的理由是为了"遗忘"，而不是为了回忆，但进入催眠以后被困住出不来了，于是不得不回忆（得到关键的倒转怀表），激活对应的“蓝光闪烁的反转”才能出来。
+
+
+                                                 
