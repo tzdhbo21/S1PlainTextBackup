@@ -11167,3 +11167,23 @@ gamers和fams都已经无了 有的只剩smok了<img src="https://static.saraba1
 
 
                                                  
+
+*****
+
+####  心垂万刃  
+##### 12967#       发表于 2021-8-23 21:02
+
+
+所以有多强，阿绫能不能直播让我们看看啊？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fami水  
+##### 12968#       发表于 2021-8-23 21:41
+
+
+8月的直播量播完了捏，敬请期待9月直播<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+                                                 

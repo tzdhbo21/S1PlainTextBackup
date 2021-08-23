@@ -16960,3 +16960,75 @@ https://youtu.be/H7kwo4X9tak
 
 
                                                  
+
+*****
+
+####  mcq_2  
+##### 2774#       发表于 2021-8-23 22:32
+
+
+xsx版分辨率跟帧数都比ps5好啊，目测
+
+
+*****
+
+####  reficul  
+##### 2775#       发表于 2021-8-23 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481921&amp;ptid=1860328" target="_blank">mcq_2 发表于 2021-8-23 22:32</a>
+
+xsx版分辨率跟帧数都比ps5好啊，目测</blockquote>
+实测的话前面有结论了，分辨率是一样的，画质模式下XSX比PS5强，帧数模式两者一样，但明显XSX的帧数模式太鸡肋了
+
+
+*****
+
+####  LT_Harry  
+##### 2776#         楼主| 发表于 2021-8-23 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52480204&amp;ptid=1860328" target="_blank">金子一马 发表于 2021-8-23 20:22</a>
+
+即使买了我一周目也会关掉，不能牺牲游戏体验</blockquote>
+玩过的 Tales 里，唯一一个对作弊道具严重需求到“渴望”的程度的作品，是X2😅X2 要是没有作弊道具，解锁技能实在太慢了。
+
+
+这次将是我第一次全程使用作弊道具提升收益减少开销，虽然我感觉这次已经很友好，不需要甚么作弊道具，但是难得买了还是想试试这种直接改变游戏内消费的作弊道具，到底有多好用。
+
+
+*****
+
+####  虚无连斩  
+##### 2777#       发表于 2021-8-24 00:34
+
+
+这两天乘着xgp便宜买了一年
+把天蝎扫了扫灰搬出来下了体验版...
+总感觉翻译好怪啊...特别女主名字，从最早看到官方译名我就有的疑惑了。还有个王国之心先入为主，总感觉シオン翻译成希恩/诗音/紫苑更合适吧？那个侬发音是怎么翻出来的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hkguty  
+##### 2778#       发表于 2021-8-24 00:42
+
+
+所以黑龙出现的具体条件到底是什么？
+
+
+*****
+
+####  金子一马  
+##### 2779#       发表于 2021-8-24 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52483047&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-8-24 00:42</a>
+
+所以黑龙出现的具体条件到底是什么？</blockquote>
+据说是短时间击破,可能是4分钟?
+
+
+                                                 

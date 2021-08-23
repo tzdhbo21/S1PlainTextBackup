@@ -17772,3 +17772,34 @@ an和原版性能倾向是明确的，SP之后也能互换，基本上只上一�
 
 
                                                  
+
+*****
+
+####  江戸前ルナ  
+##### 5882#       发表于 2021-8-23 21:32
+
+
+素组都有人到手了。非胶佬我就关心OVA啥时候能看<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 5883#       发表于 2021-8-23 22:49
+
+
+至少得等由美的肥姑妈发售了三家凑齐才行，你总不能让人家白出资吧？
+
+话说外传小说最终话写的是什么……女主从小憧憬女演员但是emission不够纠结挣扎了很久，故事也是一直围绕女主心结写的。但最终话女主半年时间里emission突然飞涨甚至得到了专用装备开始龙傲天了，强行HE得不能直视。文笔一般流水账看得吃力这蜜汁企划居然还要继续<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 5884#       发表于 2021-8-23 23:28
+
+
+肥姑妈四谷延期了就很尴尬。所以OVA动画也是要延期等到三家出齐才能看吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

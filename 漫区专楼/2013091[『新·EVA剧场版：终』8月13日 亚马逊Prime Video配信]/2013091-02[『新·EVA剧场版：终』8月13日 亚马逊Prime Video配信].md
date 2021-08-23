@@ -2814,3 +2814,76 @@ lolihouse是压制组，里面的字幕就是差评一片的亚马逊官中
 
 
                                                  
+
+*****
+
+####  MONSTERS  
+##### 1679#       发表于 2021-8-23 21:40
+
+
+ 本帖最后由 MONSTERS 于 2021-8-23 21:42 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202108/23/214219ggdvdk9kdnggcz1y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>17D5D508-5426-46BE-B3EB-8BE6701CE042.jpeg</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2021-8-23 21:42 上传
+
+
+[https://m.weibo.cn/2419872561/4673175905895962](https://m.weibo.cn/2419872561/4673175905895962)
+
+
+微博上一个同人漫，不考虑CP元素基熏塑造挺棒的
+
+
+*****
+
+####  rhubarb  
+##### 1680#       发表于 2021-8-23 21:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481283&amp;ptid=2013091" target="_blank">MONSTERS 发表于 2021-8-23 21:40</a>
+
+https://m.weibo.cn/2419872561/4673175905895962
+
+
+微博上一个同人漫，不考虑CP元素基熏塑造挺棒的 ...</blockquote>
+只有基薰可以
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个丽不是丽，是唯
+
+
+
+
+*****
+
+####  themonster  
+##### 1681#       发表于 2021-8-23 21:54
+
+
+看完了，Q是谜语人大家不说人话，终是大家自带解说光环生怕观众看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+玛丽和冬月过于工具人了。黑丽很棒，真嗣的转变还可以，后面进入负宇应该是已经有了全部世界的记忆了吧，都接近全知全能了，虽然后面不认得老妈又有点奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+个人排行：旧剧场》破》序》终》》》》Q
+
+
+*****
+
+####  7A7  
+##### 1682#       发表于 2021-8-24 00:19
+
+
+q里的明日香：见面一拳真嗣，小鬼这么多年没成长，我被eva诅咒
+
+谜语人的以为破q中间发生了什么大事
+
+结果终里一说就是气当年没救你
+
+到底谁是小鬼啊？
+
+
+                                                

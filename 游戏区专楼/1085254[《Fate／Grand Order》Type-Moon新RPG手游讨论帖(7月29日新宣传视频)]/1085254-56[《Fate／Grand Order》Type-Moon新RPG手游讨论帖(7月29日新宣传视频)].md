@@ -4870,3 +4870,183 @@ https://www.bilibili.com/video/BV15A411c7bz/
 
 
                                                
+
+*****
+
+####  alucardcz  
+##### 82911#       发表于 2021-8-23 21:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52480592&amp;ptid=1085254" target="_blank">qb0079 发表于 2021-8-23 20:49</a>
+
+今天这212的杀本，妖兰还是3T杀穿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是c狗师傅就能杀穿  你也魔征途了吗！
+
+
+*****
+
+####  qb0079  
+##### 82912#       发表于 2021-8-23 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52480728&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 21:00</a>
+
+可是c狗师傅就能杀穿  你也魔征途了吗！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是我没师傅，C狗也没练啊
+
+
+*****
+
+####  khxooo  
+##### 82913#       发表于 2021-8-23 21:44
+
+
+19个金苹果刷的黑灰全吃完了，不刷了，真的没苹果了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82914#       发表于 2021-8-23 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好像没什么吃黑灰的角色 仓库还500多黑灰 与之相对的骨头贝壳只有100但完全不想刷
+
+
+*****
+
+####  alucardcz  
+##### 82915#       发表于 2021-8-23 22:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481318&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-23 21:44</a>
+
+19个金苹果刷的黑灰全吃完了，不刷了，真的没苹果了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我苹果刷完上次波羁绊 还剩800多个。 看来真正的咸鱼就是我了
+
+
+*****
+
+####  黑上シグマ  
+##### 82916#       发表于 2021-8-23 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481676&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 22:13</a>
+
+我苹果刷完上次波羁绊 还剩800多个。 看来真正的咸鱼就是我了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">金的800多个？
+
+
+*****
+
+####  alucardcz  
+##### 82917#       发表于 2021-8-23 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481761&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-23 22:19</a>
+
+金的800多个？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是银铜也换算成金了
+
+
+*****
+
+####  qixinno2  
+##### 82918#       发表于 2021-8-23 22:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只剩120金苹果了 根本不知道怎么用的
+
+
+*****
+
+####  黑上シグマ  
+##### 82919#       发表于 2021-8-23 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481768&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 22:20</a>
+
+当然是银铜也换算成金了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么算的话我还有950个，你个杂鱼
+
+
+*****
+
+####  alucardcz  
+##### 82920#       发表于 2021-8-23 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481803&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-23 22:22</a>
+
+这么算的话我还有950个，你个杂鱼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不服 我去重新算！
+
+
+
+
+*****
+
+####  khxooo  
+##### 82921#       发表于 2021-8-23 22:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481803&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-23 22:22</a>
+这么算的话我还有950个，你个杂鱼</blockquote>
+能给些吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 82922#       发表于 2021-8-23 22:27
+
+
+翻页
+
+
+*****
+
+####  黑上シグマ  
+##### 82923#       发表于 2021-8-23 22:27
+
+
+再翻
+
+
+*****
+
+####  alucardcz  
+##### 82924#       发表于 2021-8-23 22:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481866&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-23 22:27</a>
+
+再翻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经过萌新精确的计算 一共936个  不是刷了100个羁绊你没我多！
+
+
+*****
+
+####  黑上シグマ  
+##### 82925#       发表于 2021-8-23 22:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481872&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-23 22:27</a>
+
+经过萌新精确的计算 一共936个  不是刷了100个羁绊你没我多！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那么你现在有几个15绊呢
+
+
+*****
+
+####  alucardcz  
+##### 82926#       发表于 2021-8-23 22:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52481880&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-23 22:28</a>
+
+那么你现在有几个15绊呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1个  这没什么关系啊 因为刷15太亏 刷10-11比较快
+
+
+                                                
