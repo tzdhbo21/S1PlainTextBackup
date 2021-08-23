@@ -20835,3 +20835,18 @@ syl
 
 
                                                  
+
+*****
+
+####  ImagOust  
+##### 1330#       发表于 2021-8-23 09:42
+
+
+趁着二期开播 ，再宣传一下楼友开的 HoloEn 讨论群
+<img src="https://p.sda1.dev/2/1fe70588d5c7fb8cd2b9499c12c2b952/Snipaste_2021-08-23_09-37-09.jpg" referrerpolicy="no-referrer">
+
+
+平时还会讨论一些其他的英文类 Vtuber，欢迎感兴趣的加群！！
+
+
+                                                 
