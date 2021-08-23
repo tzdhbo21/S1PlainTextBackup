@@ -148,7 +148,6 @@ headers = {'User-agent':'Mozilla/5.0 (Windows NT 6.1; WOW64) AppleWebKit/537.36 
 rootdir="./"           
 with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
     thdata=json.load(f)
-
 async def UpdateThread(threaddict,headers,cookies):
     lastpage = threaddict['totalreply']//30
     async with aiohttp.ClientSession(headers=headers,cookies=cookies) as session:
@@ -208,10 +207,10 @@ if __name__ == '__main__':
     threaddicts = {}
     for tid in thdata.keys():
         if(thdata[tid]['active']):
-            threaddicts[thdata[tid]] = {}
-            threaddicts[thdata[tid]]['id'] = tid
-            threaddicts[thdata[tid]]['totalreply'] = int(thdata[tid]['totalreply'])
-            threaddicts[thdata[tid]]['title'] = thdata[tid]['title']
+            threaddicts[tid] = {}
+            threaddicts[tid]['id'] = tid
+            threaddicts[tid]['totalreply'] = int(thdata[tid]['totalreply'])
+            threaddicts[tid]['title'] = thdata[tid]['title']
     for thread in threaddicts.keys():
         tasks.append(UpdateThread(threaddicts[thread],headers,cookies))
     asyncio.run(asyncio.gather(*tasks))
