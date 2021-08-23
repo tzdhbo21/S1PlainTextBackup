@@ -76,7 +76,7 @@ if __name__ == '__main__':
         ids = thdata.keys()
         for l in threadict.keys():
             if l in ids:
-                thdata[ids.index(l)]['active'] = True
+                thdata[l]['active'] = True
             else:
                 newthread = {"id": l,"totalreply": 0,"title": "待更新","lastedit": int(threadict[l]),"category": k,"active": True}
                 thdata.append(newthread)
