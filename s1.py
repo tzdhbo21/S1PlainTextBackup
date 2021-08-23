@@ -206,11 +206,11 @@ async def UpdateThread(threaddict,semaphore):
                         thdata[threaddict['id']]['totalreply'] = lastreply
                         thdata[threaddict['id']]['lastedit'] = int(time.time())
                         thdata[threaddict['id']]['title'] = titles
-
-                with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
-                    f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
+                        with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
+                            f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
         except:
             pass
+        
 async def main():
 
     tasks = []
