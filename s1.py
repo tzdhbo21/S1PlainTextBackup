@@ -150,65 +150,67 @@ with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
 
 async def UpdateThread(threaddict,semaphore):
     async with semaphore:
-        lastpage = threaddict['totalreply']//30
-        conn = aiohttp.TCPConnector(limit=18,ssl=False)
-        # try:
-        async with aiohttp.ClientSession(headers=headers,cookies=cookies,connector=conn) as session:
-            url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
-            async with session.get(url,headers=headers,cookies=cookies) as response:
-                result = await response.content.read()
-        # except:
-        #     pass
-        print(threaddict['id'])
-        namelist, replylist,totalpage,newtitles= parse_html(result)
-        titles = threaddict['title']
-        if(thdata[threaddict['id']]['title'] =='待更新'):
-            titles = newtitles
-        #采取增量更新后仅第一次更新标题
-        if((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 1296000 or totalpage == 1):
-            thdata[threaddict['id']]['active'] = False
-            filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'【已归档】'+newtitles+'/'
-            mkdir(filedir)
-            with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
-                f.write('1')
-        elif(totalpage >= lastpage):
-            if(totalpage > 50):
-                filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles+'/'
-                mkdir(filedir)
-            else:
-                filedir = rootdir+thdata[threaddict['id']]['category']+'/'
-            #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
-            #startpage = (lastpage-1)//50*50+1
-            ThreadContent = [' ']*50
-            PageCount = 0
-            # lastpages = '%02d' %math.ceil(lastpage/50)
-            # remov(filedir+str(threaddict['id'])+titles+'-'+str(lastpages)+'.md')
-            rsession = requests.session()
+        try:
+            lastpage = threaddict['totalreply']//30
+            conn = aiohttp.TCPConnector(limit=18,ssl=False)
             # try:
-            for thread in range(lastpage+1,totalpage+1):
-                rurl = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-'+str(thread)+'-1.html'
-                rresult = rsession.get(rurl, headers=headers,  cookies=cookies)
-                rdata = rresult.content
-                namelist, replylist,totalpage,newtitles= parse_html(rdata)
-                ThreadContent[PageCount],lastreply= FormatStr(namelist, replylist,threaddict['totalreply'])
-                if(lastreply > threaddict['totalreply']):
-                    PageCount = PageCount + 1
-                    if(PageCount == 50 or thread == totalpage):
-                        #lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()+28800))#把GithubAction服务器用的UTC时间转换为北京时间
-                        #增量更新不再创建时间戳
-                        pages = '%02d' %math.ceil(thread/50)
-                        filename = str(threaddict['id'])+'-'+str(pages)+titles+'.md'
-                        with open((filedir+filename).encode('utf-8'),'a',encoding='utf-8') as f:
-                            f.writelines(ThreadContent)
-                        ThreadContent = [' ']*50
-                        PageCount = 0
-                    thdata[threaddict['id']]['totalreply'] = lastreply
-                    thdata[threaddict['id']]['lastedit'] = int(time.time())
-                    thdata[threaddict['id']]['title'] = titles
+            async with aiohttp.ClientSession(headers=headers,cookies=cookies,connector=conn) as session:
+                url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
+                async with session.get(url,headers=headers,cookies=cookies) as response:
+                    result = await response.content.read()
             # except:
             #     pass
-            with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
-                f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
+            print(threaddict['id'])
+            namelist, replylist,totalpage,newtitles= parse_html(result)
+            titles = threaddict['title']
+            if(thdata[threaddict['id']]['title'] =='待更新'):
+                titles = newtitles
+            #采取增量更新后仅第一次更新标题
+            if((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 1296000 or totalpage == 1):
+                thdata[threaddict['id']]['active'] = False
+                filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'【已归档】'+newtitles+'/'
+                mkdir(filedir)
+                with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
+                    f.write('1')
+            elif(totalpage >= lastpage):
+                if(totalpage > 50):
+                    filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles+'/'
+                    mkdir(filedir)
+                else:
+                    filedir = rootdir+thdata[threaddict['id']]['category']+'/'
+                #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
+                #startpage = (lastpage-1)//50*50+1
+                ThreadContent = [' ']*50
+                PageCount = 0
+                # lastpages = '%02d' %math.ceil(lastpage/50)
+                # remov(filedir+str(threaddict['id'])+titles+'-'+str(lastpages)+'.md')
+                rsession = requests.session()
+                # try:
+                for thread in range(lastpage+1,totalpage+1):
+                    rurl = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-'+str(thread)+'-1.html'
+                    rresult = rsession.get(rurl, headers=headers,  cookies=cookies)
+                    rdata = rresult.content
+                    namelist, replylist,totalpage,newtitles= parse_html(rdata)
+                    ThreadContent[PageCount],lastreply= FormatStr(namelist, replylist,threaddict['totalreply'])
+                    if(lastreply > threaddict['totalreply']):
+                        PageCount = PageCount + 1
+                        if(PageCount == 50 or thread == totalpage):
+                            #lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()+28800))#把GithubAction服务器用的UTC时间转换为北京时间
+                            #增量更新不再创建时间戳
+                            pages = '%02d' %math.ceil(thread/50)
+                            filename = str(threaddict['id'])+'-'+str(pages)+titles+'.md'
+                            with open((filedir+filename).encode('utf-8'),'a',encoding='utf-8') as f:
+                                f.writelines(ThreadContent)
+                            ThreadContent = [' ']*50
+                            PageCount = 0
+                        thdata[threaddict['id']]['totalreply'] = lastreply
+                        thdata[threaddict['id']]['lastedit'] = int(time.time())
+                        thdata[threaddict['id']]['title'] = titles
+
+                with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
+                    f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
+        except:
+            pass
 async def main():
 
     tasks = []
