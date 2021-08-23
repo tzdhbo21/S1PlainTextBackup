@@ -2688,3 +2688,16 @@ https://share.dmhy.o ...</blockquote>
 
 
                                                  
+
+*****
+
+####  霧亥  
+##### 1668#       发表于 2021-8-23 07:55
+
+
+看了一遍v7，只有一个问答无用感觉翻译有问题。再次感叹庵野的成熟就是片汤话**和油腔滑调
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
