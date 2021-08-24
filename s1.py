@@ -156,14 +156,14 @@ async def UpdateThread(threaddict,semaphore):
             # try:
             async with aiohttp.ClientSession(headers=headers,cookies=cookies,connector=conn) as session:
                 url = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-1-1.html'
-                async with session.get(url,headers=headers,cookies=cookies) as response:
+                async with session.get(url) as response:
                     result = await response.content.read()
             # except:
             #     pass
             namelist, replylist,totalpage,newtitles= parse_html(result)
-            print(threaddict['id']+'-'+str(totalpage))
+            print(threaddict['id']+'-'+str(totalpage))+'-'+newtitles
             titles = threaddict['title']
-            threaddict['id']['newtitle'] = newtitles
+            thdata[threaddict['id']]['newtitle'] = newtitles
             if(thdata[threaddict['id']]['title'] =='待更新'):
                 titles = newtitles
             #采取增量更新后仅第一次更新标题
