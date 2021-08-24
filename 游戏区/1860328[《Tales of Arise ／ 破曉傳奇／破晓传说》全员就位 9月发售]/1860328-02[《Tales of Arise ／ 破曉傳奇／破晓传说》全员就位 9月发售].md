@@ -17201,3 +17201,17 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2791#         楼主| 发表于 2021-8-24 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52490017&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-8-24 16:30</a>
+
+请问是击杀瞬间按r1触发和完美回避同样的反击动作吗，不说还真没注意到这系统 ...</blockquote>
+正式版这个能力要额外消费 SP 解锁，但是强力反击的贯穿力真的很高，相信仔细观察的玩家都发现了。
+
+
+                                                 
