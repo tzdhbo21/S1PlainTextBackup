@@ -160,9 +160,10 @@ async def UpdateThread(threaddict,semaphore):
                     result = await response.content.read()
             # except:
             #     pass
-            print(threaddict['id'])
             namelist, replylist,totalpage,newtitles= parse_html(result)
+            print(threaddict['id']+str(totalpage))
             titles = threaddict['title']
+            threaddict['id']['newtitle'] = newtitles
             if(thdata[threaddict['id']]['title'] =='待更新'):
                 titles = newtitles
             #采取增量更新后仅第一次更新标题
@@ -190,8 +191,8 @@ async def UpdateThread(threaddict,semaphore):
                     rurl = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-'+str(thread)+'-1.html'
                     rresult = rsession.get(rurl, headers=headers,  cookies=cookies)
                     rdata = rresult.content
-                    namelist, replylist,totalpage,newtitles= parse_html(rdata)
-                    ThreadContent[PageCount],lastreply= FormatStr(namelist, replylist,threaddict['totalreply'])
+                    rnamelist, rreplylist,rtotalpage,rnewtitles= parse_html(rdata)
+                    ThreadContent[PageCount],lastreply= FormatStr(rnamelist, rreplylist,threaddict['totalreply'])
                     if(lastreply > threaddict['totalreply']):
                         PageCount = PageCount + 1
                         if(PageCount == 50 or thread == totalpage):
