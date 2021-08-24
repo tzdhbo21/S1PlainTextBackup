@@ -5832,3 +5832,49 @@ C呆这次狩猎是真的菜，除了被妖兰拖着上了两次场后根本拿�
 
 
                                                  
+
+*****
+
+####  zore  
+##### 82993#       发表于 2021-8-24 22:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么英灵咕哒
+
+
+*****
+
+####  alucardcz  
+##### 82994#       发表于 2021-8-24 22:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52494403&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-24 22:17</a>
+
+我觉得2.0快完结了，也该出一个拐级衣服了，就op里那个所长服吧，继承了所长和小达芬奇的遗志，作为迦勒底 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你为什么会有快完结的错觉 明年的今天2。7都不一定能出完
+
+
+*****
+
+####  zakki  
+##### 82995#       发表于 2021-8-24 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52494528&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 22:26</a>
+你为什么会有快完结的错觉 明年的今天2。7都不一定能出完</blockquote>
+可能性很大吧，明年周年前出2.7，蘑菇的意思是明年周年的时候就要让玩家看到终章的标题和地点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你游最近强度这么膨胀，真有种在2.0剩余的时间把该出的都出了尽情狂欢的感觉，破格衣服也不是没可能。
+
+
+*****
+
+####  alucardcz  
+##### 82996#       发表于 2021-8-24 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52494668&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-24 22:36</a>
+
+可能性很大吧，明年周年前出2.7，蘑菇的意思是明年周年的时候就要让玩家看到终章的标题和地点你游 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪里膨胀了 隔壁还说杀狐是张辣鸡卡 和cba没区别改变不了什么
+
+
+                                                 

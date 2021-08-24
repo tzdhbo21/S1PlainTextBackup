@@ -7820,3 +7820,29 @@ KING这个工商规格可真高啊，花了不少钱把
 
 
                                                  
+
+*****
+
+####  真飞鸟i  
+##### 6624#       发表于 2021-8-24 23:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹这会员数视频看了下黑黑也太可怕了，大幅度领先第三名，叶比第三名多3k，king又比叶多3k，差不多倍杀第三名。
+为什么现在才发觉他们挣钱呢。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  OldGlory  
+##### 6625#       发表于 2021-8-24 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52492573&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-8-24 19:57</a>
+
+不是说叫不来白上桑，郡道跟白上桑私下交流应该是有的吧，之前还在推特上互推肥肥牛肉碎，单纯是郡道有大物 ...</blockquote>
+明天除了琥珀还有什么人选吗
+
+
+                                                 

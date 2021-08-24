@@ -1814,3 +1814,34 @@ Dahlia（大丽花）既是花名也是人名，是英文推理常见的一种�
 
 
                                                  
+
+*****
+
+####  轩辕无  
+##### 153#       发表于 2021-8-24 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52492576&amp;ptid=2021572" target="_blank">wzh5555 发表于 2021-8-24 19:58</a>
+
+具体哪些部分剧情是真的，也没什么石锤。
+
+我自己理解，【男主有女友，女友怀孕】基本是真的，【男主和女友 ...</blockquote>
+正念这个结局怎么觉得其实暗示都是一个精神病人的妄想
+
+
+*****
+
+####  wzh5555  
+##### 154#       发表于 2021-8-24 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52495187&amp;ptid=2021572" target="_blank">轩辕无 发表于 2021-8-24 23:20</a>
+
+正念这个结局怎么觉得其实暗示都是一个精神病人的妄想</blockquote>
+男主可能是边缘性人格障碍，如果说所有信息都是他臆想出来的也是可以的，但这么一来这个故事的意义又小了一分。况且如果男主只是单纯的精神病和人格分裂，那就不是做正念治疗能解决的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+从游戏里钟表的表达上我个人觉得，12点之后的循环10分钟是典型的男主臆想，而58分到12点之间的2分钟则是真实和臆想参半，也许有真实信息在里面。男主有现实压力，所以找心理医生做正念治疗也算合理。
+
+
+                                                 
