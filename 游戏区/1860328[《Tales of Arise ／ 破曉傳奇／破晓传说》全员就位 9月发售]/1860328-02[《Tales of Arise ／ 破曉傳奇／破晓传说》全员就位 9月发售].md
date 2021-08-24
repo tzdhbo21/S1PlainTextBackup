@@ -17142,3 +17142,62 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2786#         楼主| 发表于 2021-8-24 13:27
+
+
+下次可以试试三连居合（指消灭第一个敌人后，利用强力反击追踪迅速消灭后续的敌人），连续追踪反击真的太帅辣
+
+
+*****
+
+####  LMBS  
+##### 2787#       发表于 2021-8-24 16:20
+
+
+这次没了防御+前的冲刺，失去比较快接近BOSS的手段,经常是一个ba打断龙车还没走到就站起来了
+
+而且秘奥义后离BOSS还特远
+
+
+*****
+
+####  zqqwe  
+##### 2788#       发表于 2021-8-24 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52488058&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-24 13:27</a>
+下次可以试试三连居合（指消灭第一个敌人后，利用强力反击追踪迅速消灭后续的敌人），连续追踪反击真的太帅 ...</blockquote>
+请问是击杀瞬间按r1触发和完美回避同样的反击动作吗，不说还真没注意到这系统
+
+
+*****
+
+####  zqqwe  
+##### 2789#       发表于 2021-8-24 16:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52489901&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-8-24 16:20</a>
+这次没了防御+前的冲刺，失去比较快接近BOSS的手段,经常是一个ba打断龙车还没走到就站起来了
+
+而且秘奥义后 ...</blockquote>
+目前只发现可以用BA+换人来实现快速近身
+
+
+*****
+
+####  蓝雉  
+##### 2790#       发表于 2021-8-24 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52489901&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-8-24 16:20</a>
+这次没了防御+前的冲刺，失去比较快接近BOSS的手段,经常是一个ba打断龙车还没走到就站起来了
+
+而且秘奥义后 ...</blockquote>
+正式版装个带突进的术技吧
+
+
+                                                 

@@ -20912,3 +20912,58 @@ syl
 
 
                                                  
+
+*****
+
+####  wuzhengkai  
+##### 1333#       发表于 2021-8-24 17:03
+
+
+ 本帖最后由 wuzhengkai 于 2021-8-24 17:06 编辑 
+
+EN二期day1锐评：
+
+
+Kronii&gt;Sana=Hakos&gt;&gt;Fauna&gt;Mumei
+
+
+Sana:
+
+黑皮大奶 好 中之人画画水平应该不如Ina但也基本差不多 
+
+debut还是动了点心思有点意思 首播本来以为是观星结果变成星座对应的面包 搁这算命呢 评级下降一档
+
+
+Fauna:
+
+Yet another ASMR girl, ok, meh 
+
+首播直接杂谈嗯混，just meh
+
+
+Mumei:
+
+金盾转生是吧 第一天就鸽是吧 just boring 可能当个歌势能混混
+
+
+Kronii:
+
+声线类似Calli 但是如果中人情报为真的话 是专业Voice Actress, 那表现力可太强了
+
+性格看上去也是个没那么自闭的Calli 12minutes玩的还挺快 v中算有点智力的选手 评价++
+
+
+Hakos:
+
+本期RP担当 不知道为啥会选个没太大名气的C位 
+
+Debut表现最好的人 但aussie时间太阴间 首播也比较嗯混 怀疑能不能保持RP
+
+总结：
+
+此处引用4chan锐评：Even Kiara is not so bad!
+
+不得不说一期抽人有点天命的意思
+
+
+                                                 

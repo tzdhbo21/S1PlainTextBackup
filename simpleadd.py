@@ -8,12 +8,12 @@ import io
 import time
 
 
-rootdir="/home/riko/S1PlainTextBackup/"
-with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
-    thdata=json.load(f)
-flag = 1
-ids = thdata.keys()
-while(flag):
+rootdir="./"
+
+while 1:
+    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+        thdata=json.load(f)
+    ids = thdata.keys()
     threadid = input(u"S1 thread ID: ")
     if(threadid == '0'):
         break
@@ -24,7 +24,13 @@ while(flag):
         print(u'请输入版面分类代号：\n1 = 外野\n2 = 漫区\n3 = 游戏区\n4 = 虚拟主播区专楼')
         threadcategory  = input(u'我选：')
         catechooser = {'1':'外野','2':'漫区','3':'游戏区','4':'虚拟主播区专楼'}
-        newthread = {"id": threadid,"totalreply": 0,"title": "待更新","lastedit": int(time.time()),"category": catechooser[threadcategory],"active": True}
-        thdata.append(newthread)
+        # newthread = {"id": threadid,"totalreply": 0,"title": "待更新","lastedit": ,"category": ,"active": True}
+        thdata[threadid] = {}
+        thdata[threadid]['totalreply'] = 0
+        thdata[threadid]["title"] = "待更新"
+        thdata[threadid]["newtitle"]= "待更新"
+        thdata[threadid]["lastedit"]= int(time.time())
+        thdata[threadid]["category"]= catechooser[threadcategory]
+        thdata[threadid]["active"]= True
     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
             f.write(json.dumps(thdata,indent=2,ensure_ascii=False))

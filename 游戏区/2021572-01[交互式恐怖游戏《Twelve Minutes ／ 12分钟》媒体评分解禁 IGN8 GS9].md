@@ -1778,3 +1778,16 @@ Dahlia（大丽花）既是花名也是人名，是英文推理常见的一种�
 
 
                                                  
+
+*****
+
+####  不努  
+##### 151#       发表于 2021-8-24 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52483255&amp;ptid=2021572" target="_blank">wzh5555 发表于 2021-8-24 01:16</a>
+ 流程0-10分钟的正常公寓循环里，男主是真的忘了基础信息和玩家平等的，并不知道自己是谁。虽然这个忘是后 ...</blockquote>
+哦真结局是mindfulness 吗？表不动了算是循环终止了，行吧。老爸到底死没死，是纯粹开启未来视给小伙袭脑，还是临死放了个血轮眼月读，我已经放弃思考了
+
+
+                                                 

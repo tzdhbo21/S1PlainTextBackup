@@ -7567,3 +7567,84 @@ bora准备冲猎，预计队友有cpt、猩猩，不排除其他大腿加入的�
 
 
                                                 
+
+*****
+
+####  BRS5672023  
+##### 6603#       发表于 2021-8-24 13:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我总觉得阿凛选的这个日期，是不是有点巨魔。。
+<img src="https://p.sda1.dev/2/08bf779dd8660d59d8136910406d4ea3/IMG_CMP_42227987.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  lhawp  
+##### 6604#       发表于 2021-8-24 14:33
+
+
+舞元队的未来明有点变态啊…
+
+
+*****
+
+####  free  
+##### 6605#       发表于 2021-8-24 16:49
+
+
+[https://twitter.com/VTuber_style/status/1430077434364260355](https://twitter.com/VTuber_style/status/1430077434364260355)
+
+管人杂志 VtuberStyle创刊，好直白的名字
+
+
+iwa在fanbox发了篇文章，「2018年と2021年の新人Vtuber発掘において、圧倒的に違う点について気付いたこと」
+
+谁有兴趣的去看看，还是挺好奇他的视角是怎么看这个的
+[https://iwataiki.fanbox.cc/posts/2647944](https://iwataiki.fanbox.cc/posts/2647944)
+
+
+*****
+
+####  rzrbtk  
+##### 6606#       发表于 2021-8-24 18:15
+
+
+郡郡那个翻唱把白上桑都叫来了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 6607#       发表于 2021-8-24 18:32
+
+
+狐狸小姐很闲的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                 
+
+*****
+
+####  渡鸦骑士  
+##### 6608#       发表于 2021-8-24 18:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491361&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-8-24 18:15</a>
+
+郡郡那个翻唱把白上桑都叫来了</blockquote>
+等等，点进郡道频道，这一堆棉花糖小视频是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq845629713  
+##### 6609#       发表于 2021-8-24 19:08
+
+
+KING这个工商规格可真高啊，花了不少钱把
+
+
+                                                 

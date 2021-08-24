@@ -14291,3 +14291,258 @@ ptr左边那个我倒是不认得<img src="https://static.saraba1st.com/image/sm
 
 
                                                  
+
+*****
+
+####  呓亘  
+##### 1306#       发表于 2021-8-24 14:29
+
+
+点赞了 说明醒了 今天播单人回吗
+
+
+*****
+
+####  T_Hb  
+##### 1307#       发表于 2021-8-24 14:41
+
+
+那要看晚上打完宝可梦有没有心情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1308#       发表于 2021-8-24 14:52
+
+
+ 本帖最后由 时间在我手中 于 2021-8-24 14:54 编辑 
+
+说到口袋小畜生moba，直播间有开吗
+
+哦，北小路推特提到了啊，那看来有了
+
+
+原谅我吊人）伊苏8启动）
+
+
+*****
+
+####  T_Hb  
+##### 1309#       发表于 2021-8-24 15:29
+
+
+ 本帖最后由 T_Hb 于 2021-8-24 15:30 编辑 
+
+懒狗现在连段子都懒得编了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+牛，刚说完段子就来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/cf3813903c716203cddf0adf03ea1923/IMG_CMP_176549782.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1310#       发表于 2021-8-24 15:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶的好
+
+
+*****
+
+####  时间在我手中  
+##### 1311#       发表于 2021-8-24 15:35
+
+
+经典池面邂逅段子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马上去便利店蹲她
+
+
+*****
+
+####  T_Hb  
+##### 1312#       发表于 2021-8-24 15:43
+
+
+<img src="https://p.sda1.dev/2/dea704ec82b08f67dfefcac6bb2a0fc5/IMG_CMP_238141714.jpeg" referrerpolicy="no-referrer">
+略无关，上次谁说的love it<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+什么时候你咩安排一个合唱
+
+
+*****
+
+####  呓亘  
+##### 1313#       发表于 2021-8-24 15:45
+
+
+你麻啥时候能跟老爱合唱一首
+
+
+*****
+
+####  路人庚  
+##### 1314#       发表于 2021-8-24 16:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52489522&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-8-24 15:43</a>
+
+略无关，上次谁说的love it
+
+什么时候你咩安排一个合唱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">我说的，不过我说的是独唱来着
+
+
+*****
+
+####  时间在我手中  
+##### 1315#       发表于 2021-8-24 16:08
+
+
+现在只想等今晚口袋小畜生早点过去，留点时间让小麻单人播<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+题外话，你楼有没有无情的强度党奉劝我一句别抽水阿比）
+
+
+*****
+
+####  T_Hb  
+##### 1316#       发表于 2021-8-24 16:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只会劝别玩手游了
+
+
+*****
+
+####  yywzjsw  
+##### 1317#       发表于 2021-8-24 16:34
+
+
+ 本帖最后由 yywzjsw 于 2021-8-24 16:35 编辑 
+
+我从现实来劝你不要抽水阿比，有钱吗？给麻上拱了吗？周边买了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TomDu  
+##### 1318#       发表于 2021-8-24 16:55
+
+
+还好今年弃坑了，废狗害人不浅
+
+
+*****
+
+####  往世雷书  
+##### 1319#       发表于 2021-8-24 17:06
+
+
+能在氪完手游后拿出十分一打给庄司吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 1320#       发表于 2021-8-24 17:08
+
+
+我现在都不氪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  yywzjsw  
+##### 1321#       发表于 2021-8-24 17:23
+
+
+所以抽到了吗
+
+
+*****
+
+####  时间在我手中  
+##### 1322#       发表于 2021-8-24 17:39
+
+
+ 本帖最后由 时间在我手中 于 2021-8-24 17:43 编辑 
+
+一单沉了
+
+生日周边买了。衣服也买了，别问有没有给吊人上供，这个月两千多了还没上供你不如杀了我
+
+我以前还玩舰比的时候算下来月供吊人和手游氪金大概五五开吧，现在其实应该还是给吊人多点
+
+虽然作为代价饭盒已经寄了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">对盒限暂时没啥参与欲望，国庆再继续三千了，九月要给玩具付尾款了
+
+syl 所以今晚几点口袋小畜生联动说了没
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|欢乐多|
+| aisakahammer| + 2|砰，你死了|
+
+
+查看全部评分
+
+
+*****
+
+####  T_Hb  
+##### 1323#       发表于 2021-8-24 17:47
+
+
+没有定，待机所都没开
+
+
+*****
+
+####  掉头学姐  
+##### 1324#       发表于 2021-8-24 17:56
+
+
+et舔狗不得好死
+
+
+*****
+
+####  T_Hb  
+##### 1325#       发表于 2021-8-24 18:19
+
+
+发推了，22点联动宝可梦
+
+
+*****
+
+####  时间在我手中  
+##### 1326#       发表于 2021-8-24 18:29
+
+
+这么晚啊，那看来今天只能听鬼叫了
+
+
+哦对，我想起来了，这东西看不到吊人视角得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1327#       发表于 2021-8-24 18:31
+
+
+刚想问今天开台不.....继续等在自己台
+
+
+                                                

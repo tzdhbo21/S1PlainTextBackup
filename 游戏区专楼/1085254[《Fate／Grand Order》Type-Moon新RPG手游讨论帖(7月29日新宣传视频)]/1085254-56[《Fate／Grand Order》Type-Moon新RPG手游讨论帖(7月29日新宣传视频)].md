@@ -5116,3 +5116,499 @@ https://www.bilibili.com/video/BV15A411c7bz/
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 82932#       发表于 2021-8-24 11:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一管体力下去才5个铜铃 放弃了 等活动送了
+
+
+*****
+
+####  zakki  
+##### 82933#       发表于 2021-8-24 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52486749&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-24 11:45</a>
+
+你对NGA真的爱的深沉 我去那基本就看看爆料 恶搞和梗图之类的 弱智言论基本无视 ...</blockquote>
+看他们撕逼多有意思，只不过有时候过于弱智到我忍不住不倒垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82934#       发表于 2021-8-24 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52486950&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-24 11:59</a>
+
+看他们撕逼多有意思，只不过有时候过于弱智到我忍不住不倒垃圾</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没意思 看傻逼对话就是浪费时间 我宁可去看小薄本让自己进贤者时间也不想看傻逼们撕逼
+
+
+*****
+
+####  zakki  
+##### 82935#       发表于 2021-8-24 12:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52487100&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-24 12:12</a>
+没意思 看傻逼对话就是浪费时间 我宁可去看小薄本让自己进贤者时间也不想看傻逼们撕逼 ...</blockquote>
+确实，这句话很在理。所以我是不会去nga的马桶区和游戏区的，浓度太高
+
+
+*****
+
+####  alucardcz  
+##### 82936#       发表于 2021-8-24 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52487100&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-24 12:12</a>
+
+没意思 看傻逼对话就是浪费时间 我宁可去看小薄本让自己进贤者时间也不想看傻逼们撕逼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上班摸鱼当消遣啊 你上班总不能看什么小薄本吧
+
+
+*****
+
+####  qixinno2  
+##### 82937#       发表于 2021-8-24 12:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52487531&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 12:44</a>
+
+上班摸鱼当消遣啊 你上班总不能看什么小薄本吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">找本小说看也比这强啊
+
+
+*****
+
+####  alucardcz  
+##### 82938#       发表于 2021-8-24 13:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52487704&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-24 12:58</a>
+
+找本小说看也比这强啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小说太累了 还要集中精神 一点都不放松
+
+
+*****
+
+####  黑上シグマ  
+##### 82939#       发表于 2021-8-24 13:15
+
+
+<blockquote>引用第82935楼alucardcz于2021-08-24 12:44发表的  :
+
+引用:qixinno2 发表于 2021-8-24 12:12没意思 看傻逼对话就是浪费时间 我宁可......</blockquote>
+……为什么不能？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  qixinno2  
+##### 82940#       发表于 2021-8-24 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52487742&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 13:01</a>
+
+小说太累了 还要集中精神 一点都不放松</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找点轻松无脑类的 各种一目十行爽就完了 扔了都想不起来书名的那种
+
+
+*****
+
+####  时间在我手中  
+##### 82941#       发表于 2021-8-24 15:00
+
+
+妖兰要是打克制都不能压过仇凛那才是宇宙奇观就是了，如果和摩根融合那将绝杀，可惜合不得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+强度还是等无限池验证吧，普通狩猎和无限池还是没得比的，现在狩猎还是默认掉落四星狗粮其实挺微妙的
+
+
+*****
+
+####  alucardcz  
+##### 82942#       发表于 2021-8-24 15:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天是不是该来点公告。总不能明天真的复课妖兰吧？
+
+
+*****
+
+####  areklose  
+##### 82943#       发表于 2021-8-24 15:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52489500&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 15:41</a>
+
+今天是不是该来点公告。总不能明天真的复课妖兰吧？</blockquote>
+下周三都9月了。当然是再摸一周
+
+
+*****
+
+####  黑上シグマ  
+##### 82944#       发表于 2021-8-24 15:48
+
+
+<blockquote>引用第82941楼alucardcz于2021-08-24 15:41发表的  :
+
+今天是不是该来点公告。总不能明天真的复课妖兰吧？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是配合电影，DL纪念复刻伊莉亚啊
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  qixinno2  
+##### 82945#       发表于 2021-8-24 15:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随便出 有石头抽卡算我输
+
+
+*****
+
+####  alucardcz  
+##### 82946#       发表于 2021-8-24 15:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52489576&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-24 15:48</a>
+
+下周三都9月了。当然是再摸一周</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">9月30号也是9月啊
+
+
+*****
+
+####  areklose  
+##### 82947#       发表于 2021-8-24 15:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52489632&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 15:53</a>
+
+9月30号也是9月啊</blockquote>
+这都秋泳了
+
+
+*****
+
+####  rooarr  
+##### 82948#       发表于 2021-8-24 16:15
+
+
+难道不是月姬联动的预告吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82949#       发表于 2021-8-24 16:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52489851&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-24 16:15</a>
+
+难道不是月姬联动的预告吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骗氪连击走起来
+
+
+*****
+
+####  zakki  
+##### 82950#       发表于 2021-8-24 16:54
+
+
+摩根池子9月1号才关，明天肯定无事发生，要么就是开个魔依复刻卡池<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  exiaexa  
+##### 82951#       发表于 2021-8-24 17:03
+
+
+钉子加樱桃，终于可以刷一下了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82952#       发表于 2021-8-24 17:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天是钉子和那什么果 第3面32万 1宝狂娜翻车了 
+
+
+*****
+
+####  alucardcz  
+##### 82953#       发表于 2021-8-24 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52490317&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-24 16:54</a>
+
+摩根池子9月1号才关，明天肯定无事发生，要么就是开个魔依复刻卡池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一明天妖兰复课呢
+
+
+*****
+
+####  areklose  
+##### 82954#       发表于 2021-8-24 17:40
+
+
+<img src="https://img.saraba1st.com/forum/202108/24/174005cim10or711vk76ro.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-08-24-17-38-19-69_13e7a6b10873871.jpg</strong> (407.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-24 17:40 上传
+
+
+百貌的回收还是厉害
+
+
+*****
+
+####  zakki  
+##### 82955#       发表于 2021-8-24 17:41
+
+
+三宝王哈终于能上班了吗，试了一把，3面打了60w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 82956#       发表于 2021-8-24 17:42
+
+
+一开始我还用摩根
+
+后来想想我特么为什么要用摩根，狐狸自己不就是打手
+
+3宝狐狸靠着四个50红魔放关底能打39w
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82957#       发表于 2021-8-24 18:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52490959&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-24 17:41</a>
+
+三宝王哈终于能上班了吗，试了一把，3面打了60w</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经过萌新测试 狂娜双狐依然可以上班  前2面宝具 第3秒红爆 单红卡直接秒了
+
+
+*****
+
+####  zakki  
+##### 82958#       发表于 2021-8-24 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491348&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 18:13</a>
+经过萌新测试 狂娜双狐依然可以上班  前2面宝具 第3秒红爆 单红卡直接秒了 ...</blockquote>
+三红太强了，摩根真的输一手三红<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82959#       发表于 2021-8-24 18:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491376&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-24 18:15</a>
+
+三红太强了，摩根真的输一手三红</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也没怎么叠buff 一张红卡打了36万 实属吓到我了  
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这本是不是又吃了狐狸特攻
+
+
+*****
+
+####  khxooo  
+##### 82960#       发表于 2021-8-24 18:29
+
+
+用不起大佬们的配置，只能用千代女过日子了，本想用式姐的，第二面开了个即死，0回收<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82961#       发表于 2021-8-24 18:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491550&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-24 18:29</a>
+
+用不起大佬们的配置，只能用千代女过日子了，本想用式姐的，第二面开了个即死，0回收 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚刚看到个式姐的贴 把不是你发的
+
+
+*****
+
+####  zakki  
+##### 82962#       发表于 2021-8-24 18:30
+
+
+三面那个怪即死率不低吧，我已经即死过两次了
+
+
+*****
+
+####  zakki  
+##### 82963#       发表于 2021-8-24 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491418&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 18:19</a>
+也没怎么叠buff 一张红卡打了36万 实属吓到我了  
+
+
+话说这本是不是又吃了狐狸特攻 ...</blockquote>
+肯定是吃特攻了，不然不可能这么高的
+
+
+*****
+
+####  khxooo  
+##### 82964#       发表于 2021-8-24 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491563&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 18:30</a>
+我刚刚看到个式姐的贴 把不是你发的</blockquote>
+不是，我在那边没号
+
+
+*****
+
+####  alucardcz  
+##### 82965#       发表于 2021-8-24 18:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491575&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-24 18:31</a>
+
+肯定是吃特攻了，不然不可能这么高的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">c呆太菜了 那垃圾特攻就没怎么触发过
+
+
+*****
+
+####  千叶铁矢  
+##### 82966#       发表于 2021-8-24 18:37
+
+
+仇凛赢麻了，还能继续冲，还能继续冲<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82967#       发表于 2021-8-24 18:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491664&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-24 18:37</a>
+仇凛赢麻了，还能继续冲，还能继续冲</blockquote>
+仇凛拿头赢麻啊，换人5加成吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82968#       发表于 2021-8-24 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491646&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 18:36</a>
+c呆太菜了 那垃圾特攻就没怎么触发过</blockquote>
+C呆这次狩猎是真的菜，除了被妖兰拖着上了两次场后根本拿不出最优解的队伍，看了一圈，玩蓝卡的阵容基本5加成换人走起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
+
+*****
+
+####  千叶铁矢  
+##### 82969#       发表于 2021-8-24 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491701&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-24 18:40</a>
+仇凛拿头赢麻啊，换人5加成吗如果是换人5加成，我一宝妖兰就能乱杀 ...</blockquote>
+当然6加成，还是换人奥博龙那套，可能三面伤害需要看宝具数。
+
+
+*****
+
+####  alucardcz  
+##### 82970#       发表于 2021-8-24 18:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定得换人6加成啊  5加成换人有狂娜这个无视配置伤害爆炸的存在 谁都赢不了
+
+
+*****
+
+####  zakki  
+##### 82971#       发表于 2021-8-24 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491825&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-24 18:49</a>
+当然6加成，还是换人奥博龙那套，可能三面伤害需要看宝具数。</blockquote>
+那得5宝了吧，低宝仇凛不带黑杯不可能打死，至少我的不行
+
+
+*****
+
+####  zakki  
+##### 82972#       发表于 2021-8-24 19:05
+
+
+ 本帖最后由 zakki 于 2021-8-24 19:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491913&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 18:55</a>
+肯定得换人6加成啊  5加成换人有狂娜这个无视配置伤害爆炸的存在 谁都赢不了 ...</blockquote>
+看错了，当我没说，还以为你说6加成<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 82973#       发表于 2021-8-24 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491550&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-24 18:29</a>
+
+用不起大佬们的配置，只能用千代女过日子了，本想用式姐的，第二面开了个即死，0回收 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看我用的蓝卡杀是啥！回收十分轻松
+
+
+*****
+
+####  qixinno2  
+##### 82974#       发表于 2021-8-24 19:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 我上午刚靠吃苹果刷的这金材料把摩根技能点满 妈的
+
+
+                                                 
