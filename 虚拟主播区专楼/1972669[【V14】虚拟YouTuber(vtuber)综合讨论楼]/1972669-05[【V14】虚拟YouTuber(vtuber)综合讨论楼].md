@@ -7846,3 +7846,25 @@ KING这个工商规格可真高啊，花了不少钱把
 
 
                                                  
+
+*****
+
+####  alcoholic1000  
+##### 6626#       发表于 2021-8-24 23:35
+
+
+男主播确实赚钱，日化产品已经从sk2用到ポーラBA（←New!）
+
+
+*****
+
+####  rzrbtk  
+##### 6627#       发表于 2021-8-24 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52495176&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-8-24 23:19</a>
+明天除了琥珀还有什么人选吗</blockquote>
+我不知道惹，但应该都是郡道当时征集到的那些“有玩fgo”的朋友
+
+
+                                                 

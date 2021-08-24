@@ -5878,3 +5878,14 @@ C呆这次狩猎是真的菜，除了被妖兰拖着上了两次场后根本拿�
 
 
                                                  
+
+*****
+
+####  yangun22  
+##### 82997#       发表于 2021-8-24 23:58
+
+
+6加成除了开盒子以外没意义啊，氪金礼装带满了XJBD就是了，刷满材料也不用刷很多次，更别说狩猎还要6加成，点那么多下手不累么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                 

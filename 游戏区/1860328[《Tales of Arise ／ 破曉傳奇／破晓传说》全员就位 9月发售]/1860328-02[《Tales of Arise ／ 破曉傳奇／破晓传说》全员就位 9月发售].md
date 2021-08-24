@@ -17215,3 +17215,14 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2792#         楼主| 发表于 2021-8-25 00:04
+
+
+玩了十多轮体验版，发现黑🐉出场的规律似乎是在<strong>特别短的时间内</strong>击败螳螂，只要够快几乎是必出。
+
+
+                                                 

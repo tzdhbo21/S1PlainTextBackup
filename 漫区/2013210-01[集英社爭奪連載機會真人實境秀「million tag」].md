@@ -3377,3 +3377,19 @@ https://sp.shonenjump.com/p/sp/million-tag/works/6/8
 
 
                                                  
+
+*****
+
+####  某某某人  
+##### 231#       发表于 2021-8-24 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52492892&amp;ptid=2013210" target="_blank">henry8848 发表于 2021-8-24 20:19</a>
+
+是林太高，还是藤田太矮，足足差了一个头
+
+藤田真的是咸鱼心态，不慌不忙，穿着人字拖就来了 ...</blockquote>
+林太高吧, 宣佈結果時可以明顯看見林比其他編輯都高不少
+
+
+                                                 

@@ -670,3 +670,58 @@ B怕是土豆大厂<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 
                                                
+
+*****
+
+####  聚散浮云  
+##### 62#       发表于 2021-8-25 00:41
+
+
+妈耶，居家办公了一天怎么就崩溃了，居家了一年的我怎么活下来的
+
+顺便，还是有很多一天8小时且待遇不差国内大厂的外企存在的
+
+
+*****
+
+####  zk1990  
+##### 63#       发表于 2021-8-25 00:50
+
+
+作为一个确诊焦虑症，能理解lz心情。我现在也是在一家挺厚道的外企，同事又厉害又勤奋还都比我年轻，最糟糕的是老板为了制造鲶鱼效应把我也吹成了很厉害的人……刚开始时真的压力很大。但算在药物的帮助下，勉强摆出来一副死猪不怕开水烫的伪装撑过了试用期……
+
+
+*****
+
+####  PENTAX-DA  
+##### 64#       发表于 2021-8-25 00:53
+
+
+我就说感觉眼熟
+
+
+你这破事要讲几遍啊，真这么有表现欲能不能一次编完呢？
+[https://bbs.saraba1st.com/2b/thread-2018210-1-1.html](https://bbs.saraba1st.com/2b/thread-2018210-1-1.html)
+
+
+*****
+
+####  acg_gyanc  
+##### 65#       发表于 2021-8-25 00:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52490694&amp;ptid=2022536" target="_blank">革命少女 发表于 2021-8-24 17:19</a>
+上个帖子还没找到第三家祸害的可选公司，加还在想着换城市去南京找工作。现在对出租屋有感情了，不想换了 ...</blockquote>
+还真是上次发帖那个啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 您加油
+
+
+*****
+
+####  海关  
+##### 66#       发表于 2021-8-25 01:03
+
+
+建议先去精神科看看~<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">或许他们也招程序员
+
+
+                                                 
