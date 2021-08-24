@@ -71,9 +71,9 @@ jobs:
         S1_COOKIE: ${{ secrets.S1_COOKIE }}
       run: |
         python s1.py
-    - name: GetA-ThreadID
-      run: |
-        python getAthreadid.py
+    # - name: GetA-ThreadID
+    #   run: |
+    #     python getAthreadid.py
     - name: commit
       env:
         TZ: 'CST-8'

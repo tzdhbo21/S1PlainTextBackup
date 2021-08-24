@@ -11,7 +11,7 @@ import json
 import math
 import asyncio,aiohttp
 
-sys.excepthook = lambda *args: exit(1) #只有在出现exit(1)的情况时才终止，debug时不要用
+# sys.excepthook = lambda *args: exit(1) #只有在出现exit(1)的情况时才终止，debug时不要用
 
 
 def mkdir(path):

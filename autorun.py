@@ -81,6 +81,7 @@ if __name__ == '__main__':
                 thdata[l] = {}
                 thdata[l]['totalreply'] =0
                 thdata[l]['title'] = "待更新"
+                thdata[l]['newtitle'] = "待更新"
                 thdata[l]['lastedit'] = int(threadict[l])
                 thdata[l]['category']= k
                 thdata[l]["active"] =  True

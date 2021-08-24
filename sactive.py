@@ -13,7 +13,7 @@ with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
     thdata=json.load(f)
 for i in thdata.keys():
     # if(((int(time.time()) -thdata[i]['lastedit']) < 1296000 ) and thdata[i]['totalreply'] > 1) :
-    thdata[i]['newtitle'] = thdata[i]['title']
+    # thdata[i]['newtitle'] = thdata[i]['title']
     if(int(time.time()) -thdata[i]['lastedit']) < 1296000:
         if(thdata[i]['newtitle']):
             thdata[i]['active'] = True
