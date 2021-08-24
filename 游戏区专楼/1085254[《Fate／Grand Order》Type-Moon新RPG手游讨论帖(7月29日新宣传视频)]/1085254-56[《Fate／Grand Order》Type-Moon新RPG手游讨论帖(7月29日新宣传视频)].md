@@ -5094,3 +5094,25 @@ https://www.bilibili.com/video/BV15A411c7bz/
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 82930#       发表于 2021-8-24 11:26
+
+
+ 本帖最后由 zakki 于 2021-8-24 11:29 编辑 
+
+再倒一次nga垃圾，这次真忍不住不倒，反白了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82931#       发表于 2021-8-24 11:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你对NGA真的爱的深沉 我去那基本就看看爆料 恶搞和梗图之类的 弱智言论基本无视
+
+
+                                                 
