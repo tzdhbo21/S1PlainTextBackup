@@ -5071,3 +5071,26 @@ https://www.bilibili.com/video/BV15A411c7bz/
 
 
                                                  
+
+*****
+
+####  白金口袋  
+##### 82928#       发表于 2021-8-24 09:54
+
+
+你们妖兰技能的铃铛都是从哪挤出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82929#       发表于 2021-8-24 09:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52485148&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-8-24 09:54</a>
+
+你们妖兰技能的铃铛都是从哪挤出来的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">正常推完2.6能升完两个技能吧 
+
+
+                                                 

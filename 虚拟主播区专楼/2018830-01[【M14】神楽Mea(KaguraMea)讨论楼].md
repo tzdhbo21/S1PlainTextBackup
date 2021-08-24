@@ -14271,3 +14271,23 @@ ptr左边那个我倒是不认得<img src="https://static.saraba1st.com/image/sm
 
 
                                                  
+
+*****
+
+####  Klience  
+##### 1304#       发表于 2021-8-24 09:36
+
+
+那个红毛有角的那个印象里我记得也是八美肉吧
+
+
+*****
+
+####  T_Hb  
+##### 1305#       发表于 2021-8-24 09:41
+
+
+早年和tomari一起玩的八美肉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
