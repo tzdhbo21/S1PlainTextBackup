@@ -5685,3 +5685,92 @@ C呆这次狩猎是真的菜，除了被妖兰拖着上了两次场后根本拿�
 
 
                                                  
+
+*****
+
+####  xiongxingyu  
+##### 82981#       发表于 2021-8-24 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52492544&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 19:55</a>
+
+你看贴别看一半啊 这是在讨论其他东西
+
+5加成不换人我前面就说了啊  狂娜双狐就能做到 ...</blockquote>
+都5加成了，我选择解放双手，道满夹馍加拐平均只要点7个技能，而且是个50冲都能抓来当壮丁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82982#       发表于 2021-8-24 20:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52492611&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-24 20:01</a>
+
+是，妖兰前两面伤害太低了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么久了还没见到吹陈宫的 怎么回事 区区逆克制就不行了吗隔壁
+
+
+*****
+
+####  exiaexa  
+##### 82983#       发表于 2021-8-24 20:54
+
+
+有句刚句啊，狩猎本没必要纠结5加成啊
+撑死就5%x200w＝10w的qp，何苦折磨自己
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 82984#       发表于 2021-8-24 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52493386&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-24 20:54</a>
+有句刚句啊，狩猎本没必要纠结5加成啊
+撑死就5%x200w＝10w的qp，何苦折磨自己
+ ...</blockquote>
+重要的不是qp，是羁绊，是爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82985#       发表于 2021-8-24 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52493386&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-24 20:54</a>
+
+有句刚句啊，狩猎本没必要纠结5加成啊
+
+撑死就5%x200w＝10w的qp，何苦折磨自己
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5啥5 必须6 不然怎么能叫精英呢
+
+
+*****
+
+####  cckuku  
+##### 82986#       发表于 2021-8-24 21:21
+
+
+其实我一直很好奇哪来打活动那么多6加成？人均铺满氪金礼装？
+
+
+*****
+
+####  alucardcz  
+##### 82987#       发表于 2021-8-24 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52493670&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-8-24 21:21</a>
+
+其实我一直很好奇哪来打活动那么多6加成？人均铺满氪金礼装？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人可以带羁绊礼装！
+
+
+                                                 
