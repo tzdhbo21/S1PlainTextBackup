@@ -7648,3 +7648,68 @@ KING这个工商规格可真高啊，花了不少钱把
 
 
                                                  
+
+*****
+
+####  OldGlory  
+##### 6610#       发表于 2021-8-24 19:19
+
+
+白上桑很容易叫的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">levi那个SIREN翻唱里最难叫的还得是gatchman
+
+
+*****
+
+####  hulaoda007  
+##### 6611#       发表于 2021-8-24 19:24
+
+
+不过算了...
+
+
+*****
+
+####  kangkangsama  
+##### 6612#       发表于 2021-8-24 19:26
+
+
+<blockquote>渡鸦骑士 发表于 2021-8-24 18:55
+等等，点进郡道频道，这一堆棉花糖小视频是什么鬼</blockquote>
+子豚相谈室。每天更新一个短视频讲冷门豆知识。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|质|
+
+
+查看全部评分
+
+
+*****
+
+####  FCCHua  
+##### 6613#       发表于 2021-8-24 19:39
+
+
+挺有趣的短视频
+
+
+*****
+
+####  rzrbtk  
+##### 6614#       发表于 2021-8-24 19:57
+
+
+不是说叫不来白上桑，郡道跟白上桑私下交流应该是有的吧，之前还在推特上互推肥肥牛肉碎，单纯是郡道有大物恐惧症，看到对方粉丝太多就溜了，可能觉得只是唱个歌不怕什么吧，挺好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">！
+这个人选不枉我当初会限推荐小琥珀吖<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">～
+
+
+                                                 

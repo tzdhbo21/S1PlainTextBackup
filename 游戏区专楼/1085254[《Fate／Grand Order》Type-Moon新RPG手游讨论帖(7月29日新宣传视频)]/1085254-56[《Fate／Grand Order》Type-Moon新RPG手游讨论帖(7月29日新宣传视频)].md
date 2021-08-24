@@ -5612,3 +5612,76 @@ C呆这次狩猎是真的菜，除了被妖兰拖着上了两次场后根本拿�
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 82975#       发表于 2021-8-24 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52491913&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 18:55</a>
+肯定得换人6加成啊  5加成换人有狂娜这个无视配置伤害爆炸的存在 谁都赢不了 ...</blockquote>
+想起来了，之前看到过，狂娜同宝具换人5加成伤害不如妖兰高，红卡最高伤害是妖兰的换人五加成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 82976#       发表于 2021-8-24 19:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有本渣渣组得出的阵容
+
+
+*****
+
+####  alucardcz  
+##### 82977#       发表于 2021-8-24 19:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52492174&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-24 19:21</a>
+
+想起来了，之前看到过，狂娜同宝具换人5加成伤害不如妖兰高，红卡最高伤害是妖兰的换人五加成 ...</blockquote>
+不带黑杯前2面不太行 3面机制问题比狂娜高   不过都是溢出伤害
+
+
+话说今天隔壁怎么没有陈宫周回的贴啊  百级陈师傅都去哪了 不就是打蓝字吗！
+
+
+*****
+
+####  xiongxingyu  
+##### 82978#       发表于 2021-8-24 19:50
+
+
+你们都5加成了还换毛人，夹馍带个宝石直接打两面不就完事了，一面交给道满甚至尼托解决<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82979#       发表于 2021-8-24 19:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52492498&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-8-24 19:50</a>
+
+你们都5加成了还换毛人，夹馍带个宝石直接打两面不就完事了，一面交给道满甚至尼托解决 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看贴别看一半啊 这是在讨论其他东西
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">5加成不换人我前面就说了啊  狂娜双狐就能做到
+
+
+*****
+
+####  zakki  
+##### 82980#       发表于 2021-8-24 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52492481&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-24 19:49</a>
+不带黑杯前2面不太行 3面机制问题比狂娜高   不过都是溢出伤害
+
+
+话说今天隔壁怎么没有陈宫周回的贴啊  百 ...</blockquote>
+是，妖兰前两面伤害太低了
+
+
+                                                 
