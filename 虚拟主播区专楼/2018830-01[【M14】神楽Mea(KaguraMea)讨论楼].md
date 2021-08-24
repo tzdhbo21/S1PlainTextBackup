@@ -14566,3 +14566,80 @@ et舔狗不得好死
 
 
                                                  
+
+*****
+
+####  T_Hb  
+##### 1330#       发表于 2021-8-24 22:01
+
+
+开场怎么就尬住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这就是距离感吗
+
+
+*****
+
+####  专业划水人员  
+##### 1331#       发表于 2021-8-24 22:04
+
+
+这人的游戏形象终于像个普通人了。
+
+
+*****
+
+####  时间在我手中  
+##### 1332#       发表于 2021-8-24 22:06
+
+
+我还在外面，爸妈来了现在出门买点东西顺便清洁了一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">回家再加速观看了
+
+
+*****
+
+####  T_Hb  
+##### 1333#       发表于 2021-8-24 22:06
+
+
+臭いtype pokemon   KGRMEA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 1334#       发表于 2021-8-24 22:19
+
+
+这游戏里宝可梦能进化吗
+
+
+*****
+
+####  T_Hb  
+##### 1335#       发表于 2021-8-24 22:19
+
+
+不能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你把这游戏想太高级了
+
+
+*****
+
+####  Klience  
+##### 1336#       发表于 2021-8-24 22:22
+
+
+数码暴龙手游都能在打的时候进化了 这宝可梦不还原原作啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1337#       发表于 2021-8-24 22:25
+
+
+说实话我都不知道她玩的是哪个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感觉没有关注的必要
+
+
+                                                 

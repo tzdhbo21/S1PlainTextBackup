@@ -5774,3 +5774,61 @@ C呆这次狩猎是真的菜，除了被妖兰拖着上了两次场后根本拿�
 
 
                                                  
+
+*****
+
+####  zore  
+##### 82988#       发表于 2021-8-24 21:27
+
+
+战斗服就该开lv20,换人史诗级加强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 82989#       发表于 2021-8-24 21:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该出新衣服了 我这种咸鱼衣服都全满了
+
+
+*****
+
+####  qixinno2  
+##### 82990#       发表于 2021-8-24 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52493739&amp;ptid=1085254" target="_blank">zore 发表于 2021-8-24 21:27</a>
+
+战斗服就该开lv20,换人史诗级加强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换人CD变成1算了
+
+
+*****
+
+####  zore  
+##### 82991#       发表于 2021-8-24 22:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52494241&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-24 22:04</a>
+
+换人CD变成1算了</blockquote>
+换人有的是方法,其实意义也不大<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 82992#       发表于 2021-8-24 22:17
+
+
+ 本帖最后由 zakki 于 2021-8-24 22:19 编辑 
+
+我觉得2.0快完结了，也该出一个拐级衣服了，就op里那个所长服吧，继承了所长和小达芬奇的遗志，作为迦勒底最后一任所长的衣服，技能不能不给强力点。
+一技能，选择一个从者，指令卡变成他的5张牌，出星15，爆伤20。
+二技能，技能cd减2，30宝威，30充能。
+三技能，队伍3号位和6号位从者交换，换上来的从者30三色魔放，20加攻
+
+
+                                                 

@@ -7787,3 +7787,36 @@ KING这个工商规格可真高啊，花了不少钱把
 
 
                                                  
+
+*****
+
+####  格林卡罗尔  
+##### 6621#       发表于 2021-8-24 21:34
+
+
+翻郡道推看到她献血50次纪念的照片，难道这个人意外的是个不抽烟喝酒的？
+
+
+*****
+
+####  rzrbtk  
+##### 6622#       发表于 2021-8-24 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52493844&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2021-8-24 21:34</a>
+翻郡道推看到她献血50次纪念的照片，难道这个人意外的是个不抽烟喝酒的？ ...</blockquote>
+郡郡不喜欢味冲的，烈酒咖啡芥末全不喜欢，口味上还是小孩…不过看起来挺喜欢ほろよい和蜂蜜柚子酒的。
+而且那个献血是成分血说不定其实要求也没那么高？
+
+
+*****
+
+####  喜闻乐见  
+##### 6623#       发表于 2021-8-24 22:22
+
+
+埋头摁画
+<img src="http://ww1.sinaimg.cn/large/0026IPSsgy1gts8s1vyjgj60or0efalh02.jpg" referrerpolicy="no-referrer">
+
+
+                                                 
