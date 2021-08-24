@@ -5050,3 +5050,24 @@ https://www.bilibili.com/video/BV15A411c7bz/
 
 
                                                 
+
+*****
+
+####  UNISONIA  
+##### 82927#       发表于 2021-8-24 08:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52474560&amp;ptid=1085254" target="_blank">被子十三 发表于 2021-8-23 12:46</a>
+
+2.6终于通关了，今天一口气打了六七个小时
+
+感想过几天整理一下吧（正好可以爬楼看看大家的感想）， ...</blockquote>
+对，这个地方在主线剧情里完全没有提到
+
+
+结合妖崔的第三再临完全没有登场来看……感觉妖崔的部分去掉（或者没写完）的部分还是挺多的
+
+不过这个颜色倒是未必和绿柱石（黄绿色系）或者尖晶石（粉色系）有关系
+
+
+                                                 
