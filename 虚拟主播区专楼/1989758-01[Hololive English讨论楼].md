@@ -20967,3 +20967,85 @@ Debut表现最好的人 但aussie时间太阴间 首播也比较嗯混 怀疑能
 
 
                                                  
+
+*****
+
+####  smy20011  
+##### 1334#         楼主| 发表于 2021-8-25 00:58
+
+
+<img src="https://img.saraba1st.com/forum/202108/25/005801i7odrsoq4ozqm6os.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E9OFddBVEAEPs4w.jpeg</strong> (236.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 00:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/25/005801jlla1axiky1sqii7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E9ALyXeVUAQ8q03.jpeg</strong> (138.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 00:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/25/005801f0muo4pfoouvauyu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E9boVZVX0AU-aMV.jpeg</strong> (480.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 00:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/25/005803z51nlm19ngnlxzml.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E9a-ThwWQAAE8R3.jpeg</strong> (771.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 00:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/25/005803tru63izhpa2zrtr2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E9gI49aVUBU27Tb.jpeg</strong> (448.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 00:58 上传
+
+
+*****
+
+####  smy20011  
+##### 1335#         楼主| 发表于 2021-8-25 00:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52490426&amp;ptid=1989758" target="_blank">wuzhengkai 发表于 2021-8-24 17:03</a>
+
+EN二期day1锐评：
+
+
+Kronii&gt;Sana=Hakos&gt;&gt;Fauna&gt;Mumei</blockquote>
+指望每一期都出鲨鱼这种怪物不现实啊
+
+
+*****
+
+####  _Ra1nMaker  
+##### 1336#       发表于 2021-8-25 01:13
+
+
+慢慢来吧，以后会不会火起来真不好说，本社兔皇刚出道的时候也平平无奇放同期里都不突出呢，谁能想到会有如今的成就
+
+
+                                                 
