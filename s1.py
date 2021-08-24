@@ -173,8 +173,8 @@ async def UpdateThread(threaddict,semaphore):
                 mkdir(filedir)
                 with open((filedir+str(threaddict['id'])+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
                     f.write('1')
-            # elif(totalpage >= lastpage):
-            else:
+            elif(totalpage >= lastpage):
+            # else:
                 if(totalpage > 50):
                     filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+titles+'/'
                     mkdir(filedir)
