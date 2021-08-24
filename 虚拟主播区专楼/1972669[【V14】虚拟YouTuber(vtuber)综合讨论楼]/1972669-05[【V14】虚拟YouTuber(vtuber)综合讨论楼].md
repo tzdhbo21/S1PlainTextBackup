@@ -7868,3 +7868,20 @@ KING这个工商规格可真高啊，花了不少钱把
 
 
                                                  
+
+*****
+
+####  结晶の雨  
+##### 6628#       发表于 2021-8-25 03:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52492153&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-8-24 23:19</a>
+白上桑很容易叫的levi那个SIREN翻唱里最难叫的还得是gatchman</blockquote>
+听到gatch桑唱的那几句我第一印象竟然是还不错(至少比rtrt的粉雪强<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+直到之后在levi杂谈里听到了gatch桑发过去的试音带。emmmm，其实比rtrt好不了多少嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+今后大概是不会再唱了罢
+
+—— 来自 Xiaomi MI CC 9e, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
