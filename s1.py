@@ -161,7 +161,7 @@ async def UpdateThread(threaddict,semaphore):
             # except:
             #     pass
             namelist, replylist,totalpage,newtitles= parse_html(result)
-            print(threaddict['id']+str(totalpage))
+            print(threaddict['id']+'-'+str(totalpage))
             titles = threaddict['title']
             threaddict['id']['newtitle'] = newtitles
             if(thdata[threaddict['id']]['title'] =='待更新'):
