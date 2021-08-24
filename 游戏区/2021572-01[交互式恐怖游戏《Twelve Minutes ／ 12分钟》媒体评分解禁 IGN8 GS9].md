@@ -1744,3 +1744,37 @@ Dahlia（大丽花）既是花名也是人名，是英文推理常见的一种�
 
 
                                                  
+
+*****
+
+####  白昼梦  
+##### 148#       发表于 2021-8-24 08:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52484000&amp;ptid=2021572" target="_blank">luoyianwu 发表于 2021-8-24 08:00</a>
+通关了。加上上班时间挂了一会机，总时长7.5小时。和同类游戏一样，越接近结局越冗长，体验也越差。但是通 ...</blockquote>
+你再打另一个结局好感度就掉回去了，然后再看一下攻略怎么拿正念结局好感度就变成负了
+
+
+*****
+
+####  luoyianwu  
+##### 149#       发表于 2021-8-24 09:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52484227&amp;ptid=2021572" target="_blank">白昼梦 发表于 2021-8-24 08:33</a>
+
+你再打另一个结局好感度就掉回去了，然后再看一下攻略怎么拿正念结局好感度就变成负了 ...</blockquote>
+成就里写了嘛，Blissful ignorance。玩开心封盘就好了
+
+
+*****
+
+####  白昼梦  
+##### 150#       发表于 2021-8-24 09:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正没点病是搞不出删档和弱智真结局条件的
+
+
+                                                 

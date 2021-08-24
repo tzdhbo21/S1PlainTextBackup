@@ -17032,3 +17032,113 @@ xsx版分辨率跟帧数都比ps5好啊，目测</blockquote>
 
 
                                                  
+
+*****
+
+####  凛雪鸦  
+##### 2780#       发表于 2021-8-24 08:19
+
+
+求问ps4几点解锁？0点吗
+
+
+*****
+
+####  h82258652  
+##### 2781#       发表于 2021-8-24 08:52
+
+
+官网的：
+[https://toarise.tales-ch.jp/products/products_list.php](https://toarise.tales-ch.jp/products/products_list.php)
+
+<img src="https://img.saraba1st.com/forum/202108/24/085002lib1i4xze0ir4p4a.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-08-24_08-48-56.png</strong> (259.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-24 08:50 上传
+
+
+PSN的：
+[https://store.playstation.com/zh ... 0-ARISEULTASIA1PS5/](https://store.playstation.com/zh-hans-hk/product/HP0700-PPSA02796_00-ARISEULTASIA1PS5/)
+
+<img src="https://img.saraba1st.com/forum/202108/24/085056o7egzxigxdpydsif.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-08-24_08-49-20.png</strong> (138.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-24 08:50 上传
+
+
+上点心吧，南梦宫<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+所以这三个组合包究竟是包含还是不包含，另外能不能单买？
+
+
+*****
+
+####  qiyu1234  
+##### 2782#       发表于 2021-8-24 08:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52484402&amp;ptid=1860328" target="_blank">h82258652 发表于 2021-8-24 08:52</a>
+
+官网的：
+
+https://toarise.tales-ch.jp/products/products_list.php</blockquote>
+官网是日版的内容
+
+港版，甚至美版都有不同
+
+
+*****
+
+####  h82258652  
+##### 2783#       发表于 2021-8-24 09:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52484414&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-24 08:53</a>
+
+官网是日版的内容
+
+港版，甚至美版都有不同</blockquote>
+这么奇葩的吗？
+
+感觉日版被背刺了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leystage  
+##### 2784#       发表于 2021-8-24 09:18
+
+
+<blockquote>虚无连斩 发表于 2021-8-24 00:34
+这两天乘着xgp便宜买了一年
+
+把天蝎扫了扫灰搬出来下了体验版...
+
+总感觉翻译好怪啊...特别女主名字，从最早 ...</blockquote>
+我猜是从英文版来的？
+
+
+                                                 
+
+*****
+
+####  ranapocket  
+##### 2785#       发表于 2021-8-24 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52465677&amp;ptid=1860328" target="_blank">nozomitech 发表于 2021-8-22 17:49</a>
+不知道为什么我的ps5画面实在是鲜艳过头了，看的眼睛受不了，而且没了vrr感觉没有xsx流畅，话说这游戏让我 ...</blockquote>
+是不是开了hdr，关掉以后好很多
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
