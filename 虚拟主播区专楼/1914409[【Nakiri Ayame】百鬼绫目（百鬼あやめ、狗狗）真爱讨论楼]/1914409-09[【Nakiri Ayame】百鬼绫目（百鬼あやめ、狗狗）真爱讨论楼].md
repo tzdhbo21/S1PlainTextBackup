@@ -11627,3 +11627,25 @@ xdm怎么看?
 
 
                                                 
+
+*****
+
+####  Fami水  
+##### 13002#       发表于 2021-8-25 21:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">耻辱下播  这游戏该封印了
+
+
+*****
+
+####  cvql  
+##### 13003#       发表于 2021-8-25 21:58
+
+
+这玩意难度实际不高，就是背套路，问题队友烂就是坐牢，你根本没办法一个人完全带全场。
+
+—— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+                                                 

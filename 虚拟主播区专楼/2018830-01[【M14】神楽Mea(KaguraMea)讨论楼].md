@@ -15278,3 +15278,83 @@ https://t.co/ov9Wah8Too https://t.co/UUtPWSlEHK
 
 
                                                 
+
+*****
+
+####  时间在我手中  
+##### 1398#       发表于 2021-8-25 21:44
+
+
+ 本帖最后由 时间在我手中 于 2021-8-25 21:48 编辑 
+
+假期作业没做完怎么办？丢掉了，丢掉之后神清气爽啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还真有点肥婆午夜电台的味道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还算认真的在给失眠女粉提建议
+
+
+*****
+
+####  T_Hb  
+##### 1399#       发表于 2021-8-25 21:50
+
+
+我还以为是你问的失眠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1400#       发表于 2021-8-25 21:53
+
+
+ 本帖最后由 时间在我手中 于 2021-8-25 22:02 编辑 
+
+我日语书写大概比我听力还乐色个几倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你让我读和听姑且凑合，写的话我语法十巧通了九窍
+
+
+而且我刚补完觉没必要问，单纯就是今天早上不知道为什么5点醒了回笼大失败，而且中午也完全没睡到的问题
+
+猫总赢！
+
+
+*****
+
+####  黒長直姫  
+##### 1401#       发表于 2021-8-25 22:02
+
+
+羊党何去何从
+
+
+*****
+
+####  T_Hb  
+##### 1402#       发表于 2021-8-25 22:03
+
+
+ 本帖最后由 T_Hb 于 2021-8-25 22:12 编辑 
+
+感觉越唱拉的次数越多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> <blockquote>今日の猫は体調不良のようで</blockquote>又是没听过的bgm
+
+抒情版again
+
+
+*****
+
+####  汇聚群光  
+##### 1403#       发表于 2021-8-25 22:11
+
+
+说到烦恼相谈，我想起了去年10月她也在一次歌回上搞过这出，当时有个观众说自己的女朋友被别人拐跑了，然后这吊人就唱了迄今为止最完美的《我成了别人的女朋友》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1404#       发表于 2021-8-25 22:24
+
+
+发什么神经
+
+
+                                                 
