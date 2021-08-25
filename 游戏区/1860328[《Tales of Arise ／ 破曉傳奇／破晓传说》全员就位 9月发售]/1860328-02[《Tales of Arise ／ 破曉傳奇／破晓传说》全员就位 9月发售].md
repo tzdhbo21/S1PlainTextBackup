@@ -17288,3 +17288,19 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  センチ  
+##### 2798#       发表于 2021-8-25 17:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道有没有同好
+
+这次法术的咏唱词写的挺好，比前3作帅很多
+
+
+当然最喜欢的还是TOG的
+
+
+                                                 

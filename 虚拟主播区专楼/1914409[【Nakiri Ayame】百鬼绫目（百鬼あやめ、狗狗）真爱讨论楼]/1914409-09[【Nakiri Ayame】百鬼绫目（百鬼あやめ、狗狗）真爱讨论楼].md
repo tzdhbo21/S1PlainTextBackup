@@ -11429,3 +11429,50 @@ syl阿绫你27号要马车 别再玩unite了<img src="https://static.saraba1st.c
 
 
                                                  
+
+*****
+
+####  一仙  
+##### 12985#       发表于 2021-8-25 16:52
+
+
+ 本帖最后由 一仙 于 2021-8-25 16:57 编辑 
+
+今天刷推看见有人说en的新人mumei像是en版本的绫总<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202108/25/165624loedeizlninvwe9i.png" referrerpolicy="no-referrer">
+
+
+<strong>E9mV1dvVIAIv5i5.png</strong> (87.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 16:56 上传
+
+
+我看EN新人也最喜欢mumei<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 
+
+坏了，别成代餐了。
+
+
+*****
+
+####  昆西昆希昆  
+##### 12986#       发表于 2021-8-25 17:18
+
+
+那往头上插俩角谁都可以像<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nian1538  
+##### 12987#       发表于 2021-8-25 17:37
+
+
+还有这种好事？
+不过mumei直播时间太差了，估计终究还是要回来看绫总
+
+
+                                                 

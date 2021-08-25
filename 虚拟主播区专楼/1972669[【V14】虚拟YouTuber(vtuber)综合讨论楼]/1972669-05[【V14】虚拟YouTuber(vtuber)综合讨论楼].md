@@ -7935,3 +7935,28 @@ V.W.P 2nd single "輪廻" coming soon !!
 
 
                                                 
+
+*****
+
+####  alcoholic1000  
+##### 6632#       发表于 2021-8-25 17:27
+
+
+<img src="https://img.saraba1st.com/forum/202108/25/172655gouik2f6xe92xsew.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>#illustrayBAE #ベーアート #holoCouncil.jpeg</strong> (202.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 17:26 上传
+
+
+白上フブキ@ホロライブ🌽🦊@shirakamifubuki·31分 返信先: @pakosunさん
+
+かわ……い……い……
+
+†┏┛墓┗┓†
+
+
+                                                 
