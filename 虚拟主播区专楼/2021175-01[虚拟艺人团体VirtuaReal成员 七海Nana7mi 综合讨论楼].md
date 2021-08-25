@@ -1477,3 +1477,16 @@ https://b23.tv/1xan40 ...</blockquote>
 
 
                                                  
+
+*****
+
+####  凉时美景  
+##### 128#       发表于 2021-8-25 19:32
+
+
+什么时候再来个杂谈回呢
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

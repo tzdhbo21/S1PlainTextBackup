@@ -7973,3 +7973,37 @@ SYL，千麻组轴man过了N1。<img src="https://static.saraba1st.com/image/smi
 
 
                                                  
+
+*****
+
+####  winda  
+##### 6634#       发表于 2021-8-25 19:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天开2-1赢舞元，这个turning point关键
+
+
+*****
+
+####  FCCHua  
+##### 6635#       发表于 2021-8-25 19:34
+
+
+舞元太难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  free  
+##### 6636#       发表于 2021-8-25 19:34
+
+
+[https://twitter.com/VALIS_Official/status/1430470007042068490](https://twitter.com/VALIS_Official/status/1430470007042068490)
+
+
+valis三人感染，因为是一起训练后发现的，另外三位也拉去检测了等待结果
+
+接下来有大型线下活动的都应该当心点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                 
