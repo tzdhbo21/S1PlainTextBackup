@@ -3087,3 +3087,25 @@ https://b23.tv/RvUv4E</blockquote>
 
 
                                                  
+
+*****
+
+####  tn_teana  
+##### 275#       发表于 2021-8-25 13:36
+
+
+之前说走到最后一步没成功，估计是落选了吧
+
+而且当时是在北京追梦的，那应该是BEJ48?
+
+
+*****
+
+####  逸yi  
+##### 276#       发表于 2021-8-25 13:44
+
+
+ut都死了快一年了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                 

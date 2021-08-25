@@ -17803,3 +17803,54 @@ an和原版性能倾向是明确的，SP之后也能互换，基本上只上一�
 
 
                                                  
+
+*****
+
+####  江戸前ルナ  
+##### 5885#       发表于 2021-8-25 13:29
+
+
+搬了MOSS大佬2个视频
+
+[https://www.bilibili.com/video/BV1xh411q7fa/](https://www.bilibili.com/video/BV1xh411q7fa/)
+
+
+丽塔SOLO 高难120。打妖花那立回看得一愣一愣的，操作太精准了。而且还TM是分支武器<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/video/BV1Th411q7Kc/](https://www.bilibili.com/video/BV1Th411q7Kc/)
+
+
+三人速杀。三个棍机表演虐杀（真理绫香素组）
+
+
+*****
+
+####  alialex  
+##### 5886#         楼主| 发表于 2021-8-25 14:03
+
+
+2点了 没有新消息 大概是等晚上直播了吧
+
+
+*****
+
+####  RioShiina  
+##### 5887#       发表于 2021-8-25 14:26
+
+
+这更新以后冒出一个新手引导任务的图标来， 都3周年了 阿金怎么现在想起来弄这个
+
+
+*****
+
+####  yygundam  
+##### 5888#       发表于 2021-8-25 14:34
+
+
+刚刚看到助战里有个人改名成了这个，一口老血喷在了屏幕上
+<img src="https://p.sda1.dev/2/86814b6614c6a566a7230607c3d42618/Screenshot_2021-08-25-14-29-38-56_767f5d40067c198238d924d9d2eeee20~2.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEDM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

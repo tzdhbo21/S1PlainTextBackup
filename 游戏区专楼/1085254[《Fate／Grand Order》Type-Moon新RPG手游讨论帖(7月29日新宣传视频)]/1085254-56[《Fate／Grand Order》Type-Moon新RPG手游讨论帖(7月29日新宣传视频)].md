@@ -6134,3 +6134,200 @@ C呆这次狩猎是真的菜，除了被妖兰拖着上了两次场后根本拿�
 
 
                                                  
+
+*****
+
+####  UNISONIA  
+##### 83019#       发表于 2021-8-25 13:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499016&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 11:21</a>
+
+这你也信 你看看这次光速上了课金榜第1 (记得好像流水翻了400%? 关啥服  躺着赚不好吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有400%还是因为妖兰那个池的业绩实在是太菜了
+
+
+*****
+
+####  alucardcz  
+##### 83020#       发表于 2021-8-25 13:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500277&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-25 13:00</a>
+
+有400%还是因为妖兰那个池的业绩实在是太菜了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妖兰不应该抽爆吗 咋流水那那么差？
+
+
+*****
+
+####  UNISONIA  
+##### 83021#       发表于 2021-8-25 13:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500286&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 13:01</a>
+
+妖兰不应该抽爆吗 咋流水那那么差？</blockquote>
+如果后面不最速复刻的话，今年新鯖里倒数是肯定的，同期比村正卡莲这个档差很多，甚至看着大概率不如手办和鹤
+
+
+因为6周年和奥伯龙的原因很多人都对那个池子观望了
+
+
+*****
+
+####  exiaexa  
+##### 83022#       发表于 2021-8-25 13:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500286&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 13:01</a>
+
+妖兰不应该抽爆吗 咋流水那那么差？</blockquote>
+妖兰时间尴尬了啊，在奥伯龙和狐狸出来之前
+
+妖兰是要用C呆+梅林，用来打113这种阴间本的
+
+我甚至点了个20NP为了启动
+
+
+结果二连拐原地起爆，永远想不到系列
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 83023#       发表于 2021-8-25 13:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500309&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-25 13:05</a>
+
+如果后面不最速复刻的话，今年新鯖里倒数是肯定的，同期比村正卡莲这个档差很多，甚至看着大概率不如手办 ...</blockquote>
+当然还是打得过鹤小姐。妖兰那个月份明显不是因为她太菜。第一周年在后边，泳装在后边大家都在观望。第二7月太干巴巴了。除了复刻就剩下妖兰了。第三红拐没出。
+
+
+*****
+
+####  areklose  
+##### 83024#       发表于 2021-8-25 13:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">摩根出来的那个月，C呆加达芬奇复刻也就比妖兰那个月多4分一。而且尼禄祭复刻是在6月底。。
+
+
+*****
+
+####  alucardcz  
+##### 83025#       发表于 2021-8-25 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500478&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-8-25 13:23</a>
+
+妖兰时间尴尬了啊，在奥伯龙和狐狸出来之前
+
+妖兰是要用C呆+梅林，用来打113这种阴间本的
+
+我甚至点了个20N ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新预感17点复课妖兰
+
+
+*****
+
+####  qixinno2  
+##### 83026#       发表于 2021-8-25 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500574&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 13:34</a>
+
+萌新预感17点复课妖兰</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">萌新要豹跳妖兰宝具+1+1+1+1了么
+
+
+*****
+
+####  UNISONIA  
+##### 83027#       发表于 2021-8-25 13:38
+
+
+ 本帖最后由 UNISONIA 于 2021-8-25 13:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500529&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-25 13:28</a>
+
+当然还是打得过鹤小姐。妖兰那个月份明显不是因为她太菜。第一周年在后边，泳装在后边大家都在观望。第二 ...</blockquote>
+虽然既不推荐看第三方流水的结果，囿于使用规约也不打算贴具体季度详报的内容，不过结论其实挺明显的
+
+
+鹤虽然抽的人不算多，但是托这是个黄金周活动的福，整个池子的推移是明确压了妖兰池子的推移的
+
+
+顺带当时日本也有人煞有介事分析一波不应该抽妖兰的（她的人气在亲爹开始带货之前一直比较低迷，亲爹下场以后才逐渐好转，但是也不至于很好），副产物大白鹅也是常驻
+
+
+*****
+
+####  zakki  
+##### 83028#       发表于 2021-8-25 13:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500612&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-25 13:38</a>
+虽然既不推荐看第三方流水的结果，囿于使用规约也不打算贴具体季度详报的内容，不过结论其实挺明显的
+
+
+鹤 ...</blockquote>
+奥伯龙怎么样，能超迦摩吗
+
+
+*****
+
+####  alucardcz  
+##### 83029#       发表于 2021-8-25 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500593&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-25 13:36</a>
+
+萌新要豹跳妖兰宝具+1+1+1+1了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没石 已allin那谁无事发生了
+
+
+*****
+
+####  UNISONIA  
+##### 83030#       发表于 2021-8-25 13:47
+
+
+ 本帖最后由 UNISONIA 于 2021-8-25 13:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500661&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-25 13:43</a>
+
+奥伯龙怎么样，能超迦摩吗</blockquote>
+不可能，game-i列出的【A狐全程+奥伯龙13天+摩根复刻6天推定流水】截止到昨天为止，依然比19【小芬奇+水武前7天，不算兔子王】在2020年行业书里给出来的DW自家提供的数据要略低。
+
+而且很明确奥伯龙的成绩遭到了A狐的挤压，如同17年阿比对艾蕾的挤压一般
+
+
+19迦摩比同年水武还要高一截，不过也可以理解，现在玩家容量下滑不少了
+
+
+*****
+
+####  qixinno2  
+##### 83031#       发表于 2021-8-25 14:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500689&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 13:47</a>
+
+没石 已allin那谁无事发生了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快去刷羁绊
+
+
+*****
+
+####  zakki  
+##### 83032#       发表于 2021-8-25 14:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500692&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-25 13:47</a>
+
+不可能，game-i列出的【A狐全程+奥伯龙13天+摩根复刻6天推定流水】截止到昨天为止，依然比19【小芬奇+水武 ...</blockquote>
+gamei那个数据我是真觉得不靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

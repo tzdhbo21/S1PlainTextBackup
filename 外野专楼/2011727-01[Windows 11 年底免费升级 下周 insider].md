@@ -6337,3 +6337,17 @@ Windows 8和8.1都是靠Classic Shell过的
 
 
                                                  
+
+*****
+
+####  DraQin  
+##### 525#       发表于 2021-8-25 14:00
+
+
+今天宏碁终于良心发现，发了给传奇X解锁TPM的工具
+于是来问了，现在的Win11版本日常用问题多不多
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

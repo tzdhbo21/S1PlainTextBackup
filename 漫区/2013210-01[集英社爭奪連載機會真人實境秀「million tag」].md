@@ -3393,3 +3393,17 @@ https://sp.shonenjump.com/p/sp/million-tag/works/6/8
 
 
                                                  
+
+*****
+
+####  CHCL3  
+##### 232#       发表于 2021-8-25 14:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52494677&amp;ptid=2013210" target="_blank">可惜是个变态 发表于 2021-8-24 22:37</a>
+虽然但是，消极哥的题材只适合中短篇吧，爆漫王那个大逃杀一看就会被腰斩的水平，个人比较喜欢点子王的，可 ...</blockquote>
+确实，消极感觉就是中短篇专精，他其实路线不太少年漫画
+双人组这个设定比起漫画更像游戏或者企划一类的
+
+
+                                                 
