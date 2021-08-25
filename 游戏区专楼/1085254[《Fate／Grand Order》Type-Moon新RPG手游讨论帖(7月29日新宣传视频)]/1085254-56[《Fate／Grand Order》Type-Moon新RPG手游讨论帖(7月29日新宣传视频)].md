@@ -6331,3 +6331,30 @@ gamei那个数据我是真觉得不靠谱<img src="https://static.saraba1st.com/
 
 
                                                  
+
+*****
+
+####  alucardcz  
+##### 83033#       发表于 2021-8-25 14:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500826&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-25 14:00</a>
+
+快去刷羁绊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妖兰而已 不配萌新花时间吃苹果刷羁绊
+
+
+*****
+
+####  UNISONIA  
+##### 83034#       发表于 2021-8-25 14:40
+
+
+ 本帖最后由 UNISONIA 于 2021-8-25 15:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52501056&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-25 14:26</a>
+
+gamei那个数据我是真觉得不靠谱</blockquote>
+但是这两年废狗的game-i无一例外是偏高的，疫情爆发后game-i都是往高了估（除了马娘，马娘感觉哪里都掐掉一块销量……相对来说还是cy自家的数字更准）
+
+
+                                                 
