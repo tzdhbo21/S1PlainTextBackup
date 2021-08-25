@@ -17440,3 +17440,19 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  laosai13  
+##### 2808#       发表于 2021-8-26 02:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52508517&amp;ptid=1860328" target="_blank">roxassix 发表于 2021-8-26 01:26</a>
+
+至少试玩是全区中文，正式版目前商店没标。
+
+下载版的话因为随便切区，港日美的商店都又都是一个sku，不存 ...</blockquote>
+感谢！现在感觉买实体版都跟开盲盒，前几天莱莎2 ns的实体版就被坑了
+
+
+                                                 
