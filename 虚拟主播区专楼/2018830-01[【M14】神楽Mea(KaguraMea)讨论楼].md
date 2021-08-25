@@ -15714,3 +15714,25 @@ syl我记得隔壁日南好像打完疫苗之后发烧到40°左右然后体温�
 
 
                                                  
+
+*****
+
+####  Klience  
+##### 1441#       发表于 2021-8-26 00:50
+
+
+以前学校体验抽血 基本都是看哪边负责抽血的年纪偏大经验丰富的找那边去抽 除非是那些漂亮小姐姐好看的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 1442#       发表于 2021-8-26 01:34
+
+
+ 本帖最后由 雪风utopia 于 2021-8-26 01:35 编辑 
+
+想起以前抽血化验，金属片扎手的那种，头不是像针一样，是带一点长度的，那个医生把金属片扎进前面同学的手后还拧了一下，看得我好疼<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+                                                 

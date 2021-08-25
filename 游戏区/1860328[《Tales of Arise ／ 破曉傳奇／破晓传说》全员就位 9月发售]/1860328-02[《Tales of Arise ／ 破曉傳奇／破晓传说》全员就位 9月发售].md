@@ -17420,3 +17420,23 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  roxassix  
+##### 2807#       发表于 2021-8-26 01:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52507280&amp;ptid=1860328" target="_blank">laosai13 发表于 2021-8-25 22:47</a>
+
+问一下这个是xbox全区中文的吗？准备买美版实体</blockquote>
+至少试玩是全区中文，正式版目前商店没标。
+
+下载版的话因为随便切区，港日美的商店都又都是一个sku，不存在你下不到中文版的情况，约等于全区中文了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+至于实体版有没有估计只能等发售后看了，毕竟有只狼这种美版实体不给你中文的（毕竟发行是辣鸡动视，成天cod锁语言的）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过bnei最近好像实体都是全区统一语言版本(比如嗜血代码欧版就带日文)？实在担心的话还是等发售后看有没有网友分享语言信息再买吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

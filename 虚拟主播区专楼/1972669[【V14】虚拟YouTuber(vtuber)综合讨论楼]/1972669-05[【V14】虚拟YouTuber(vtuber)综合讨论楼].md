@@ -8167,3 +8167,27 @@ https://twitter.com/NIJISANJI_KR/status/1385121184426074116?s=19
 
 
                                                  
+
+*****
+
+####  qingr0028  
+##### 6645#       发表于 2021-8-26 00:55
+
+
+当然是因为底下都在ttk 所以评论数才多
+
+
+*****
+
+####  noHentai  
+##### 6646#       发表于 2021-8-26 01:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52508220&amp;ptid=1972669" target="_blank">リスカ 发表于 2021-8-26 00:34</a>
+【翻唱】チューリングラブ / ナナヲアカリ【黛灰/相羽初叶/彩虹社】 https://b23.tv/42aDos
+
+刷b站刷到点进 ...</blockquote>
+是因为黛灰这是第一次出唱歌视频，公布的那条推赞转也很多。
+
+
+                                                 
