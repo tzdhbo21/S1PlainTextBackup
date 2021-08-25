@@ -11290,3 +11290,16 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2022193&amp;extra=
 
 
                                                  
+
+*****
+
+####  黑糖花园  
+##### 789#       发表于 2021-8-25 18:21
+
+
+不小心把上扬声器的那层网弄破了 没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

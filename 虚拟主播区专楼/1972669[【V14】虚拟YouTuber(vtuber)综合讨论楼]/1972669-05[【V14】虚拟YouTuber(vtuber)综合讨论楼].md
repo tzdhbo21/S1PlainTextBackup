@@ -7960,3 +7960,16 @@ V.W.P 2nd single "輪廻" coming soon !!
 
 
                                                  
+
+*****
+
+####  hulaoda007  
+##### 6633#       发表于 2021-8-25 18:24
+
+
+好像比立绘好看...
+
+SYL，千麻组轴man过了N1。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
