@@ -17865,3 +17865,55 @@ an和原版性能倾向是明确的，SP之后也能互换，基本上只上一�
 
 
                                                  
+
+*****
+
+####  江戸前ルナ  
+##### 5890#       发表于 2021-8-25 20:05
+
+
+小老鼠迷上BBA哈哈哈
+
+
+*****
+
+####  江戸前ルナ  
+##### 5891#       发表于 2021-8-25 20:09
+
+
+饮食店，饮食店，饮食店BBA在饮食店工作哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 5892#       发表于 2021-8-25 21:20
+
+
+魔女的番组节目太多了，今天俩魔女CV追着质问吐槽，福原还要求镜头从下往上啥的，气场是真的太强了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+不过小老鼠CV也是牛逼，对着俩前辈在直播直接推BBA，还对着书画了一大堆，一群人在节目里努力避忌夜店这个关键词太欢乐了，直播室里充满<strong> 清 洁 的 空 气</strong><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LEOKO~  
+##### 5893#       发表于 2021-8-25 21:44
+
+
+有必得吗
+
+
+*****
+
+####  alialex  
+##### 5894#         楼主| 发表于 2021-8-25 21:55
+
+
+没法看直播但群里很欢乐的样子，明天补了
+
+PS：没有必得
+
+
+                                                 

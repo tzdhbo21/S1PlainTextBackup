@@ -17304,3 +17304,14 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  godless2020  
+##### 2799#       发表于 2021-8-25 21:34
+
+
+国内媒体过几天能收到媒体评测版吧............
+
+
+                                                 

@@ -6506,3 +6506,29 @@ gamei那个数据我是真觉得不靠谱</blockquote>
 
 
                                                  
+
+*****
+
+####  都谷捻柏  
+##### 83047#       发表于 2021-8-25 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52502794&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 16:54</a>
+
+看到个回复 说部分人刷无限池都是用不能说的那个刷的 这方法暴击队无法使用 是真的吗 ...</blockquote>
+印象中，国服应该是刚出的C呆毛。
+
+
+*****
+
+####  qixinno2  
+##### 83048#       发表于 2021-8-25 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52506310&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-8-25 21:23</a>
+
+印象中，国服应该是刚出的C呆毛。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天刚关的C呆池子
+
+
+                                                 

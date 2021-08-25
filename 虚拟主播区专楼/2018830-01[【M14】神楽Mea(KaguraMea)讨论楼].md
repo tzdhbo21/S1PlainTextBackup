@@ -15065,3 +15065,216 @@ syl  肥婆今天能给我过个生日吗，失眠了很难顶<img src="https:
 
 
                                                  
+
+*****
+
+####  Klience  
+##### 1377#       发表于 2021-8-25 20:08
+
+
+音乐播放器来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 1378#       发表于 2021-8-25 20:10
+
+
+她真的，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+【神楽めあ 推特发布】
+内容：🍥22：00からの配信🍥
+
+生活リズム　is　いずこへ
+　
+【歌枠/アーカイブなし】エモーショナル眠い【神楽めあ】 
+
+≪配信場所≫
+https://t.co/ov9Wah8Too https://t.co/UUtPWSlEHK
+时间：2021-08-25 20:09:04 UTC+08:00
+
+
+*****
+
+####  T_Hb  
+##### 1379#       发表于 2021-8-25 20:53
+
+
+冲
+
+
+*****
+
+####  时间在我手中  
+##### 1380#       发表于 2021-8-25 20:56
+
+
+诶，刚睡醒就来，好耶
+
+
+
+
+*****
+
+####  T_Hb  
+##### 1381#       发表于 2021-8-25 21:05
+
+
+睡觉起床睡觉起床，睡得和死了一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甘栗No.007  
+##### 1382#       发表于 2021-8-25 21:13
+
+
+你吼那么大声干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pei23333  
+##### 1383#       发表于 2021-8-25 21:21
+
+
+这bgm配上她杂谈，不去整聊天电台可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，啊，开始音乐播放器模式了
+
+
+*****
+
+####  时间在我手中  
+##### 1384#       发表于 2021-8-25 21:21
+
+
+ヒカリへ真去练了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1385#       发表于 2021-8-25 21:22
+
+
+感觉油管杂谈没tc杂谈有意思，不知道为什么
+
+
+*****
+
+####  专业划水人员  
+##### 1386#       发表于 2021-8-25 21:23
+
+
+开场第一首就那么顶了吗！状态真好。
+
+
+*****
+
+####  时间在我手中  
+##### 1387#       发表于 2021-8-25 21:23
+
+
+虽然但是，这段杂谈是没啥内容啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甘栗No.007  
+##### 1388#       发表于 2021-8-25 21:27
+
+
+定个话题开棉花糖不就成了标准电台主播吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1389#       发表于 2021-8-25 21:28
+
+
+一转mikey
+
+
+*****
+
+####  时间在我手中  
+##### 1390#       发表于 2021-8-25 21:28
+
+
+辣你把头发整成mikey那样吧.jpg
+
+
+*****
+
+####  T_Hb  
+##### 1391#       发表于 2021-8-25 21:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在说啥，挖朋友的墙脚
+
+
+*****
+
+####  时间在我手中  
+##### 1392#       发表于 2021-8-25 21:31
+
+
+ 本帖最后由 时间在我手中 于 2021-8-25 21:34 编辑 
+
+吊人竟然不是牛战士（bushi）
+
+有个评论说一起打游戏的朋友里面，有个有男朋友的女人和他说了喜欢，反正就是觉得好像挺合得来的咩老师怎么办啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+你咩就说自己以前遇到过几次这类情况，最后多数人都远离了这种人，劝他三思的感觉吧
+
+
+*****
+
+####  2014720  
+##### 1393#       发表于 2021-8-25 21:32
+
+
+呀～！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1394#       发表于 2021-8-25 21:38
+
+
+第三首了，终于拉了
+
+
+*****
+
+####  时间在我手中  
+##### 1395#       发表于 2021-8-25 21:41
+
+
+今晚全是偏慢的伴奏，翻车不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 1396#       发表于 2021-8-25 21:42
+
+
+小拉不算拉<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1397#       发表于 2021-8-25 21:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">">​捨てた
+
+
+                                                

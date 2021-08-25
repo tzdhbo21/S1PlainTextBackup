@@ -11303,3 +11303,19 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2022193&amp;extra=
 
 
                                                  
+
+*****
+
+####  leystage  
+##### 790#         楼主| 发表于 2021-8-25 21:01
+
+
+<blockquote>黑糖花园 发表于 2021-8-25 18:21
+不小心把上扬声器的那层网弄破了 没问题吧
+
+
+—— 来自 Sony XQ-BC72, Android 11上的 S1Next-鹅版 v ...</blockquote>
+也许会影响防水效果？大概最主要是美观吧
+
+
+                                                 

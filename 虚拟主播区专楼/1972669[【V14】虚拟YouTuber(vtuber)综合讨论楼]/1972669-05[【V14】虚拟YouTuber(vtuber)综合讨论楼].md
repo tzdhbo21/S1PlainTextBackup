@@ -8007,3 +8007,103 @@ valis三人感染，因为是一起训练后发现的，另外三位也拉去检
 
 
                                                  
+
+*****
+
+####  alcoholic1000  
+##### 6637#       发表于 2021-8-25 19:42
+
+
+ 本帖最后由 alcoholic1000 于 2021-8-25 20:10 编辑 
+
+Bsyl,虹KR新人和新募集
+
+<img src="https://img.saraba1st.com/forum/202108/25/194055ldgv2fgwlz4vavzq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>【니지산지 신규 라이버 데뷔】  신규 라이버의 이름과 어카운트를 공개합니다! .jpeg.jpeg</strong> (787.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 19:40 上传
+
+
+[하윤 :@HaYun2434](https://youtube.com/channel/UCrhhJPNsOqzNIkUfTABoSpg)
+[나세라 :@NaSera2434](https://youtube.com/channel/UCX88Pe54pxbJDSGIyGrzNdg)
+[고야미 :@KoYami2434](https://youtube.com/channel/UC9oudjCTHL2BfwxfDwI18eg)
+[이온 :@LeeOn2434](https://youtube.com/channel/UCCJcCWrbQzz6eDhX4M1CUwg)
+
+
+<img src="https://img.saraba1st.com/forum/202108/25/194102w5zdc587c12d0ydj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>버추얼 라이버 오디션 개최.jpeg</strong> (816.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 19:41 上传
+
+
+Syl，床？？！！神
+
+
+*****
+
+####  Ketestrait  
+##### 6638#       发表于 2021-8-25 19:50
+
+
+圆皇登板立丢两分，现在大家知道虹球的战犯是谁了吧<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑之和  
+##### 6639#       发表于 2021-8-25 20:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52504865&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-8-25 19:42</a>
+Bsyl,虹KR新人和新募集</blockquote>
+这个红毛<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+是不是以前放出来过
+
+
+*****
+
+####  SuntoryNomu  
+##### 6640#       发表于 2021-8-25 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52505757&amp;ptid=1972669" target="_blank">黑之和 发表于 2021-8-25 20:43</a>
+
+这个红毛
+
+是不是以前放出来过</blockquote>
+前年的多语言企划。
+
+<img src="https://img.saraba1st.com/forum/202108/25/211117b5724sbzj72wso5f.png" referrerpolicy="no-referrer">
+
+
+<strong>1629897036638.png</strong> (60.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 21:11 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1|扔给kr了啊|
+
+
+查看全部评分
+
+
+                                                 
