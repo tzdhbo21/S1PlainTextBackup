@@ -6589,3 +6589,16 @@ gamei那个数据我是真觉得不靠谱</blockquote>
 
 
                                                  
+
+*****
+
+####  khxooo  
+##### 83054#       发表于 2021-8-26 00:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52507125&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-25 22:33</a>
+呆毛能用小莫就能用啊 而且论buff小莫还输呆毛一手领导力</blockquote>
+怎样弥补30宝威的差距<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

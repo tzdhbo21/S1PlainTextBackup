@@ -15485,3 +15485,232 @@ wcnm一秒破功，把我的眼泪还过来
 
 
                                                 
+
+*****
+
+####  时间在我手中  
+##### 1418#       发表于 2021-8-25 23:43
+
+
+这个月还播，应该是指自己直播间的意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thisisaspider  
+##### 1419#       发表于 2021-8-25 23:44
+
+
+被净化了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1420#       发表于 2021-8-25 23:47
+
+
+今天高音也太好了，大满足
+
+
+*****
+
+####  Rem-清曲  
+##### 1421#       发表于 2021-8-25 23:48
+
+
+有人血赚<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1422#       发表于 2021-8-25 23:50
+
+
+寄了，醒了刚进直播间就听到生日快乐
+
+
+*****
+
+####  时间在我手中  
+##### 1423#       发表于 2021-8-25 23:50
+
+
+虽然不是我打的但是也赚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">31号正式打一个
+
+
+*****
+
+####  rosevalley46  
+##### 1424#       发表于 2021-8-25 23:50
+
+
+五块钱值了
+
+
+*****
+
+####  T_Hb  
+##### 1425#       发表于 2021-8-25 23:59
+
+
+明天又是大联动
+
+
+*****
+
+####  时间在我手中  
+##### 1426#       发表于 2021-8-26 00:02
+
+
+没兴趣，还不如多听几次开头这人被催着打疫苗发狂的鬼叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次一定.jpg
+
+
+*****
+
+####  T_Hb  
+##### 1427#       发表于 2021-8-26 00:02
+
+
+祈忧民确实挺烦的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过该打还是要打，tc就说要打了，还没去预约啊
+
+
+*****
+
+####  时间在我手中  
+##### 1428#       发表于 2021-8-26 00:05
+
+
+这东西我也不懂日本怎么个安排法，说实话本子那鬼样我多少有点担心她出门的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1429#       发表于 2021-8-26 00:19
+
+
+阿？麻要打了？我还在犹犹豫豫的没敢打，和你麻一样怕打针
+
+
+*****
+
+####  T_Hb  
+##### 1430#       发表于 2021-8-26 00:24
+
+
+这么细的针也怕吗，连血都扎不出来
+
+
+*****
+
+####  yywzjsw  
+##### 1431#       发表于 2021-8-26 00:26
+
+
+被实习护士搞出来的阴影.......
+
+
+*****
+
+####  T_Hb  
+##### 1432#       发表于 2021-8-26 00:27
+
+
+肌肉注射无所谓的，实习护士都不会扎错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 1433#       发表于 2021-8-26 00:35
+
+
+打针怕什么 就怕抽血实习护士扎不中地方连轧几次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 1434#       发表于 2021-8-26 00:38
+
+
+ 本帖最后由 makourisu-2 于 2021-8-26 00:39 编辑 
+
+日本是什么疫苗，辉瑞还是莫德纳？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">貌似辉瑞在以色列对德尔塔的数据挺难看的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+虽然说按日本草台程度，隔三差五就有新闻，不是打错成生理盐水就是冰箱没插电啥的，能正常打到一款正经疫苗就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 1435#       发表于 2021-8-26 00:38
+
+
+我打吊瓶被实习护士扎过，针都翘起来了，就那么吊了几小时，疼的要死
+
+
+*****
+
+####  Klience  
+##### 1436#       发表于 2021-8-26 00:40
+
+
+ 本帖最后由 Klience 于 2021-8-26 00:42 编辑 
+
+那你是没试过打吊瓶扎错地方不知道 过一会扎的位置肿起来哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl我记得隔壁日南好像打完疫苗之后发烧到40°左右然后体温才渐渐下去 要是你麻打完疫苗发烧到这种程度怕不是以为自己要死了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1437#       发表于 2021-8-26 00:41
+
+
+ 本帖最后由 T_Hb 于 2021-8-26 00:43 编辑 
+
+现在打的都是辉瑞，起码比莫得纳和阿斯利康好
+
+肿起来是静脉注射变肌肉注射了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clvan_  
+##### 1438#       发表于 2021-8-26 00:41
+
+
+打错盐水没插电都是拿疫苗去卖了，资本社会人都精着呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+肯掏钱还怕打不上疫苗
+
+
+*****
+
+####  Klience  
+##### 1439#       发表于 2021-8-26 00:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52508271&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-8-26 00:41</a>
+
+现在打的都是辉瑞，起码比莫得纳和阿斯利康好
+
+
+肿起来是静脉注射变肌肉注射了 ...</blockquote>
+所以说恐怖啊 那时还是小学去打的 打吊瓶看到手上那么大个地方肿起来都快成心里阴影了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1440#       发表于 2021-8-26 00:46
+
+
+我打针最哈人的一次是静脉被针勾住了，针拿出来还能看到血管壁，真的很哈人
+
+
+                                                 

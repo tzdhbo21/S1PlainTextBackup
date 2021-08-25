@@ -8139,3 +8139,31 @@ Bsyl,虹KR新人和新募集</blockquote>
 
 
                                                  
+
+*****
+
+####  winda  
+##### 6643#       发表于 2021-8-26 00:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52506152&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2021-8-25 21:11</a>
+前年的多语言企划。</blockquote>
+https://twitter.com/NIJISANJI_KR/status/1385121184426074116?s=19
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且是今年4月22刚公募的，3/4，只有一张皮换了
+
+
+*****
+
+####  リスカ  
+##### 6644#       发表于 2021-8-26 00:34
+
+
+【翻唱】チューリングラブ / ナナヲアカリ【黛灰/相羽初叶/彩虹社】 https://b23.tv/42aDos
+
+刷b站刷到点进去发现黛灰是vocaloid调教来的 还挺有创意
+话说黛灰x相羽的组合这么受欢迎吗 这才几天评论数都破千啦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

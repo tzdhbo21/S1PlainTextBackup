@@ -17379,3 +17379,44 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  haze.l  
+##### 2805#       发表于 2021-8-25 23:42
+
+
+ 本帖最后由 haze.l 于 2021-8-25 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52507670&amp;ptid=1860328" target="_blank">crosz 发表于 2021-8-25 23:29</a>
+
+这张图有高清版吗</blockquote>
+[2882*1622](https://wx1.sinaimg.cn/large/49e1b80agy1gttgq7p4x6j2282192x6u.jpg)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 隔壁老黄| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  隔壁老黄  
+##### 2806#       发表于 2021-8-26 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52507809&amp;ptid=1860328" target="_blank">haze.l 发表于 2021-8-25 23:42</a>
+2882*1622</blockquote>
+已设壁纸，谢谢！
+
+
+                                                 
