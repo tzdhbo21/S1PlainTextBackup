@@ -17456,3 +17456,45 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2809#         楼主| 发表于 2021-8-26 03:38
+
+
+对不起，第一眼看到 Lindsey Stirling 穿成这样出场，我🈶丶蚌埠住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LT_Harry  
+##### 2810#         楼主| 发表于 2021-8-26 04:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52508700&amp;ptid=1860328" target="_blank">laosai13 发表于 2021-8-26 02:19</a>
+感谢！现在感觉买实体版都跟开盲盒，前几天莱莎2 ns的实体版就被坑了</blockquote>
+实物包装一般都会注明支持什么语言，尤其是在欧洲或者北美销售的游戏。如果买的时候不知道那多半是商家的责任，因为那些信息一般就在包装的背面，不需要揭下塑封就看得到。
+
+
+*****
+
+####  D-JoeII  
+##### 2811#       发表于 2021-8-26 04:22
+
+
+不管如何這次宣傳是很用力了
+
+
+*****
+
+####  改名了的  
+##### 2812#       发表于 2021-8-26 05:18
+
+
+经典半夜看手游广告
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+                                                 
