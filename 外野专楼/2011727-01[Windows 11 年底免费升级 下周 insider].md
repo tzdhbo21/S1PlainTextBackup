@@ -6351,3 +6351,19 @@ Windows 8和8.1都是靠Classic Shell过的
 
 
                                                  
+
+*****
+
+####  此行远兮  
+##### 526#       发表于 2021-8-25 15:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500821&amp;ptid=2011727" target="_blank">DraQin 发表于 2021-8-25 14:00</a>
+今天宏碁终于良心发现，发了给传奇X解锁TPM的工具
+于是来问了，现在的Win11版本日常用问题多不多</blockquote>
+不知道是不是我的错觉，感觉升了之后续航变差了，其他没什么
+
+—— 来自 Xiaomi 2106118C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

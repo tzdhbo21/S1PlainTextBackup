@@ -7896,3 +7896,42 @@ KING这个工商规格可真高啊，花了不少钱把
 
 
                                                  
+
+*****
+
+####  free  
+##### 6630#       发表于 2021-8-25 16:07
+
+
+[https://twitter.com/VWP_virtual/status/1430439821193871361](https://twitter.com/VWP_virtual/status/1430439821193871361)
+
+【特報】V.W.P初のアニメ主題歌決定！
+
+
+アニメ「マブラヴ オルタネイティヴ」OPテーマ
+
+V.W.P 2nd single "輪廻" coming soon !!
+
+
+#マブラヴオルタネイティヴ 公式HP
+[https://muv-luv-alternative-anime.com](https://muv-luv-alternative-anime.com)
+
+
+省一楼
+[https://twitter.com/hololive_Id/status/1430424705673031687](https://twitter.com/hololive_Id/status/1430424705673031687)
+
+杏ID三期招募开始
+
+
+
+
+*****
+
+####  渡鸦骑士  
+##### 6631#       发表于 2021-8-25 16:27
+
+
+草，居然是muv-luv的主题歌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                

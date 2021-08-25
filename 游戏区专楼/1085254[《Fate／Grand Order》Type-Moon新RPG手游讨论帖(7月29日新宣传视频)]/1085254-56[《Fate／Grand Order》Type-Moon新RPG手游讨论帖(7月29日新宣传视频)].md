@@ -6358,3 +6358,18 @@ gamei那个数据我是真觉得不靠谱</blockquote>
 
 
                                                  
+
+*****
+
+####  qb0079  
+##### 83035#       发表于 2021-8-25 16:04
+
+
+ 本帖最后由 qb0079 于 2021-8-25 16:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499311&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 11:44</a>
+
+绝了 有个人好像讨论的很认真的样子结果上了个中文的助战   搞半天是云玩家啊? ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更搞笑的云，还有人提5加成绿卡队按键还少，冲的更舒服呢
+
+
+                                                 
