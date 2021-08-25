@@ -5968,3 +5968,110 @@ C呆这次狩猎是真的菜，除了被妖兰拖着上了两次场后根本拿�
 
 
                                                  
+
+*****
+
+####  xiongxingyu  
+##### 83005#       发表于 2021-8-25 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52496735&amp;ptid=1085254" target="_blank">الطائر 发表于 2021-8-25 06:35</a>
+
+中了奥伯龙的技能不能换人呀，新服装不如 1技能鲨掉我方一个从者、其他从者充能30NP，2技能把五张指令卡全 ...</blockquote>
+中了奥伯龙的3技能不光不能换人，还不能比献祭，只能被对面打。除非你说的这个技能是视作被敌方杀死，不过这样的话未免也太过刻意了，剧情上讲也说不过去啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83006#       发表于 2021-8-25 11:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52497645&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-25 09:26</a>
+
+蘑菇以前说过一开始就是拟定了两部的大纲，如果效果不好那一部剧情结束也是可以的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这你也信 你看看这次光速上了课金榜第1 (记得好像流水翻了400%? 关啥服  躺着赚不好吗
+
+
+*****
+
+####  qixinno2  
+##### 83007#       发表于 2021-8-25 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499016&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 11:21</a>
+
+这你也信 你看看这次光速上了课金榜第1 (记得好像流水翻了400%? 关啥服  躺着赚不好吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是七月的454% 简直无敌 真躺着赚钱就完了
+
+
+*****
+
+####  千叶铁矢  
+##### 83008#       发表于 2021-8-25 11:26
+
+
+在隔壁对线了半天原来对面连二面会变狂都不知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83009#       发表于 2021-8-25 11:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499089&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-25 11:26</a>
+
+在隔壁对线了半天原来对面连二面会变狂都不知道</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么地址呢!
+
+
+*****
+
+####  zakki  
+##### 83010#       发表于 2021-8-25 11:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499089&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-8-25 11:26</a>
+
+在隔壁对线了半天原来对面连二面会变狂都不知道</blockquote>
+巧了，我也去拱火了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  zakki  
+##### 83011#       发表于 2021-8-25 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499151&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 11:30</a>
+
+那么地址呢!</blockquote>
+今天红蓝大战，首页上至少三个帖子，翻翻就能看到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千叶铁矢  
+##### 83012#       发表于 2021-8-25 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499151&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 11:30</a>
+那么地址呢!</blockquote>
+[https://bbs.nga.cn/read.php?tid=28211902](https://bbs.nga.cn/read.php?tid=28211902)
+
+
+*****
+
+####  千叶铁矢  
+##### 83013#       发表于 2021-8-25 11:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499151&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 11:30</a>
+那么地址呢!</blockquote>
+[https://bbs.nga.cn/read.php?tid=28211902](https://bbs.nga.cn/read.php?tid=28211902)
+
+
+                                                
