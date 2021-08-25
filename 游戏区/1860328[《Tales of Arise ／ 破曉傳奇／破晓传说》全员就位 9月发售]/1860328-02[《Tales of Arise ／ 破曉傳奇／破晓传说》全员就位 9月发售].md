@@ -17251,3 +17251,16 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  Rinne70  
+##### 2795#       发表于 2021-8-25 08:42
+
+
+打了三遍都是螳螂+黑龙，我还以为就是这个流程来着。。来楼里才知道是看脸触发
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

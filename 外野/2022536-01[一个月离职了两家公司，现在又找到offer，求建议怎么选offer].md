@@ -814,3 +814,76 @@ lz还是接着neet吧
 
 
                                                  
+
+*****
+
+####  gz0552  
+##### 76#       发表于 2021-8-25 08:26
+
+
+5天不扣税也发了几千块
+
+就算3k吧 月薪也一狗了
+
+这都不干？可见楼主工资之高哈
+
+
+*****
+
+####  maouzhkami  
+##### 77#       发表于 2021-8-25 08:26
+
+
+什么少爷，把程序员叫农民工都高看你们了
+
+
+*****
+
+####  cdy111222  
+##### 78#       发表于 2021-8-25 08:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52496776&amp;ptid=2022536" target="_blank">死线突击手 发表于 2021-8-25 07:08</a>
+
+贱不贱啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自信点，直接说贱就完了。他这个些事排除掉他主观说那些从客观看一下是啥样：
+
+1.在第一家公司培训完就跑路
+
+2.在第二家公司几乎白嫖了公司的几天工资继续跑路
+
+3.再来论坛发两贴炫耀一下，并且准备去祸害第三家公司
+[https://bbs.saraba1st.com/2b/thread-2018210-1-1.html](https://bbs.saraba1st.com/2b/thread-2018210-1-1.html)
+
+这不叫贱叫啥
+
+
+*****
+
+####  革命少女  
+##### 79#         楼主| 发表于 2021-8-25 08:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52497147&amp;ptid=2022536" target="_blank">cdy111222 发表于 2021-8-25 08:35</a>
+自信点，直接说贱就完了。他这个些事排除掉他主观说那些从客观看一下是啥样：
+
+1.在第一家公司培训 ...</blockquote>
+哪有培训完，第一家7月开始培训我也就待了三五天就赶紧跑路换工作了。
+
+—— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  nebulanoby  
+##### 80#       发表于 2021-8-25 08:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52496024&amp;ptid=2022536" target="_blank">zk1990 发表于 2021-8-25 00:50</a>
+作为一个确诊焦虑症，能理解lz心情。我现在也是在一家挺厚道的外企，同事又厉害又勤奋还都比我年轻，最糟糕 ...</blockquote>
+求教下是什么药物，不方便直接回复的话可以私信吗？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

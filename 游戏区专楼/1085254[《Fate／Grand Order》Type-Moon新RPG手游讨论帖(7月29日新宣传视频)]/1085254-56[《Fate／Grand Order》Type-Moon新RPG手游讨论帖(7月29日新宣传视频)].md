@@ -5900,3 +5900,71 @@ C呆这次狩猎是真的菜，除了被妖兰拖着上了两次场后根本拿�
 
 
                                                  
+
+*****
+
+####  areklose  
+##### 82999#       发表于 2021-8-25 08:12
+
+
+ 本帖最后由 areklose 于 2021-8-25 08:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实单是狐狸的话，不膨胀。主要还是奥伯龙又抬了一手。新被动技能又抬了一手。才让很多红卡做到了换人五加成。
+
+
+*****
+
+####  areklose  
+##### 83000#       发表于 2021-8-25 08:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">这100到120不说狗粮吃得多。点都点到烦
+
+
+*****
+
+####  zakki  
+##### 83001#       发表于 2021-8-25 08:40
+
+
+ 本帖最后由 zakki 于 2021-8-25 08:43 编辑 
+
+我觉得吧，为什么非要赶在6周年出红拐，还是两个，明明5周年才出了C呆，cba更是在C呆2年前出的，其实就是想让你在2.0结束前多爽爽吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 83002#       发表于 2021-8-25 08:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我依稀记得。当年说过一年这游戏就关服
+
+
+*****
+
+####  UNISONIA  
+##### 83003#       发表于 2021-8-25 09:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52497352&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-25 08:56</a>
+
+我依稀记得。当年说过一年这游戏就关服</blockquote>
+那你记错了，庄司当时的说法是如果营收不好的话就期间限定运营到16年末为止
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该说他当时没料到Bushiroad有些游戏在还能赚钱的时候就真因为期间限定的许诺如期停服了吧
+
+
+*****
+
+####  zakki  
+##### 83004#       发表于 2021-8-25 09:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52497352&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-25 08:56</a>
+
+我依稀记得。当年说过一年这游戏就关服</blockquote>
+蘑菇以前说过一开始就是拟定了两部的大纲，如果效果不好那一部剧情结束也是可以的
+
+
+                                                 
