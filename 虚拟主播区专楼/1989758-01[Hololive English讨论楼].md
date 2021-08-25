@@ -21069,3 +21069,31 @@ WTF
 
 
                                                  
+
+*****
+
+####  空集  
+##### 1338#       发表于 2021-8-25 12:06
+
+
+ 本帖最后由 空集 于 2021-8-25 12:07 编辑 
+
+KRONIICHIWA <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  这个比kronicopter is landing还是正常点 
+
+
+*****
+
+####  空集  
+##### 1339#       发表于 2021-8-25 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52490426&amp;ptid=1989758" target="_blank">wuzhengkai 发表于 2021-8-24 17:03</a>
+
+EN二期day1锐评：
+
+
+Kronii&gt;Sana=Hakos&gt;&gt;Fauna&gt;Mumei</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">kronii 确实声音表现力太强  然后除了首播略微紧张有点失误外 后面直播表现感觉还是非常熟练 很在状态 ，然后游戏选择也还挺好，加上目前日程表和时长也勤，wada的皮也是挺不错。
+
+
+                                                 

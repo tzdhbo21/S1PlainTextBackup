@@ -6075,3 +6075,62 @@ C呆这次狩猎是真的菜，除了被妖兰拖着上了两次场后根本拿�
 
 
                                                 
+
+*****
+
+####  alucardcz  
+##### 83014#       发表于 2021-8-25 11:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499162&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-25 11:32</a>
+
+今天红蓝大战，首页上至少三个帖子，翻翻就能看到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绝了 有个人好像讨论的很认真的样子结果上了个中文的助战   搞半天是云玩家啊?
+
+
+*****
+
+####  zakki  
+##### 83015#       发表于 2021-8-25 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499311&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 11:44</a>
+
+绝了 有个人好像讨论的很认真的样子结果上了个中文的助战   搞半天是云玩家啊? ...</blockquote>
+狩猎吹蓝卡比红卡好用的一律可以打成云玩家，谁闲的没事有奥伯龙杀狐不用去用仇凛换人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 83016#       发表于 2021-8-25 12:32
+
+
+狩猎本我已经放弃思考直接狂娜5加成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83017#       发表于 2021-8-25 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52499988&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-8-25 12:32</a>
+
+狩猎本我已经放弃思考直接狂娜5加成了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你堕落了!怎么能学萌新呢!
+
+
+*****
+
+####  rooarr  
+##### 83018#       发表于 2021-8-25 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52500046&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 12:37</a>
+
+你堕落了!怎么能学萌新呢!</blockquote>
+天天换队伍好累啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

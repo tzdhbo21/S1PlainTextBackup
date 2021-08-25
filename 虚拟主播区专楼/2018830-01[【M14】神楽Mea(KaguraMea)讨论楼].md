@@ -14861,3 +14861,23 @@ mikey（即答）
 
 
                                                  
+
+*****
+
+####  yywzjsw  
+##### 1359#       发表于 2021-8-25 11:48
+
+
+我昨晚看那宝可梦睡着了，你麻怪叫我都没醒，好怪
+
+
+*****
+
+####  T_Hb  
+##### 1360#       发表于 2021-8-25 12:28
+
+
+怪啥，说明这游戏催眠效果好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -2915,3 +2915,16 @@ https://share.dmhy.o ...</blockquote>
 
 
                                                  
+
+*****
+
+####  卡密sama  
+##### 1685#       发表于 2021-8-25 12:35
+
+
+突然很想问，为啥那些建筑物能在空中漂浮啊，第三次冲击的原因？
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
