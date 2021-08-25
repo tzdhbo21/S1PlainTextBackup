@@ -21133,3 +21133,18 @@ https://youtu.be/OOW0fj8YCmw   猫头鹰还挺gura的
 
 
                                                  
+
+*****
+
+####  面具13  
+##### 1343#       发表于 2021-8-26 03:56
+
+
+ 本帖最后由 面具13 于 2021-8-26 04:25 编辑 
+
+猫头鹰感觉讲话比绿lamy自然。一个新手加一个初见，玩别一起饿死，老奶奶正常来说6天基地都弄好了，这边俩人才做出第一把镐子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+大概撑不过冬天。饿死的农林畜牧神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
