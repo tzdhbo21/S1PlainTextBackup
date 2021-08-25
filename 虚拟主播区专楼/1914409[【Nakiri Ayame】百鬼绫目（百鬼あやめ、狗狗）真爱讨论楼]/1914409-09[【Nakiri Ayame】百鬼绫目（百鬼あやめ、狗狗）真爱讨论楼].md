@@ -11649,3 +11649,34 @@ xdm怎么看?
 
 
                                                  
+
+*****
+
+####  nian1538  
+##### 13004#       发表于 2021-8-25 22:43
+
+
+这游戏反正8月完了就没人播了，绫总播了一次算给面子了
+
+小粥连绫总这么菜的都能吹，感觉明白为什么你杏人人都喜欢小粥了
+
+
+*****
+
+####  因为你不会  
+##### 13005#       发表于 2021-8-25 23:15
+
+
+那是因为绫总喜欢被舔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  昆西昆希昆  
+##### 13006#       发表于 2021-8-25 23:31
+
+
+都注意点，不许骂菜啊。不然以后吃独食也不播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

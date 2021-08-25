@@ -6543,3 +6543,49 @@ gamei那个数据我是真觉得不靠谱</blockquote>
 
 
                                                  
+
+*****
+
+####  eyeego  
+##### 83050#       发表于 2021-8-25 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52506942&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-25 22:15</a>
+想不到小莫的宝具后充能会有发挥作用的一天</blockquote>
+呆毛能用小莫就能用啊 而且论buff小莫还输呆毛一手领导力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 83051#       发表于 2021-8-25 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52507125&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-25 22:33</a>
+
+呆毛能用小莫就能用啊 而且论buff小莫还输呆毛一手领导力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不明白我意思。我意思是当年嫌弃这个宝具自充的副效果。因为红卡宝具一发就没第二发了。想不到那么多年后回利用到这20NP
+
+
+*****
+
+####  qixinno2  
+##### 83052#       发表于 2021-8-25 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52507125&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-8-25 22:33</a>
+
+呆毛能用小莫就能用啊 而且论buff小莫还输呆毛一手领导力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有宝威啊 
+
+
+*****
+
+####  alucardcz  
+##### 83053#       发表于 2021-8-25 22:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说蓝呆5红是假5红不吃狐狸的集星  蓝呆 大失败
+
+
+                                                 

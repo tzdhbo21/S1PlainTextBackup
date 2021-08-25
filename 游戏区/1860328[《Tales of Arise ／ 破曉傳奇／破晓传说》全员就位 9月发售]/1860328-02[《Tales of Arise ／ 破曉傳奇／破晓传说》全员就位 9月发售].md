@@ -17315,3 +17315,67 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  LT_Harry  
+##### 2800#         楼主| 发表于 2021-8-25 22:28
+
+
+看到两件很有意思的事情：之前[篝火营地转载并翻译的那篇 Game Informer 的 Preview](https://gouhuo.qq.com/content/detail/0_20210806164705_kNATswvju)在其原文中其实有一张图片（位置大约在译文的“放弃联机模式”小节），[下方的图](https://i.redd.it/ii3e1kel3aj71.jpg)注解为“万代南梦宫确认玩家可以访问达纳和雷纳两颗星球，基于剧透的可能性，暂不透露在两个星球的旅行各自大约有多少时长”。一位 YouTuber（这位 YouTuber 真的很喜欢 Tales，看他以前的视频）在他[最新的关于 Tales of Arise 的视频](https://www.youtube.com/watch?v=z9FslGoSKuc)里透露，现在的体验版游戏内容其实是“四到六个月前的开发版本”，所以会有一些图像问题。同时，战斗结束后的 SCORE 影响的是 SP 收益（正相关）——体验版困难难度 SCORE 有 1.5 倍率，为了 SP 该怎么做<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">为甚么单独说这个视频，是因为他在六月份透露“自己早就被告知最后两个队员的身份但不能提前泄露”。
+
+
+*****
+
+####  laosai13  
+##### 2801#       发表于 2021-8-25 22:47
+
+
+问一下这个是xbox全区中文的吗？准备买美版实体
+
+
+*****
+
+####  蓝雉  
+##### 2802#       发表于 2021-8-25 23:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52507071&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-25 22:28</a>
+看到两件很有意思的事情：之前篝火营地转载并翻译的那篇 Game Informer 的 Preview在其原文中其实有一 ...</blockquote>
+估计达纳的主要剧情是收集所有星灵力的球吧，说起来挺希望载具和大地图模式回归的，不知道有没有戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LT_Harry  
+##### 2803#         楼主| 发表于 2021-8-25 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52507439&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-8-25 23:04</a>
+
+估计达纳的主要剧情是收集所有星灵力的球吧，说起来挺希望载具和大地图模式回归的，不知道有没有戏[f:066 ...</blockquote>
+不知道为什么想到了 FF13 从下界乘艇返回茧的桥段<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crosz  
+##### 2804#       发表于 2021-8-25 23:29
+
+
+这张图有高清版吗
+
+<img src="https://img.saraba1st.com/forum/202108/25/232910xmagauhojzz5hxbh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0044D372-8951-4189-8359-06506C1CA400.jpg</strong> (421.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-25 23:29 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
