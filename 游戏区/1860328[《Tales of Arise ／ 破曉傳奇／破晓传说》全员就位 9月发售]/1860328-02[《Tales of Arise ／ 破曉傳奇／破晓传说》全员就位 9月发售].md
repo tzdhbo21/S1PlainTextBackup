@@ -18070,3 +18070,27 @@ op被抛弃了
 说起来好像目前出现的雷纳人除了女主都是用近战武器的,拿枪的都是达纳伪军,估计是因为达纳人用不了星灵力的关系
 
 
+
+
+*****
+
+####  LT_Harry  
+##### 2850#         楼主| 发表于 2021-8-26 22:37
+
+
+在听这首歌并观看 MV 的时候，看到后半段的白色飞船、星空和星球，我哭了，真的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">一切都是那么熟悉
+
+
+
+
+*****
+
+####  LMBS  
+##### 2851#       发表于 2021-8-26 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52517892&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-8-26 20:06</a>
+希望不会像TOG的火星那样只有一两张图</blockquote>
+只要能做出点特色两点一线也认
+
+
