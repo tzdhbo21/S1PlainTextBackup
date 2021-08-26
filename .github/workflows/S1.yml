@@ -7,8 +7,7 @@ on:
   push:
   schedule:
     # * is a special character in YAML so you have to quote this string
-    - cron:  '13,53 */2 * * *'
-    - cron:  '33 1,3,5,7,9,11,13,15,17,19,21,23 * * *'  
+    - cron:  '13 */1 * * *'
 jobs:
   # AddThreads:
   #   runs-on: ubuntu-latest
