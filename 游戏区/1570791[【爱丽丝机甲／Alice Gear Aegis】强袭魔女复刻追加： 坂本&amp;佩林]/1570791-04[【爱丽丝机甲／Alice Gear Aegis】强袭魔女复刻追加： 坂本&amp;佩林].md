@@ -17928,3 +17928,59 @@ PS：没有必得
 
 
                                                  
+
+*****
+
+####  蕾丝  
+##### 5896#       发表于 2021-8-26 08:46
+
+
+所以an夜露实力如何？
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
+
+
+*****
+
+####  江戸前ルナ  
+##### 5897#       发表于 2021-8-26 09:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52509692&amp;ptid=1570791" target="_blank">蕾丝 发表于 2021-8-26 08:46</a>
+
+所以an夜露实力如何？
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v1.3.2.1-fix-play ...</blockquote>
+AN之耻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蕾丝  
+##### 5898#       发表于 2021-8-26 09:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52509824&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-8-26 09:00</a>
+
+AN之耻</blockquote>
+那没事了（为什么女主要受到如此待遇）
+
+
+*****
+
+####  江戸前ルナ  
+##### 5899#       发表于 2021-8-26 09:06
+
+
+ 本帖最后由 江戸前ルナ 于 2021-8-26 09:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52509833&amp;ptid=1570791" target="_blank">蕾丝 发表于 2021-8-26 09:01</a>
+
+那没事了（为什么女主要受到如此待遇）</blockquote>
+大概是早年金字塔的认知问题，想走出近战流的框架推远程，于是在部分AN身上就推这种强化远程的玩法。然而在芹菜出分支之前的一切推远程的打法都是徒劳的，牺牲品就是女主夜露和明明天天战斗台词喊着“射击下手”分支和AN专精却是远程的AN红花<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+看有生之年AN夜露会不会上修吧（
+
+
+                                                 

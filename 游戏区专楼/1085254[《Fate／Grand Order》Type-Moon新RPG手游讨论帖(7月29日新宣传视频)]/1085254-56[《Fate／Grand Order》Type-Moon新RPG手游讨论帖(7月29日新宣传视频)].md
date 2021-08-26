@@ -6616,3 +6616,29 @@ gamei那个数据我是真觉得不靠谱</blockquote>
 
 
                                                  
+
+*****
+
+####  扎比子  
+##### 83056#       发表于 2021-8-26 08:44
+
+
+用的伊吹，和狂娜用法一样一面打暴击，一宝伤害也够看，就是第三面需要补刀
+
+
+*****
+
+####  UNISONIA  
+##### 83057#       发表于 2021-8-26 08:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52507213&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-25 22:42</a>
+
+听说蓝呆5红是假5红不吃狐狸的集星  蓝呆 大失败</blockquote>
+你这是技能加强以后就没用过吧
+
+
+蓝呆这个变红的集星跟技能的先开后开有很大关系的
+
+
+                                                 

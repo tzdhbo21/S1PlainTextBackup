@@ -8212,3 +8212,23 @@ https://twitter.com/NIJISANJI_KR/status/1385121184426074116?s=19
 
 
                                                  
+
+*****
+
+####  ヒトニナル  
+##### 6648#       发表于 2021-8-26 07:41
+
+
+黛灰那首图灵爱“热度”高是因为他这首用的是人力（是UTAU不是vocaloid），有人觉得他这是欺诈，有人觉得用人力应该打预警，还有人根本就不接受把一般属于二创的人力由官方来发，反正闹的挺欢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 6649#       发表于 2021-8-26 07:49
+
+
+平时就这样，大概是虹en一期里最混沌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -3217,3 +3217,39 @@ ut都死了快一年了<img src="https://static.saraba1st.com/image/smiley/face2
 
 
                                                  
+
+*****
+
+####  tn_teana  
+##### 287#       发表于 2021-8-26 07:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52507682&amp;ptid=2013779" target="_blank">tankai 发表于 2021-8-25 23:30</a>
+必然不可能3D,一期3D封存了.</blockquote>
+冰火就是3D歌会啊
+
+
+*****
+
+####  鲨利普贝当  
+##### 288#       发表于 2021-8-26 08:37
+
+
+感觉文静杂谈说的东西好多都是重复的，比如说对于作者江南这一块儿的描述之前感觉听到好多次了，每次再说一遍就有些空洞，能不能有些新意啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tn_teana  
+##### 289#       发表于 2021-8-26 08:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52509615&amp;ptid=2013779" target="_blank">鲨利普贝当 发表于 2021-8-26 08:37</a>
+
+感觉文静杂谈说的东西好多都是重复的，比如说对于作者江南这一块儿的描述之前感觉听到好多次了，每次再说一 ...</blockquote>
+无台本嗯混是这样的
+
+每个月嗯混八十多个小时，只能顺着弹幕的话题嗯聊了
+
+
+                                                 
