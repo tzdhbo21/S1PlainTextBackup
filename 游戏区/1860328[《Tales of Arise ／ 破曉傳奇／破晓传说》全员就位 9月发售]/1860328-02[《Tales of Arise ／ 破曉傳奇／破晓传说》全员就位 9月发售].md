@@ -18130,3 +18130,33 @@ toe两个星球都有非常多的隐藏要素，可以自由探索，上天下�
 这歌比op好多了啊
 
 
+
+
+*****
+
+####  LiberaMe  
+##### 2855#       发表于 2021-8-26 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52517045&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-8-26 18:57</a>
+
+买完了
+
+最后自己当哥伦比亚人买的豪华
+
+不算亏就是了</blockquote>
+为啥我哥伦比亚区买告诉我不能用预付卡十天前买还是啥（记得不是太清楚了）<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  索田八公  
+##### 2856#       发表于 2021-8-26 23:54
+
+
+这主题曲也太好听了，明明游戏还没发售，剧情还不明朗，就感觉要落泪了
+
+
+就像在听xb2的One Last You一样，感动
+
+

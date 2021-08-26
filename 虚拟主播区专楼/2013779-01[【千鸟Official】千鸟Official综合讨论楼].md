@@ -3277,3 +3277,24 @@ ut都死了快一年了<img src="https://static.saraba1st.com/image/smiley/face2
 
 
                                                  
+
+*****
+
+####  袜子  
+##### 292#       发表于 2021-8-26 23:41
+
+
+一个月80个钟，没资源又没法做内容，一播游戏同接骤降，只能是顺着弹幕硬聊啊，换我这个强度嗓子已经炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  丢了五块钱  
+##### 293#       发表于 2021-8-26 23:47
+
+
+静姨今晚光对线钓鱼都没少收米啊
+
+
