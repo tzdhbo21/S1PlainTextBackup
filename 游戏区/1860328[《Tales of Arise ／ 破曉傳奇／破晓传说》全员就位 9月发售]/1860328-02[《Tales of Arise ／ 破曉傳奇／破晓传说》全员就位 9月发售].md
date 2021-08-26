@@ -17786,3 +17786,63 @@ PS3后期-PS4前期的作品还在画面上拖了后腿
 既然绯红结系都能预计第一个财年出货100万，那我也期待下破晓第一年销量200万，也不算很过分吧
 
 
+
+
+*****
+
+####  roxassix  
+##### 2830#       发表于 2021-8-26 18:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52513893&amp;ptid=1860328" target="_blank">zzzeven 发表于 2021-8-26 13:58</a>
+
+有没有课代表总结一个XSX买哪个地方的究极版最佳，扫了眼taobao是不指望实体了 ...</blockquote>
+这回究极版基本是分了三个版本卖：亚版(港台韩新)，日版，欧美其他(含各种低价区)<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+内容区别
+区域亚日欧美其他游戏本体〇〇〇预购特典〇〇〇道具典藏組合包〇X〇服裝典藏組合包(6人各1套+男女主EX各1套)〇〇〇旅遊典藏組合包〇X〇联动服装包(3套)XX〇历代战斗BGM包(48首)〇〇X泳装・校服・战国三套主题服装包(6人各3套+专属bgm三首)〇〇〇
+各个组合包内容啥的有坛友总结了。
+[https://bbs.saraba1st.com/2b/for ... 860328&amp;pid=52193661](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1860328&amp;pid=52193661)
+
+服装图样可以参考官网
+[https://toarise.tales-ch.jp/special/dlc.php](https://toarise.tales-ch.jp/special/dlc.php)
+
+
+预购特典可以参考官网
+[https://toarise.tales-ch.jp/products/early.php](https://toarise.tales-ch.jp/products/early.php)
+
+
+按照xbox比价助手来看，日区价格最高内容最少最不推荐。
+
+亚版和欧美版本的区别就是一个有bgm包，一个有联动服装包。
+
+单看内容的话bgm包价值可能大于联动服装包，不过从官方公布的消息来看发售后除了预购特典以外所有的dlc应该都会马上单独上架。
+
+所以我感觉最好的购买方式是走任意合适的低价区买究极版+之后低价区补dlc这种形式<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+PS：关于预购特典，好像只有日版是发售后一个月内都带，剩下的版本都需要提前预购。
+而预购游戏在微软商店里没法直接买成礼物(key)，除非低价区当地有第三方商店(比如美亚)零售预购key这种，基本上是买不到预购key的。
+不想给代购账号密码代购的话，自己买只能找那种能充值能自己挂信用卡的区买。(可能买不到土耳其区这种低价)
+
+不过鉴于绯红结系的预购特典过了俩月已经单独上架了(再之前的嗜血代码的预购特典也单独上架了)，这回的预购特典估计也会单独上架，所以直接买低价区的非预购key赌一把也不是不行(最惨也就是去ebay买盒装拆出来的预购特典key)<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苇原雪道  
+##### 2831#       发表于 2021-8-26 18:09
+
+
+全！果！待！机！
+
+
+*****
+
+####  Dag8  
+##### 2832#       发表于 2021-8-26 18:20
+
+
+今年绯红结系和破晓，吃神还有没有4啊，还能和cv世界观融合一下。
+
+

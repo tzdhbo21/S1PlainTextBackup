@@ -18069,3 +18069,71 @@ AN之耻</blockquote>
 
 
                                                  
+
+*****
+
+####  不灭的旋律  
+##### 5908#       发表于 2021-8-26 17:29
+
+
+51票0四星0new帮各位平衡运气了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你游终于做出活动内无法交换所有衣服的事了，想全部交换券还得参加推特发推活动。每2000推奖励一次也是够自信，上次3000推都花了好长时间。我倒想看看RT不够金字塔敢不敢不发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 5909#       发表于 2021-8-26 17:37
+
+
+说一下你有普通版夜露的话AN夜路其实没那么不堪，伤害下降不多换上普通版的SP照样用。特别是PC版移动射击按立射算，AN夜露+AN枪就可以享受移动射击中伤害&amp;性能加成。
+
+当然夜露依然是受害者，每次有新系统先实装的多半吃亏
+
+
+*****
+
+####  alialex  
+##### 5910#         楼主| 发表于 2021-8-26 17:56
+
+
+之前不是有个看水族馆送耳环的活动也这样吗，最后全部给了的？这次改规则了？
+
+
+
+
+*****
+
+####  hypnossz86  
+##### 5911#       发表于 2021-8-26 18:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">lv3四十连只有一个坂本美绪.....
+
+啊啊啊我的佩林<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 5912#       发表于 2021-8-26 18:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">lv3四十连只有一个坂本美绪.....
+
+啊啊啊我的佩林<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 5913#       发表于 2021-8-26 18:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52516407&amp;ptid=1570791" target="_blank">alialex 发表于 2021-8-26 17:56</a>
+
+之前不是有个看水族馆送耳环的活动也这样吗，最后全部给了的？这次改规则了？ ...</blockquote>
+你说按降水概率送耳环那个？那个不绑定活动而且官方直播说了即使不足也会全部送的。这次直接说了活动内凑不齐全部兑换券需要推特活动。
+
+

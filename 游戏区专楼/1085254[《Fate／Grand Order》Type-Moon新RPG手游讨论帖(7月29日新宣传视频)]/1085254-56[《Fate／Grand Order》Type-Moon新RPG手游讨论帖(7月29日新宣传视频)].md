@@ -7281,3 +7281,75 @@ new挺好。比看见白针孔明强多了</blockquote>
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 83112#       发表于 2021-8-26 17:25
+
+
+<blockquote>引用第83110楼不垃圾屌丝于2021-08-26 17:12发表的  :
+
+明天应该是魔伊卡池加活动进金方商店吧—— 来自 Sony XQ-AT72, Android 11上的......</blockquote>
+我印象里说是只有和主线相关的活动才能进
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  仰望神的括约肌  
+##### 83113#       发表于 2021-8-26 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52515906&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 17:10</a>
+
+2xxx dl</blockquote>
+然后修炼场 QP本体力减半<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 83114#       发表于 2021-8-26 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52516076&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-26 17:25</a>
+我印象里说是只有和主线相关的活动才能进
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+那也可以新增个side story 之类的系统啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83115#       发表于 2021-8-26 17:33
+
+
+<blockquote>引用第83113楼khxooo于2021-08-26 17:31发表的  :
+
+引用:黑上シグマ 发表于 2021-8-26 17:25我印象里说是只有和主线相关的活动才能进---......</blockquote>
+DW：这么做对我赚钱有帮助吗？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  khxooo  
+##### 83116#       发表于 2021-8-26 17:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52516178&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-26 17:33</a>
+DW：这么做对我赚钱有帮助吗？
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+没，只是妄想一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
