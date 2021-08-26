@@ -18008,3 +18008,27 @@ op被抛弃了
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">完蛋了，这一听就是bad end的曲风，还要来啊？
 
 
+
+
+*****
+
+####  77is77  
+##### 2844#       发表于 2021-8-26 21:02
+
+
+来个xb2式结尾什么be都能破啊
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  改名了的  
+##### 2845#       发表于 2021-8-26 21:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">凯伊路和1岁女的结局也可以
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
