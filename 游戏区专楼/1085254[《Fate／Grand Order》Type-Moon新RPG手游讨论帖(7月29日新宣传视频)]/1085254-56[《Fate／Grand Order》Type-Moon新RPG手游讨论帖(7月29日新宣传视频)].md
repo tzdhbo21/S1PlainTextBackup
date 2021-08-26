@@ -6873,3 +6873,331 @@ gamei那个数据我是真觉得不靠谱</blockquote>
 
 
                                                 
+
+*****
+
+####  黑上シグマ  
+##### 83079#       发表于 2021-8-26 11:18
+
+
+<blockquote>引用第83077楼龙星丸于2021-08-26 11:06发表的  :
+
+我蓝王纯粹歪到拿盘子，有更惨的吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我船长也是歪到拿盘子啊，又不稀奇
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">蓝呆到现在就1宝
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  qixinno2  
+##### 83080#       发表于 2021-8-26 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511135&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 10:42</a>
+
+这不是拉二 不刑  莫崽 大王都没有吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今年国服日服前后脚歪出来的不邢 还不如给我个别的
+
+
+*****
+
+####  alucardcz  
+##### 83081#       发表于 2021-8-26 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511697&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-26 11:22</a>
+
+今年国服日服前后脚歪出来的不邢 还不如给我个别的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦 看到你说脚字 我就想起来了 脚后跟也没有
+
+
+*****
+
+####  qixinno2  
+##### 83082#       发表于 2021-8-26 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511708&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 11:23</a>
+
+哦 看到你说脚字 我就想起来了 脚后跟也没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就差这几个可还行 除了拉二外没一个能打的
+
+
+*****
+
+####  alucardcz  
+##### 83083#       发表于 2021-8-26 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511746&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-26 11:26</a>
+
+你就差这几个可还行 除了拉二外没一个能打的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定不只啊  后面新加的常驻几乎都没有 只不过我不记得了还有谁了
+
+
+*****
+
+####  qixinno2  
+##### 83084#       发表于 2021-8-26 11:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511757&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 11:26</a>
+
+肯定不只啊  后面新加的常驻几乎都没有 只不过我不记得了还有谁了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面新加的也都不太行吧 机娘 弗栗多 尼莫 双子 缺德修斯
+
+
+*****
+
+####  alucardcz  
+##### 83085#       发表于 2021-8-26 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511808&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-26 11:30</a>
+
+后面新加的也都不太行吧 机娘 弗栗多 尼莫 双子 缺德修斯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看 这5个一个都没
+
+
+*****
+
+####  qixinno2  
+##### 83086#       发表于 2021-8-26 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511838&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 11:32</a>
+
+你看 这5个一个都没</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是渣渣 没啥用吧
+
+
+*****
+
+####  reekilynn  
+##### 83087#       发表于 2021-8-26 11:36
+
+
+常驻缺16个：
+
+大王，白贞，杰克，小莫，拉二
+
+恩奇都，1001，宅姬，皇女，项羽
+
+p枪，大象，欧罗巴，双子，尼莫，机娘
+
+剧情限定缺4个：
+
+老李，伊利亚，白枪，黑狗
+
+
+这么一看大概是我抽得少吧
+
+
+*****
+
+####  新吾  
+##### 83088#       发表于 2021-8-26 11:40
+
+
+又到了弃坑的时候了，昨天攒了最后30石去抽奥贝龙，彩圈，稳了，金弓？阿周那。就这样我歪满了第一个5宝常驻，艹蛋的是我每次厨力抽卡时都是他跳出来搞人心态，总计700石抽不出，我还是去玩有保底的游戏吧。
+
+
+*****
+
+####  alucardcz  
+##### 83089#       发表于 2021-8-26 11:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511888&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-26 11:36</a>
+
+都是渣渣 没啥用吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有用不重要  
+
+
+*****
+
+####  qixinno2  
+##### 83090#       发表于 2021-8-26 11:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511898&amp;ptid=1085254" target="_blank">reekilynn 发表于 2021-8-26 11:36</a>
+
+常驻缺16个：
+
+大王，白贞，杰克，小莫，拉二
+
+恩奇都，1001，宅姬，皇女，项羽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不错了 比我强得多 我常驻只有棉被 周黑鸭 小恩 C狐 去年自选的孔明 不邢 南丁 志度内
+
+
+*****
+
+####  qixinno2  
+##### 83091#       发表于 2021-8-26 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511959&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 11:41</a>
+
+有没有用不重要</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就祝你以后抽UP时歪出没有的常驻
+
+
+*****
+
+####  alucardcz  
+##### 83092#       发表于 2021-8-26 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512034&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-26 11:46</a>
+
+那就祝你以后抽UP时歪出没有的常驻</blockquote>
+new挺好。比看见白针孔明强多了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 83093#       发表于 2021-8-26 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512045&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 11:47</a>
+
+new挺好。比看见白针孔明强多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说白贞也太惨了 同为尺子的天草都强化几次了 白贞就一个去掉了副作用的宝具本和一个意义不明的降防 我记得一开始挺多人冲着白贞玩的啊
+
+
+*****
+
+####  alucardcz  
+##### 83094#       发表于 2021-8-26 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512100&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-26 11:51</a>
+
+话说白贞也太惨了 同为尺子的天草都强化几次了 白贞就一个去掉了副作用的宝具本和一个意义不明的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不重要 重要的是我白贞已经4宝了 不想再见她了！
+
+
+*****
+
+####  qixinno2  
+##### 83095#       发表于 2021-8-26 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512151&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 11:54</a>
+
+这不重要 重要的是我白贞已经4宝了 不想再见她了！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 我国服甚至是自选的 根本抽不到白贞 上次UP特意扔了石头都没抽到
+
+
+*****
+
+####  霧谷藤乃  
+##### 83096#       发表于 2021-8-26 12:03
+
+
+贞德算是被剧情影响了吧，FZ里惊鸿一瞥，然后主场FA剧情拉了，感觉没立起来，就对月球贞德无感了，我自选的时候压根就没考虑过白贞……
+
+
+*****
+
+####  qixinno2  
+##### 83097#       发表于 2021-8-26 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512274&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-8-26 12:03</a>
+
+贞德算是被剧情影响了吧，FZ里惊鸿一瞥，然后主场FA剧情拉了，感觉没立起来，就对月球贞德无感了，我自选的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡面感觉挺好看的 刚玩时就挺想要的 但是一直就没出过 算是一个小执念吧
+
+
+*****
+
+####  qixinno2  
+##### 83098#       发表于 2021-8-26 12:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 石不过三抽着玩 本来彩光还高兴了下
+
+
+<img src="https://img.saraba1st.com/forum/202108/26/120917kwdwpfp5zud9d35m.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210826120903.png</strong> (124.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-26 12:09 上传
+
+
+*****
+
+####  霧谷藤乃  
+##### 83099#       发表于 2021-8-26 12:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512324&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-26 12:06</a>
+
+卡面感觉挺好看的 刚玩时就挺想要的 但是一直就没出过 算是一个小执念吧 ...</blockquote>
+毕竟是稳定的武内www以前我也很喜欢，不过爱消退了……
+
+
+*****
+
+####  qixinno2  
+##### 83100#       发表于 2021-8-26 12:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512540&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-8-26 12:20</a>
+
+毕竟是稳定的武内www以前我也很喜欢，不过爱消退了……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">消失的爱
+
+
+
+
+*****
+
+####  khxooo  
+##### 83101#       发表于 2021-8-26 12:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512363&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-26 12:09</a>
+艹 石不过三抽着玩 本来彩光还高兴了下</blockquote>
+常威，还说你不是海豹？<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 83102#       发表于 2021-8-26 12:33
+
+
+翻页
+
+
+*****
+
+####  qixinno2  
+##### 83103#       发表于 2021-8-26 12:33
+
+
+翻页
+
+
+*****
+
+####  qixinno2  
+##### 83104#       发表于 2021-8-26 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512731&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-26 12:31</a>
+
+常威，还说你不是海豹？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 这也算豹吗 要是给的我摩根你还能说我豹 歪个小恩有毛用
+
+
+                                                

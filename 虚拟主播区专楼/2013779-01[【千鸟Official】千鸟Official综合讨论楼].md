@@ -3253,3 +3253,16 @@ ut都死了快一年了<img src="https://static.saraba1st.com/image/smiley/face2
 
 
                                                  
+
+*****
+
+####  丢了五块钱  
+##### 290#       发表于 2021-8-26 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52509615&amp;ptid=2013779" target="_blank">鲨利普贝当 发表于 2021-8-26 08:37</a>
+感觉文静杂谈说的东西好多都是重复的，比如说对于作者江南这一块儿的描述之前感觉听到好多次了，每次再说一 ...</blockquote>
+兄弟我觉得你没少听啊
+
+
+                                                 

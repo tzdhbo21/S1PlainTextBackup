@@ -17839,3 +17839,32 @@ BIG MOM那些儿女们还在海里漂着呢？
 
 
                                                  
+
+*****
+
+####  巴尔干炮  
+##### 55489#       发表于 2021-8-26 12:30
+
+
+长子真是倒了八辈子血霉，明明自己才是受害者，却硬是被当做复仇对象，就算差点被毁容也对两个肇事者没怎么样，相比之下佐乌这群动物真是。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cxfdtc  
+##### 55490#       发表于 2021-8-26 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512714&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2021-8-26 12:30</a>
+
+长子真是倒了八辈子血霉，明明自己才是受害者，却硬是被当做复仇对象，就算差点被毁容也对两个肇事者没怎么 ...</blockquote>
+挺真实的
+
+
+第一，加洛特靠山背景比长子牛，天然正义；
+
+
+第二，加洛特长得好看，天然正义XD
+
+
+                                                 

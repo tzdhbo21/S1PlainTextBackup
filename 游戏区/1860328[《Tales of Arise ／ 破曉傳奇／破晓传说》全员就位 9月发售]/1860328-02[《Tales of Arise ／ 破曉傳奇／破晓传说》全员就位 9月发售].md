@@ -17643,3 +17643,71 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                 
+
+*****
+
+####  qiyu1234  
+##### 2822#       发表于 2021-8-26 11:56
+
+
+ 本帖最后由 qiyu1234 于 2021-8-26 12:02 编辑 
+
+传说系列的核心优势是 角色包装 以及 基于传统系统延申出的个性化系统 ，两者相辅相成，你中有我 我中有你
+
+
+包装 并非完全指故事上的塑造，而是从故事，到人物，到CV，到系统，全方位的让玩家构成对角色的深刻又完整的印象（好坏另说）
+
+
+传说过往手游作品很大程度上都把这些已经在独立作品中完成的角色搬到游戏里跟原创角色互动做再创作，凭借的正是旧作品积累好的人气和内容
+
+
+这个原创手游新作说是要做群像剧 但跟以前作品不同没有旧系列角色，单靠一部作品的系统来塑造多个新角色（大于12位）的群像剧
+
+说真的，就预告片的卖相而言，难度太高了
+
+
+*****
+
+####  蓝雉  
+##### 2823#       发表于 2021-8-26 12:08
+
+
+ 本帖最后由 蓝雉 于 2021-8-26 12:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512182&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-26 11:56</a>
+
+传说系列的核心优势是 角色包装 以及 基于传统系统延申出的个性化系统 ，两者相辅相成，你中有我 我中有你
+
+ ...</blockquote>
+说起来富泽在噬神者那边也是玩的这一套,卖角色也挺成功的,哪怕游戏本身一般般,南半球,误射姬之类的角色也人气很高,让他来负责传说系列说不定真是如鱼得水?<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2824#       发表于 2021-8-26 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512347&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-8-26 12:08</a>
+
+说起来富泽在噬神者那边也是玩的这一套,卖角色也挺成功的,哪怕游戏本身一般般,南半球,误射姬之类的角色也 ...</blockquote>
+与其说是如鱼得水，倒不如说这部分 只需要延续传说系列一直以来的作风，他现在更注重于拓宽受众群和增加用户量的事情
+
+
+手游那边是开发过LINK和THE RAYS的池野泰广负责
+
+
+富泽虽然是系列IP的总制作人，但工作重心还是以主机游戏为主，手游那边应该不怎么插手
+
+
+*****
+
+####  蓝雉  
+##### 2825#       发表于 2021-8-26 12:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512767&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-26 12:34</a>
+与其说是如鱼得水，倒不如说这部分 只需要延续传说系列一直以来的作风，他现在更注重于拓宽受众群和增加用 ...</blockquote>
+要追求海外市场的话，再来个圣洁传说那种工业革命风格世界观的一作感觉不错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
