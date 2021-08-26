@@ -6642,3 +6642,29 @@ gamei那个数据我是真觉得不靠谱</blockquote>
 
 
                                                  
+
+*****
+
+####  qixinno2  
+##### 83058#       发表于 2021-8-26 09:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先开集星再变色没用是因为星星已经分配完了吧 先变色再集星就没问题了
+
+
+*****
+
+####  alucardcz  
+##### 83059#       发表于 2021-8-26 09:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52509729&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-26 08:50</a>
+
+你这是技能加强以后就没用过吧
+
+
+蓝呆这个变红的集星跟技能的先开后开有很大关系的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至今一次都没用过 
+
+
+                                                 

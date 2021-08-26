@@ -15760,3 +15760,36 @@ syl我记得隔壁日南好像打完疫苗之后发烧到40°左右然后体温�
 
 
                                                  
+
+*****
+
+####  yywzjsw  
+##### 1445#       发表于 2021-8-26 09:31
+
+
+<img src="https://img.saraba1st.com/forum/202108/26/092809grwcvkvugrzvcn9k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-635100d9157acdc3.jpg</strong> (115.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-8-26 09:28 上传
+
+
+我只想说这种死也不敢打。我怕打针是因为那实习护士给扎了4针，还因为没找准经脉，在肉里移动，要不是男的，我当场就哭了
+
+
+*****
+
+####  T_Hb  
+##### 1446#       发表于 2021-8-26 10:02
+
+
+ 本帖最后由 T_Hb 于 2021-8-26 10:08 编辑 
+
+辉瑞算正常的了，不过mrna疫苗天生容易严重过敏，就是副作用大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

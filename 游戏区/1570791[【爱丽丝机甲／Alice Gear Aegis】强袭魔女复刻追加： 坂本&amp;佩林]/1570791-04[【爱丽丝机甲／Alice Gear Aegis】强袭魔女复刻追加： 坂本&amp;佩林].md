@@ -17984,3 +17984,23 @@ AN之耻</blockquote>
 
 
                                                  
+
+*****
+
+####  hypnossz86  
+##### 5900#       发表于 2021-8-26 09:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">an卡已经没希望了，上修等alter卡吧(
+
+
+*****
+
+####  alialex  
+##### 5901#         楼主| 发表于 2021-8-26 10:25
+
+
+不强化远程伤害怎么可能推得动光狙以外的远程，近战角色一个比一个暴力
+
+
+                                                 
