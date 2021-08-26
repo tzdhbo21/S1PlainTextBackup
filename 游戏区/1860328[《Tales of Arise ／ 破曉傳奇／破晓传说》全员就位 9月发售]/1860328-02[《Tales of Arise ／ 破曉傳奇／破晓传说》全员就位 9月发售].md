@@ -18032,3 +18032,41 @@ op被抛弃了
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  Kedger  
+##### 2846#       发表于 2021-8-26 21:44
+
+
+绚香……我先在这里点一首《Why》<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（给个he求求了）
+
+
+*****
+
+####  hkguty  
+##### 2847#       发表于 2021-8-26 22:06
+
+
+我TM说绚香这名字怎么感觉有点熟，一时又想不起听过她的什么歌，原来是那首歌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑修士  
+##### 2848#       发表于 2021-8-26 22:09
+
+
+绚香这首相当好听，但这种感伤的氛围结合本作的世界观和人设，怕不会真的玩BE
+
+
+*****
+
+####  蓝雉  
+##### 2849#       发表于 2021-8-26 22:17
+
+
+说起来好像目前出现的雷纳人除了女主都是用近战武器的,拿枪的都是达纳伪军,估计是因为达纳人用不了星灵力的关系
+
+

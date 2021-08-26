@@ -15985,3 +15985,294 @@ syl我记得隔壁日南好像打完疫苗之后发烧到40°左右然后体温�
 这个有点像tomari,这聊天框竟然是陷阱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 1465#       发表于 2021-8-26 21:34
+
+
+ 本帖最后由 时间在我手中 于 2021-8-26 21:38 编辑 
+
+忽然来个神乐君<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+军刀老师直接被除女性籍贯）
+
+
+*****
+
+####  yywzjsw  
+##### 1466#       发表于 2021-8-26 21:39
+
+
+这line背景，什么鬼啊
+
+
+*****
+
+####  时间在我手中  
+##### 1467#       发表于 2021-8-26 21:48
+
+
+ 本帖最后由 时间在我手中 于 2021-8-26 21:57 编辑 
+
+吊人赢起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我超，伊东<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+舞元是不是真的是男同）再次猜中了）
+
+换题目了，请男人来家里的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1468#       发表于 2021-8-26 21:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">    “ねえねえ”
+
+
+*****
+
+####  时间在我手中  
+##### 1469#       发表于 2021-8-26 21:59
+
+
+呐呐！呐呐！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的二次元
+
+我超时雨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1470#       发表于 2021-8-26 22:00
+
+
+艹了，这一股寂寞的感觉
+
+
+
+
+*****
+
+####  T_Hb  
+##### 1471#       发表于 2021-8-26 22:04
+
+
+ 本帖最后由 T_Hb 于 2021-8-26 22:05 编辑 
+
+分歧终于大起来了，有意思起来了
+
+ピコン）是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1472#       发表于 2021-8-26 22:05
+
+
+mari还知道第一滴血可还行，成功迷惑到吊人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1473#       发表于 2021-8-26 22:05
+
+
+这口癖
+
+
+*****
+
+####  yywzjsw  
+##### 1474#       发表于 2021-8-26 22:08
+
+
+感觉是女的，你麻要猜错又掉分了
+
+
+*****
+
+####  T_Hb  
+##### 1475#       发表于 2021-8-26 22:09
+
+
+被伊东life坑到一次后，已经有经验了
+
+<img src="https://img.saraba1st.com/forum/202108/26/221008vjje80jpuala3zgw.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (3.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-26 22:10 上传
+
+
+*****
+
+####  时间在我手中  
+##### 1476#       发表于 2021-8-26 22:10
+
+
+呐呐呐呐呐！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">声呐人来了
+
+
+*****
+
+####  yywzjsw  
+##### 1477#       发表于 2021-8-26 22:10
+
+
+这么可爱的，怎么看都是女的吧
+
+
+*****
+
+####  T_Hb  
+##### 1478#       发表于 2021-8-26 22:12
+
+
+ 本帖最后由 T_Hb 于 2021-8-26 22:14 编辑 
+
+呵呵，呐呐人太多了
+
+咩姐锐评，苔总不会用pien，只会用👀
+
+
+*****
+
+####  yywzjsw  
+##### 1479#       发表于 2021-8-26 22:13
+
+
+nene，yhm都喜欢这种风格吗
+
+
+*****
+
+####  yywzjsw  
+##### 1480#       发表于 2021-8-26 22:15
+
+
+这背景，蛮符合某人的
+
+
+*****
+
+####  时间在我手中  
+##### 1481#       发表于 2021-8-26 22:16
+
+
+舞苔，我的舞苔<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+你麻麻的，太郎不装的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1482#       发表于 2021-8-26 22:17
+
+
+苔总不太正常啊，怎么会叫人回家打游戏
+
+
+*****
+
+####  yywzjsw  
+##### 1483#       发表于 2021-8-26 22:17
+
+
+叫老公回去打游戏，不是更怪
+
+
+*****
+
+####  时间在我手中  
+##### 1484#       发表于 2021-8-26 22:20
+
+
+绿仙加0.5，稳赚选项可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1485#       发表于 2021-8-26 22:20
+
+
+绿仙（
+
+
+*****
+
+####  T_Hb  
+##### 1486#       发表于 2021-8-26 22:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐突挑衅观众，“大家都很懂吗，难道收到过绿仙的line消息吗”
+
+
+*****
+
+####  hjcxiaowo  
+##### 1487#       发表于 2021-8-26 22:21
+
+
+全员拔刀还行
+
+
+*****
+
+####  时间在我手中  
+##### 1488#       发表于 2021-8-26 22:21
+
+
+烈火，拔刀！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1489#       发表于 2021-8-26 22:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">郡道老师真难猜
+
+
+*****
+
+####  路人庚  
+##### 1490#       发表于 2021-8-26 22:24
+
+
+郡道BBA！
+
+
+*****
+
+####  时间在我手中  
+##### 1491#       发表于 2021-8-26 22:24
+
+
+军刀老师感觉是今晚最难的一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1492#       发表于 2021-8-26 22:24
+
+
+难道这才是真正的姨（
+
+
