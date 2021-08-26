@@ -7531,3 +7531,18 @@ image.png
 
 
                                                  
+
+*****
+
+####  最强惠酱  
+##### 2046#       发表于 2021-8-26 14:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52509404&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-8-26 08:07</a>
+不见得中途退出吧？</blockquote>
+隔壁甜梦猫倒是毕业了也一起玩<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

@@ -18028,3 +18028,44 @@ AN之耻</blockquote>
 
 
                                                  
+
+*****
+
+####  RioShiina  
+##### 5904#       发表于 2021-8-26 14:37
+
+
+完了， 三十抽扔进去什么也没TAT
+
+
+*****
+
+####  hypnossz86  
+##### 5905#       发表于 2021-8-26 14:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这第三关的玩法好像是和小裤裤手游联动的啊...
+强制前进的板面＋不击落也能放过去继续前进的敌人
+
+
+*****
+
+####  unsh  
+##### 5906#       发表于 2021-8-26 15:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">60发yoyo和王刚+1，我没了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  schwow  
+##### 5907#       发表于 2021-8-26 15:10
+
+
+40连搞定, 5缺1等芳佳了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+                                                 

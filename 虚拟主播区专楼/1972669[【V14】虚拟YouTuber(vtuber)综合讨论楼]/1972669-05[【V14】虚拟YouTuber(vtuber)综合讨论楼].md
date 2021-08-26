@@ -8290,3 +8290,63 @@ Syl，我越来越怀疑夜见和谢林在交往了
 
 
                                                  
+
+*****
+
+####  Yukine_Chris  
+##### 6655#       发表于 2021-8-26 14:44
+
+
+rurudo怎么开了个新号直播
+
+
+*****
+
+####  Yukine_Chris  
+##### 6656#       发表于 2021-8-26 14:44
+
+
+rurudo怎么开了个新号直播
+
+
+*****
+
+####  渡鸦骑士  
+##### 6657#       发表于 2021-8-26 15:39
+
+
+ 本帖最后由 渡鸦骑士 于 2021-8-26 15:44 编辑 
+
+[https://www.youtube.com/watch?v=h-HMdNsCFus](https://www.youtube.com/watch?v=h-HMdNsCFus) 奶油糖的新歌……感觉最近好多p主的新歌都是用的可不<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  越动天下  
+##### 6658#       发表于 2021-8-26 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52514861&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-8-26 15:39</a>
+https://www.youtube.com/watch?v=h-HMdNsCFus 奶油糖的新歌……感觉最近好多p主的新歌都是用的可不 ...</blockquote>
+我没用过可不 但是现在可不有热量呀 在油管上都可以和初音打打了 只能说神椿扶持了一把请了几个大p主后 知名度就上来了 火了 当然我知道可不确实在科技这方面领先一些
+
+
+*****
+
+####  ヒトニナル  
+##### 6659#       发表于 2021-8-26 16:17
+
+
+神椿这个请网红P主写歌造势的策略的确有效
+
+
+*****
+
+####  维他柠檬茶  
+##### 6660#       发表于 2021-8-26 16:20
+
+
+神椿他给的实在是太多了，不过你看有几个p主用过一次可不还会接着用的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">受众跟术力口比还是差点
+
+
+                                                 

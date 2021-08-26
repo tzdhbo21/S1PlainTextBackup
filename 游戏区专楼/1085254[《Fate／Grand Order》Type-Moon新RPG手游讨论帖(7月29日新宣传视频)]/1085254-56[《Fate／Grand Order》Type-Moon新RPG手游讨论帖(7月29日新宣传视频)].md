@@ -7201,3 +7201,38 @@ new挺好。比看见白针孔明强多了</blockquote>
 
 
                                                 
+
+*****
+
+####  yzj134100  
+##### 83105#       发表于 2021-8-26 15:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">白贞最开始还是探路开荒好手，不用等大佬开荒贴，直到后面被系统背刺加了敌人配置提示
+
+
+*****
+
+####  alucardcz  
+##### 83106#       发表于 2021-8-26 15:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52512363&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-26 12:09</a>
+
+艹 石不过三抽着玩 本来彩光还高兴了下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲人 慕了慕了
+
+
+*****
+
+####  qixinno2  
+##### 83107#       发表于 2021-8-26 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52514746&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 15:28</a>
+
+欧洲人 慕了慕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">靠 这要是不手贱岂不是能白嫖一个泳装五星么 欧个屁
+
+
+                                                 
