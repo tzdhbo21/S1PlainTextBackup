@@ -18160,3 +18160,18 @@ toe两个星球都有非常多的隐藏要素，可以自由探索，上天下�
 就像在听xb2的One Last You一样，感动
 
 
+
+
+*****
+
+####  4ckc  
+##### 2857#       发表于 2021-8-26 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52520009&amp;ptid=1860328" target="_blank">LiberaMe 发表于 2021-8-26 23:40</a>
+为啥我哥伦比亚区买告诉我不能用预付卡十天前买还是啥（记得不是太清楚了） ...</blockquote>
+可能那种卡不行吧，我是拿信用卡买的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
