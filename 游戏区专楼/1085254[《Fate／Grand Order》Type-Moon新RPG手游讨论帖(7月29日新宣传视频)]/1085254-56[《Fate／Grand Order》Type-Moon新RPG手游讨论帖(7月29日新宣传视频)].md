@@ -7353,3 +7353,23 @@ DW：这么做对我赚钱有帮助吗？
 没，只是妄想一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 83117#       发表于 2021-8-26 19:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你游机器人又出动了，今天我拿了1W多友情点
+
+
+*****
+
+####  qixinno2  
+##### 83118#       发表于 2021-8-26 19:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我挺想机器人刷我的 友情点只剩10W哈贝喵依然是3宝状态
+
+
