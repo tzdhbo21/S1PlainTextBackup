@@ -11319,3 +11319,26 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2022193&amp;extra=
 
 
                                                  
+
+*****
+
+####  wyjbnb  
+##### 791#       发表于 2021-8-26 10:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我这手机有个bug，如果在一个程序界面从通知栏点进入另外一个程序，会导致后台界面消失（就任务选择呼出不了，后台的程序结束不了），完全不能解决，只能重启，这啥情况啊？
+
+
+*****
+
+####  Lisylfn  
+##### 792#       发表于 2021-8-26 10:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52510912&amp;ptid=1985265" target="_blank">wyjbnb 发表于 2021-8-26 10:27</a>
+
+我这手机有个bug，如果在一个程序界面从通知栏点进入另外一个程序，会导致后台界面消失（就任务选择 ...</blockquote>
+Android11之后就有的bug, 一直没修
+
+
+                                                 

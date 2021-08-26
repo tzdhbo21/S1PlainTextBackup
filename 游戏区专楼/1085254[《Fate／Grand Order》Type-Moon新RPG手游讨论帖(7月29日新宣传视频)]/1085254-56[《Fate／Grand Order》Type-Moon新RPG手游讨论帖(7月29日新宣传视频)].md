@@ -6668,3 +6668,208 @@ gamei那个数据我是真觉得不靠谱</blockquote>
 
 
                                                  
+
+*****
+
+####  zakki  
+##### 83060#       发表于 2021-8-26 10:07
+
+
+五星自选还没选，还在纠结是蓝呆还是大公，拉二
+
+
+*****
+
+####  UNISONIA  
+##### 83061#       发表于 2021-8-26 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52510610&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-26 10:07</a>
+
+五星自选还没选，还在纠结是蓝呆还是大公，拉二</blockquote>
+不考虑选个平时歪不出的剧限吗【
+
+
+*****
+
+####  qixinno2  
+##### 83062#       发表于 2021-8-26 10:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也没选呢 等之后的强化本之类的看看 反正没期限不着急
+
+
+*****
+
+####  zakki  
+##### 83063#       发表于 2021-8-26 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52510695&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-8-26 10:13</a>
+
+不考虑选个平时歪不出的剧限吗【</blockquote>
+玩了这么久都没歪出来，和剧限也差不多了，还不如选个强度高的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 83064#       发表于 2021-8-26 10:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52510744&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-26 10:16</a>
+
+玩了这么久都没歪出来，和剧限也差不多了，还不如选个强度高的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新这三个都在稳定供盘了
+
+
+*****
+
+####  areklose  
+##### 83065#       发表于 2021-8-26 10:18
+
+
+等一个无限池当场拉出来
+
+
+*****
+
+####  zakki  
+##### 83066#       发表于 2021-8-26 10:24
+
+
+如果拉二改模我就决定是拉二了，可惜迟迟不改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83067#       发表于 2021-8-26 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52510868&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-26 10:24</a>
+
+如果拉二改模我就决定是拉二了，可惜迟迟不改</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新我直接选了枪呆   强度有什么用（
+
+
+*****
+
+####  rooarr  
+##### 83068#       发表于 2021-8-26 10:31
+
+
+我也还没选，现在这种环境， 选哪个都不太好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 83069#       发表于 2021-8-26 10:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52510885&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 10:25</a>
+
+萌新我直接选了枪呆   强度有什么用（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为萌新强卡都有啊 本菜鸡就要啥没啥
+
+
+*****
+
+####  alucardcz  
+##### 83070#       发表于 2021-8-26 10:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511008&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-8-26 10:34</a>
+
+因为萌新强卡都有啊 本菜鸡就要啥没啥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别乱说 我常驻一堆没有   什么常驻等歪都是骗人的！
+
+
+
+
+*****
+
+####  areklose  
+##### 83071#       发表于 2021-8-26 10:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511050&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 10:36</a>
+
+别乱说 我常驻一堆没有   什么常驻等歪都是骗人的！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">快说缺啥。上次说没月神就来了
+
+
+*****
+
+####  v22325  
+##### 83072#       发表于 2021-8-26 10:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我开服四星到现在都还有个大姐没歪出来 没缘分真的是这样的
+
+
+*****
+
+####  alucardcz  
+##### 83073#       发表于 2021-8-26 10:41
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 83074#       发表于 2021-8-26 10:41
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 83075#       发表于 2021-8-26 10:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511090&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-26 10:39</a>
+
+快说缺啥。上次说没月神就来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是拉二 不刑  莫崽 大王都没有吗
+
+
+*****
+
+####  qixinno2  
+##### 83076#       发表于 2021-8-26 10:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511050&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 10:36</a>
+
+别乱说 我常驻一堆没有   什么常驻等歪都是骗人的！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但常驻好用的也就那几个吧 话说真的没想到歪出的2宝棉被竟然能翻身成为顶级剑光炮之一 太草了
+
+
+*****
+
+####  zakki  
+##### 83077#       发表于 2021-8-26 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52511135&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-26 10:42</a>
+
+这不是拉二 不刑  莫崽 大王都没有吗</blockquote>
+我不刑都三宝了，全是歪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龙星丸  
+##### 83078#       发表于 2021-8-26 11:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我蓝王纯粹歪到拿盘子，有更惨的吗？
+
+
+                                                
