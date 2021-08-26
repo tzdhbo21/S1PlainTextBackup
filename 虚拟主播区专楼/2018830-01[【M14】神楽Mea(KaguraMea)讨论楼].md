@@ -15736,3 +15736,16 @@ syl我记得隔壁日南好像打完疫苗之后发烧到40°左右然后体温�
 
 
                                                  
+
+*****
+
+####  往世雷书  
+##### 1443#       发表于 2021-8-26 07:11
+
+
+疫苗这事多花钱应该有保障吧，看她怎么选了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

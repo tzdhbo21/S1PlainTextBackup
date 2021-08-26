@@ -17498,3 +17498,55 @@ https://toarise.tales-ch.jp/products/products_list.php</blockquote>
 
 
                                                  
+
+*****
+
+####  qiyu1234  
+##### 2813#       发表于 2021-8-26 07:24
+
+
+音乐表演里的镜头
+
+这里希侬的衣服跟默认服装不一样啊
+
+官方藏东西了吧
+
+<img src="https://img.saraba1st.com/forum/202108/26/072419kh7ktijtl5loj9o1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0.JPG</strong> (248.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-26 07:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/26/072451hr1lm3kzczg0lgrc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (76.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-26 07:24 上传
+
+
+*****
+
+####  roxassix  
+##### 2814#       发表于 2021-8-26 07:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52509043&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-8-26 04:22</a>
+
+实物包装一般都会注明支持什么语言，尤其是在欧洲或者北美销售的游戏。如果买的时候不知道那多半是商家的 ...</blockquote>
+包装后面真不一定写。我买的xbox版控制终极版美版的盒子后面就啥也没写。然而这游戏是内置中文的。。
+
+上ebay上瞅了眼绯红美版和欧版的盒子背面也是没标记语言。
+
+同样是nbei的嗜血代码美版没标，欧版虽然标了支持语言但是在没写有日语字幕的情况下实际上是带日语字幕的（日亚上卖欧版的商家标了支持日语字幕和配音）
+
+我感觉这玩意标不标全看发行商心情。这种发行商不在官网上明确标注的，非本国语言区域的情况下预购，当地实体店或者网店的销售/客服人员都不一定知道塞了哪些语言，真跟买盲盒差不多。只能靠经验或者有吃螃蟹的网友测试完分享语言信息。。（对应区域下载商店标了的话实体应该一般和下载版一致，也能做一定参考）
+
+
+                                                 
