@@ -17846,3 +17846,66 @@ PS：关于预购特典，好像只有日版是发售后一个月内都带，剩
 今年绯红结系和破晓，吃神还有没有4啊，还能和cv世界观融合一下。
 
 
+
+
+*****
+
+####  godless2020  
+##### 2833#       发表于 2021-8-26 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52516518&amp;ptid=1860328" target="_blank">roxassix 发表于 2021-8-26 18:06</a>
+
+这回究极版基本是分了三个版本卖：亚版(港台韩新)，日版，欧美其他(含各种低价区)
+
+
+内容区别</blockquote>
+日版没人权<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  roxassix  
+##### 2834#       发表于 2021-8-26 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52430275&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-8-19 17:06</a>
+
+预购那就不能当土耳其人了，锁服找代购不能买预购游戏吧
+
+退而求其次当哥伦比亚人的话豪华版480大洋也还算 ...</blockquote>
+也不知道这位兄弟买没买。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说最近又瞅了一圈，发现绯红结系(就过了俩月)和噬血代码的预购dlc都有单独上架。
+
+感觉直接当土耳其人买非预购key赌一把也不是不行(最惨也就是去ebay买盒装拆出来的预购特典key)<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  4ckc  
+##### 2835#       发表于 2021-8-26 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52516982&amp;ptid=1860328" target="_blank">roxassix 发表于 2021-8-26 18:53</a>
+也不知道这位兄弟买没买。。
+
+话说最近又瞅了一圈，发现绯红结系(就过了俩月)和噬血代码的预购dlc都 ...</blockquote>
+买完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+最后自己当哥伦比亚人买的豪华
+不算亏就是了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zero12  
+##### 2836#       发表于 2021-8-26 19:13
+
+
+还有一个主题曲Blue Moon啊
+
+op被抛弃了
+
+
