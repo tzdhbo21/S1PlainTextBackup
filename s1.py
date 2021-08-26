@@ -183,18 +183,19 @@ async def UpdateThread(threaddict,semaphore):
         try:
             conn =aiohttp.TCPConnector(limit=10)
             contentdict = {}
-            async with aiohttp.ClientSession(connector=conn,headers=headers,cookies=cookies) as session:
-                for thread in range(lastpage+1,totalpage+1):
-                    rurl = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-'+str(thread)+'-1.html'
-                    # rresult = rsession.get(rurl, headers=headers,  cookies=cookies)
-                    # rdata = rresult.content
-                    async with session.get(rurl) as response:
-                        rdata = await response.content.read()
-                    rnamelist, rreplylist,rtotalpage,rnewtitles= parse_html(rdata)
-                    ThreadContent,lastreply= FormatStr(rnamelist, rreplylist,threaddict['totalreply'])
-                    contentdict[str(lastreply)] = {}
-                    contentdict[str(lastreply)]['content'] = ThreadContent
-                    contentdict[str(lastreply)]['page'] = thread  
+            async with semaphore:
+                async with aiohttp.ClientSession(connector=conn,headers=headers,cookies=cookies) as session:
+                    for thread in range(lastpage+1,totalpage+1):
+                        rurl = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-'+str(thread)+'-1.html'
+                        # rresult = rsession.get(rurl, headers=headers,  cookies=cookies)
+                        # rdata = rresult.content
+                        async with session.get(rurl) as response:
+                            rdata = await response.content.read()
+                        rnamelist, rreplylist,rtotalpage,rnewtitles= parse_html(rdata)
+                        ThreadContent,lastreply= FormatStr(rnamelist, rreplylist,threaddict['totalreply'])
+                        contentdict[str(lastreply)] = {}
+                        contentdict[str(lastreply)]['content'] = ThreadContent
+                        contentdict[str(lastreply)]['page'] = thread  
             if (contentdict.keys()):
                 print(threaddict['id']+'-'+str(contentdict.keys()))
                 if(min(list(map(int,contentdict.keys()))) > threaddict['totalreply']):
@@ -222,7 +223,7 @@ async def main():
 
     tasks = []
     threaddicts = {}
-    semaphore = asyncio.Semaphore(5)
+    semaphore = asyncio.Semaphore(10)
     for tid in thdata.keys():
         if(thdata[tid]['active']):
             threaddicts[tid] = {}
