@@ -18197,3 +18197,16 @@ toe两个星球都有非常多的隐藏要素，可以自由探索，上天下�
 这blue moon也太好听了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">pv画面剪的也好，万南审美还是在线的嘛，直接让ufo把这段画出来都秒杀现在的op了
 
 
+
+
+*****
+
+####  loley  
+##### 2860#       发表于 2021-8-27 05:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这歌又把我的期待值提高了，还有两周。。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
