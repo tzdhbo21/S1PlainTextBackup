@@ -81,7 +81,7 @@ def FormatStr(namelist, replylist,totalreply):
     replynumber = []
     lastreply = totalreply
     for i in namelist:
-        i = i = re.sub(r'[\r\n]',' ',str(i))
+        i = re.sub(r'[\r\n]',' ',str(i))
         nametime.append(re.sub(r'<.+?>','',i))
     names = nametime[::2]
     timestamp = nametime[1::2]
@@ -161,7 +161,6 @@ async def UpdateThread(threaddict,semaphore):
             print(e)
             pass
     namelist, replylist,totalpage,newtitles= parse_html(result)
-    print(threaddict['id']+'-'+str(totalpage)+'-'+str(newtitles))
     titles = threaddict['title']
     thdata[threaddict['id']]['newtitle'] = newtitles
     if(thdata[threaddict['id']]['title'] =='待更新'):
@@ -181,38 +180,42 @@ async def UpdateThread(threaddict,semaphore):
         else:
             filedir = rootdir+thdata[threaddict['id']]['category']+'/'
         #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
-        #startpage = (lastpage-1)//50*50+1
-        ThreadContent = [' ']*50
-        PageCount = 0
-        # lastpages = '%02d' %math.ceil(lastpage/50)
-        # remov(filedir+str(threaddict['id'])+titles+'-'+str(lastpages)+'.md')
-        rsession = requests.session()
         try:
-            for thread in range(lastpage+1,totalpage+1):
-                rurl = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-'+str(thread)+'-1.html'
-                rresult = rsession.get(rurl, headers=headers,  cookies=cookies)
-                rdata = rresult.content
-                rnamelist, rreplylist,rtotalpage,rnewtitles= parse_html(rdata)
-                ThreadContent[PageCount],lastreply= FormatStr(rnamelist, rreplylist,threaddict['totalreply'])
-                if(lastreply > threaddict['totalreply']):
-                    PageCount = PageCount + 1
-                    if(PageCount == 50 or thread == totalpage):
+            conn =aiohttp.TCPConnector(limit=10)
+            contentdict = {}
+            async with aiohttp.ClientSession(connector=conn,headers=headers,cookies=cookies) as session:
+                for thread in range(lastpage+1,totalpage+1):
+                    rurl = 'https://bbs.saraba1st.com/2b/thread-'+threaddict['id']+'-'+str(thread)+'-1.html'
+                    # rresult = rsession.get(rurl, headers=headers,  cookies=cookies)
+                    # rdata = rresult.content
+                    async with session.get(rurl) as response:
+                        rdata = await response.content.read()
+                    rnamelist, rreplylist,rtotalpage,rnewtitles= parse_html(rdata)
+                    ThreadContent,lastreply= FormatStr(rnamelist, rreplylist,threaddict['totalreply'])
+                    contentdict[str(lastreply)] = {}
+                    contentdict[str(lastreply)]['content'] = ThreadContent
+                    contentdict[str(lastreply)]['page'] = thread  
+            if (contentdict.keys()):
+                print(threaddict['id']+'-'+str(contentdict.keys()))
+                if(min(list(map(int,contentdict.keys()))) > threaddict['totalreply']):
+                    for replynum in sorted(list(map(int,contentdict.keys()))):
                         #lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()+28800))#把GithubAction服务器用的UTC时间转换为北京时间
                         #增量更新不再创建时间戳
-                        pages = '%02d' %math.ceil(thread/50)
+                        pages = '%02d' %math.ceil(contentdict[str(replynum)]['page']/50)
                         filename = str(threaddict['id'])+'-'+str(pages)+titles+'.md'
                         with open((filedir+filename).encode('utf-8'),'a',encoding='utf-8') as f:
-                            f.writelines(ThreadContent)
-                        ThreadContent = [' ']*50
-                        PageCount = 0
-                    thdata[threaddict['id']]['totalreply'] = lastreply
+                            f.write(contentdict[str(replynum)]['content'])
+                    thdata[threaddict['id']]['totalreply'] = max(list(map(int,contentdict.keys())))
                     thdata[threaddict['id']]['lastedit'] = int(time.time())
                     thdata[threaddict['id']]['title'] = titles
                     with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                         f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
         except Exception as e:
             print(e)
+            
+            
             pass
+
 
         
 async def main():
@@ -235,5 +238,3 @@ if __name__ == '__main__':
 
     
     asyncio.run(main())
-
-    
