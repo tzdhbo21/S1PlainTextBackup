@@ -17909,3 +17909,102 @@ PS：关于预购特典，好像只有日版是发售后一个月内都带，剩
 op被抛弃了
 
 
+
+
+*****
+
+####  蓝雉  
+##### 2837#       发表于 2021-8-26 19:56
+
+
+<img src="https://img.saraba1st.com/forum/202108/26/195554m1esdcxcox99tyss.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210826195543.jpg</strong> (90.12 KB, 下载次数: 1)
+
+下载附件
+
+2021-8-26 19:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/26/195554knp7yrvu6knwmlp4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210826195548.jpg</strong> (114.08 KB, 下载次数: 1)
+
+下载附件
+
+2021-8-26 19:55 上传
+
+
+震撼我妈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 2838#       发表于 2021-8-26 20:00
+
+
+ 本帖最后由 qiyu1234 于 2021-8-26 20:04 编辑 
+
+【Tales of ARISE】絢香「Blue Moon」 グランドテーマトレイラー
+
+
+[https://www.bilibili.com/video/BV1aL411b7yr](https://www.bilibili.com/video/BV1aL411b7yr)
+
+[https://www.youtube.com/watch?v=H-GMd4cqrE8](https://www.youtube.com/watch?v=H-GMd4cqrE8)
+
+
+其实宇宙飞行器也是经典传承啊（永恒传说 TOE 圣恩传说 TOG）
+
+
+*****
+
+####  izayoi39  
+##### 2839#       发表于 2021-8-26 20:04
+
+
+这宇宙飞船，还真是后期穿梭两个星球啊
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hkguty  
+##### 2840#       发表于 2021-8-26 20:06
+
+
+希望不会像TOG的火星那样只有一两张图
+
+
+*****
+
+####  蓝雉  
+##### 2841#       发表于 2021-8-26 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52517823&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-26 20:00</a>
+【Tales of ARISE】絢香「Blue Moon」 グランドテーマトレイラー</blockquote>
+主要这几部我就玩过心灵传说，还以为雷纳人的飞船会是魔幻风格，没想到这么科幻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LMBS  
+##### 2842#       发表于 2021-8-26 20:10
+
+
+这过场不是挺好的吗？麻烦下次去掉UFO的动画
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 2843#       发表于 2021-8-26 20:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">完蛋了，这一听就是bad end的曲风，还要来啊？
+
+
