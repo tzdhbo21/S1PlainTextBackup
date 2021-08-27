@@ -8506,3 +8506,16 @@ RD这现场太拉了<img src="https://static.saraba1st.com/image/smiley/face2017
 维阿还挺有面子的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 6671#       发表于 2021-8-27 16:34
+
+
+[https://www.youtube.com/watch?v=mmNkipZB2lo](https://www.youtube.com/watch?v=mmNkipZB2lo)
+
+春猿火 1st ONE-MAN LIVE「シャーマニズム」冒頭無料生配信
+
+
