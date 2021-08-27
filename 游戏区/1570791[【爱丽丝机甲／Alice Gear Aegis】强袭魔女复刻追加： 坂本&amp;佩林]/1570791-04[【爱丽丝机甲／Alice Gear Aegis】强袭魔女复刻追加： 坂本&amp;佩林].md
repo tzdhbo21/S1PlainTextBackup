@@ -18148,3 +18148,16 @@ AN之耻</blockquote>
 原先打底50票，把邮箱的票全挖出来，囤的各种成就也拿了一半，算上3.5周年提前冲的，合计3单共150抽才把佩琳抽出来<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  MOOMBA  
+##### 5915#       发表于 2021-8-27 10:41
+
+
+夜露的俩个sp 国内翻译 乍一看简直和乱翻的一样 
+
+结果去WIKI看了一下平假名 还真没啥大问题。。。
+
+
