@@ -7697,3 +7697,26 @@ DW：这么做对我赚钱有帮助吗？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">9月30号警告
 
 
+
+
+*****
+
+####  zakki  
+##### 83143#       发表于 2021-8-27 13:32
+
+
+其实你游每次说的什么6月中旬，12月上旬什么的都挺准时的，6月中旬就是6月11号，12月上旬就是12月1，2号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以泳装大概率下周三
+
+
+*****
+
+####  sqd  
+##### 83144#       发表于 2021-8-27 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52522917&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-27 11:10</a>
+
+官方都说了2周内尽可能不要剧透了，何况估计有一半人连游戏都没拿到手，一句“有五月线”还不算剧透？[f: ...</blockquote>
+这楼有说不剧透吗，楼主都进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁月姬楼都透到底了
+
+
