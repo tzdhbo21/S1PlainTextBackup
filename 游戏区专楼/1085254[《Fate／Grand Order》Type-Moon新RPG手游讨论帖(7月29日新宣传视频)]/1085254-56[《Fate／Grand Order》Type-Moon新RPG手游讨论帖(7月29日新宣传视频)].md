@@ -7542,3 +7542,86 @@ DW：这么做对我赚钱有帮助吗？
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  zakki  
+##### 83131#       发表于 2021-8-27 11:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52522847&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-27 11:04</a>
+
+看的人觉得是，那就是，特别是你这还是云出来的，会比较拉仇恨
+
+
+----发送自 STAGE1 App for Androi ...</blockquote>
+这不就是蘑菇以前访谈透露的已知信息吗，他自己不信蘑菇说的然后说我剧透也过于离谱了吧。就好比我说泳装是9月开，然后有人说我剧透，这特么不是yls自己说的吗，自己不看还能怪别人是剧透吗
+
+
+*****
+
+####  khxooo  
+##### 83132#       发表于 2021-8-27 11:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52522756&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-27 10:57</a>
+啊这，说有五月线也叫剧透？这特么不是蘑菇十年前说的重置版加五月线吗，那我是不是说句有琥珀线也能算剧 ...</blockquote>
+官方都说了2周内尽可能不要剧透了，何况估计有一半人连游戏都没拿到手，一句“有五月线”还不算剧透？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83133#       发表于 2021-8-27 11:11
+
+
+翻页
+
+
+*****
+
+####  zakki  
+##### 83134#       发表于 2021-8-27 11:15
+
+
+ 本帖最后由 zakki 于 2021-8-27 11:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52522917&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-27 11:10</a>
+官方都说了2周内尽可能不要剧透了，何况估计有一半人连游戏都没拿到手，一句“有五月线”还不算剧透？[f: ...</blockquote>
+不是，这有五月线也不是这一部啊，是下一部。要是这部里有个隐藏路线是五月线，我说有这肯定是剧透没问题。但我说的是月姬r里线会有五月线，一个还没发售的东西，这剧透了个啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 83135#       发表于 2021-8-27 11:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52522977&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-27 11:15</a>
+不是，这有五月线也不是这一部啊，是下一部。要是这部里有个隐藏路线是五月线，我说有这肯定是剧透没问题 ...</blockquote>
+那么官方有没有任何公告公布过下一部有五月线，如果只能玩过这个游戏才能得知这个信息，你这个行为当然算剧透<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83136#       发表于 2021-8-27 11:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52523046&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-27 11:21</a>
+
+那么官方有没有任何公告公布过下一部有五月线，如果只能玩过这个游戏才能得知这个信息，你这个行为当然算 ...</blockquote>
+官方的确目前没有公告过，但我上面说了，蘑菇以前说过重置会加五月线，这种已知信息还能叫剧透吗。不过我也确实是云了游戏通关后的pv才确定的，这的确是从剧透里看到的信息，但这个信息本身能算剧透吗，当然要是说从剧透里看到的所有东西全是剧透，那我认了
+
+
+*****
+
+####  khxooo  
+##### 83137#       发表于 2021-8-27 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52523168&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-27 11:33</a>
+官方的确目前没有公告过，但我上面说了，蘑菇以前说过重置会加五月线，这种已知信息还能叫剧透吗。不过我 ...</blockquote>
+起码大部分人认为认为这是剧透<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
