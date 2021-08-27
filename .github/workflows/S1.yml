@@ -4,7 +4,6 @@
 name: S1AutoBackup
 
 on: 
-  push:
   schedule:
     # * is a special character in YAML so you have to quote this string
     - cron:  '13,33,53 */1 * * *'
