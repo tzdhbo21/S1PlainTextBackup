@@ -7473,3 +7473,72 @@ DW：这么做对我赚钱有帮助吗？
 问下，有没有推荐什么比较活跃的fgo群啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 83126#       发表于 2021-8-27 10:49
+
+
+<blockquote>引用第83124楼zakki于2021-08-27 10:33发表的  :
+
+问下，有没有推荐什么比较活跃的fgo群啊我在之前一个群里说了句月姬r有五月线特么说我是剧透直接踢了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活该啦，现在群众要么游戏都还没拿到，要么下载版还在打，你就跳出来云不踢你踢谁
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  zakki  
+##### 83127#       发表于 2021-8-27 10:57
+
+
+ 本帖最后由 zakki 于 2021-8-27 10:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52522668&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-27 10:49</a>
+
+活该啦，现在群众要么游戏都还没拿到，要么下载版还在打，你就跳出来云不踢你踢谁
+
+
+----发送自 STA ...</blockquote>
+啊这，说有五月线也叫剧透？这特么不是蘑菇十年前说的重置版加五月线吗，那我是不是说句有琥珀线也能算剧透了？
+
+
+*****
+
+####  仰望神的括约肌  
+##### 83128#       发表于 2021-8-27 10:59
+
+
+啊？真有五月线？没怎么太关注之前情报 我才打了个开头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83129#       发表于 2021-8-27 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52522769&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-8-27 10:59</a>
+
+啊？真有五月线？没怎么太关注之前情报 我才打了个开头</blockquote>
+这部没有，这部只有两条线，下一部有
+
+
+*****
+
+####  黑上シグマ  
+##### 83130#       发表于 2021-8-27 11:04
+
+
+<blockquote>引用第83126楼zakki于2021-08-27 10:57发表的  :
+
+本帖最后由 zakki 于 2021-8-27 10:59 编辑 引用:黑上シグマ 发表于 2021......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看的人觉得是，那就是，特别是你这还是云出来的，会比较拉仇恨
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
