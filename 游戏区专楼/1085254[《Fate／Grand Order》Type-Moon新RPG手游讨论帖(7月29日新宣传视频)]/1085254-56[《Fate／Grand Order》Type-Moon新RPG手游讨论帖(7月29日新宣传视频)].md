@@ -7742,3 +7742,152 @@ DW：这么做对我赚钱有帮助吗？
 pv都没有吧，有点难
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83147#       发表于 2021-8-27 17:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一立亚复课  还有强化本  至于活动？ 不存在的
+
+
+*****
+
+####  khxooo  
+##### 83148#       发表于 2021-8-27 17:03
+
+
+美游强化，开池子，连续登录，礼装本，标准操作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，没有伊利亚，所以不知道有没有强化
+
+
+*****
+
+####  alucardcz  
+##### 83149#       发表于 2021-8-27 17:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52526711&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-27 17:03</a>
+
+美游强化，开池子，连续登录，礼装本，标准操作，没有伊利亚，所以不知道有没有强化 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的 技能本
+
+
+*****
+
+####  alucardcz  
+##### 83150#       发表于 2021-8-27 17:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接加了50自充 这强化幅度可怕了
+
+
+*****
+
+####  黑上シグマ  
+##### 83151#       发表于 2021-8-27 17:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个都没，一个都不抽，小屁孩有多远多远
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  承尘  
+##### 83152#       发表于 2021-8-27 17:13
+
+
+50充草，wys这回真大方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁+3000的馋哭了
+
+
+*****
+
+####  仰望神的括约肌  
+##### 83153#       发表于 2021-8-27 17:14
+
+
+然而是单体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">依然值班不了迦里3宝妖僧
+
+
+*****
+
+####  alucardcz  
+##### 83154#       发表于 2021-8-27 17:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52526874&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-8-27 17:14</a>
+
+然而是单体依然值班不了迦里3宝妖僧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不重要 我记得隔壁有个弱智说什么以后不会强化红卡和不会出新的红卡从者啥啥啥的  第1个耳光已经打上去了！
+
+
+*****
+
+####  khxooo  
+##### 83155#       发表于 2021-8-27 17:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52526874&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-8-27 17:14</a>
+然而是单体依然值班不了迦里3宝妖僧</blockquote>
+妖僧的是宝威，不被魔放稀释，伊丽雅还是没得比
+
+
+*****
+
+####  alucardcz  
+##### 83156#       发表于 2021-8-27 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52526937&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-27 17:19</a>
+
+妖僧的是宝威，不被魔放稀释，伊丽雅还是没得比</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚去隔壁看了看 还有人说妖僧80自充有什么用 50够了  可妖僧明明现在100自充
+
+
+*****
+
+####  khxooo  
+##### 83157#       发表于 2021-8-27 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52526986&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-27 17:22</a>
+刚去隔壁看了看 还有人说妖僧80自充有什么用 50够了  可妖僧明明现在100自充 ...</blockquote>
+100自充也能被70自充值班我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eyeego  
+##### 83158#       发表于 2021-8-27 17:26
+
+
+那个古臭1t魔放跟宝具后置的debuff怎么跟三藏比啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83159#       发表于 2021-8-27 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52527033&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-27 17:25</a>
+
+100自充也能被70自充值班我是没想到的</blockquote>
+[https://bbs.nga.cn/read.php?tid=28247820](https://bbs.nga.cn/read.php?tid=28247820)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以去参观下 
+
+
+*****
+
+####  rzxa  
+##### 83160#       发表于 2021-8-27 17:32
+
+
+签到只有五天，一号能开泳装吗
+
+
