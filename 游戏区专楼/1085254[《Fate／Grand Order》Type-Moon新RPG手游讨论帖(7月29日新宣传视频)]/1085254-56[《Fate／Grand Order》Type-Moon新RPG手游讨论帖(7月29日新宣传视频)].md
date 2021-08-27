@@ -8045,3 +8045,14 @@ debuff还是没去掉
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大佬好强啊
 
 
+
+
+*****
+
+####  areklose  
+##### 83173#       发表于 2021-8-27 19:32
+
+
+三藏主要是有了20被动更加容易原地起爆。而且全体攻击力还能拐一下
+
+
