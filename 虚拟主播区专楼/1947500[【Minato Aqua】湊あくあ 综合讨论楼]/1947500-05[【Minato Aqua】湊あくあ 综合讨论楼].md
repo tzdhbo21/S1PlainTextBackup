@@ -10541,3 +10541,18 @@ syl警惕你楼绿帽民化<img src="https://static.saraba1st.com/image/smiley/f
 你以为这个あ是模仿鲨宝，其实是威风堂堂啦
 
 
+
+
+*****
+
+####  nian1538  
+##### 6853#       发表于 2021-8-27 07:45
+
+
+[https://twitter.com/kuromakuma/status/1430917783034896389](https://twitter.com/kuromakuma/status/1430917783034896389)
+
+あ字的研究
+
+看来是又hera了
+
+
