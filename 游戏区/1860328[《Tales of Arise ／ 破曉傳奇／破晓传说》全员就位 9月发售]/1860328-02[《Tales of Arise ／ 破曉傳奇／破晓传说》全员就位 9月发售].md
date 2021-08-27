@@ -18372,3 +18372,59 @@ BE也没啥，我个人其实挺喜欢BE的，比如TOX2那种<img src="https://
 2021-8-27 18:50 上传
 
 
+
+
+*****
+
+####  zzzeven  
+##### 2873#       发表于 2021-8-27 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52521180&amp;ptid=1860328" target="_blank">loley 发表于 2021-8-27 05:46</a>
+
+这歌又把我的期待值提高了，还有两周。。
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+听完这歌，看完pv，我下单了究极版了，别让我失望啊
+
+
+*****
+
+####  415452356  
+##### 2874#       发表于 2021-8-27 20:33
+
+
+  他真要把一个be写的很感人不强行喂shi也能接受的，不过就热情传说的前车之鉴，他们也不一定敢这么玩
+
+
+*****
+
+####  ceruleancard  
+##### 2875#       发表于 2021-8-27 20:35
+
+
+tob算be吗，感觉写的挺好的，特别是在有后作限制的情况下
+
+
+*****
+
+####  hypnossz86  
+##### 2876#       发表于 2021-8-27 20:35
+
+
+话说和爱马仕新作的那个联动服装后面会单卖么
+
+
+*****
+
+####  laoz  
+##### 2877#       发表于 2021-8-27 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52529089&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-8-27 20:35</a>
+
+话说和爱马仕新作的那个联动服装后面会单卖么</blockquote>
+肯定会，主机的究极版不包这玩意
+
+

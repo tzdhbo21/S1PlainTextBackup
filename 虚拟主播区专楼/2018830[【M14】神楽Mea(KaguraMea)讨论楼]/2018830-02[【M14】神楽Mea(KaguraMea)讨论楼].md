@@ -801,3 +801,133 @@ S1怎么炸成这样了
 以前其实唱过了，这次算发挥不太好的那种了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 1578#       发表于 2021-8-27 20:00
+
+
+为什么定了个9点的闹钟
+
+
+*****
+
+####  时间在我手中  
+##### 1579#       发表于 2021-8-27 20:02
+
+
+开播的时候说了，每小时一个
+
+
+*****
+
+####  T_Hb  
+##### 1580#       发表于 2021-8-27 20:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆发力真强
+
+
+*****
+
+####  时间在我手中  
+##### 1581#       发表于 2021-8-27 20:15
+
+
+嘻嘻，我看是野男人叫了
+
+
+*****
+
+####  yywzjsw  
+##### 1582#       发表于 2021-8-27 20:20
+
+
+回家一开，睡过那么久？
+
+
+*****
+
+####  时间在我手中  
+##### 1583#       发表于 2021-8-27 20:21
+
+
+说起来这人看来这周不用回家的样子，刚刚说要明天复仇，今天估计播多一会儿就去打游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シルフィエット  
+##### 1584#       发表于 2021-8-27 20:25
+
+
+忽然发现19年那回唱bad apple!也是8月27号来着
+
+
+*****
+
+####  T_Hb  
+##### 1585#       发表于 2021-8-27 20:26
+
+
+图灵爱复仇来了
+
+
+*****
+
+####  时间在我手中  
+##### 1586#       发表于 2021-8-27 20:27
+
+
+肥婆要跑了，我还没到家<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KonUni  
+##### 1587#       发表于 2021-8-27 20:30
+
+
+跑路了
+
+
+*****
+
+####  T_Hb  
+##### 1588#       发表于 2021-8-27 20:32
+
+
+迟到早退<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 1589#       发表于 2021-8-27 20:33
+
+
+咋下这么早，我无法接受<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1590#       发表于 2021-8-27 20:33
+
+
+明天再点歌了。我今天好困，晚安肥婆<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  yywzjsw  
+##### 1591#       发表于 2021-8-27 20:34
+
+
+回来就听到2首，眠了
+
+
