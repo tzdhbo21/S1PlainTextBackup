@@ -1556,3 +1556,37 @@ https://b23.tv/1xan40 ...</blockquote>
 ？好奇010是真喜欢电棍嘛？还是乐子人拱火
 
 
+
+
+*****
+
+####  seki_m  
+##### 135#       发表于 2021-8-27 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52523470&amp;ptid=2021175" target="_blank">Chinacaii 发表于 2021-8-27 11:56</a>
+
+？好奇010是真喜欢电棍嘛？还是乐子人拱火</blockquote>
+？可能吗，最多就是看过的程度吧
+
+
+*****
+
+####  余情自取  
+##### 136#       发表于 2021-8-27 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52523470&amp;ptid=2021175" target="_blank">Chinacaii 发表于 2021-8-27 11:56</a>
+？好奇010是真喜欢电棍嘛？还是乐子人拱火</blockquote>
+海子姐说过自己喜欢看电棍的，棍莓吧十三级的含金量
+
+
+*****
+
+####  kaolimadepi  
+##### 137#       发表于 2021-8-27 12:40
+
+
+当年磕丨莓CP，现在自己和电棍组CP，两边打钱多的还喜欢牵线搭桥，召唤弄人啊
+
+

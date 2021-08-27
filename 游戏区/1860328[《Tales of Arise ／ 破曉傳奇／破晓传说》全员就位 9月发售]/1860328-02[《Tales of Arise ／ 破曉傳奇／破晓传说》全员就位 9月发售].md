@@ -18278,3 +18278,23 @@ toe两个星球都有非常多的隐藏要素，可以自由探索，上天下�
 买了份港限，又买了份数字豪华版，我应该也算得上是很支持了吧……希望剧情不会让我失望，比绯红好一点我都满足了
 
 
+
+
+*****
+
+####  武の炽羽  
+##### 2866#       发表于 2021-8-27 12:09
+
+
+BE也没啥，我个人其实挺喜欢BE的，比如TOX2那种<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  塔奇克马  
+##### 2867#       发表于 2021-8-27 12:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">期待BE
+
+
