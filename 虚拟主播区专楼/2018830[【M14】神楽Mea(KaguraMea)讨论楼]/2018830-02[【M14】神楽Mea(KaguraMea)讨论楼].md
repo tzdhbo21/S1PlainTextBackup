@@ -382,3 +382,126 @@ S1怎么炸成这样了
 新曲，她能把吸血鬼唱好而不是靠尼哥这音骂人整的PV拼凑版都算她厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 1535#       发表于 2021-8-27 18:05
+
+
+还好，吃完饭还没播
+
+
+*****
+
+####  2014720  
+##### 1536#       发表于 2021-8-27 18:10
+
+
+我急着吃完你又不播是吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pei23333  
+##### 1537#       发表于 2021-8-27 18:10
+
+
+这是又睡过去了还是？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  T_Hb  
+##### 1538#       发表于 2021-8-27 18:12
+
+
+别尬黑，主播也在扒饭呢
+
+
+*****
+
+####  往世雷书  
+##### 1539#       发表于 2021-8-27 18:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  雪风utopia  
+##### 1540#       发表于 2021-8-27 18:18
+
+
+再等等，马上好<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 1541#       发表于 2021-8-27 18:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我不好说
+
+
+*****
+
+####  时间在我手中  
+##### 1542#       发表于 2021-8-27 18:19
+
+
+楼友好快，一分钟一个<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1543#       发表于 2021-8-27 18:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">定个7点多好，折磨了观众也折磨了自己
+
+
+*****
+
+####  Mikumiku831  
+##### 1544#       发表于 2021-8-27 18:22
+
+
+刚刚开始呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kenjjj  
+##### 1545#       发表于 2021-8-27 18:29
+
+
+排队是吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1546#       发表于 2021-8-27 18:30
+
+
+那今晚都开不了播了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1547#       发表于 2021-8-27 18:31
+
+
+那我只能车震到十二点了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
