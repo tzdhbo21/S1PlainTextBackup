@@ -8519,3 +8519,29 @@ RD这现场太拉了<img src="https://static.saraba1st.com/image/smiley/face2017
 春猿火 1st ONE-MAN LIVE「シャーマニズム」冒頭無料生配信
 
 
+
+
+*****
+
+####  gaiadc  
+##### 6672#       发表于 2021-8-27 18:52
+
+
+原来永劫无间的英文名叫《奈罗花：刀锋》，看葛皇标题一个奈罗花我还在想是啥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|其实是梵语|
+
+
+查看全部评分
+
+
