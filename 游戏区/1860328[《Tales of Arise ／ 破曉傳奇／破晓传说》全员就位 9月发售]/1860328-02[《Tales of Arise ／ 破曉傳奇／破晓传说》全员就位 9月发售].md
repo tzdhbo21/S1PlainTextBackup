@@ -18223,3 +18223,28 @@ toe两个星球都有非常多的隐藏要素，可以自由探索，上天下�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  蓝雉  
+##### 2862#       发表于 2021-8-27 08:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52519708&amp;ptid=1860328" target="_blank">若菜 发表于 2021-8-26 23:10</a>
+toe两个星球都有非常多的隐藏要素，可以自由探索，上天下海。
+
+
+不奢求这代也能下海，起码把地图做大些 ...</blockquote>
+我现在特别好奇雷纳的地图得是啥风格才能让雷纳人服装造型和飞船放一块儿不违和<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  金子一马  
+##### 2863#       发表于 2021-8-27 08:57
+
+
+能不能没黑op了，这主题曲风格根本没法做op，只能是ed
+
+
