@@ -18253,3 +18253,23 @@ AN之耻</blockquote>
 你游快赶上海王星mk2的赛博墓场了， 联动塞满了旧世代的亡灵XD
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 5923#       发表于 2021-8-27 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52527484&amp;ptid=1570791" target="_blank">yuugi 发表于 2021-8-27 18:04</a>
+
+不是急，是游戏里没说，什么都不知道
+
+还分二期不同道具
+
+对一个新人来说，你游真心说明不足</blockquote>
+那你记住目前运营从没欠过东西就行，那些花哨的条件就是走个形式
+
+另外我特意看了一下复刻活动的说明，确实都写了光活动内无法凑齐，是我火星了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
