@@ -8076,3 +8076,23 @@ debuff还是没去掉
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁说了 100充有什么用！ 没用！
 
 
+
+
+*****
+
+####  zore  
+##### 83176#       发表于 2021-8-27 21:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">没用还行,不需要的充能可以给有需要的奶光吗
+
+
+*****
+
+####  areklose  
+##### 83177#       发表于 2021-8-27 21:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能期待周末来个CM
+
+
