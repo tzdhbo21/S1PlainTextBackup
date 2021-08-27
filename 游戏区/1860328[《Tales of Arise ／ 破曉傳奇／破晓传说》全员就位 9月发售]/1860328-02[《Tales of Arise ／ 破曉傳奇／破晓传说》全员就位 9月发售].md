@@ -18248,3 +18248,22 @@ toe两个星球都有非常多的隐藏要素，可以自由探索，上天下�
 能不能没黑op了，这主题曲风格根本没法做op，只能是ed
 
 
+
+
+*****
+
+####  zzzeven  
+##### 2864#       发表于 2021-8-27 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52516518&amp;ptid=1860328" target="_blank">roxassix 发表于 2021-8-26 18:06</a>
+
+这回究极版基本是分了三个版本卖：亚版(港台韩新)，日版，欧美其他(含各种低价区)
+
+
+内容区别</blockquote>
+看了一圈，除了土鸡的价格低，其他究极版的价格不差太多
+
+安心买港版算了
+
+
