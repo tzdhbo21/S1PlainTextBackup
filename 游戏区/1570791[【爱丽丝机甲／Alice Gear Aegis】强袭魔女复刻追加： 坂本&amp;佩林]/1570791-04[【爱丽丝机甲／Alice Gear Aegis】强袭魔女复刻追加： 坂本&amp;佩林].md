@@ -18356,3 +18356,44 @@ SP：很垃圾。分两刀，第一刀除了打桩外基本非常容易砍空。
 九哥特么的开不开技能还是两个目押点，非常难用
 
 
+
+
+*****
+
+####  LEOKO~  
+##### 5929#       发表于 2021-8-27 22:53
+
+
+50连全灭
+
+
+*****
+
+####  LEOKO~  
+##### 5930#       发表于 2021-8-27 22:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52526889&amp;ptid=1570791" target="_blank">unsh 发表于 2021-8-27 17:15</a>
+
+难民收容2.0
+
+
+当初我真没想到东偶能撑那么久</blockquote>
+B站白代理了，版号还没批下来就凉了
+
+
+*****
+
+####  LEOKO~  
+##### 5931#       发表于 2021-8-27 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52530209&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-8-27 21:47</a>
+
+坂本的专属齐了，试用了下，妹控你退群吧
+
+
+步枪：宫藤样式，并不差</blockquote>
+震电！
+
+
