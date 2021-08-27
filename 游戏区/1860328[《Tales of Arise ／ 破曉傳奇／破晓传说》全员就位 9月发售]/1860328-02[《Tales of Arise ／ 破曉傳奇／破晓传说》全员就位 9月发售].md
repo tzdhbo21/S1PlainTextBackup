@@ -18428,3 +18428,17 @@ tob算be吗，感觉写的挺好的，特别是在有后作限制的情况下
 肯定会，主机的究极版不包这玩意
 
 
+
+
+*****
+
+####  nozomitech  
+##### 2878#       发表于 2021-8-28 05:37
+
+
+这个pv看得我感动地要哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">。
+
+
+ps:有点后悔预购就买了普通版，质量好我再买一份ps实体限定<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">。
+
+
