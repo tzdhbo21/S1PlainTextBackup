@@ -7625,3 +7625,50 @@ DW：这么做对我赚钱有帮助吗？
 起码大部分人认为认为这是剧透<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83138#       发表于 2021-8-27 11:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52523194&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-8-27 11:35</a>
+
+起码大部分人认为认为这是剧透</blockquote>
+那算了，不纠结了，那我把这楼的内容全编辑了把，你也编辑下引用的我的回复
+
+
+*****
+
+####  khxooo  
+##### 83139#       发表于 2021-8-27 11:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52523242&amp;ptid=1085254" target="_blank">zakki 发表于 2021-8-27 11:39</a>
+那算了，不纠结了，那我把这楼的内容全编辑了把，你也编辑下引用的我的回复 ...</blockquote>
+我在手机上不方便，而且这楼又没有禁止剧透。
+
+
+*****
+
+####  シャル  
+##### 83140#       发表于 2021-8-27 11:42
+
+
+30亿男
+
+
+3BE5120B-4CDA-47BC-A494-CF69AF452D14.jpeg
+(325.93 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-27 11:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/27/114212g8mili6bcuukeup8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
