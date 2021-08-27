@@ -368,3 +368,17 @@ S1怎么炸成这样了
 早上7点也在打 我怀疑这人又通宵了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 1534#       发表于 2021-8-27 16:52
+
+
+指不定是明天才回老家呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我大不了路上卡了补录播得了，麻麻的
+
+
+新曲，她能把吸血鬼唱好而不是靠尼哥这音骂人整的PV拼凑版都算她厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
