@@ -1603,3 +1603,20 @@ https://b23.tv/1xan40 ...</blockquote>
 上海师范大学知名校友——七海Nana7mi
 
 
+
+
+*****
+
+####  profr  
+##### 139#       发表于 2021-8-27 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52525784&amp;ptid=2021175" target="_blank">stlover 发表于 2021-8-27 15:40</a>
+【【五校联投】下个夏天再见，约定好啦-哔哩哔哩】https://b23.tv/kH7xVE
+
+上海师范大学知名校友——七海Nan ...</blockquote>
+？官方冲塔
+
+—— 来自 HMD Global Nokia X7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+

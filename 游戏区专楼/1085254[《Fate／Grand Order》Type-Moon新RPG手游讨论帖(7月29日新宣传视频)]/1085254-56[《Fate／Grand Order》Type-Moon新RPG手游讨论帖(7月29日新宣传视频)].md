@@ -7947,3 +7947,87 @@ pv都没有吧，有点难
 debuff还是没去掉
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83165#       发表于 2021-8-27 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52527189&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-8-27 17:40</a>
+
+原来我就是卫宫</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">分个428石给我！ 急！
+
+
+*****
+
+####  v22325  
+##### 83166#       发表于 2021-8-27 17:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前摩根狐狸奥伯龙全出还债了   什么都没出
+
+
+*****
+
+####  里村紅葉  
+##### 83167#       发表于 2021-8-27 17:52
+
+
+一号能有泳装PV已经烧高香了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  LOLITA  
+##### 83168#       发表于 2021-8-27 17:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52527307&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-27 17:50</a>
+
+分个428石给我！ 急！</blockquote>
+好的，这就钉钉里喊叶良树开通石头号给大号充石功能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 83169#       发表于 2021-8-27 17:57
+
+
+ 本帖最后由 上坂莲华 于 2021-8-27 17:59 编辑 
+
+你们不要尬黑，减CD服2技能解弱体，伊莉雅1面ROLL一个3技能出弱体无效不就完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+什么你说让伊莉雅当副手？那还是算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LOLITA  
+##### 83170#       发表于 2021-8-27 17:59
+
+
+这游戏不是抽老婆舔卡游戏么，抽再多强卡DW也不开活动给你用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83171#       发表于 2021-8-27 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52527390&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-8-27 17:57</a>
+
+你们不要尬黑，减CD服2技能解弱体，伊莉雅1面ROLL一个3技能出弱体无效不就完了
+
+什么你说让伊莉雅当 ...</blockquote>
+[伊莉雅宝具前还有100红放]
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可没黑哦  隔壁说的
+
+

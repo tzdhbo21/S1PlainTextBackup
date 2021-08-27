@@ -18212,3 +18212,33 @@ AN之耻</blockquote>
 这算诈骗吗。游戏里没说，还分池。
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 5920#       发表于 2021-8-27 17:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52527090&amp;ptid=1570791" target="_blank">yuugi 发表于 2021-8-27 17:30</a>
+
+第一期活动服装明确是抽不齐了吗。
+
+这算诈骗吗。游戏里没说，还分池。</blockquote>
+急什么，按之前的规律发推数不够金字塔还是会补给你的坐着等就行了，而且发推活动都4000+推了服饰券已进礼物箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuugi  
+##### 5921#       发表于 2021-8-27 18:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52527381&amp;ptid=1570791" target="_blank">不灭的旋律 发表于 2021-8-27 17:57</a>
+
+急什么，按之前的规律发推数不够金字塔还是会补给你的坐着等就行了，而且发推活动都4000+推了服饰券已进 ...</blockquote>
+不是急，是游戏里没说，什么都不知道
+
+还分二期不同道具
+
+

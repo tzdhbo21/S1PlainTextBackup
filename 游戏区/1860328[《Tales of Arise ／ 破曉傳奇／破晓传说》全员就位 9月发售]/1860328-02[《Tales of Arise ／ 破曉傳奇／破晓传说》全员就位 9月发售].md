@@ -18337,3 +18337,18 @@ BE也没啥，我个人其实挺喜欢BE的，比如TOX2那种<img src="https://
 大佬，知道限定道具包里有啥东西吗？
 
 
+
+
+*****
+
+####  roxassix  
+##### 2871#       发表于 2021-8-27 17:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52526517&amp;ptid=1860328" target="_blank">su37mkk 发表于 2021-8-27 16:48</a>
+
+大佬，知道限定道具包里有啥东西吗？</blockquote>
+限定道具包是哪个。指「道具典藏组合包」或者「旅游典藏组合包」的话，有坛友总结了
+[https://bbs.saraba1st.com/2b/for ... 28&amp;pid=52193661](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1860328&amp;pid=52193661)
+
+
