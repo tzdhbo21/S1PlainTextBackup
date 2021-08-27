@@ -11753,3 +11753,32 @@ xdm怎么看?
 第二局打回原形
 
 
+
+
+*****
+
+####  Fami水  
+##### 13013#       发表于 2021-8-27 19:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全靠炮弹走 不然倒一了
+
+
+*****
+
+####  stedckk  
+##### 13014#       发表于 2021-8-27 19:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">好菜，看着前面有障碍物还硬撞上去。
+
+
+*****
+
+####  cctvyt1  
+##### 13015#       发表于 2021-8-27 19:51
+
+
+运气流玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

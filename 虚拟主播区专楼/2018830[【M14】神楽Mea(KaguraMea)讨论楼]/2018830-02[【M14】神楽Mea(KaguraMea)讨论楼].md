@@ -660,3 +660,144 @@ S1怎么炸成这样了
 拉！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 1563#       发表于 2021-8-27 19:39
+
+
+是图灵爱,拉中拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1564#       发表于 2021-8-27 19:41
+
+
+有种这肥猪今晚唱五小时<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 1565#       发表于 2021-8-27 19:41
+
+
+就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1566#       发表于 2021-8-27 19:42
+
+
+绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KonUni  
+##### 1567#       发表于 2021-8-27 19:43
+
+
+这弔人不好好唱是吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔耳僵尸  
+##### 1568#       发表于 2021-8-27 19:43
+
+
+唱的什么jb<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1569#       发表于 2021-8-27 19:43
+
+
+ 本帖最后由 时间在我手中 于 2021-8-27 19:50 编辑 
+
+刚起床前面一小时不用指望唱的好的
+
+桀桀，年纪轻轻就腰痛了
+
+
+*****
+
+####  T_Hb  
+##### 1570#       发表于 2021-8-27 19:51
+
+
+别尬黑，运动过度而已
+
+
+*****
+
+####  Klience  
+##### 1571#       发表于 2021-8-27 19:53
+
+
+别尬黑 游戏玩的久坐的久而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 卧槽 文艺复兴
+
+
+*****
+
+####  时间在我手中  
+##### 1572#       发表于 2021-8-27 19:54
+
+
+我超，坏苹果
+
+
+*****
+
+####  2014720  
+##### 1573#       发表于 2021-8-27 19:55
+
+
+哎妈呀 车万卧槽了
+
+
+*****
+
+####  makourisu-2  
+##### 1574#       发表于 2021-8-27 19:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这女人唱的歌曲涉猎范围可比她的二刺猿阅历高得多了
+
+
+*****
+
+####  雪风utopia  
+##### 1575#       发表于 2021-8-27 19:56
+
+
+我超，坏苹果<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  airclab  
+##### 1576#       发表于 2021-8-27 19:56
+
+
+是我喜欢的坏苹果
+
+
+*****
+
+####  时间在我手中  
+##### 1577#       发表于 2021-8-27 19:57
+
+
+以前其实唱过了，这次算发挥不太好的那种了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
