@@ -7891,3 +7891,59 @@ pv都没有吧，有点难
 签到只有五天，一号能开泳装吗
 
 
+
+
+*****
+
+####  LOLITA  
+##### 83161#       发表于 2021-8-27 17:40
+
+
+<img src="https://img.saraba1st.com/forum/202108/27/173938xq582kh2s02r22r9.png" referrerpolicy="no-referrer">
+
+
+<strong>resize.png</strong> (131.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-27 17:39 上传
+
+
+原来我就是卫宫<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83162#       发表于 2021-8-27 17:44
+
+
+都不说别的了
+
+
+我虽然喜欢魔伊的伊利亚就拉满了
+
+但是隔壁的三藏她，只用一个结晶啊
+
+拿头比
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 83163#       发表于 2021-8-27 17:46
+
+
+隔壁尬吹小学生的都不知道用过没有，红魔放就1t，宝具后debuff，拿什么三连，靠对面给血量低的111吗23333
+
+
+*****
+
+####  シャル  
+##### 83164#       发表于 2021-8-27 17:48
+
+
+debuff还是没去掉
+
+
