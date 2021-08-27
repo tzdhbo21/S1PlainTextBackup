@@ -1631,3 +1631,16 @@ https://b23.tv/1xan40 ...</blockquote>
 原来美少女球球子的二创花了6k，有钱真好
 
 
+
+
+*****
+
+####  GeraltzRivii  
+##### 141#       发表于 2021-8-28 02:57
+
+
+哇，阿海在s1也有专楼了。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
