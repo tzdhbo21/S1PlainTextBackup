@@ -8120,3 +8120,16 @@ debuff还是没去掉
 <img src="https://img.saraba1st.com/forum/202108/28/170604kwqopt9gntzdjn1j.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  johnkamsar  
+##### 83179#       发表于 2021-8-28 19:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52536808&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-28 17:06</a>
+8月份是废狗集金期间吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">杀狐+奥伯龙+前面池子光速复刻，强行骗一波氪
+
+

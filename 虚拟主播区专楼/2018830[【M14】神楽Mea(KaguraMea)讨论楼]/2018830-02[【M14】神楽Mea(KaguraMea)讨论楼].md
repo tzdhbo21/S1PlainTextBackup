@@ -1325,3 +1325,251 @@ SC还真关了，来真的了，谔谔
 妄想素描本没听过，不过和恋爱裁判一个P主的
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 1630#       发表于 2021-8-28 19:03
+
+
+ 本帖最后由 时间在我手中 于 2021-8-28 19:06 编辑 
+
+好，老子点的六兆年来了
+
+我超，前面竟然唱下来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1631#       发表于 2021-8-28 19:03
+
+
+ 本帖最后由 T_Hb 于 2021-8-28 19:06 编辑 
+
+六兆年，越唱越怪了，怎么唱出口音了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1632#       发表于 2021-8-28 19:08
+
+
+ 本帖最后由 时间在我手中 于 2021-8-28 19:12 编辑 
+
+拟剧论好
+
+还是难啊这首<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不过满足了
+
+
+*****
+
+####  T_Hb  
+##### 1633#       发表于 2021-8-28 19:14
+
+
+nya 1 2 3 nya
+
+
+*****
+
+####  路人庚  
+##### 1634#       发表于 2021-8-28 19:17
+
+
+这词背的是真的熟
+
+
+*****
+
+####  时间在我手中  
+##### 1635#       发表于 2021-8-28 19:18
+
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1636#       发表于 2021-8-28 19:19
+
+
+这首唱的好
+
+
+*****
+
+####  时间在我手中  
+##### 1637#       发表于 2021-8-28 19:25
+
+
+真理之口，好
+
+
+*****
+
+####  T_Hb  
+##### 1638#       发表于 2021-8-28 19:29
+
+
+这个叫声是健康的叫声
+
+
+*****
+
+####  时间在我手中  
+##### 1639#       发表于 2021-8-28 19:31
+
+
+赢！我点的决死行进
+
+
+*****
+
+####  T_Hb  
+##### 1640#       发表于 2021-8-28 19:32
+
+
+虽然拉了，但是高音不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1641#       发表于 2021-8-28 19:33
+
+
+刚想说进入状态了就翻了个透彻（
+
+
+*****
+
+####  时间在我手中  
+##### 1642#       发表于 2021-8-28 19:33
+
+
+有一说一这歌听开头就知道多半要翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 1643#       发表于 2021-8-28 19:34
+
+
+突出一个欢乐自由
+
+
+*****
+
+####  时间在我手中  
+##### 1644#       发表于 2021-8-28 19:36
+
+
+ 本帖最后由 时间在我手中 于 2021-8-28 19:41 编辑 
+
+怎么来个甜蜜魔法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是找点慢歌了该）
+
+
+保质期过了）阿姨开始忘记自己了
+
+
+*****
+
+####  T_Hb  
+##### 1645#       发表于 2021-8-28 19:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完全唱不出来了
+
+
+*****
+
+####  Klience  
+##### 1646#       发表于 2021-8-28 19:43
+
+
+吊人经常用来打OSU的歌曲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aisakahammer  
+##### 1647#       发表于 2021-8-28 19:45
+
+
+  想到佐仓绫音的嚎哭
+
+
+*****
+
+####  T_Hb  
+##### 1648#       发表于 2021-8-28 19:45
+
+
+ 本帖最后由 T_Hb 于 2021-8-28 19:53 编辑 
+
+高音真棒，就爱这口
+
+mira总不会翻车吧     hiahia
+
+
+*****
+
+####  时间在我手中  
+##### 1649#       发表于 2021-8-28 19:49
+
+
+ 本帖最后由 时间在我手中 于 2021-8-28 19:56 编辑 
+
+新歌不错
+
+
+这都是那段时间的经典连唱啊，kanaria的加上envy baby啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1650#       发表于 2021-8-28 19:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晚饭只能坚持2个小时吗，就饿了
+
+
+
+
+*****
+
+####  2014720  
+##### 1651#       发表于 2021-8-28 19:54
+
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+觉得新皮不行的都是沙口<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aisakahammer  
+##### 1652#       发表于 2021-8-28 19:55
+
+
+  欧派会随着呼气扩张的感觉真不错
+
+
+*****
+
+####  T_Hb  
+##### 1653#       发表于 2021-8-28 19:56
+
+
+早该舔舔大水袋了
+
+
