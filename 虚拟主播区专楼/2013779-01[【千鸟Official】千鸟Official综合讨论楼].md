@@ -3342,3 +3342,33 @@ ut都死了快一年了<img src="https://static.saraba1st.com/image/smiley/face2
 艹，真直接炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  夜潇箫  
+##### 298#       发表于 2021-8-28 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52534288&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-8-28 11:48</a>
+艹，真直接炸了</blockquote>
+炸弹说了啥
+
+
+*****
+
+####  丢了五块钱  
+##### 299#       发表于 2021-8-28 12:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52534433&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-8-28 12:06</a>
+炸弹说了啥</blockquote>
+说他爹当年住在渔村，老吃海鲜痛风就有弹幕开始刷:
+
+渔村画了个圈，邓文静
+
+后来又说他爸学理工但是没有干本职工作，弹幕:
+
+上的上交，还是上的清华，江文静，什么历史转折<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
