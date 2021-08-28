@@ -8894,3 +8894,48 @@ furen这小剧场请了动作指导的吧<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">其实没那么喜欢emo...
 
 
+
+
+*****
+
+####  purdre  
+##### 6691#       发表于 2021-8-28 21:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52538203&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-8-28 19:31</a></blockquote>
+请问这书的情报能在那里看到？
+
+
+*****
+
+####  alcoholic1000  
+##### 6692#       发表于 2021-8-28 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52539728&amp;ptid=1972669" target="_blank">purdre 发表于 2021-8-28 21:12</a>
+
+请问这书的情报能在那里看到？</blockquote>
+にじそうさく05合わせ新刊カラーイラストまとめ本『ピリオド』予約開始しました。
+
+よろしくお願いします。
+
+详情[https://twitter.com/kinnotamadx/status/1422822312240242688](https://twitter.com/kinnotamadx/status/1422822312240242688)
+
+蜜瓜[https://www.melonbooks.co.jp/detail/detail.php?product_id=1063253](https://www.melonbooks.co.jp/detail/detail.php?product_id=1063253)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| purdre| + 1|多谢|
+
+
+查看全部评分
+
+

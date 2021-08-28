@@ -1738,3 +1738,31 @@ mira总不会翻车吧     hiahia
 整多点术术曲<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 1670#       发表于 2021-8-28 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52539285&amp;ptid=2018830" target="_blank">2014720 发表于 2021-8-28 20:47</a>
+呐呐插播一条</blockquote>
+虽然我投了问题，但是没打算看这次直播，我怕看到什么血压升高的发言或现象<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  2014720  
+##### 1671#       发表于 2021-8-28 21:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52539966&amp;ptid=2018830" target="_blank">往世雷书 发表于 2021-8-28 21:25</a>
+虽然我投了问题，但是没打算看这次直播，我怕看到什么血压升高的发言或现象
+
+—— 来自 S1Fun ...</blockquote>
+暂时还是组员瞎聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
