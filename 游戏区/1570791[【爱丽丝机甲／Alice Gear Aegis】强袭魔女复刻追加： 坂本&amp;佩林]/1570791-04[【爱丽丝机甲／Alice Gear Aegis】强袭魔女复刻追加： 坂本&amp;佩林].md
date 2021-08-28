@@ -18411,3 +18411,25 @@ B站白代理了，版号还没批下来就凉了
 坂本值得肝几张票再搏她一搏吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来我对这角色的爱比较一般，算是排在501里倒数的，可是建模真的太大了有点把持不住
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 5933#       发表于 2021-8-28 22:44
+
+
+佩琳和坂本的试用（大佬的试用是SOLO要击.MP4
+
+
+可以参考下性能
+
+[https://www.bilibili.com/video/BV1eq4y1U7w9/](https://www.bilibili.com/video/BV1eq4y1U7w9/)
+
+佩琳
+
+[https://www.bilibili.com/video/BV1aQ4y117fy/](https://www.bilibili.com/video/BV1aQ4y117fy/)
+
+坂本
+
+

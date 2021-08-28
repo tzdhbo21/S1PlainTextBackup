@@ -8985,3 +8985,25 @@ Magia ／ Kalafina　（Covered by 富士葵×ときのそら×燦鳥ノム）�
 友情提示，某魅魔正在进行fc2首次直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Porsche  
+##### 6696#       发表于 2021-8-28 22:32
+
+
+今晚这个直播将成为传说，分身效果太牛逼了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+顺便同接已经破7000了
+
+
+*****
+
+####  free  
+##### 6697#       发表于 2021-8-28 22:35
+
+
+这Magia圆脸唱的最烂！真想用锥子扎烂她的圆脸，看看脸皮到底有多厚
+
+

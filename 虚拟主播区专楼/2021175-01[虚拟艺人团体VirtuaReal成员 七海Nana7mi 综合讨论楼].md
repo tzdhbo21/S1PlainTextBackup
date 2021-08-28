@@ -1707,3 +1707,18 @@ yoga7咋和au干上了呢
 快点A吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Ikikju  
+##### 147#       发表于 2021-8-28 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52540307&amp;ptid=2021175" target="_blank">DKD 发表于 2021-8-28 21:43</a>
+明天凌晨四点</blockquote>
+啊这，上班人要被熬死了
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
