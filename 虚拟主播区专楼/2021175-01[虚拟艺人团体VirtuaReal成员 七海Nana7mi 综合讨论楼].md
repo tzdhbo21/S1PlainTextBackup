@@ -1722,3 +1722,20 @@ yoga7咋和au干上了呢
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  DKD  
+##### 148#       发表于 2021-8-28 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52541129&amp;ptid=2021175" target="_blank">Ikikju 发表于 2021-8-28 22:40</a>
+
+啊这，上班人要被熬死了
+
+
+—— 来自 Xiaomi Mi 10, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+看录播或者切片吧 直播员时间太阴间了
+
+
