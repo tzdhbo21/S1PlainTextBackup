@@ -3372,3 +3372,21 @@ ut都死了快一年了<img src="https://static.saraba1st.com/image/smiley/face2
 上的上交，还是上的清华，江文静，什么历史转折<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  天邪鬼  
+##### 300#       发表于 2021-8-28 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52534452&amp;ptid=2013779" target="_blank">丢了五块钱 发表于 2021-8-28 12:10</a>
+说他爹当年住在渔村，老吃海鲜痛风就有弹幕开始刷:
+
+渔村画了个圈，邓文静</blockquote>
+说明刷外国领导人屁事没有，国内的隐喻都不行
+vr那个五校联投的评论区里我还看到上交大的官号，这时候又没事了
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
