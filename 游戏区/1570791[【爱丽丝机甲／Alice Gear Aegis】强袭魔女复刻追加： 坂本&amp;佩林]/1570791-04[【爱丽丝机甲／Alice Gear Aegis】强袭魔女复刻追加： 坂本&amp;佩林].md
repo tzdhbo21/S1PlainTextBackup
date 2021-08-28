@@ -18397,3 +18397,17 @@ B站白代理了，版号还没批下来就凉了
 震电！
 
 
+
+
+*****
+
+####  arthes  
+##### 5932#       发表于 2021-8-28 13:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（豹晒
+
+然后十九票追坂本沉了
+坂本值得肝几张票再搏她一搏吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来我对这角色的爱比较一般，算是排在501里倒数的，可是建模真的太大了有点把持不住
+
+
