@@ -3401,3 +3401,18 @@ vr那个五校联投的评论区里我还看到上交大的官号，这时候又
 这个版本炸弹人太强势了
 
 
+
+
+*****
+
+####  丢了五块钱  
+##### 302#       发表于 2021-8-28 17:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52536187&amp;ptid=2013779" target="_blank">莫洛骑士 发表于 2021-8-28 15:54</a>
+这个版本炸弹人太强势了</blockquote>
+没办法，炸弹人无限火力，静姨独木难支<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+尽力了😭
+
+
