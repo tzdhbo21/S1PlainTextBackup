@@ -18732,3 +18732,17 @@ HiRes FLAC 24bit_48kHz
 键鼠和手柄哪个更舒服些，手柄借朋友了，要是手柄舒服的话要赶快从朋友那要回来
 
 
+
+
+*****
+
+####  法拉  
+##### 2900#       发表于 2021-8-29 01:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52542224&amp;ptid=1860328" target="_blank">SorroFrost 发表于 2021-8-29 00:42</a>
+
+键鼠和手柄哪个更舒服些，手柄借朋友了，要是手柄舒服的话要赶快从朋友那要回来 ...</blockquote>
+lmbs系统肯定是手柄舒服
+
+
