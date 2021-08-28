@@ -8096,3 +8096,27 @@ debuff还是没去掉
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能期待周末来个CM
 
 
+
+
+*****
+
+####  シャル  
+##### 83178#       发表于 2021-8-28 17:06
+
+
+8月份是废狗集金期间吗
+
+
+捕获.JPG
+(87.62 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-28 17:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/28/170604kwqopt9gntzdjn1j.jpg" referrerpolicy="no-referrer">
+
+
