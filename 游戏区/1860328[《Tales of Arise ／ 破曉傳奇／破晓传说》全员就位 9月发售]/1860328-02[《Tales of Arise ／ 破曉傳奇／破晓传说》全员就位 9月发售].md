@@ -18710,3 +18710,25 @@ HiRes FLAC 24bit_48kHz
 在犹豫买pc版还是xsx
 
 
+
+
+*****
+
+####  蓝雉  
+##### 2898#       发表于 2021-8-29 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52541433&amp;ptid=1860328" target="_blank">herryk159 发表于 2021-8-28 23:11</a>
+没玩过传说系列，想尝试一下，剧情是苦大仇深的那种吗？还是喜欢happy ending ...</blockquote>
+一半一半吧，因为有小剧场的缘故大部分过程还是挺轻松愉快的
+
+
+*****
+
+####  SorroFrost  
+##### 2899#       发表于 2021-8-29 00:42
+
+
+键鼠和手柄哪个更舒服些，手柄借朋友了，要是手柄舒服的话要赶快从朋友那要回来
+
+

@@ -1944,3 +1944,157 @@ mea的意思→把一部分经费留给字幕组作为经费
 布丁水时间属实浪费时间
 
 
+
+
+*****
+
+####  Klience  
+##### 1687#       发表于 2021-8-29 00:06
+
+
+就像玩个炉石还要烧绳子一样
+
+
+*****
+
+####  2111X  
+##### 1688#       发表于 2021-8-29 00:14
+
+
+所以为啥整天神秘兮兮的啊，b又不会负责<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1689#       发表于 2021-8-29 00:18
+
+
+布丁这种20年底就失去兴趣的摸鱼人放了一大堆屁，宣传劳什子摸鱼万岁躺平最高的思想，换个方式理解都可以说是他觉得像fafa起早贪黑做翻译是无意义的（或者说不该这么努力做翻译），跟着他一起躺平摸鱼才是正义，也许可以这么想，但就这么说出来感觉脑子还是缺了点东西了，听着还是有点反胃
+
+
+话说我投的果然还是没选上，不知道这里面有些人在畏惧什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1690#       发表于 2021-8-29 00:31
+
+
+来自房导的信息：
+
+之前房导说过的，某个mea的周边，他最初跟国内某人联系的结果是国内会有，过了一段时间后他再去联系的时候国内某人说没了，第三次联系的时候就不回消息了，所以国内渠道无了，需要周边自己想办法或者找aut拼团
+
+
+*****
+
+####  往世雷书  
+##### 1691#       发表于 2021-8-29 00:32
+
+
+ 本帖最后由 往世雷书 于 2021-8-29 00:37 编辑 
+
+那这布丁属实有点不行，如果字幕组的人都躺平会变成幽灵字幕组，行尸走肉一样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  路人庚  
+##### 1692#       发表于 2021-8-29 00:36
+
+
+来自记者的消息：
+
+以后的工作准备移交给房导，（bls之后）因为工作原因已经准备退位
+
+
+记者自评：当时处理事件的时候确实有脑子不清醒的地方（指直接跑推特上回复吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 1693#       发表于 2021-8-29 00:36
+
+
+捏妈妈终于完了，听的人都麻了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+算是说了些东西吧
+
+
+*****
+
+####  往世雷书  
+##### 1694#       发表于 2021-8-29 00:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52542187&amp;ptid=2018830" target="_blank">路人庚 发表于 2021-8-29 00:36</a>
+来自记者的消息：
+
+以后的工作准备移交给房导，（bls之后）因为工作原因已经准备退位</blockquote>
+直播间扳手呢，提到了吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  clvan_  
+##### 1695#       发表于 2021-8-29 00:39
+
+
+居然都还去听了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 1696#       发表于 2021-8-29 00:39
+
+
+今晚没突击没事干呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1697#       发表于 2021-8-29 00:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52542158&amp;ptid=2018830" target="_blank">往世雷书 发表于 2021-8-29 00:32</a>
+
+那这布丁属实有点不行，像我有自己的做粉丝方式，但是我只是说出来，绝对不会认为其他人应该和我一样，那样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他也没明着说其他人应该和他一样，原话是“和mea一样，摸鱼、躺平最好”（原话如果没记对我抱歉，反正听着有丶恶心
+
+
+*****
+
+####  路人庚  
+##### 1698#       发表于 2021-8-29 00:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52542194&amp;ptid=2018830" target="_blank">往世雷书 发表于 2021-8-29 00:38</a>
+
+直播间扳手呢，提到了吗
+
+
+—— 来自 S1Fun</blockquote>
+没说，不过这种东西我觉得早就移交了
+
+
+*****
+
+####  2014720  
+##### 1699#       发表于 2021-8-29 00:42
+
+
+ 本帖最后由 2014720 于 2021-8-29 00:43 编辑 
+
+记者那时也是没法的事了（当然是真nt)，也许有好的处理办法，但也就那样吧，别指望什么救世主
+
+字幕组里的人看待观点的视角还是和外人有太多不同了，粉丝和外面的人看见的东西也太过不同了
+
+

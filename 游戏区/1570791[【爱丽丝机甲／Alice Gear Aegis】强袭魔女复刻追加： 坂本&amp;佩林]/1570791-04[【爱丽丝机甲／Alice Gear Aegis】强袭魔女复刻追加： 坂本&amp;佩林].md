@@ -18444,3 +18444,17 @@ B站白代理了，版号还没批下来就凉了
 50连就个坂本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  unsh  
+##### 5935#       发表于 2021-8-29 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52535048&amp;ptid=1570791" target="_blank">arthes 发表于 2021-08-28 13:19:21</a>
+本来我对这角色的爱比较一般，算是排在501里倒数的，可是建模真的太大了有点把持不住 ...</blockquote>是莉涅满足不了你吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
