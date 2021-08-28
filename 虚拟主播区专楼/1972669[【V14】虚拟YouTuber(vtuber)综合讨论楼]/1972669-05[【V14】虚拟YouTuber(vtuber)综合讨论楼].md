@@ -8939,3 +8939,38 @@ furen这小剧场请了动作指导的吧<img src="https://static.saraba1st.com/
 查看全部评分
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 6693#       发表于 2021-8-28 21:40
+
+
+Magia ／ Kalafina　（Covered by 富士葵×ときのそら×燦鳥ノム）【歌ってみた】
+[https://youtu.be/c6_gBYFh1pk](https://youtu.be/c6_gBYFh1pk)
+
+
+<img src="https://img.saraba1st.com/forum/202108/28/213949m6os44mlnn4oq6sn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E936G4KVQAgyY_B.jpg</strong> (254.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-28 21:39 上传
+
+
+*****
+
+####  free  
+##### 6694#       发表于 2021-8-28 21:44
+
+
+[https://twitter.com/fugaminanana/status/1431535662579081217](https://twitter.com/fugaminanana/status/1431535662579081217)
+[https://twitter.com/hiokiyachi/status/1431575185488941058](https://twitter.com/hiokiyachi/status/1431575185488941058)
+
+
+星巡学园的風紙七鳴、氷置八茅毕业
+
+

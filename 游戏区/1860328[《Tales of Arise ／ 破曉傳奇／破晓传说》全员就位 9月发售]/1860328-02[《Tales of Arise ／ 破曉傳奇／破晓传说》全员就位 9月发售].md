@@ -18610,3 +18610,61 @@ tob其实还好吧，好歹动画最后哥哥也恢复理智了，倒是感觉TO
 也行,可能這次開發費要比之前幾作要高不少
 
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 2891#       发表于 2021-8-28 21:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个强调"这饭分量就这么多没得加"的操作还挺迷惑的，为啥要在发售前掐死啊?
+难道真的是1300日元真仲间整出阴影了所以全部都要反着来
+
+
+*****
+
+####  索田八公  
+##### 2892#       发表于 2021-8-28 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52540240&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-8-28 21:39</a>
+
+这个强调"这饭分量就这么多没得加"的操作还挺迷惑的，为啥要在发售前掐死啊?
+
+难道真的是1300日元真 ...</blockquote>
+也不算强调吧，是富泽一次QA环节，奥尔芬声优佐藤拓也提的问题就是不额外花钱能不能把游戏全部玩完，然后富泽就有点急了，赶紧回答没有额外的收费剧情，属于是出内鬼了
+
+
+*****
+
+####  defer  
+##### 2893#       发表于 2021-8-28 21:55
+
+
+絢香 - Blue Moon
+
+
+链接: [https://pan.baidu.com/s/1Fq8H8PruK2NjsaPKXPgavA](https://pan.baidu.com/s/1Fq8H8PruK2NjsaPKXPgavA) 提取码: 3u6f
+
+
+自行购买
+
+HiRes FLAC 24bit_48kHz
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| heseran| + 1|好评加鹅|
+
+
+查看全部评分
+
+
