@@ -962,3 +962,25 @@ S1怎么炸成这样了
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">能不能表演一个开播
 
 
+
+
+*****
+
+####  十九号大侠  
+##### 1595#       发表于 2021-8-28 08:38
+
+
+早晨吃烤肉，
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  雪风utopia  
+##### 1596#       发表于 2021-8-28 09:13
+
+
+小麻这么吃下去，肉体民会破防的<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
