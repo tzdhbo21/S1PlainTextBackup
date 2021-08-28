@@ -2164,3 +2164,85 @@ mea的意思→把一部分经费留给字幕组作为经费
 求告知，求轻喷<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  2014720  
+##### 1704#       发表于 2021-8-29 01:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52542477&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2021-8-29 01:16</a>
+没看直播，不懂就问，楼上各位说的记者直接跑推特上回复那事是指去年11月8号mea发推说晚上要不要直播，然后 ...</blockquote>
+事发一天了还只能去推特下面才能联络而不是用平常用的沟通渠道你不觉得没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 1705#       发表于 2021-8-29 01:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52542477&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2021-8-29 01:16</a>
+没看直播，不懂就问，楼上各位说的记者直接跑推特上回复那事是指去年11月8号mea发推说晚上要不要直播，然后 ...</blockquote>
+这种事不该提前沟通吗，喜欢摆擂台是吧
+
+
+*****
+
+####  专业划水人员  
+##### 1706#       发表于 2021-8-29 01:22
+
+
+都过去了，想那么多干嘛。
+
+
+*****
+
+####  雪风utopia  
+##### 1707#       发表于 2021-8-29 01:25
+
+
+不要让人想起了，会头疼<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 1708#       发表于 2021-8-29 01:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52542307&amp;ptid=2018830" target="_blank">路人庚 发表于 2021-8-29 00:53</a>
+全程听下来，房导目前没什么问题，能组织这种公开发言的机会挺好的，说话感觉也没什么大问题
+
+
+几个女粉纯度 ...</blockquote>
+不拖后腿就不错了，老人愿意躺平别起反效果就行，像萨尔那种气走干活的人的事希望不要再出现了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  noaki  
+##### 1709#       发表于 2021-8-29 01:25
+
+
+ 本帖最后由 noaki 于 2021-8-29 01:27 编辑 
+
+楼友又开始忆往昔峥嵘岁月了
+
+困惑不安
+
+
+*****
+
+####  往世雷书  
+##### 1710#       发表于 2021-8-29 01:30
+
+
+忆苦思苦，痛定思痛。漫漫长路，我会陪着她走下去（哎呀深夜就是容易让人变得多愁善感起来）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
