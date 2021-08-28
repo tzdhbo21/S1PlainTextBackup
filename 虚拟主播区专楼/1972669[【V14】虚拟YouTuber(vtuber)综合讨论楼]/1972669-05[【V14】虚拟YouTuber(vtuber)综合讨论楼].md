@@ -9007,3 +9007,23 @@ Magia ／ Kalafina　（Covered by 富士葵×ときのそら×燦鳥ノム）�
 这Magia圆脸唱的最烂！真想用锥子扎烂她的圆脸，看看脸皮到底有多厚
 
 
+
+
+*****
+
+####  OldGlory  
+##### 6698#       发表于 2021-8-28 23:40
+
+
+突然想起来今天还有这玩意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/28/234043xcp0h7hp7p7z0jc2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>unnamed (1).jpg</strong> (490.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-28 23:40 上传
+
+
