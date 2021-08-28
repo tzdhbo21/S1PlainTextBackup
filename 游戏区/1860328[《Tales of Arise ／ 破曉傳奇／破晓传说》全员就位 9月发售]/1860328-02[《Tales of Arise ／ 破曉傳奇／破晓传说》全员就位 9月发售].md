@@ -18455,3 +18455,78 @@ TOB算正常结尾吧。该打的仇人也打了，想解决的问题也解决�
 现在商业作做bad end基本上吃力不讨好。而且这系列之前才因为类似没写好炸过一次，这次再玩一次没玩好那就又步后尘了。一般脑回路正常不会这么作死吧
 
 
+
+
+*****
+
+####  zqqwe  
+##### 2880#       发表于 2021-8-28 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52533391&amp;ptid=1860328" target="_blank">Hidewhite 发表于 2021-8-28 09:50</a>
+TOB算正常结尾吧。该打的仇人也打了，想解决的问题也解决了， 最后也没死只是休眠去了。基本上没遗憾。
+
+现 ...</blockquote>
+遗憾就是必须得接toz这么一坨啊，正太烧了几百年还是被污染，大哥龙化被妹妹带人超度<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">（虽然支线和海马的约定算是伏笔）
+这世界设定就是个死胡同
+
+
+
+
+*****
+
+####  zqqwe  
+##### 2881#       发表于 2021-8-28 10:22
+
+
+当年tox2正常结局的强制二选一也很伤，但好歹牺牲是有价值的
+
+
+*****
+
+####  蓝雉  
+##### 2882#       发表于 2021-8-28 10:41
+
+
+<img src="https://img.saraba1st.com/forum/202108/28/104121wmukuhh6mrw6xtoy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>006YOf7Sgy1gtvjj6gju8j61r50pan8402.jpg</strong> (404.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-28 10:41 上传
+
+
+感觉平均身高比我预想的高一些啊
+
+
+*****
+
+####  hkguty  
+##### 2883#       发表于 2021-8-28 10:46
+
+
+tob其实还好吧，好歹动画最后哥哥也恢复理智了，倒是感觉TOZ动画后这世界观似乎很难边续作了
+
+
+*****
+
+####  loley  
+##### 2884#       发表于 2021-8-28 10:50
+
+
+<blockquote>蓝雉 发表于 2021-8-28 10:41
+感觉平均身高比我预想的高一些啊</blockquote>
+感觉男主和拳师的身高都少了5cm的感觉😄
+
+
+*****
+
+####  Guildenstern  
+##### 2885#       发表于 2021-8-28 10:52
+
+
+队伍里既没有小孩也没有老头，这是打算全力推CP吧？
+
+
