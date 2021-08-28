@@ -1655,3 +1655,16 @@ https://b23.tv/1xan40 ...</blockquote>
 虽然海子姐实名上网，但是这几天的石锤也太多了吧
 
 
+
+
+*****
+
+####  Ikikju  
+##### 143#       发表于 2021-8-28 21:09
+
+
+海子姐，什么时候能大a特a啊
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

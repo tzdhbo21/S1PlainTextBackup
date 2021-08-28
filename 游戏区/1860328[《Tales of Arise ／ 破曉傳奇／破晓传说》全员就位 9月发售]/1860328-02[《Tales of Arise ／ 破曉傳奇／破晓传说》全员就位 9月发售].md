@@ -18567,3 +18567,46 @@ tob其实还好吧，好歹动画最后哥哥也恢复理智了，倒是感觉TO
 <img src="https://img.saraba1st.com/forum/202108/28/201805y9hchcxu5hjsxzm1.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D-JoeII  
+##### 2888#       发表于 2021-8-28 20:54
+
+
+話說回來,TOX有X2,TOZ有TOB
+
+連續兩次都有續作(前傳),TOAR會不會也預定有個續作啊
+
+
+*****
+
+####  qiyu1234  
+##### 2889#       发表于 2021-8-28 20:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52539405&amp;ptid=1860328" target="_blank">D-JoeII 发表于 2021-8-28 20:54</a>
+
+話說回來,TOX有X2,TOZ有TOB
+
+連續兩次都有續作(前傳),TOAR會不會也預定有個續作啊 ...</blockquote>
+没有
+
+富泽之前生放送说了，单世界观一作完结，也不会有DLC补充剧情
+
+
+*****
+
+####  D-JoeII  
+##### 2890#       发表于 2021-8-28 21:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52539453&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-28 20:57</a>
+
+没有
+
+富泽之前生放送说了，单世界观一作完结，也不会有DLC补充剧情</blockquote>
+也行,可能這次開發費要比之前幾作要高不少
+
+
