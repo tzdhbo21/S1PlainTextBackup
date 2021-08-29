@@ -18480,3 +18480,24 @@ yysy，我现在越看越觉得比莉涅大
 <img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">虽然但是 莉涅的泳装我感觉有点土 坂本的突出一个傻大黑粗感觉好多了
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 5938#       发表于 2021-8-29 09:25
+
+
+ 本帖最后由 江戸前ルナ 于 2021-8-29 09:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52543323&amp;ptid=1570791" target="_blank">arthes 发表于 2021-8-29 07:48</a>
+
+虽然但是 莉涅的泳装我感觉有点土 坂本的突出一个傻大黑粗感觉好多了 ...</blockquote>
+莉捏肯定会选不突出胸部的啊，现在还能给沟你看是岛田的仁慈了好不？莉捏可是觉得自己的带奶奶非常麻烦的，最新可参见RTB第七话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+坂本虽然男人婆但性格豪放选这种不在意露出度的也说的过去。
+
+
+PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+

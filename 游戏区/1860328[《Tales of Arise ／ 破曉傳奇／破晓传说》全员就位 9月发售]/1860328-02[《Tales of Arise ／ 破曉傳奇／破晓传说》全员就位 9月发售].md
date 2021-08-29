@@ -18763,3 +18763,28 @@ lmbs系统肯定是手柄舒服
 —— 来自 HUAWEI ELE-L29, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
+
+
+*****
+
+####  tmmd  
+##### 2902#       发表于 2021-8-29 10:02
+
+
+<blockquote>herryk159 发表于 2021-8-28 23:11
+没玩过传说系列，想尝试一下，剧情是苦大仇深的那种吗？还是喜欢happy ending ...</blockquote>
+除了tob,基本没什么苦大仇深的的。boy meet girl的桥段倒是是挺多的。
+
+
+*****
+
+####  herryk159  
+##### 2903#       发表于 2021-8-29 10:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52542049&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-8-29 00:18</a>
+
+一半一半吧，因为有小剧场的缘故大部分过程还是挺轻松愉快的</blockquote>
+感谢解答~
+
+
