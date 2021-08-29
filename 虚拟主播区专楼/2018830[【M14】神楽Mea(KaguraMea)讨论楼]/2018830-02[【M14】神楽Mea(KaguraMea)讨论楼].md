@@ -3513,3 +3513,29 @@ syl，b站对日v的合同应该没什么b限时间限制，比如可以参考�
 之前那张图找不到了，我翻了下推，好多病痛相关，确实身体不太行
 
 
+
+
+*****
+
+####  十九号大侠  
+##### 1809#       发表于 2021-8-29 18:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  yywzjsw  
+##### 1810#       发表于 2021-8-29 18:27
+
+。
+
+
+ 本帖最后由 yywzjsw 于 2021-8-29 18:33 编辑 
+
+好像是什么癌来着，修女。看来这件事情还要在吵上一段时间的样子（你们安心看直播不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+

@@ -3045,3 +3045,196 @@ OP这个大裙子动画里面看着一般般，但是真人live上甩起来是�
 那有官号播那就没办法了，无料的有官号，有料的播不了······
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3241#       发表于 2021-8-29 18:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换位置了生放 鲤鱼和nako坐旁边
+
+
+*****
+
+####  kata魂  
+##### 3242#       发表于 2021-8-29 18:06
+
+
+看微博，是ed冬季的位置顺序
+
+
+*****
+
+####  Norkey1  
+##### 3243#       发表于 2021-8-29 18:06
+
+
+ 本帖最后由 Norkey1 于 2021-8-29 18:07 编辑 
+
+编辑
+
+
+*****
+
+####  名津流  
+##### 3244#       发表于 2021-8-29 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547607&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-8-29 17:53</a>
+
+今晚是残奥停播5人生放，这个生放B站有官方号转，所以没有关系</blockquote>
+B站官号是哪个？
+
+
+*****
+
+####  cybernetics31  
+##### 3245#       发表于 2021-8-29 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547718&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-8-29 18:06</a>
+
+这个座位有什么讲究吗</blockquote>
+明显是按ed入团顺序来啊
+
+
+*****
+
+####  kata魂  
+##### 3246#       发表于 2021-8-29 18:08
+
+
+微博上有人提到的
+
+
+2.jpg
+(75.23 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-29 18:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/29/180755bskyermb7ympesph.jpg" referrerpolicy="no-referrer">
+
+
+1.jpg
+(73.25 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-8-29 18:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/29/180803wrue2ugfla2eosik.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 3247#       发表于 2021-8-29 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547732&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-8-29 18:07</a>
+明显是按ed入团顺序来啊</blockquote>
+懂了懂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wsdbyh  
+##### 3248#       发表于 2021-8-29 18:08
+
+
+<blockquote>名津流 发表于 2021-8-29 18:07
+B站官号是哪个？</blockquote>
+Bilibili秋叶原2
+
+
+*****
+
+####  寒风夜  
+##### 3249#       发表于 2021-8-29 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547722&amp;ptid=1909972" target="_blank">名津流 发表于 2021-8-29 18:07</a>
+
+B站官号是哪个？</blockquote>
+秋叶原2
+
+
+*****
+
+####  寒风夜  
+##### 3250#       发表于 2021-8-29 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547722&amp;ptid=1909972" target="_blank">名津流 发表于 2021-8-29 18:07</a>
+
+B站官号是哪个？</blockquote>
+秋叶原2
+
+
+*****
+
+####  D麦林  
+##### 3251#       发表于 2021-8-29 18:16
+
+
+话说拉拉企划为啥不在b站搞个名正言顺的官号而不是这个奇怪的秋叶原2<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 还能转播生放之外顺便发点企划新消息什么的
+虽说这个秋叶原2好像也从来就没转过拉拉以外的内容 可以算实质官号了
+
+
+*****
+
+####  优妮可  
+##### 3252#       发表于 2021-8-29 18:16
+
+
+换了座位青山姐还是坐边缘<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 3253#       发表于 2021-8-29 18:18
+
+
+鲤鱼姐安定的日语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 3254#       发表于 2021-8-29 18:20
+
+
+<blockquote>D麦林 发表于 2021-8-29 18:16
+话说拉拉企划为啥不在b站搞个名正言顺的官号而不是这个奇怪的秋叶原2 还能转播生放之外顺便发点企划 ...</blockquote>
+没什么用吧。官推发的消息基本全是那边的活动，发到这边也就看一看，除非那天过来这边搞活动了。
+
+
+*****
+
+####  cybernetics31  
+##### 3255#       发表于 2021-8-29 18:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原版 笑死
+
+
+*****
+
+####  iuhehc  
+##### 3256#       发表于 2021-8-29 18:36
+
+
+现场版具足虫爆笑
+
+
