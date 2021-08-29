@@ -18746,3 +18746,20 @@ HiRes FLAC 24bit_48kHz
 lmbs系统肯定是手柄舒服
 
 
+
+
+*****
+
+####  zyupha  
+##### 2901#       发表于 2021-8-29 08:34
+
+
+ 本帖最后由 zyupha 于 2021-8-29 08:36 编辑 
+
+试玩了一下发现完全不会操作，果然人老了接受不来新东西了么<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+小漫画里女骑士一本正经地yygq黑皮好冷好好笑（？，你们到底什么关系
+主角看外表以为是苦大仇深那种，没想到挺憨的，这反差有点...不习惯？
+
+—— 来自 HUAWEI ELE-L29, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
