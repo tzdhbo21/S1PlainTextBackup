@@ -3131,3 +3131,48 @@ et之前不是就说过了…不觉得扔干货有用就是了
 早就醒了 还打了两把呢 你麻的 每次挑我出去的时候才开始玩 想看都没得看<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  路人庚  
+##### 1775#       发表于 2021-8-29 15:34
+
+
+ 本帖最后由 路人庚 于 2021-8-29 15:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">行吧，明白了，既然这样那当时何必跑到论坛发帖，解决这类问题最好的解决方式，还是应该从最初就直接找到管事人直接拉群讨论解决
+
+
+不过考虑到当时两方基本都是大学生，两方都挺难做到像社畜一样真正的公事公办了，时也命也<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 1776#       发表于 2021-8-29 15:37
+
+
+插个话题啊，这女人跟b站到底有没有签过类似于b限直播限制的合同<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好像这两个月都没怎么b限了，是直播合同到期不需要有b限时长了，还是本来就没有规定，单纯这女人躺平懒狗了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1777#       发表于 2021-8-29 15:38
+
+
+你能觉得拉个群有用的话
+你猜猜当年日报组怎么跟官组彻底闹掰的吧
+这跟学生与否甚至都没必然关系，千里夜雨去年才毕业的。
+
+
+*****
+
+####  2014720  
+##### 1778#       发表于 2021-8-29 15:39
+
+
+别人都能播爆就你麻被限制直播是吧，批站属于是罪该万死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
