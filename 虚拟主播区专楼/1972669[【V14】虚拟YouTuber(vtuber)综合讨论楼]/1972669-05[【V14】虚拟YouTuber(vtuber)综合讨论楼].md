@@ -9291,3 +9291,60 @@ zsyl 葛叶和阿鸣一队<img src="https://static.saraba1st.com/image/smiley/fa
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">未来人这lol打野位专精到宝可梦lol大会被算成初心者，很超值啊
 
 
+
+
+*****
+
+####  noHentai  
+##### 6716#       发表于 2021-8-29 22:50
+
+
+ 本帖最后由 noHentai 于 2021-8-29 22:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/b536e421f49bebbd108972c5d6f59506/YT_TX0F_A6DNLASILSH__SH.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/516ae6ee2ab8409652f4a949c4ef2c1a/image.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 6717#       发表于 2021-8-29 22:54
+
+
+哎，瘦好多<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 6718#       发表于 2021-8-29 22:57
+
+
+现在是不是要担心其他人...？
+
+
+*****
+
+####  noHentai  
+##### 6719#       发表于 2021-8-29 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52550171&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-8-29 22:57</a>
+
+现在是不是要担心其他人...？</blockquote>
+应该还好 <blockquote>お休みの間に発症したので、濃厚接触者はいません。</blockquote>
+
+
+*****
+
+####  hulaoda007  
+##### 6720#       发表于 2021-8-29 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52550267&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-8-29 23:05</a>
+
+应该还好</blockquote>
+但阿葵是接触到谁呢...？
+
+
