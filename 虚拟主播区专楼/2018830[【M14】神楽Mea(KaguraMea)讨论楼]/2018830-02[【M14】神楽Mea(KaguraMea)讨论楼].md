@@ -2789,3 +2789,107 @@ mea的意思→把一部分经费留给字幕组作为经费
 昨晚术曲纯度还是挺高的，你不如担心她今天继续这个烈度嗓子会不会进入remake time<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 1748#       发表于 2021-8-29 12:20
+
+
+是不是又有什么演唱会啊，加紧练习
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 1749#       发表于 2021-8-29 12:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1750#       发表于 2021-8-29 12:33
+
+
+做啥梦呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本这疫情你真想着她好还是别出门为好
+
+最不济也是个尽量少出去，新冠这东西我记得对嗓子还是啥好像会有后遗症来着，不清楚年轻人如何
+
+
+*****
+
+####  T_Hb  
+##### 1751#       发表于 2021-8-29 12:37
+
+
+伤肺
+
+
+*****
+
+####  Klience  
+##### 1752#       发表于 2021-8-29 12:41
+
+
+ 本帖最后由 Klience 于 2021-8-29 12:43 编辑 
+
+重状的话肺部会纤维化 不可逆的那种<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1753#       发表于 2021-8-29 12:48
+
+
+无端联想（）
+
+
+<img src="https://img.saraba1st.com/forum/202108/29/124748fb2k66kzvskb47ss.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (91.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-29 12:47 上传
+
+
+[https://user.guancha.cn/main/content?id=558457](https://user.guancha.cn/main/content?id=558457)
+
+
+*****
+
+####  T_Hb  
+##### 1754#       发表于 2021-8-29 12:49
+
+
+哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1755#       发表于 2021-8-29 12:52
+
+
+没事，负负得正（x）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+或者已经够蠢了所以没区别<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1756#       发表于 2021-8-29 13:01
+
+
+傻50和傻100都是傻（没区别
+
+

@@ -31,3 +31,23 @@
 我弱小三人组不需要身世<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  汤圆です  
+##### 55504#       发表于 2021-8-29 12:05
+
+
+god乌索普的名气比他爹都高了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天使的日曜日  
+##### 55505#       发表于 2021-8-29 12:11
+
+
+皇团高干的儿子，乌索普才是草帽团第一个有背景的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
