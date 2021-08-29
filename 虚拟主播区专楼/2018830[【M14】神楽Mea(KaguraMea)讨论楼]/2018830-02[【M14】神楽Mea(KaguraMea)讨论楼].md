@@ -2904,3 +2904,20 @@ mea的意思→把一部分经费留给字幕组作为经费
 已经不可能再傻了，除非一孕<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  2014720  
+##### 1758#       发表于 2021-8-29 14:32
+
+
+ 本帖最后由 2014720 于 2021-8-29 14:37 编辑 
+
+官组直播不就白帝城托孤吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+et你直播不去对线论坛长文也不行啊，昨晚直播他们某人一个字都没提我觉得已经很努力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别给我讲你开了小号啊，那弹幕量比你麻转播还多
+
+
