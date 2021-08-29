@@ -3378,3 +3378,41 @@ B站官号是哪个？</blockquote>
 在b站，除了年末红白，大部分时候是不管的，我也希望他最好别管emmm
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 3269#       发表于 2021-8-29 20:12
+
+
+昨天魔纪都以为会被掐，结果无事放完了，也搞不懂是什么标准
+
+
+*****
+
+####  ads147147  
+##### 3270#       发表于 2021-8-29 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52548046&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-8-29 18:49</a>
+什么可堇头子</blockquote>
+真jk自己吹的自己脸红，鲤鱼稳如泰山（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  秋月艾莉  
+##### 3271#       发表于 2021-8-29 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547815&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-8-29 18:16</a>
+
+话说拉拉企划为啥不在b站搞个名正言顺的官号而不是这个奇怪的秋叶原2 还能转播生放之外顺便发点企划 ...</blockquote>
+是实质官方，这个B站的链接是挂在LL官网上的
+
+

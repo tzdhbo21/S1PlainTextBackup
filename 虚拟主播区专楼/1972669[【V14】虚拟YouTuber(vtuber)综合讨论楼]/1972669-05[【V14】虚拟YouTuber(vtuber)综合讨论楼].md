@@ -9140,3 +9140,94 @@ Magia ／ Kalafina　（Covered by 富士葵×ときのそら×燦鳥ノム）�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生日live关系者和juvvel线下聚会的都成密接了。
 
 
+
+
+*****
+
+####  OldGlory  
+##### 6706#       发表于 2021-8-29 19:59
+
+
+葵皇以后在社内更抬不起头了。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 4战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ror|-2|积点德吧|
+| 黑之和|-1|欢乐多|
+| FCCHua|-1|思路广捏|
+| alcoholic1000| + 1|基德|
+
+
+查看全部评分
+
+
+*****
+
+####  winda  
+##### 6707#       发表于 2021-8-29 20:13
+
+
+ 本帖最后由 winda 于 2021-8-29 20:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这次宝荣耀大会禁止外部找教练，是不是针对虹pex啊
+
+syl40人大会里唯一的大师阿葵还是主催<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">压力很大啊
+zsyl 葛叶和阿鸣一队<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">阴湿卡组又重回环境
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 帕克桑| + 1|外部教练早该滚滚了|
+
+
+查看全部评分
+
+
+*****
+
+####  红叶糖茶  
+##### 6708#       发表于 2021-8-29 20:16
+
+
+[@激光2000](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=484171) 怎么中招得不是你啊，臭**
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000|-1|差不多得了|
+
+
+查看全部评分
+
+
+*****
+
+####  黑之和  
+##### 6709#       发表于 2021-8-29 20:39
+
+
+在去便利店的路上感染的？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
