@@ -8133,3 +8133,31 @@ debuff还是没去掉
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">杀狐+奥伯龙+前面池子光速复刻，强行骗一波氪
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83180#       发表于 2021-8-29 15:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几天看贴真的看笑了  70+50-20&gt;100   这是怎么算出来的 
+
+
+*****
+
+####  UNISONIA  
+##### 83181#       发表于 2021-8-29 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52536808&amp;ptid=1085254" target="_blank">シャル 发表于 2021-8-28 17:06</a>
+
+8月份是废狗集金期间吗</blockquote>
+yxb什么的前几年都是拿sensor tower的数据来宣传的，今年sensor tower因为cy不交保护费往死里黑马娘信用破产身败名裂，现在又换用game-i的数据来吹了
+
+
+前几年game-i因为算年度的时候把弹珠排在FGO前面的时候卫兵们都在抨击game-i是推定榜单不准，现在为了吹奥伯龙业绩又开始无视它是个推定榜开始言之凿凿了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可真的是挺搞笑的
+
+

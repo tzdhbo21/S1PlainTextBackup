@@ -2956,3 +2956,178 @@ et你直播不去对线论坛长文也不行啊，昨晚直播他们某人一个
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 1761#       发表于 2021-8-29 14:57
+
+
+et拳打脚踢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  路人庚  
+##### 1762#       发表于 2021-8-29 15:02
+
+
+et有个毛病就是喜欢写长文，不喜欢扔干货，就比如我昨晚才知道飞狗的身份而et早就知道了但不说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+这几年看字幕组这一圈的争论基本都是谜语人跟谜语人吵架，但由于其中一边的谜语人有个好身份，造成风向一直一边倒，造成一些nt在里面浑水摸鱼，造成一些问题完全是隔靴搔痒，我觉得不行
+
+
+所以如果et觉得没必要对线那也别打这么多字了，如果有必要那最好还是直接扔干货，把截图、干货都扔出来（当然也许扔出来会挨骂，那就是另一回事了）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 1763#       发表于 2021-8-29 15:07
+
+
+et之前不是就说过了…不觉得扔干货有用就是了
+
+
+*****
+
+####  JY要塞  
+##### 1764#       发表于 2021-8-29 15:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少新冠没有变胖的症状
+
+
+*****
+
+####  T_Hb  
+##### 1765#       发表于 2021-8-29 15:10
+
+
+还没得呢，症状就安排上了
+
+
+*****
+
+####  Klience  
+##### 1766#       发表于 2021-8-29 15:12
+
+
+之前看到米国那边有人新冠然后得了巨舌症 真就塔姆呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/29/151223nf0949h5519lh74s.png" referrerpolicy="no-referrer">
+
+
+<strong>微信截图_20210829151329.png</strong> (79.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-29 15:12 上传
+
+
+*****
+
+####  路人庚  
+##### 1767#       发表于 2021-8-29 15:12
+
+
+干货有没有用是要看人是怎么用的，如果只是像现在这样藏着掖着当谜语人写长文发泄情绪，那大概确实会没什么用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+突然想到之前干小博禹的时候，也是一大堆人觉得在泥潭的A姓版主领导下根本干不死小博禹来着，不过结果不还是被好好发帖好好说话干死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1768#       发表于 2021-8-29 15:15
+
+
+我讲个笑话吧，去年十一月我放出来
+
+你猜猜是所谓大仇得报的结局
+
+还是直接吊人原地remake
+
+你们说的所谓和官组成员对线在我听来就像是叫我打拳击，然后裁判员和观众乃至主播本人大概率啥几把不懂但是先站对面那边无条件点数拉满直接出局，他自己还有个无限手套，你让我带着个蜘蛛战衣去送，你楼人是钢铁侠还是谁来着，见证我变👻的名场景是吧
+
+那加油，我反正已经是台下的吃瓜群众了嗷
+
+
+*****
+
+####  路人庚  
+##### 1769#       发表于 2021-8-29 15:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我对谁上台打拳击没什么兴趣，不如说，如果我自己有足够的证据我更倾向于我自己上场干，但可惜我一直吃的都是谜语人的二手料，干货数量基本没有
+
+
+所以如果手头的证据真的足够证明自己遭受了冤屈和不公的话，我觉得在合适的时机放出来是正确的，当然说话的方式也需要考虑，如果你觉得上了擂台的结果就是粉身碎骨，那我可要说这可不一定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 1770#       发表于 2021-8-29 15:23
+
+
+所以19年合同又是什么事？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  路人庚  
+##### 1771#       发表于 2021-8-29 15:26
+
+
+19年合同的事我记忆中是最开始b站给mea的合同条件比较优惠，结果因为帕里一直卡着合同的原因导致一直拖着没签下来，最后等mea自己买断了版权才和b站签了合同，但这时候签的合同条件已经不如前面的合同条件实惠了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果记错了欢迎指正，我印象中这个事件没字幕组什么事来着
+
+
+*****
+
+####  2014720  
+##### 1772#       发表于 2021-8-29 15:26
+
+
+现在就不是remake了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干货是无限手套才是正统动漫剧情8
+
+嘛嘛不聊了，麻麻醒了
+
+
+*****
+
+####  时间在我手中  
+##### 1773#       发表于 2021-8-29 15:27
+
+
+不是我还是谁粉身碎骨的问题
+
+而是现在看下来没啥用的情况下，我不觉得有任何意义了
+
+我的判断是没必要再为他们组这些个破事付出任何多余精力
+
+你如果不明白的话，我直白点，我退出同好会一大原因就是被某个打钱的比阴阳不肯和官组合作，吊人都这样了还balabala
+
+我们说所谓干货这东西放出后可信度和接受度是要群众基础的，现在你要说他们组，那确实似乎除了某几条废物还活着也没啥毛病了，反正也就那样了，那就不用管
+
+而且你还要明白一件事，所谓情报的来源往往是有人协助的，就这样
+
+
+*****
+
+####  Klience  
+##### 1774#       发表于 2021-8-29 15:29
+
+
+早就醒了 还打了两把呢 你麻的 每次挑我出去的时候才开始玩 想看都没得看<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
