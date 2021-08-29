@@ -3351,3 +3351,30 @@ B站官号是哪个？</blockquote>
 感觉这期基本纯聊天了，游戏/小活动环节没有了就不如之前的欢乐，虽然堇的整活和官方放亲脸搞事图也很香
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 3267#       发表于 2021-8-29 19:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52548187&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-8-29 19:04</a>
+
+都安排好了，恋暂时还是一个人。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画也是，小千看圆滚滚的表情真的好变态wwwwwwwwww
+
+
+*****
+
+####  星降る森  
+##### 3268#       发表于 2021-8-29 19:58
+
+
+<blockquote>megapikachu 发表于 2021-8-29 17:55
+今晚这种生放本来就是公开，并且有正式转播渠道的，跟昨天那种你实际上得付钱才能参加的不一样。 ...</blockquote>
+之前水团aaa小组live也收费，叔叔没管，名义上境外源都不准直播，实际执不执行也就叔叔一句话。
+
+在b站，除了年末红白，大部分时候是不管的，我也希望他最好别管emmm
+
+
