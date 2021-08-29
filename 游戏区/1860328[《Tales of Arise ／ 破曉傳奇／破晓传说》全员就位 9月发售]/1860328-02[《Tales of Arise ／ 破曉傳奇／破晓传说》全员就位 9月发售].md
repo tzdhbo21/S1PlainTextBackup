@@ -18864,3 +18864,15 @@ lmbs系统肯定是手柄舒服
 有繁体中文啊，也能玩。
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 2910#       发表于 2021-8-30 07:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">确实没有，隔壁偶像大师和机战都有
+可能这个立项更早一点，策略还没有转变过来
+
+
