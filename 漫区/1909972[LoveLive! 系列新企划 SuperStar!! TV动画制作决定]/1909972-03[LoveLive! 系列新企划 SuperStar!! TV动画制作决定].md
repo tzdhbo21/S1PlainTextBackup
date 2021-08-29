@@ -2961,3 +2961,29 @@ OP这个大裙子动画里面看着一般般，但是真人live上甩起来是�
 鲤鱼也太可爱了吧
 
 
+
+
+*****
+
+####  kata魂  
+##### 3234#       发表于 2021-8-29 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52546755&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-8-29 16:02</a>
+
+这段时间直播必管，这种东西管不管一般看叔叔心情，之前播水团线上live完全不管，昨天播星团oped发售活动 ...</blockquote>
+发售活动是因为买cd才能观看类似付费的吧···看看今晚生放能不能行了
+
+
+*****
+
+####  kata魂  
+##### 3235#       发表于 2021-8-29 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547011&amp;ptid=1909972" target="_blank">lj205 发表于 2021-8-29 16:41</a>
+
+这是啥？</blockquote>
+记得时以前星团参加涩谷之音的后台合照吧
+
+
