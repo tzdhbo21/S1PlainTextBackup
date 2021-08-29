@@ -18824,3 +18824,29 @@ lmbs系统肯定是手柄舒服
 测试了一段时间，预输入指令设置为“短”，会提前输入一个指令；预输入指令设置为“长”，会提前输入两到三个指令。坦白说并不太希望每个选项都有预输入缓冲，因为很多次都被提前输入的指令给坑了（手容易抖，按键的时候容易连打）。
 
 
+
+
+*****
+
+####  Dag8  
+##### 2907#       发表于 2021-8-30 05:01
+
+
+才发现steam这是bug吗，万代不会想不开没简中吧<img src="https://p.sda1.dev/2/d94b2f16dde42a4e619dede11fb99487/39777169d509981f.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  masterzx  
+##### 2908#       发表于 2021-8-30 05:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52551541&amp;ptid=1860328" target="_blank">Dag8 发表于 2021-8-30 05:01</a>
+
+才发现steam这是bug吗，万代不会想不开没简中吧</blockquote>
+就是没有吧
+
+
+绯红结系之类的有不代表传说有
+
+
