@@ -18850,3 +18850,17 @@ lmbs系统肯定是手柄舒服
 绯红结系之类的有不代表传说有
 
 
+
+
+*****
+
+####  IlldianX  
+##### 2909#       发表于 2021-8-30 06:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52551541&amp;ptid=1860328" target="_blank">Dag8 发表于 2021-8-30 05:01</a>
+
+才发现steam这是bug吗，万代不会想不开没简中吧</blockquote>
+有繁体中文啊，也能玩。
+
+
