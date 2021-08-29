@@ -2987,3 +2987,61 @@ OP这个大裙子动画里面看着一般般，但是真人live上甩起来是�
 记得时以前星团参加涩谷之音的后台合照吧
 
 
+
+
+*****
+
+####  Franc  
+##### 3236#       发表于 2021-8-29 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547537&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-8-29 17:43</a>
+发售活动是因为买cd才能观看类似付费的吧···看看今晚生放能不能行了</blockquote>
+今晚不是因为残奥会停播吗
+
+
+*****
+
+####  星降る森  
+##### 3237#       发表于 2021-8-29 17:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547537&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-8-29 17:43</a>
+
+发售活动是因为买cd才能观看类似付费的吧···看看今晚生放能不能行了</blockquote>
+今晚是残奥停播5人生放，这个生放B站有官方号转，所以没有关系
+
+
+*****
+
+####  kata魂  
+##### 3238#       发表于 2021-8-29 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547595&amp;ptid=1909972" target="_blank">Franc 发表于 2021-8-29 17:51</a>
+
+今晚不是因为残奥会停播吗</blockquote>
+不是动画，就是普通的生放送，我记得动画停播好像是有的来着
+
+
+*****
+
+####  megapikachu  
+##### 3239#       发表于 2021-8-29 17:55
+
+
+今晚这种生放本来就是公开，并且有正式转播渠道的，跟昨天那种你实际上得付钱才能参加的不一样。
+
+
+*****
+
+####  kata魂  
+##### 3240#       发表于 2021-8-29 17:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547607&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-8-29 17:53</a>
+
+今晚是残奥停播5人生放，这个生放B站有官方号转，所以没有关系</blockquote>
+那有官号播那就没办法了，无料的有官号，有料的播不了······
+
+
