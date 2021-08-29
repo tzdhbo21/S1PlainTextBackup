@@ -18514,3 +18514,15 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5940#       发表于 2021-8-29 19:03
+
+
+这loop剧情还行
+这是说之前联动也是loop中的一环么
+
+
