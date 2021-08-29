@@ -3635,3 +3635,17 @@ nako比较会带气氛，可以拉鲤鱼</blockquote>
 她自己现在不也没法随便吃吗～
 
 
+
+
+*****
+
+####  depthlee  
+##### 3290#       发表于 2021-8-29 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52549208&amp;ptid=1909972" target="_blank">Goisdust 发表于 2021-8-29 21:03</a>
+
+nako比较会带气氛，可以拉鲤鱼</blockquote>
+感受了下，可能nako回读的汉字比较多（捂脸
+
+
