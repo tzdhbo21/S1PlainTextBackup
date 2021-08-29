@@ -3649,3 +3649,18 @@ nako比较会带气氛，可以拉鲤鱼</blockquote>
 感受了下，可能nako回读的汉字比较多（捂脸
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 3291#       发表于 2021-8-30 00:54
+
+
+[https://twitter.com/aozora_art/status/1431768570355011586](https://twitter.com/aozora_art/status/1431768570355011586)
+<img src="https://p.sda1.dev/2/037e38cecf59111af78444249403d6c3/20210830_005206.jpg" referrerpolicy="no-referrer">
+
+
+<img src="https://p.sda1.dev/2/45181d321bee347f2228938493d6ed36/20210830_005142.jpg" referrerpolicy="no-referrer">
+
+

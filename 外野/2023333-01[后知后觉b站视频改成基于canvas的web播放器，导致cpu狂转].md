@@ -776,3 +776,69 @@ win10装有 ...</blockquote>
 我这里开哪一个cpu占用都一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  BRS5672023  
+##### 67#       发表于 2021-8-30 00:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52550769&amp;ptid=2023333" target="_blank">处男鉴黄师 发表于 2021-8-30 00:02</a>
+我这里开哪一个cpu占用都一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你看高占用的时候视频解码的信息是 avc1 还是 hevc 的呢？
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kidding1  
+##### 68#       发表于 2021-8-30 00:17
+
+
+Windows 10+Firefox，目前还是html5 video，设置里也没有hevc开关
+
+
+*****
+
+####  处男鉴黄师  
+##### 69#       发表于 2021-8-30 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52550789&amp;ptid=2023333" target="_blank">BRS5672023 发表于 2021-8-30 00:06</a>
+
+你看高占用的时候视频解码的信息是 avc1 还是 hevc 的呢？
+
+
+—— 来自 HUAWEI OXF-AN10, Android  ...</blockquote>
+hevc
+
+
+*****
+
+####  BRS5672023  
+##### 70#       发表于 2021-8-30 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52550871&amp;ptid=2023333" target="_blank">处男鉴黄师 发表于 2021-8-30 00:18</a>
+hevc</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">也就是说这个高 cpu 占用的问题确实和 hevc 相关？之前我还一直为 linux 的 firefox 没有 hevc 选项耿耿于怀。。
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  处男鉴黄师  
+##### 71#       发表于 2021-8-30 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52550887&amp;ptid=2023333" target="_blank">BRS5672023 发表于 2021-8-30 00:20</a>
+
+也就是说这个高 cpu 占用的问题确实和 hevc 相关？之前我还一直为 linux 的 firefox 没有 hevc 选 ...</blockquote>
+后来又试了下，avc和hevc确实cpu占用不同，之前没区别是因为没刷新，需要刷新页面才会用新设置。
+
+选择avc应该就和html播放差不多占用了。
+
+
