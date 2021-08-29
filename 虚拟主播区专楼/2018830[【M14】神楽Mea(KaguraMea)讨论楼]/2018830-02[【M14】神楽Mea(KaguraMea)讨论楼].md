@@ -3914,3 +3914,25 @@ emmmmmmm
 —— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
+
+
+*****
+
+####  Klience  
+##### 1844#       发表于 2021-8-29 21:15
+
+
+这人不打了 手游也刷完了 洗个澡 该把剩下lol的30把刷完它<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十九号大侠  
+##### 1845#       发表于 2021-8-29 21:20
+
+
+这么沉迷LOL吗，今年有日本队吗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

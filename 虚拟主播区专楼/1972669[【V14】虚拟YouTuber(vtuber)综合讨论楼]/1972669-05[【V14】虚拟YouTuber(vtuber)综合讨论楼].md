@@ -9251,3 +9251,32 @@ zsyl 葛叶和阿鸣一队<img src="https://static.saraba1st.com/image/smiley/fa
 看了下视频，肺疼呼吸困难，血氧浓度已经到95以下了，还好挺过来了
 
 
+
+
+*****
+
+####  我不是很好  
+##### 6712#       发表于 2021-8-29 21:22
+
+
+不会被社内霸凌吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  noHentai  
+##### 6713#       发表于 2021-8-29 21:23
+
+
+不知道都打过疫苗没，能防重症总不至于需要去指望崩溃的ICU<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 6714#       发表于 2021-8-29 21:25
+
+
+还好v的从业者比较年轻，二三十岁的比较多，而且也是自宅上班的类型也不用失业。
+
+
