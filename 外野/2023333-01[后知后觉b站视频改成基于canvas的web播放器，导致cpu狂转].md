@@ -747,3 +747,32 @@ win10客户端启动
 我说看个视频怎么电脑都烫手
 
 
+
+
+*****
+
+####  BRS5672023  
+##### 65#       发表于 2021-8-29 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52548337&amp;ptid=2023333" target="_blank">处男鉴黄师 发表于 2021-8-29 19:22</a>
+试了一下，win10+chrome是canvas的，linux+firefox还是html的。怪不得老爷笔记本cpu占用还更低。
+
+win10装有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个 html 和 canvas 和那个 hevc 的开关有关系吗，我注意到 linux 下面是没有 hevc 的那些选项的；windows（edge）开了 hevc 优先我看视频信息也是 avc1。。没太注意到 cpu 的占用上有太大的差别。。
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  处男鉴黄师  
+##### 66#       发表于 2021-8-30 00:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52550707&amp;ptid=2023333" target="_blank">BRS5672023 发表于 2021-8-29 23:53</a>
+
+这个 html 和 canvas 和那个 hevc 的开关有关系吗，我注意到 linux 下面是没有 hevc 的那些选项的 ...</blockquote>
+我这里开哪一个cpu占用都一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
