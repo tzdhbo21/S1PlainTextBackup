@@ -9116,3 +9116,16 @@ Magia ／ Kalafina　（Covered by 富士葵×ときのそら×燦鳥ノム）�
 还好基本差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  喜闻乐见  
+##### 6704#       发表于 2021-8-29 19:42
+
+
+拉拉这渲染还是舒服
+
+<img src="http://ww1.sinaimg.cn/large/0026IPSsgy1gtxw8mkci5j61290pf1ji02.jpg" referrerpolicy="no-referrer">
+
+
