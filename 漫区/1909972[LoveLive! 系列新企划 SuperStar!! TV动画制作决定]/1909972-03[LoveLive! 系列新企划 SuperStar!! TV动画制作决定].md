@@ -3502,3 +3502,51 @@ nako比较会带气氛，可以拉鲤鱼</blockquote>
 <img src="https://img.saraba1st.com/forum/202108/29/214051jyi2eiw98mhna2hn.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 3279#       发表于 2021-8-29 21:44
+
+
+<blockquote>chenflyyy 发表于 2021-8-29 21:14
+看到B站有人发堇对可可吹气的图被夹了，怕是到时正片上时得删</blockquote>
+那是动态吧，v总用这个封面做视频的都可以发出来。剧偶像的亲脸也没被删，何况这只是吹气啊，不至于吧。
+
+
+*****
+
+####  CALPISSODA  
+##### 3280#       发表于 2021-8-29 21:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52549551&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-8-29 21:44</a>
+
+那是动态吧，v总用这个封面做视频的都可以发出来。剧偶像的亲脸也没被删，何况这只是吹气啊，不至于吧。 ...</blockquote>
+别小看了现在的删减力度，毕竟现在是正式审片不是自肃，审片的人多一事不如少一事，能删就删。
+
+
+*****
+
+####  iuhehc  
+##### 3281#       发表于 2021-8-29 22:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52549551&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-8-29 21:44</a>
+
+那是动态吧，v总用这个封面做视频的都可以发出来。剧偶像的亲脸也没被删，何况这只是吹气啊，不至于吧。 ...</blockquote>
+我发了好几次都被删了
+
+
+*****
+
+####  chenflyyy  
+##### 3282#       发表于 2021-8-29 22:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52549551&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-8-29 21:44</a>
+那是动态吧，v总用这个封面做视频的都可以发出来。剧偶像的亲脸也没被删，何况这只是吹气啊，不至于吧。 ...</blockquote>
+这两个季度删减力度可比剧偶像那时猛多了
+
+

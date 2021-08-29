@@ -3936,3 +3936,37 @@ emmmmmmm
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  往世雷书  
+##### 1846#       发表于 2021-8-29 21:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52549205&amp;ptid=2018830" target="_blank">GeraltzRivii 发表于 2021-8-29 21:03</a>
+她的推特签名里面最常被人引用的就是“夏天的回忆转瞬即逝”和“跨越了厌倦，就会变成依赖”。
+“夏天的 ...</blockquote>
+刚还翻到了一句“我常被人说存在即是治愈”，也非常贴切
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 1847#       发表于 2021-8-29 22:01
+
+
+名言bot能不能开一下直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1848#       发表于 2021-8-29 22:03
+
+
+看来今晚无了，大胆预测本月剩余直播次数：1<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
