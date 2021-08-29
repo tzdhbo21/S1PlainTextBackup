@@ -3416,3 +3416,45 @@ B站官号是哪个？</blockquote>
 是实质官方，这个B站的链接是挂在LL官网上的
 
 
+
+
+*****
+
+####  lj205  
+##### 3272#       发表于 2021-8-29 20:58
+
+
+换位置是不是因为鲤鱼和佩佩互动不多……
+
+
+*****
+
+####  Goisdust  
+##### 3273#       发表于 2021-8-29 21:03
+
+
+nako比较会带气氛，可以拉鲤鱼
+
+
+*****
+
+####  cao1rui2  
+##### 3274#       发表于 2021-8-29 21:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52548119&amp;ptid=1909972" target="_blank">Lspin 发表于 2021-8-29 18:55</a>
+发现青山的一些神态 眼神好像南条爱乃</blockquote>
+没什么不好的意思，我觉得鲤鱼笑起来很像新田惠海
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 3275#       发表于 2021-8-29 21:14
+
+
+看到B站有人发堇对可可吹气的图被夹了，怕是到时正片上时得删<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

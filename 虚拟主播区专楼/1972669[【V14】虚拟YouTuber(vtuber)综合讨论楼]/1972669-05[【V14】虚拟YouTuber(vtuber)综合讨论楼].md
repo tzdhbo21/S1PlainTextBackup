@@ -9231,3 +9231,23 @@ zsyl 葛叶和阿鸣一队<img src="https://static.saraba1st.com/image/smiley/fa
 在去便利店的路上感染的？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 6710#       发表于 2021-8-29 20:54
+
+
+什么等级欺诈，新手可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pliee  
+##### 6711#       发表于 2021-8-29 20:55
+
+
+看了下视频，肺疼呼吸困难，血氧浓度已经到95以下了，还好挺过来了
+
+

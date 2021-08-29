@@ -3852,3 +3852,65 @@ emmmmmmm
 今晚看来无了
 
 
+
+
+*****
+
+####  makourisu-2  
+##### 1838#       发表于 2021-8-29 20:49
+
+
+就日本那草台程度加辉瑞疫苗对德尔塔的防护能力，真的是打了也没啥用<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+我觉得更值得担心的是这女人糟糕的作息习惯还能撑多久。很多管人身体不好基本上都是作息颠倒导致的各种毛病。你麻也就沾点年轻可以再继续折腾，但她也当了很久管人了，或者说宅了两三年了，按这种动不动熬夜，缺乏运动，天天外卖的情况，她这健康程度还能撑多久真的要打个问号的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1839#       发表于 2021-8-29 20:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可劲造
+
+
+*****
+
+####  Klience  
+##### 1840#       发表于 2021-8-29 20:52
+
+
+你管作息习惯干嘛 都多大人了 自己难道连自己身体都照顾不好 出问题活该呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1841#       发表于 2021-8-29 20:58
+
+
+不到腰酸背痛整整一个月下班到家（直播下播后）直接趴着的时候肥婆是不会动这种大人的痛苦的，也许需要我帮她登dua郎<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1842#       发表于 2021-8-29 21:02
+
+
+说不定比在坐的都健康，熬夜这种东西，如果是那种改时区的，比如正常人是白天起来，她晚上起来这种，其实完全没啥不健康的
+
+
+*****
+
+####  GeraltzRivii  
+##### 1843#       发表于 2021-8-29 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52548664&amp;ptid=2018830" target="_blank">呓亘 发表于 2021-8-29 20:04</a>
+我记得建筑王结束的时候 一堆人在群里刷“夏天的回忆转瞬即逝” 还挺emoi的 ...</blockquote>
+她的推特签名里面最常被人引用的就是“夏天的回忆转瞬即逝”和“跨越了厌倦，就会变成依赖”。
+“夏天的回忆转瞬即逝”挂在我Q签里都应该有两年了。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
