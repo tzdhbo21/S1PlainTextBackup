@@ -2552,3 +2552,122 @@ mea的意思→把一部分经费留给字幕组作为经费
 下午我还要研究怎么画Q 版吊人，你不帮我画我可不认
 
 
+
+
+*****
+
+####  雪风utopia  
+##### 1728#       发表于 2021-8-29 10:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52544180&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-8-29 10:39</a>
+滚回你的V8群和三光他们玩，我不想再重复一次我没兴趣和官组弱智斗了的事了
+
+
+我昨晚切了六首歌你现在帮我 ...</blockquote>
+他几把谁呀，不熟，我一直都是自己玩的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+我现在得了看见轴这个字就会死的病，身体已经开始不适了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十九号大侠  
+##### 1729#       发表于 2021-8-29 10:45
+
+
+老人战争？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Klience  
+##### 1730#       发表于 2021-8-29 10:46
+
+
+懂了 PCR害人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mr.shelter  
+##### 1731#       发表于 2021-8-29 10:51
+
+
+爬完了，有信息量的M楼真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1732#       发表于 2021-8-29 10:52
+
+
+ 本帖最后由 T_Hb 于 2021-8-29 10:56 编辑 
+
+兔妈妈剪辑man给出的答案是  不剪你咩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+上次桃铁的剪辑,切了一个舞元吃瘪片段，一个tomari吃瘪片段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1733#       发表于 2021-8-29 10:53
+
+
+ 本帖最后由 时间在我手中 于 2021-8-29 10:55 编辑 
+
+什么东西的剪辑，谔谔
+
+上次吊人说话的确很少啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">连续厄运神直接自闭很久你有什么办法
+
+
+*****
+
+####  路人庚  
+##### 1734#       发表于 2021-8-29 10:56
+
+
+只是剪了个十几秒的shorts啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然封面没有但实际内容还是有的（
+
+<img src="https://img.saraba1st.com/forum/202108/29/105530gpwegslohsiywh1k.png" referrerpolicy="no-referrer">
+
+
+<strong>600E5B40-0B89-4114-B4D4-8B4C9F8B43F8.png</strong> (643.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-29 10:55 上传
+
+
+*****
+
+####  T_Hb  
+##### 1735#       发表于 2021-8-29 10:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就拱了个火，前面还有个30多秒的tomari吃瘪片段
+
+
+*****
+
+####  时间在我手中  
+##### 1736#       发表于 2021-8-29 11:00
+
+
+ハズレ这不是这人经典台词吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 1737#       发表于 2021-8-29 11:02
+
+
+仔细看了下画面，黄兔子发的这两个shorts剪辑好不是最新一期桃铁的，所以要看答案是啥还是要再等等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
