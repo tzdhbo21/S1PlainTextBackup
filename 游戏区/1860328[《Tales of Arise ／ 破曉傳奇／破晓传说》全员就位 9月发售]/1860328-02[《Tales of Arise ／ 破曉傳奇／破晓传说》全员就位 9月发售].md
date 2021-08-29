@@ -18788,3 +18788,17 @@ lmbs系统肯定是手柄舒服
 感谢解答~
 
 
+
+
+*****
+
+####  herryk159  
+##### 2904#       发表于 2021-8-29 10:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52543937&amp;ptid=1860328" target="_blank">tmmd 发表于 2021-8-29 10:02</a>
+
+除了tob,基本没什么苦大仇深的的。boy meet girl的桥段倒是是挺多的。</blockquote>
+那太好了，我可喜欢boymeetgirl了
+
+
