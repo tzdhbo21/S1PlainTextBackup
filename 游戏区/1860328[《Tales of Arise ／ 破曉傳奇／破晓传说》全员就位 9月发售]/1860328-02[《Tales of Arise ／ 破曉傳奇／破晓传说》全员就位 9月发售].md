@@ -18876,3 +18876,32 @@ lmbs系统肯定是手柄舒服
 可能这个立项更早一点，策略还没有转变过来
 
 
+
+
+*****
+
+####  TerryBlues  
+##### 2911#       发表于 2021-8-30 09:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">这周反正也没啥心思玩游戏了，就打打逆转裁判然后等这个和瓦制造了
+
+
+*****
+
+####  ac130-2020  
+##### 2912#       发表于 2021-8-30 10:05
+
+
+试玩PS4PRO说实话体验不太行 预购了STEAM，就等发售上SSD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ff2077  
+##### 2913#       发表于 2021-8-30 10:06
+
+
+俄罗斯人准备就绪<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+

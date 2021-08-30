@@ -4181,3 +4181,41 @@ LJL也就DFM希望大一点吧 其他战队没了解
 身体要被打入异物了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">要变成生化怪物了
 
 
+
+
+*****
+
+####  makourisu-2  
+##### 1863#       发表于 2021-8-30 09:31
+
+
+看她这两天播不播就知道了，国内的普通灭活疫苗还一堆人觉得打完胳膊疼之类的，更何况这些劲大的mrna呢<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1864#       发表于 2021-8-30 09:32
+
+
+明天联动，灭活疫苗是正常免疫反应，mrna那是过敏反应
+
+
+*****
+
+####  时间在我手中  
+##### 1865#       发表于 2021-8-30 09:33
+
+
+我打完之后确实痛了几天，虽然不算明显<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 1866#       发表于 2021-8-30 09:35
+
+
+到时候别整个盐水疫苗就算谢天谢地了
+
+
