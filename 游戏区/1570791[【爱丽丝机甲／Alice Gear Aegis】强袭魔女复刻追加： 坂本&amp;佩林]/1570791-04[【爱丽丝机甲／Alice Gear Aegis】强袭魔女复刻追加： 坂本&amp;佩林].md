@@ -18587,3 +18587,14 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 关键一个new都没歪到，太那啥了
 
 
+
+
+*****
+
+####  schwow  
+##### 5946#       发表于 2021-8-30 20:42
+
+
+刷了两周才把升天音分支炮筒的眼珠子开出来，算是给抽角色的手气还债了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+

@@ -4372,3 +4372,299 @@ https://www.bilibili.com ...</blockquote>
 事务所推荐也是试音 甄选的...只是没有公开甄选报名参加的人那么多而已
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 3350#       发表于 2021-8-30 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52560038&amp;ptid=1909972" target="_blank">梶原ひかり 发表于 2021-8-30 19:20</a>
+事务所推荐也是试音 甄选的...只是没有公开甄选报名参加的人那么多而已</blockquote>
+为什么重复我说的话？
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3351#       发表于 2021-8-30 19:31
+
+
+之前说唱功的，然后这次迷你live进步巨大，然后又变方向了，为什么每次都可以找个方向发散，看不懂
+
+
+*****
+
+####  寒风夜  
+##### 3352#       发表于 2021-8-30 19:36
+
+
+ 本帖最后由 寒风夜 于 2021-8-30 19:39 编辑 
+
+不就随便讨论么，这里有啥大逆天发言吗...   事务所推荐不也得审么
+
+
+*****
+
+####  itsmyrailgun  
+##### 3353#       发表于 2021-8-30 19:38
+
+
+ 本帖最后由 itsmyrailgun 于 2021-8-30 19:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">带资源进组人气五十万推特粉丝打底颜值过得去唱歌还行还能开拓中国市场然后还是烂铁自己人。
+诶你说怎么这么巧？
+夸两句没啥又没到盲目吹捧的地步。
+什么喜欢全员选拔？
+亲，r1se欢迎你，虽然已经最高速仆光了。
+
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 3354#       发表于 2021-8-30 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52560170&amp;ptid=1909972" target="_blank">Pumpkin_ccc 发表于 2021-8-30 19:31</a>
+之前说唱功的，然后这次迷你live进步巨大，然后又变方向了，为什么每次都可以找个方向发散，看不懂 ...</blockquote>
+所以这就叫带资(流量)进组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  桥田至  
+##### 3355#       发表于 2021-8-30 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52557967&amp;ptid=1909972" target="_blank">秋月艾莉 发表于 2021-8-30 16:41</a>
+
+草，说鲤鱼被烂铁弄进去内定保送的意思不就是说靠关系吗。如果企划真的是从开始起就有意进军中国市场而不是 ...</blockquote>
+科普一下事务所推荐也是需要试音和考核的，也是很多人争抢这个名额的。并不是给你塞个人来就行的。
+
+日本年轻声优会中文的少，但并不是没有。照你罗辑之前几个团全是内定的你怎么屁都不放一个。
+
+
+*****
+
+####  星降る森  
+##### 3356#       发表于 2021-8-30 19:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52560170&amp;ptid=1909972" target="_blank">Pumpkin_ccc 发表于 2021-8-30 19:31</a>
+
+之前说唱功的，然后这次迷你live进步巨大，然后又变方向了，为什么每次都可以找个方向发散，看不懂 ...</blockquote>
+好像没有人车过唱功吧，第一次公开活动5人就唱阿卡贝拉，我只看到夸的
+
+
+*****
+
+####  黑雪姫  
+##### 3357#       发表于 2021-8-30 19:47
+
+
+话说岩井映美里可惜年龄大了点，如果在小两岁搞不好唐可可的中之人就是她了...<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3358#       发表于 2021-8-30 19:48
+
+
+ 本帖最后由 寒风夜 于 2021-8-30 19:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宋西湖  
+##### 3359#       发表于 2021-8-30 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52555172&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-8-30 12:54</a>
+
+居然有人统计昨晚的生放送鲤鱼看了nako87次</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">唬哈哈哈哈，真的吗！？
+
+
+*****
+
+####  宋西湖  
+##### 3360#       发表于 2021-8-30 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52555312&amp;ptid=1909972" target="_blank">名津流 发表于 2021-8-30 13:07</a>
+
+补个链接啊
+
+https://www.bilibili.com/video/BV1DL411b7xG</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  寒风夜  
+##### 3361#       发表于 2021-8-30 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52560372&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-30 19:47</a>
+
+话说岩井映美里可惜年龄大了点，如果在小两岁搞不好唐可可的中之人就是她了... ...</blockquote>
+这位在上海呆了10年啊.
+
+
+*****
+
+####  梶原ひかり  
+##### 3362#       发表于 2021-8-30 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52560129&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-30 19:28</a>
+为什么重复我说的话？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看错了
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  优妮可  
+##### 3363#       发表于 2021-8-30 20:03
+
+
+<blockquote>寒风夜 发表于 2021-8-30 19:52
+这位在上海呆了10年啊.</blockquote>
+我看有人说她中文说的一般
+
+
+*****
+
+####  megapikachu  
+##### 3364#       发表于 2021-8-30 20:04
+
+
+大家现在也就在鲤鱼唱跳都没拖后腿的情况下随便聊聊罢了，没啥大不了的。真要看恶意评论，远的不说，这帖子你翻到前面14页开始看？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 3365#       发表于 2021-8-30 20:05
+
+
+题外话，鲤鱼看论坛吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 3366#       发表于 2021-8-30 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52560577&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-8-30 20:05</a>
+
+题外话，鲤鱼看论坛吗</blockquote>
+鲤鱼在直播的时候就说过她没事会自搜，会看看网上怎么说她的，保不齐就能搜到泥潭
+
+
+*****
+
+####  chenflyyy  
+##### 3367#       发表于 2021-8-30 20:09
+
+
+ 本帖最后由 chenflyyy 于 2021-8-30 20:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52560577&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-8-30 20:05</a>
+题外话，鲤鱼看论坛吗</blockquote>
+ybb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+认真来说，我觉得她是没有看的，从她直播了解到废话梗都没听过，感觉得出来对中文互联网最近一些流行用语不太熟悉
+
+
+*****
+
+####  lj205  
+##### 3368#       发表于 2021-8-30 20:19
+
+
+忙到起飞哪有空看？黑眼圈都那么明显了
+
+
+*****
+
+####  优妮可  
+##### 3369#       发表于 2021-8-30 20:26
+
+
+微博是肯定看的，超话那里能看到她上线时间。b站评论和私信应该也会看一部分，不然不会把个性签名改成纯中国上海人了。其它论坛不清楚
+
+
+*****
+
+####  离心  
+##### 3370#       发表于 2021-8-30 20:26
+
+
+只是偶尔搜搜b站和微博吧，现在八成要忙到飞起了。
+
+
+*****
+
+####  Norkey1  
+##### 3371#       发表于 2021-8-30 20:34
+
+
+翻十四页笑死了，你们怎么这么阴湿阿<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3372#       发表于 2021-8-30 20:34
+
+
+鲤鱼基本看微博和b站评论 疯狂自搜 而且是活动结束就看自己超话的那种。。。。。。。。。。说实话不是啥好习惯。。。。。。
+
+
+*****
+
+####  秋月艾莉  
+##### 3373#       发表于 2021-8-30 20:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52560298&amp;ptid=1909972" target="_blank">桥田至 发表于 2021-8-30 19:40</a>
+
+科普一下事务所推荐也是需要试音和考核的，也是很多人争抢这个名额的。并不是给你塞个人来就行的。
+
+日本年 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈？我知道啊，你在气什么？
+
+我完全觉得鲤鱼的实力足以参加甄选试音杀上来并且胜任这份工作，我只想表达基于她的特殊身份、能力和背景，她也完全有可能提前终结比赛，没有说她不参加比赛啊？有什么问题吗？
+
+你好像有点误会，我对什么保不保送完全不care，只是看到帖子里聊起来随便聊聊罢了。我前面还说她一纯外国人怎会如此受推能被直接拉去当立项，意即是我觉得人家能选上绝对不是硬塞啊？怎么搞得好像我要酸鲤鱼姐一样，没有的事好吗hh
+
+
+*****
+
+####  优妮可  
+##### 3374#       发表于 2021-8-30 20:40
+
+
+也不能算不好，工作累了看看粉丝的鼓励或者彩虹屁放松下，缓解压力孤独感也好。只不过会混入黑子那没办法。
+
+
+*****
+
+####  黑雪姫  
+##### 3375#       发表于 2021-8-30 20:50
+
+
+其实自己一个人在日本打拼很孤独的，进入这行了又不能找男人，没事在网上看看大家对她的彩虹屁也是放送啦，她这么粘nako可能也是原因之一，无非就是寂寞想找人排解下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
