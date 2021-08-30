@@ -3684,3 +3684,27 @@ nako比较会带气氛，可以拉鲤鱼</blockquote>
 看了上尉的访谈，感觉都挺不容易的
 
 
+
+
+*****
+
+####  UnhappyTails  
+##### 3294#       发表于 2021-8-30 10:30
+
+
+peyton好啊！好就好在没架子敢玩儿！
+
+我这个半步可堇人好想看可可主动带话题cue上尉啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+“只要全日语的语言环境发起进攻，一切都会好起来的”<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 3295#       发表于 2021-8-30 10:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个可千逆输入好吧
+
+
