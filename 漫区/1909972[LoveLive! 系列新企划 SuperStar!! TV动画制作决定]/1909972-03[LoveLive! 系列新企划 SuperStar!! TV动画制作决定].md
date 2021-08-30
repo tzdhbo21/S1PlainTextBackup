@@ -3895,3 +3895,49 @@ peyton好啊！好就好在没架子敢玩儿！
 这谁直谁弯一目了然了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 3312#       发表于 2021-8-30 13:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52555500&amp;ptid=1909972" target="_blank">名津流 发表于 2021-8-30 13:22</a>
+那句话怎么说来着，只有直女才会对那些大胆的举动不以为然，真女同反而会害羞
+
+
+https://www.bilibili.com ...</blockquote>
+也不一定是弯直问题，当初水团杏树也是很单纯的，被调戏一下就脸红<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3313#       发表于 2021-8-30 14:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">岬鲤，未曾设想的道路
+
+
+*****
+
+####  秋月艾莉  
+##### 3314#       发表于 2021-8-30 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52555229&amp;ptid=1909972" target="_blank">名津流 发表于 2021-8-30 12:59</a>
+
+青山不是说选拔本来只选一人的，她太优秀了才变成录用两人
+
+
+至于liyuu，我现在认为LL作为lantis自己算是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过分啊，鲤鱼作为纯种外国人这受捧得也太夸张了
+
+我还是倾向企划那边先定了有个中国人再去选的CV，只不过到了这一步差不多就约等于指名了，毕竟懂中文的人屈指可数。鲤鱼是中国人，颜值不错，唱得也尚可，还爱拉拉，在企划方看来简直完美，被选上自然不过
+
+过段时间等鲤鱼的采访出了就知道她是真参加甄选了还是直接被指名了，大概
+
+

@@ -11857,3 +11857,56 @@ vr就这点好<img src="https://static.saraba1st.com/image/smiley/face2017/062.g
 这叫有真实感（
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13022#       发表于 2021-8-30 13:37
+
+
+兴趣：搜集朱印和逛神社
+
+梦想：原创曲和个人演唱会
+
+绫总你又双有新设定啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202108/30/133649nsm93my6wb9yjmjy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>擷取.JPG</strong> (100.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-30 13:36 上传
+
+
+*****
+
+####  因为你不会  
+##### 13023#       发表于 2021-8-30 13:56
+
+
+如何评价绫总的八月份
+
+
+*****
+
+####  FCCHua  
+##### 13024#       发表于 2021-8-30 13:59
+
+
+我的评价是“好”
+
+
+*****
+
+####  nian1538  
+##### 13025#       发表于 2021-8-30 14:25
+
+
+这不就是三月会限写的那玩意吗
+后面喜欢的声优和动画那一长串全给砍了
+
+

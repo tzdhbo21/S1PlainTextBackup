@@ -963,3 +963,38 @@ hevc</blockquote>
 怪不得，上个星期开始莫名其妙一播视频就全部B站页面一起崩溃（不登录帐号没事）。换了火狐就没事，太蠢了
 
 
+
+
+*****
+
+####  cdyz  
+##### 84#       发表于 2021-8-30 13:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52548984&amp;ptid=2023333" target="_blank">零下五度猫 发表于 2021-8-29 20:36</a>
+
+换了旧播放器后手势插件又用不了了
+
+
+— from Xiaomi Redmi K30 Pro, Android 11 of S1 Next Goose v ...</blockquote>
+还以为只有我遇到了
+
+
+*****
+
+####  564381634  
+##### 85#       发表于 2021-8-30 14:27
+
+
+换了旧播放器之后有办法默认关闭弹幕吗？
+
+
+*****
+
+####  重巡羊舰  
+##### 86#       发表于 2021-8-30 14:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">小白问下，这新播放器和以前的h5播放器，有啥区别嘛，为啥要换？
+
+

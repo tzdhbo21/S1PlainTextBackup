@@ -18955,3 +18955,19 @@ lmbs系统肯定是手柄舒服
 关于罗的特性，大概是10hit进入第一阶段(蓝光)，伤害提升20%，30hit进入第二阶段(黄光)，伤害提升40%
 
 
+
+
+*****
+
+####  Dag8  
+##### 2918#       发表于 2021-8-30 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52551544&amp;ptid=1860328" target="_blank">masterzx 发表于 2021-8-30 05:25</a>
+就是没有吧
+
+
+绯红结系之类的有不代表传说有</blockquote>
+想起来了，之前一直也是繁中，记混了
+
+
