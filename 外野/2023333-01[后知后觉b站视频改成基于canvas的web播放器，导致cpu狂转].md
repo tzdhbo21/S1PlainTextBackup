@@ -998,3 +998,25 @@ hevc</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">小白问下，这新播放器和以前的h5播放器，有啥区别嘛，为啥要换？
 
 
+
+
+*****
+
+####  すみぺ  
+##### 87#       发表于 2021-8-30 14:43
+
+
+禁用了hevc就好很多了。<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer"> 我说我最近边看视频边肝gbf的时候cpu占用怎么这么高。
+
+
+*****
+
+####  楠芽吹  
+##### 88#       发表于 2021-8-30 14:43
+
+
+笑死，昨天晚上30秒一卡，刷新直接卡死不加载，一直0kb/s，看了看任务管理器，单页面的谷歌浏览器占用30%，原来是这出。我好歹用的9900k啊（
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
