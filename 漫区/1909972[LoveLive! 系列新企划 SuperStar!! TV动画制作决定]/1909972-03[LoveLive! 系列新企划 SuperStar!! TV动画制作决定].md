@@ -3741,3 +3741,134 @@ peyton好啊！好就好在没架子敢玩儿！
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3299#       发表于 2021-8-30 12:15
+
+
+现在才发现原来鲤鱼是团里年龄最大的，之前还以为她比青山姐小呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星降る森  
+##### 3300#       发表于 2021-8-30 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52554709&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-8-30 12:15</a>
+
+现在才发现原来鲤鱼是团里年龄最大的，之前还以为她比青山姐小呢</blockquote>
+当初CV公布前我没想到是鲤鱼，自动排除的原因就是觉得她年龄相对于要求太大了。公募要求的上限22，鲤鱼超限2岁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  左梓喵右受兔  
+##### 3301#       发表于 2021-8-30 12:38
+
+
+这名字发音  听起来跟羊库库一样
+
+日本人念就算了  自己也这样啊
+
+
+*****
+
+####  chenflyyy  
+##### 3302#       发表于 2021-8-30 12:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52554802&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-8-30 12:21</a>
+当初CV公布前我没想到是鲤鱼，自动排除的原因就是觉得她年龄相对于要求太大了。公募要求的上限22，鲤鱼超 ...</blockquote>
+这么说青山姐也超龄了，估计这俩人是先定好的吧
+
+
+*****
+
+####  AlfredXC  
+##### 3303#       发表于 2021-8-30 12:50
+
+
+小百合、青山是公募的，liyuu她们又不是
+
+
+*****
+
+####  TTAA  
+##### 3304#       发表于 2021-8-30 12:52
+
+
+佩酱这个经历<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3305#       发表于 2021-8-30 12:53
+
+
+青山是赶上末班车了，她之前自己说的感觉这次是最后的机会了
+
+
+*****
+
+####  kata魂  
+##### 3306#       发表于 2021-8-30 12:54
+
+
+居然有人统计昨晚的生放送鲤鱼看了nako87次
+
+
+*****
+
+####  名津流  
+##### 3307#       发表于 2021-8-30 12:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52555081&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-8-30 12:45</a>
+
+这么说青山姐也超龄了，估计这俩人是先定好的吧</blockquote>
+青山不是说选拔本来只选一人的，她太优秀了才变成录用两人
+
+
+至于liyuu，我现在认为LL作为lantis自己算是发起方的项目之一，liyuu又是lantis旗下的艺人，自家企划拿自家艺人哪怕是作为立项起点都不过分吧？
+
+
+*****
+
+####  优妮可  
+##### 3308#       发表于 2021-8-30 13:03
+
+
+nako酱的年龄公布了吗？
+
+
+*****
+
+####  cybernetics31  
+##### 3309#       发表于 2021-8-30 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52555278&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-8-30 13:03</a>
+nako酱的年龄公布了吗？</blockquote>
+推测说是99年
+
+
+*****
+
+####  名津流  
+##### 3310#       发表于 2021-8-30 13:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52555172&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-8-30 12:54</a>
+
+居然有人统计昨晚的生放送鲤鱼看了nako87次</blockquote>
+补个链接啊
+[https://www.bilibili.com/video/BV1DL411b7xG](https://www.bilibili.com/video/BV1DL411b7xG)
+
+

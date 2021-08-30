@@ -18537,3 +18537,31 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 佩林专属齐了拿去打了下协力。被动是真牛逼，防VW各种阴间连打，手的伤害也变态<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5942#       发表于 2021-8-30 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52547848&amp;ptid=1570791" target="_blank">杂灰 发表于 2021-8-29 18:19</a>
+草了你群真的有内鬼，这种程度的图都有人举报
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 S1Next ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">我也被举报了，封了一周，好讨厌啊，司马玩意儿
+
+
+*****
+
+####  杂灰  
+##### 5943#       发表于 2021-8-30 12:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52554674&amp;ptid=1570791" target="_blank">hypnossz86 发表于 2021-8-30 12:11</a>
+我也被举报了，封了一周，好讨厌啊，司马玩意儿</blockquote>
+怕不是有无差别举报壬混进来了
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
