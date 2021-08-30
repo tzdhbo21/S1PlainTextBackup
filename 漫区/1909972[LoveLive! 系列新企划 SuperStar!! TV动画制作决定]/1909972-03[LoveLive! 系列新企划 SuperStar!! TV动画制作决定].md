@@ -4950,3 +4950,14 @@ https://b23.tv/yAxCHl
 说实话，隔壁音宝也是铁血拉拉人，如果不是当了次世代ace的话搞不好还真会来这边 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 毕竟唱功说到底也只是锦上添花的东西
 
 
+
+
+*****
+
+####  没有爱就看不见  
+##### 3398#       发表于 2021-8-31 06:55
+
+
+音宝来这边集中在鲤鱼身上的火力会少一些吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
