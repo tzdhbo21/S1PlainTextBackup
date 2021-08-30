@@ -4829,3 +4829,46 @@ sww都几年了，到现在不修音一开口还 ...</blockquote>
 但是看黑屁确实挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">楼友们能继续前几页那个风格吗
 
 
+
+
+*****
+
+####  星降る森  
+##### 3387#       发表于 2021-8-30 23:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52562638&amp;ptid=1909972" target="_blank">saglork 发表于 2021-8-30 23:09</a>
+
+不是说唱功，只是说当初担心她语言关一时半会过不了，再加上艺能感这东西也是分人的，最后只能跟sww当初 ...</blockquote>
+鲤鱼心态上是乐于互动的，就这点肯定比水团三年级某2位强的多，艺能感这种东西反而不需要，外国人的理解偏差天然自带艺能感，就她对一些日语词的错误理解，或者把某些前辈教的奇怪的日语词（比如爱喵）说出来，就能达到那效果，以至于有日本人担心她日语熟练后反而没那味了
+
+
+*****
+
+####  cybernetics31  
+##### 3388#       发表于 2021-8-30 23:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52562839&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-8-30 23:33</a>
+我至今还是不懂当初那波开团是怎么回事，懂哥们一个个化身谜语人，手里仿佛有大量黑料却又不拿出来搁那讲 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  megapikachu  
+##### 3389#       发表于 2021-8-30 23:52
+
+
+https://b23.tv/yAxCHl
+
+
+*****
+
+####  megapikachu  
+##### 3390#       发表于 2021-8-30 23:53
+
+
+10组刚发的尚未的访谈，非常值得一看
+
+

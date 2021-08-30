@@ -9657,3 +9657,17 @@ https://youtu.be/7tiEgCabZzg
 风怒编辑
 
 
+
+
+*****
+
+####  酒瓶止迁  
+##### 6742#       发表于 2021-8-30 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52515593&amp;ptid=1972669" target="_blank">free 发表于 2021-8-26 16:44</a>
+
+可不还是比较接近人声了，有些爱好听V的，就喜欢那个不像人的机械味，人声翻唱都不听的，各有所好吧</blockquote>
+昨天还发新皮泳装了，现在看Azulim的视频感觉很舒服
+
+
