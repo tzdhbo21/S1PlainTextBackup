@@ -4421,3 +4421,16 @@ bsyl 苔总封面做好了
 女粉赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  十九号大侠  
+##### 1886#       发表于 2021-8-30 21:43
+
+
+女粉👍，男粉只会谜语人
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
