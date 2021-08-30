@@ -4357,3 +4357,18 @@ https://www.bilibili.com ...</blockquote>
 笑了，缪斯 水团 虹团 哪个不是内定的？怎么到了鲤鱼就开始有微词了？
 
 
+
+
+*****
+
+####  梶原ひかり  
+##### 3349#       发表于 2021-8-30 19:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52559708&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-30 18:49</a>
+历届只有星团的小百合和青山两个是海选选上的。
+
+之前缪水虹所有人都是保送的，或者说是事务所推荐的。</blockquote>
+事务所推荐也是试音 甄选的...只是没有公开甄选报名参加的人那么多而已
+
+
