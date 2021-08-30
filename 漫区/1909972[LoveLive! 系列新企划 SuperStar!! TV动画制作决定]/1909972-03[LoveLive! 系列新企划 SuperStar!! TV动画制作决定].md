@@ -4145,3 +4145,104 @@ https://www.bilibili.com ...</blockquote>
 这也是为什么鲤鱼仅仅是没拖后腿就有楼友夸，五个人的团要浑水摸鱼可比九个人的团难多了，更何况还是外国人
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3331#       发表于 2021-8-30 17:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Karin11974  
+##### 3332#       发表于 2021-8-30 17:14
+
+
+关系跟实力不一定是水火不容的嘛，退一万步说就算真的靠关系上去了，表现不拉跨也就行了，作为观众管不了那么多，个人更倾向于是选外国人位的时候刚好就有鲤鱼这么一个符合条件的人，
+
+歌舞什么的也过得去，时机运气因素综合一起就一拍即合了
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 3333#       发表于 2021-8-30 17:19
+
+
+吊，怎么一转音宝了
+
+
+*****
+
+####  lj205  
+##### 3334#       发表于 2021-8-30 17:19
+
+
+看鲤鱼去年的视频差点就因为疫情错过了，还好
+
+
+*****
+
+####  蜜梨柑  
+##### 3335#       发表于 2021-8-30 17:25
+
+
+一个人的命运,当然要靠自我奋斗,但也要考虑历史的进程<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 3336#       发表于 2021-8-30 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52558526&amp;ptid=1909972" target="_blank">爱护动物抓根宝 发表于 2021-8-30 17:19</a>
+吊，怎么一转音宝了</blockquote>
+五人团体 素人偶像 对比强烈 很难不转
+
+
+*****
+
+####  chenflyyy  
+##### 3337#       发表于 2021-8-30 17:27
+
+
+妈的，你们又在车我音宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梶原ひかり  
+##### 3338#       发表于 2021-8-30 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52558424&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-8-30 17:12</a>
+
+车音宝去砖楼车啊，说的音宝是海选进武士道似的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">tymm的确是参加武士道甄选 才进的响 
+
+记得还被三森称赞是响的震撼弹呢
+
+
+*****
+
+####  优妮可  
+##### 3339#       发表于 2021-8-30 17:35
+
+
+又歪楼了，来看刚更新的漫画
+
+<img src="https://img.saraba1st.com/forum/202108/30/173429mwxajxqkw2zwqxb2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210830_173212.jpg</strong> (442.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-30 17:34 上传
+
+
