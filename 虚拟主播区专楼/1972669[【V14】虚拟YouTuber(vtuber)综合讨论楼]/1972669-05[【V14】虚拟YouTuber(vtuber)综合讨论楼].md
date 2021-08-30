@@ -9671,3 +9671,20 @@ https://youtu.be/7tiEgCabZzg
 昨天还发新皮泳装了，现在看Azulim的视频感觉很舒服
 
 
+
+
+*****
+
+####  リスカ  
+##### 6743#       发表于 2021-8-31 01:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52540255&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2021-8-28 21:40</a>
+Magia ／ Kalafina　（Covered by 富士葵×ときのそら×燦鳥ノム）【歌ってみた】
+
+https://youtu.be/c6_gBY ...</blockquote>
+自动播放刷到了 想还原原曲画风结果走形的厉害 特别是中间那个 听的笑出声
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
