@@ -1020,3 +1020,26 @@ hevc</blockquote>
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  proselyte  
+##### 89#       发表于 2021-8-30 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52544437&amp;ptid=2023333" target="_blank">夜潇箫 发表于 2021-8-29 11:10</a>
+
+b站自动播放真是的蠢到家了，难怪我这几天多开几个b站网页风扇呼呼吹 ...</blockquote>
+光是自动播放和自动连播就够傻逼了
+
+
+*****
+
+####  GJRstone  
+##### 90#       发表于 2021-8-30 15:31
+
+
+chrome经常过夜消失，还以为怎么回事呢，这下找到了
+
+

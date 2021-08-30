@@ -3941,3 +3941,16 @@ https://www.bilibili.com ...</blockquote>
 过段时间等鲤鱼的采访出了就知道她是真参加甄选了还是直接被指名了，大概
 
 
+
+
+*****
+
+####  Goisdust  
+##### 3315#       发表于 2021-8-30 15:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉对鲤鱼的造神越来越失控了
+
+她的年龄和唱功会吸引资方以她为中心立项
+
+
