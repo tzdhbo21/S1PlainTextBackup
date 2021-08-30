@@ -4724,3 +4724,38 @@ ybb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 liyuu确实不错了，最开始看的日文水平和艺能感，感觉基本就第二个sww了，不过反正配音唱跳没毛病，其他问题也不大，现在已经进步的超过预期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 3379#       发表于 2021-8-30 21:15
+
+
+ 本帖最后由 黑雪姫 于 2021-8-30 21:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52561287&amp;ptid=1909972" target="_blank">saglork 发表于 2021-8-30 21:08</a>
+
+liyuu确实不错了，最开始看的日文水平和艺能感，感觉基本就第二个sww了，不过反正配音唱跳没毛病，其他问题 ...</blockquote>
+虽然我不想捧一贬一，但是事实就是现阶段鲤鱼的唱功就能碾压sww了吧。
+
+sww都几年了，到现在不修音一开口还是能把人唱跑了...
+
+2nd的开场三单live简直是灾难级别事故了..
+
+
+我好歹喜欢果南和sww一段时间，现在唯一留下的水产品就是三单小火车的CD，其他都出手了。但是唯独sww的唱功实在是....<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kimibsb  
+##### 3380#       发表于 2021-8-30 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52561370&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-30 21:15</a>
+虽然我不想捧一贬一，但是事实就是现阶段鲤鱼的唱功就能碾压sww了吧。
+
+sww都几年了，到现在不修音一开口还 ...</blockquote>
+没事 多听几遍未修版鱼鱼鱼就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
