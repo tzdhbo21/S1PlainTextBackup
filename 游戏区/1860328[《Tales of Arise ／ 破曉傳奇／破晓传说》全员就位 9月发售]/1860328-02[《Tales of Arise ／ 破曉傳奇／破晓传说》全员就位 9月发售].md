@@ -18971,3 +18971,16 @@ lmbs系统肯定是手柄舒服
 想起来了，之前一直也是繁中，记混了
 
 
+
+
+*****
+
+####  zzzeven  
+##### 2919#       发表于 2021-8-30 18:22
+
+
+xsx预购扣款了，还有10天，<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
