@@ -9588,3 +9588,17 @@ zsyl 葛叶和阿鸣一队<img src="https://static.saraba1st.com/image/smiley/fa
 <img src="https://p.sda1.dev/2/b6a2653e15787f099c696283781febb5/image.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 6736#       发表于 2021-8-30 17:46
+
+
+某新角色的形象有那么一点像齐藤，有人就转评把郡道和这个角色拉郎配，
+郡：“这位一看就是嘎吃势很多的那种类型，你们是想让我死吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">”（大意）
+
+我的郡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">！
+
+
