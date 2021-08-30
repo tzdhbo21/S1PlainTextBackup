@@ -4903,3 +4903,28 @@ https://b23.tv/yAxCHl
 是啊，这种活动挺有意思的。
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 3394#       发表于 2021-8-31 00:56
+
+
+翻到本楼14页看了一下，只能鲤鱼说那种开局能得到现在的认可真是太不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yellowboat  
+##### 3395#       发表于 2021-8-31 01:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52561477&amp;ptid=1909972" target="_blank">kimibsb 发表于 2021-8-30 21:24</a>
+
+没事 多听几遍未修版鱼鱼鱼就好了</blockquote>
+当年在西武看2ND，身边一个果南推听得目光呆滞，拿着绿色的棒子想打CALL又找不准节奏。<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+倒是一直被说唱功不行的朱夏，SOLO的演出意外很棒，这东西也很讲天赋呢。
+
+

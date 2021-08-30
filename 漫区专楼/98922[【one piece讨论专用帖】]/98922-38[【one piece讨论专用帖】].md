@@ -111,3 +111,14 @@ god乌索普的名气比他爹都高了<img src="https://static.saraba1st.com/im
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 55508#       发表于 2021-8-31 00:48
+
+
+大和人设和声优都挺好的，就是为什么要做御田的狗呢，wt我杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
