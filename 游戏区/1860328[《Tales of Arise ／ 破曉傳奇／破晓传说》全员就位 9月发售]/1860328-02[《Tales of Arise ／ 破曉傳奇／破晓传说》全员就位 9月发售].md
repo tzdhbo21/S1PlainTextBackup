@@ -18995,3 +18995,14 @@ xsx预购扣款了，还有10天，<img src="https://static.saraba1st.com/image/
 MC媒体评分是当天？？？
 
 
+
+
+*****
+
+####  LT_Harry  
+##### 2921#         楼主| 发表于 2021-8-30 22:35
+
+
+让我们来看看这个主题在发售前能不能积累到3000回复<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+

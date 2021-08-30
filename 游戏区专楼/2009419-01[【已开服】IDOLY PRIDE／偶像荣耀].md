@@ -6188,3 +6188,38 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 之后应该会追加怪盗莉央、心。
 
 
+
+
+*****
+
+####  xiongxingyu  
+##### 443#       发表于 2021-8-30 22:32
+
+
+然而我正在玩的手游里还有2个要9月份才开夏活出泳装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过这次活动是合宿，主题倒到还在夏活范围之内，按照之前的规律莉央和心应该是送一个，常驻池一个吧。
+
+新歌（老歌）的live动画真是棒啊，sphere果然还是要4个人才完整啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  terry666  
+##### 444#       发表于 2021-8-30 22:37
+
+
+是有我想吐槽，sphere连新歌都没有吗？考虑到les的mv也没实装，估计trysail也是这个待遇。果然资源还是留给新人了。
+
+
+*****
+
+####  liyropen  
+##### 445#       发表于 2021-8-30 22:40
+
+
+这个月工资3400，涨的还挺快<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+合宿做的内容还挺多还有小台词不错啊
+不过这第二次定例我一出门就扑街<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+— from Xiaomi Redmi K20 Pro, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
