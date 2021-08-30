@@ -4668,3 +4668,59 @@ ybb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 其实自己一个人在日本打拼很孤独的，进入这行了又不能找男人，没事在网上看看大家对她的彩虹屁也是放送啦，她这么粘nako可能也是原因之一，无非就是寂寞想找人排解下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  星降る森  
+##### 3376#       发表于 2021-8-30 21:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52555229&amp;ptid=1909972" target="_blank">名津流 发表于 2021-8-30 12:59</a>
+
+青山不是说选拔本来只选一人的，她太优秀了才变成录用两人
+
+
+至于liyuu，我现在认为lantis自己作为LL项目发 ...</blockquote>
+你的猜测没毛病，从时间线上说，liella公募是2020年3月，鲤鱼2020年3月~2020年11月期间在国内。
+
+从小百合访谈看，她在选拔会场遇到过上尉，可见即使是内推的人也要去参加终选。
+
+<img src="https://img.saraba1st.com/forum/202108/30/204501uctikvk7bpck11zg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210830201258.png</strong> (133.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-30 20:45 上传
+
+
+但从生放看，其他4人通过选拔的这个时间点鲤鱼在上海，也就是说她没有和其他内推人一起参加终选。
+
+可见鲤鱼就是这次企划第一个确定选上的。
+
+顺便，唐可可人设公开是2020年5月，已经确定是上海人了，星团围绕鲤鱼立项没毛病。
+
+
+当然，鲤鱼肯定是要去试镜的，所以还是实力拿到的，只不过唐可可这个位置不存在其他会中文的日本人加入的可能，如果鲤鱼不能通过，这企划的人设大概就枪毙换一个了(
+
+
+*****
+
+####  kata魂  
+##### 3377#       发表于 2021-8-30 21:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">现在也挺好的，出道都那么被国内那么黑屁了，又被湾湾借题发挥，以后在怎么黑屁对她来说都算个屁吧
+
+
+*****
+
+####  saglork  
+##### 3378#       发表于 2021-8-30 21:08
+
+
+liyuu确实不错了，最开始看的日文水平和艺能感，感觉基本就第二个sww了，不过反正配音唱跳没毛病，其他问题也不大，现在已经进步的超过预期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

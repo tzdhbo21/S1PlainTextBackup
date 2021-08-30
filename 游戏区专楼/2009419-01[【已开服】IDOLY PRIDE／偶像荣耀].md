@@ -6153,3 +6153,14 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 时间过的真快，还有1天又可以领工资了，我目测这次能领3200钻，你们呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kos_mos  
+##### 440#       发表于 2021-8-30 21:00
+
+
+这期间水着gacha就只出了琴乃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
