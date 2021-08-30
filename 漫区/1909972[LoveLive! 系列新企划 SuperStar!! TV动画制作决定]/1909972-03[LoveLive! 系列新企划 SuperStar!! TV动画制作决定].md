@@ -3954,3 +3954,87 @@ https://www.bilibili.com ...</blockquote>
 她的年龄和唱功会吸引资方以她为中心立项
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3316#       发表于 2021-8-30 15:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52556924&amp;ptid=1909972" target="_blank">Goisdust 发表于 2021-8-30 15:19</a>
+感觉对鲤鱼的造神越来越失控了
+
+她的年龄和唱功会吸引资方以她为中心立项
+
+ ...</blockquote>
+鲤鱼那评价算造神的话，小百合都算成佛了。鲤鱼缺点也不是没提到啊，年纪，日语水平，无非现在大家看她确实没拉夸了几句罢了。
+
+
+*****
+
+####  优妮可  
+##### 3317#       发表于 2021-8-30 15:50
+
+
+鲤鱼这是没脱后腿大伙表扬一下而已啊，不都是吹小百合多么。
+
+
+*****
+
+####  Goisdust  
+##### 3318#       发表于 2021-8-30 15:51
+
+
+<blockquote>cybernetics31 发表于 2021-8-30 15:43
+鲤鱼那评价算造神的话，小百合都算成佛了。鲤鱼缺点也不是没提到啊，年纪，日语水平，无非现在大家看她确 ...</blockquote>
+小百合再怎么也没夸出起源说
+
+
+*****
+
+####  lj205  
+##### 3319#       发表于 2021-8-30 15:52
+
+
+也不算造神吧？毕竟各种条件都过于契合，加上又是烂铁的人
+
+
+*****
+
+####  梶原ひかり  
+##### 3320#       发表于 2021-8-30 15:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52555306&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-8-30 13:06</a>
+
+推测说是99年</blockquote>
+竟然是99年的..还以为这个团已经是00后占大半了 看来都是能力出众..
+
+对比 隔壁音雨三期..出道要早一年 最大年龄也就99年 其他都是00后..
+
+不过拉拉这边选的人能力要强不少
+
+
+*****
+
+####  Norkey1  
+##### 3321#       发表于 2021-8-30 15:56
+
+
+造神就算了，最可怕的是现在一些路人无论鲤鱼做什么到最后反正就是赢，反倒是有点把鲤鱼绑定到zz的味道<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3322#       发表于 2021-8-30 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52557400&amp;ptid=1909972" target="_blank">梶原ひかり 发表于 2021-8-30 15:53</a>
+竟然是99年的..还以为这个团已经是00后占大半了 看来都是能力出众..
+
+对比 隔壁音雨三期..出道要早一年 最 ...</blockquote>
+毕竟不是每家事务所00后新人都符合企划要求啊，99也没差了
+
+
