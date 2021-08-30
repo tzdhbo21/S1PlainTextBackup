@@ -4150,3 +4150,34 @@ LJL也就DFM希望大一点吧 其他战队没了解
 但是要出门
 
 
+
+
+*****
+
+####  Klience  
+##### 1860#       发表于 2021-8-30 08:25
+
+
+只能祝她好运了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  T_Hb  
+##### 1861#       发表于 2021-8-30 08:54
+
+
+有一说一，不会是出门打疫苗吧，上次就说要预约的
+
+
+*****
+
+####  时间在我手中  
+##### 1862#       发表于 2021-8-30 09:27
+
+
+身体要被打入异物了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">要变成生化怪物了
+
+
