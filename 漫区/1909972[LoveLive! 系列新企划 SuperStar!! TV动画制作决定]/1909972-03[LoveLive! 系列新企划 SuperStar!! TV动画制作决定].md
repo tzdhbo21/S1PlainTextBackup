@@ -4759,3 +4759,25 @@ sww都几年了，到现在不修音一开口还 ...</blockquote>
 没事 多听几遍未修版鱼鱼鱼就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  a92063256  
+##### 3381#       发表于 2021-8-30 22:50
+
+
+刚才爬了下前几十页<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">感受到了大量的恶意
+
+
+*****
+
+####  cybernetics31  
+##### 3382#       发表于 2021-8-30 22:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52562444&amp;ptid=1909972" target="_blank">a92063256 发表于 2021-8-30 22:50</a>
+刚才爬了下前几十页顺带也看了看微博和nga感受到了大量的恶意</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想当年我也是个鲤黑…………
+
+
