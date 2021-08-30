@@ -6234,3 +6234,29 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 送的莉央是常服，看来还是得抽4个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kos_mos  
+##### 447#       发表于 2021-8-30 23:02
+
+
+这次新情报挺多
+
+新ALBUM 10月和12月，麻奈、TA、LN新曲。
+
+麻奈figure样品出了。
+
+
+*****
+
+####  伊布桑  
+##### 448#         楼主| 发表于 2021-8-30 23:15
+
+
+来了来了，麻奈song for you。还有新曲<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

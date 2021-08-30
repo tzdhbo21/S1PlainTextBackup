@@ -4781,3 +4781,51 @@ sww都几年了，到现在不修音一开口还 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想当年我也是个鲤黑…………
 
 
+
+
+*****
+
+####  saglork  
+##### 3383#       发表于 2021-8-30 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52561370&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-30 21:15</a>
+虽然我不想捧一贬一，但是事实就是现阶段鲤鱼的唱功就能碾压sww了吧。
+
+sww都几年了，到现在不修音一开口还 ...</blockquote>
+不是说唱功，只是说当初担心她语言关一时半会过不了，再加上艺能感这东西也是分人的，最后只能跟sww当初一样混个无口吉祥物待遇，现在看liyuu还是挺争气的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 3384#       发表于 2021-8-30 23:19
+
+
+<blockquote>a92063256 发表于 2021-8-30 22:50
+刚才爬了下前几十页顺带也看了看微博和nga感受到了大量的恶意</blockquote>
+墙外还有呢，只能说没点抗压能力还真不行
+
+
+*****
+
+####  chenflyyy  
+##### 3385#       发表于 2021-8-30 23:33
+
+
+ 本帖最后由 chenflyyy 于 2021-8-30 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52562464&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-8-30 22:51</a>
+想当年我也是个鲤黑…………</blockquote>
+我至今还是不懂当初那波开团是怎么回事，懂哥们一个个化身谜语人，手里仿佛有大量黑料却又不拿出来搁那讲谜语，团开得这么烂还是第一次见，作为路人自然是一脸懵逼 ，你这个前鲤黑能说说是怎么回事吗
+
+
+*****
+
+####  Norkey1  
+##### 3386#       发表于 2021-8-30 23:36
+
+
+真拿出实锤的东西对谁都没有一点好处，无论有没有都不建议问/说了。
+但是看黑屁确实挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">楼友们能继续前几页那个风格吗
+
+
