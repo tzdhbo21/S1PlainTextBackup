@@ -4939,3 +4939,14 @@ https://b23.tv/yAxCHl
 还是那句进程与奋斗了，现在的鲤鱼值得他人的喜爱
 
 
+
+
+*****
+
+####  lanslort  
+##### 3397#       发表于 2021-8-31 05:41
+
+
+说实话，隔壁音宝也是铁血拉拉人，如果不是当了次世代ace的话搞不好还真会来这边 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 毕竟唱功说到底也只是锦上添花的东西
+
+
