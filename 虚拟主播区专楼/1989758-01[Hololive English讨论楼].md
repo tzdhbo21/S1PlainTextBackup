@@ -21264,3 +21264,20 @@ Kronii稍微看了一会感觉有点一板一眼，还没放开（也可能是�
 另外pako已经彻底变成管人痴了啊
 
 
+
+
+*****
+
+####  smy20011  
+##### 1349#         楼主| 发表于 2021-8-30 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52543056&amp;ptid=1989758" target="_blank">被子十三 发表于 2021-8-29 04:58</a>
+
+Kronii稍微看了一会感觉有点一板一眼，还没放开（也可能是演技的关系），可能得稍微等会吧
+
+
+另外pako已经彻 ...</blockquote>
+huke也时常追火鸡的台
+
+

@@ -873,3 +873,73 @@ hevc</blockquote>
 有没有大手子能解答下canvas 相比于h5优势在哪里吗？
 
 
+
+
+*****
+
+####  Lisylfn  
+##### 75#       发表于 2021-8-30 11:09
+
+
+旧样式顺带解决了播放器里弹幕弹出点赞和弹出窗口, 就是平板App上关不了了, 这个弹出窗口真的死妈一样
+
+
+*****
+
+####  gearh  
+##### 76#       发表于 2021-8-30 11:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥我开启关闭对比 CPU、GPU、播放器功能都没啥区别？
+
+难道是灰度推送的吗
+
+
+*****
+
+####  TimDOK  
+##### 77#       发表于 2021-8-30 11:47
+
+
+我还纳闷为什么最近看B站体验差了不少。我习惯是直接看动态，有兴趣的视频就后台打开，之后再去一个个观看，结果现在后台打开视频就自动播放了，每打开一个就有去手动暂停，原来是新播放器的锅。
+
+
+*****
+
+####  万花谷杂役  
+##### 78#       发表于 2021-8-30 11:58
+
+
+我说怎么最近一开B站风扇就开始狂转呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  镜hinata  
+##### 79#       发表于 2021-8-30 12:04
+
+
+马克了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  万花谷杂役  
+##### 80#       发表于 2021-8-30 12:05
+
+
+这个脚本好，B站占用CPU从30%多降到7%了，陈睿真是个司马玩意儿
+
+
+*****
+
+####  ywydsd  
+##### 81#       发表于 2021-8-30 12:09
+
+
+卡得不行，我还因此更新了一个新版本的chrome，真是太傻逼了
+
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
