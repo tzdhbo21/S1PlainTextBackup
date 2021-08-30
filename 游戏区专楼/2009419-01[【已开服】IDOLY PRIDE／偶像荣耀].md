@@ -6175,3 +6175,16 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 惊了，黑组居然不是泳装而是怪盗风，猫耳葵<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kos_mos  
+##### 442#       发表于 2021-8-30 22:10
+
+
+9月了嘛，过了夏季，不出泳装正常，还可以放明年夏季。
+
+之后应该会追加怪盗莉央、心。
+
+
