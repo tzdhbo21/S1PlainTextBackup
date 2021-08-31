@@ -9983,3 +9983,35 @@ Syl，夜见没跟bora说过一句话，本来以为这联动是meari当中间�
 杏的新官网已经把一切B站相关的信息全都删掉了，阿裁却还在孜孜不倦的发视频黑屁夏色祭，他的字幕组能不能让他快点跟上版本啊
 
 
+
+
+*****
+
+####  qq845629713  
+##### 6766#       发表于 2021-8-31 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虹kr这个长得像内德维德大人的红毛晒了个apex小号炸鱼5950伤害，只能说不愧是棒子
+
+
+*****
+
+####  qesto  
+##### 6767#       发表于 2021-8-31 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52574532&amp;ptid=1972669" target="_blank">free 发表于 2021-8-31 21:43</a>
+
+杏的新官网已经把一切B站相关的信息全都删掉了，阿裁却还在孜孜不倦的发视频黑屁夏色祭，他的字幕组能不能 ...</blockquote>
+那你这还整天圆脸圆脸的，什么时候也跟上版本啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  死体残留  
+##### 6768#       发表于 2021-8-31 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">25杀5900匹配有点厉害了 boracp来了
+
+

@@ -5170,3 +5170,41 @@ cry baby都唱这么好了
 和诗子在BL上的造诣差距简直是小鬼对上大手子
 
 
+
+
+*****
+
+####  路人庚  
+##### 1959#       发表于 2021-8-31 21:44
+
+
+大概不止BL方面（）
+
+
+*****
+
+####  雪风utopia  
+##### 1960#       发表于 2021-8-31 21:53
+
+
+对苔本很梁木，感到不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 1961#       发表于 2021-8-31 21:58
+
+
+那就去打游戏 放你咩的歌单加buff<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 1962#       发表于 2021-8-31 22:01
+
+
+难得的准时，不过开头还是mute一会儿，苔总这歌比较累的时候听着想昏睡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

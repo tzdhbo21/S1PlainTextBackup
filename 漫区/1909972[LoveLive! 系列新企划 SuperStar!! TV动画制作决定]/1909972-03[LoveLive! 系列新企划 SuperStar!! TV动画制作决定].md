@@ -5554,3 +5554,18 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 <img src="http://wx3.sinaimg.cn/mw690/001bJkYtgy1gu09v0x6k3j60u00ngdl002.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 3451#       发表于 2021-8-31 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52574278&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-31 21:22</a>
+傻逼资本家迟早被吊路灯</blockquote>
+草，打工人鲤鱼可还行
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
