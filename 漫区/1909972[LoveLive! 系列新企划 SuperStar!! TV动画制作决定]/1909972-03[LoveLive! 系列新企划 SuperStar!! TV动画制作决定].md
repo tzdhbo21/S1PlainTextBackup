@@ -5079,3 +5079,78 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 只要承认星团最差就行了
 
 
+
+
+*****
+
+####  TTAA  
+##### 3410#       发表于 2021-8-31 16:04
+
+
+缪水虹星都喜欢捏<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  米酒马路  
+##### 3411#       发表于 2021-8-31 16:10
+
+
+只能说要不是虹团动画，我都忘了自己曾经是个拉拉人。现在就是转型企划推，恶补生放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3412#       发表于 2021-8-31 16:21
+
+
+ 本帖最后由 寒风夜 于 2021-8-31 16:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">现在只想虹2摒弃as
+
+
+*****
+
+####  soranoguiji  
+##### 3413#       发表于 2021-8-31 16:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  离心  
+##### 3414#       发表于 2021-8-31 16:25
+
+
+唉……历史重演了……
+
+
+*****
+
+####  cat1230  
+##### 3415#       发表于 2021-8-31 16:31
+
+
+前面10几页跟动画开播后对鲤鱼的评价真是肉眼可见的上升。不错不错，金子总会发光的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  we89623  
+##### 3416#       发表于 2021-8-31 16:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52570412&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-8-31 15:54</a>
+
+我只知道虹又被开除了
+
+虹团我的虹团</blockquote>
+什么叫又？ 虹在部分人眼里一直是另类，日本5CH粪坑上的很多原教旨拉拉人从来不把虹当拉拉的，从一开始就是。
+
+
