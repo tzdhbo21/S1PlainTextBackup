@@ -4961,3 +4961,29 @@ https://b23.tv/yAxCHl
 音宝来这边集中在鲤鱼身上的火力会少一些吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  soranoguiji  
+##### 3399#       发表于 2021-8-31 08:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 音宝还是算了吧，我倒是好奇amuse怎么不让磯部花凛来拉拉，这么多同事在这边，难道是因为闪耀色彩的关系
+
+
+*****
+
+####  ads147147  
+##### 3400#       发表于 2021-8-31 08:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52563607&amp;ptid=1909972" target="_blank">yellowboat 发表于 2021-8-31 01:02</a>
+当年在西武看2ND，身边一个果南推听得目光呆滞，拿着绿色的棒子想打CALL又找不准节奏。
+
+倒是一直 ...</blockquote>
+突然想起自己第一次听夜空会知道，感觉也不算特别中意，但是live的时候看咻卡咻独舞那段突然哭了，也不知道为什么，现在也还原不了当时是心境，就是那段共鸣留下来了，所谓悸动就是这么一回事吧，咻卡咻真棒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
