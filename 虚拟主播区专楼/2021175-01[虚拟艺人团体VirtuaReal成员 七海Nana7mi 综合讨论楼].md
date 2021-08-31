@@ -1806,3 +1806,16 @@ yoga7咋和au干上了呢
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  DKD  
+##### 155#       发表于 2021-9-1 00:43
+
+
+晚安鲨鱼🦈
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
