@@ -19274,3 +19274,21 @@ steam发售日期为什么改成9月9日了？之前看还是9月10日。
 好急 还有一周多才能玩
 
 
+
+
+*****
+
+####  godless2020  
+##### 2939#       发表于 2021-8-31 18:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52568368&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-31 12:53</a>
+
+・【海水浴】
+
+・【校园生活】
+
+・【战国和装】</blockquote>
+学院BGM太欢快了！！
+
+

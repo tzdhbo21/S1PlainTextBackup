@@ -5400,3 +5400,73 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
+
+
+*****
+
+####  pliee  
+##### 3439#       发表于 2021-8-31 18:45
+
+
+日本这情况只能祈祷打第二针前别中招了
+
+
+*****
+
+####  优妮可  
+##### 3440#       发表于 2021-8-31 18:48
+
+
+<blockquote>bxcds 发表于 2021-8-31 18:32
+刚看到大奶遥也确诊新冠了，担心鲤鱼姐后面这么多活动
+
+
+—— 来自 Sony XQ-AT52, Android 11上的 S1Next-鹅 ...</blockquote>
+那边摆烂没啥办法，鲤鱼打了疫苗，算是有一道保险，况且nako中招过，企划应该会加强防护吧。
+
+
+*****
+
+####  名津流  
+##### 3441#       发表于 2021-8-31 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52570373&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-8-31 15:50</a>
+
+半天没看，怎么外面又围绕ll吵起来了啊，没看懂。</blockquote>
+有人吵是好事，在泥潭有不止一人吵才说明是真有了热度
+
+
+*****
+
+####  qratosone  
+##### 3442#       发表于 2021-8-31 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52572718&amp;ptid=1909972" target="_blank">pliee 发表于 2021-8-31 18:45</a>
+日本这情况只能祈祷打第二针前别中招了</blockquote>
+鲤鱼之前已经打了第二针了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  优妮可  
+##### 3443#       发表于 2021-8-31 19:00
+
+
+<blockquote>名津流 发表于 2021-8-31 18:53
+有人吵是好事，在泥潭有不止一人吵才说明是真有了热度</blockquote>
+吵cp，吵剧情我能接受，但吵缪水，虹星那种就头疼。
+
+
+*****
+
+####  蔵女  
+##### 3444#       发表于 2021-8-31 19:01
+
+
+数据在这个其实还可以，不过还是得看花田大老师接下来怎么搞
+
+
