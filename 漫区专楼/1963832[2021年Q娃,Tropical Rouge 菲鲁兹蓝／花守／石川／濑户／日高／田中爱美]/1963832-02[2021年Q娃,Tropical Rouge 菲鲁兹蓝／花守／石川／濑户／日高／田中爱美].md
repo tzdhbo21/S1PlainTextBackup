@@ -7649,3 +7649,14 @@ image.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不知为何，看到虾姑来接海参一起看流星雨比学生们看流星雨还感动
 
 
+
+
+*****
+
+####  舞野咲  
+##### 2056#       发表于 2021-8-31 08:08
+
+
+我感觉以后要出现医生和大厨在女巫手里保护虾姑牺牲然后虾姑来找主角帮忙的剧情了。。。
+
+

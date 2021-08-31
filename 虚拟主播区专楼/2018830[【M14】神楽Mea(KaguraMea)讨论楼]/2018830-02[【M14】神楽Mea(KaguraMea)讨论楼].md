@@ -4525,3 +4525,70 @@ TC了
 真有精神<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 1895#       发表于 2021-8-31 08:12
+
+
+ 本帖最后由 T_Hb 于 2021-8-31 08:16 编辑 
+
+大早上就起来犯病，今天可能会歌回
+
+
+*****
+
+####  Klience  
+##### 1896#       发表于 2021-8-31 08:21
+
+
+所以这人有说昨天去干嘛了吗
+
+
+*****
+
+####  T_Hb  
+##### 1897#       发表于 2021-8-31 08:27
+
+
+睡了，起这么早的意义呢
+
+
+*****
+
+####  yywzjsw  
+##### 1898#       发表于 2021-8-31 08:43
+
+
+到班上打开手机.....播了？然后结束了.....
+
+
+*****
+
+####  Klience  
+##### 1899#       发表于 2021-8-31 08:45
+
+
+起那么早为了打lol呢 lol民又赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1900#       发表于 2021-8-31 08:46
+
+
+看来是女人的嘴，骗人的👻
+
+
+*****
+
+####  Klience  
+##### 1901#       发表于 2021-8-31 08:50
+
+
+你什么产生了这人的话能信的错觉 蓝染吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
