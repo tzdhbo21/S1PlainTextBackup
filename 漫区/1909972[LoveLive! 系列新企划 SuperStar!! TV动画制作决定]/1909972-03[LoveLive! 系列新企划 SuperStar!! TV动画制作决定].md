@@ -5630,3 +5630,88 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 3457#       发表于 2021-8-31 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575126&amp;ptid=1909972" target="_blank">名津流 发表于 2021-8-31 22:36</a>
+
+生放送佩顿脸红的那一幕，鲤鱼表现得过于冷静以至于4chan上的欧美可堇党因此而觉得输了</blockquote>
+鲤鱼都25啦，这种小场面只有JK才脸红
+
+
+*****
+
+####  lj205  
+##### 3458#       发表于 2021-8-31 22:52
+
+
+所以说了黑眼圈那么严重，好好睡觉保持体力才对啊
+
+
+*****
+
+####  阿姆罗二世  
+##### 3459#       发表于 2021-8-31 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575303&amp;ptid=1909972" target="_blank">lj205 发表于 2021-08-31 22:52:26</a>
+所以说了黑眼圈那么严重，好好睡觉保持体力才对啊</blockquote>难啊，我这种没被压榨的那么惨的社畜在忙起来的时候都睡不着觉，事情太多了反而容易失眠
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  黑雪姫  
+##### 3460#       发表于 2021-8-31 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575303&amp;ptid=1909972" target="_blank">lj205 发表于 2021-8-31 22:52</a>
+
+所以说了黑眼圈那么严重，好好睡觉保持体力才对啊</blockquote>
+鲤鱼现在除了拉拉外，个人活动也没停，而且还得学日语，要干的事情比其他四位多很多。而且又爱熬夜上网。 
+
+
+*****
+
+####  lj205  
+##### 3461#       发表于 2021-8-31 22:58
+
+
+<blockquote>名津流 发表于 2021-8-31 22:36
+生放送佩顿脸红的那一幕，鲤鱼表现得过于冷静以至于4chan上的欧美可堇党因此而觉得输了
+
+
+</blockquote>
+外国佬对中国直女太不了解～
+
+
+*****
+
+####  名津流  
+##### 3462#       发表于 2021-8-31 23:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575368&amp;ptid=1909972" target="_blank">lj205 发表于 2021-8-31 22:58</a>
+
+外国佬对中国直女太不了解～</blockquote>
+应该说他们对中国的一切几乎都知之甚少，大部分时候除了刻板印象就是政 治黑
+
+
+*****
+
+####  luciferion  
+##### 3463#       发表于 2021-8-31 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575126&amp;ptid=1909972" target="_blank">名津流 发表于 2021-8-31 22:36</a>
+
+生放送佩顿脸红的那一幕，鲤鱼表现得过于冷静以至于4chan上的欧美可堇党因此而觉得输了</blockquote>
+这个一转**族就离谱，果然二次元人不分国籍都喜欢键政
+
+
