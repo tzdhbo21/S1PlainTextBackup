@@ -9892,3 +9892,34 @@ bora看来是预定了2042出来后继续和队友开黑了<img src="https://sta
 补个图，織姫星三人齐了，smc差夜见
 
 
+
+
+*****
+
+####  Suny08  
+##### 6758#       发表于 2021-8-31 20:07
+
+
+<blockquote>alcoholic1000 发表于 2021-8-31 19:13
+补个图，織姫星三人齐了，smc差夜见</blockquote>
+夜见上次杂谈说了她3.0还没抽到，但她已经设计好了
+
+
+Syl，夜见没跟bora说过一句话，本来以为这联动是meari当中间人牵头的，没想到是bora直接邀请的夜见……棒妹就是这么阳角的嘛
+
+
+*****
+
+####  free  
+##### 6759#       发表于 2021-8-31 20:14
+
+
+[https://www.youtube.com/watch?v=Va-7cDPwYSE](https://www.youtube.com/watch?v=Va-7cDPwYSE)
+
+エルセ FIRST SOLO LIVE「ひとりでも、ひとりじゃない。」
+
+[https://www.youtube.com/watch?v=AImZEuYgJEo](https://www.youtube.com/watch?v=AImZEuYgJEo)
+
+【新衣装配信】じゃーん！水着アズリムはどうですか？
+
+

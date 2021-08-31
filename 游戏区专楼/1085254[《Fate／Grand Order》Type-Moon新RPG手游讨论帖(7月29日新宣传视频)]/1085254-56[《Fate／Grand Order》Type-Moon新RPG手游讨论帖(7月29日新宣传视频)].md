@@ -8346,3 +8346,52 @@ yxb什么的前几年都是拿sensor tower的数据来宣传的，今年sensor t
 难道尼玛的要我转苹果？
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83198#       发表于 2021-8-31 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52573221&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-31 19:38</a>
+
+得，我的谷歌号也废了，前天还好的
+
+难道尼玛的要我转苹果？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回归无课 3石1 5星的欧洲年代
+
+
+*****
+
+####  黑上シグマ  
+##### 83199#       发表于 2021-8-31 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52573256&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-31 19:42</a>
+
+回归无课 3石1 5星的欧洲年代</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这欧洲年代只有你这杂碎有
+
+
+*****
+
+####  芭德薇  
+##### 83200#       发表于 2021-8-31 19:59
+
+
+（不是可以直接信用卡吗
+
+
+*****
+
+####  黑上シグマ  
+##### 83201#       发表于 2021-8-31 20:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52573388&amp;ptid=1085254" target="_blank">芭德薇 发表于 2021-8-31 19:59</a>
+
+（不是可以直接信用卡吗</blockquote>
+（贵啊
+
+

@@ -10781,3 +10781,20 @@ I wish...
 这咋上头了，还没下播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 6871#       发表于 2021-8-31 19:38
+
+
+晚上9点继续MC，没鸽
+
+<img src="https://p.sda1.dev/2/34e7720f5e23882c2dcfc2b47d83cd60/IMG_CMP_50272406.jpeg" referrerpolicy="no-referrer">
+https://twitter.com/umaiyo_puyoman/status/1432640700638629889
+又大了
+
+昨日哈恰玛：https://youtu.be/Ek1bJM8sMQM
+
+

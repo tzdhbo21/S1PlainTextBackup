@@ -5505,3 +5505,38 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 （超级明星真的太土了
 
 
+
+
+*****
+
+####  笋狐  
+##### 3447#       发表于 2021-8-31 20:05
+
+
+ 本帖最后由 笋狐 于 2021-8-31 20:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52570795&amp;ptid=1909972" target="_blank">soranoguiji 发表于 2021-8-31 16:24</a>
+
+虹2我只想看三船栞子，其他做的咋样无所谓，希望铁血九人厨不要黑她 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看二期怎么魔改，如果按照as那原剧情走，她大概至少要面对九人团原教旨主义者、雨野亲马猎杀者、雪菜粉、步侑cp粉等群体的口诛笔伐
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">syl，四处看了看，那些唱衰可香的原股民好像有不少是认真的啊，明明唐囡囡的个人回都没出
+
+
+*****
+
+####  凡人  
+##### 3448#       发表于 2021-8-31 20:11
+
+
+用水团打比方的话，花田相当于把捡狗回放倒了第一季，然后在第二季又告诉你这狗是小时候千梨喂过的。
+
+
+*****
+
+####  优妮可  
+##### 3449#       发表于 2021-8-31 20:18
+
+
+这，还是喜欢乱炖多点
+
+

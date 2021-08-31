@@ -18643,3 +18643,71 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 你如果前面的活动服装券池子还是亮的就要继续抽，因为这次除了衣服还会追加一副眼镜。抽到抽卡按钮黑了才行。按钮黑了后的票真是真正多出来的票。
 
 
+
+
+*****
+
+####  RioShiina  
+##### 5950#       发表于 2021-8-31 19:54
+
+
+微博上看见的， 太会搞事了XDDD
+
+<img src="https://img.saraba1st.com/forum/202108/31/195410on6z424eiw7znicd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>75y9qwtu2qtdmmbat1wvpg8n6.jpg</strong> (60.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-31 19:54 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 江戸前ルナ| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  不灭的旋律  
+##### 5951#       发表于 2021-8-31 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52573109&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-8-31 19:25</a>
+
+你如果前面的活动服装券池子还是亮的就要继续抽，因为这次除了衣服还会追加一副眼镜。抽到抽卡按钮黑了才 ...</blockquote>
+要不是看到这贴我都不知道前两个池按钮能抽到黑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">提供比例里全都打钩了而且再抽都不减券的
+
+不过追加的眼镜是哪个我翻了半天都没找到
+
+
+*****
+
+####  江戸前ルナ  
+##### 5952#       发表于 2021-8-31 20:17
+
+
+ 本帖最后由 江戸前ルナ 于 2021-8-31 20:20 编辑 
+
+我也没翻到眼镜了难道只是个标志？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+话说你游的沙雕TVCM已经搬上油桶了
+
+[https://www.bilibili.com/video/BV1ZQ4y1h7oG](https://www.bilibili.com/video/BV1ZQ4y1h7oG)
+
+
+第一个第三个果然够沙雕<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">夜露的动作好魔性，可怜的土偶（
+
+
