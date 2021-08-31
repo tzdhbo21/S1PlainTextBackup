@@ -5541,3 +5541,57 @@ cry baby都唱这么好了
 做不到，打游戏就完全不知道在说啥了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Klience  
+##### 1995#       发表于 2021-8-31 23:53
+
+
+联动又不是游戏回 不想一直盯着直播画面 平板放着时不时瞄几眼就算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KL25001  
+##### 1996#       发表于 2021-9-1 00:00
+
+
+联动超人啊
+
+<img src="https://img.saraba1st.com/forum/202109/01/000008i1gaoocyycmo4q4u.png" referrerpolicy="no-referrer">
+
+
+<strong>08a.PNG</strong> (214.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 00:00 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/000008m2iz2uusabg2qieu.png" referrerpolicy="no-referrer">
+
+
+<strong>08c.PNG</strong> (119.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 00:00 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1|今早有个tc|
+
+
+查看全部评分
+
+

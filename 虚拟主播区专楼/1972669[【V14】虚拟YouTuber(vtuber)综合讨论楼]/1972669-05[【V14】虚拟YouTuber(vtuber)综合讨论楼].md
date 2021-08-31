@@ -10085,3 +10085,20 @@ syl，发现p丸的大统领都4KW了，18号出的新歌也是300W，再加上�
 P丸算不算脱皮以后唯一一个混的更好的了
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 6773#       发表于 2021-8-31 23:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575572&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-8-31 23:15</a>
+没那么泾渭分明，我觉得只考虑全盛期的话
+
+selen，红毛，星辰（虽然没脑子但是枪确实强），bora是一级的
+
+然 ...</blockquote>
+倒不如说，她套皮就是证明自己从头开始百万都唾手可得吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

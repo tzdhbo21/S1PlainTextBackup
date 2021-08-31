@@ -5795,3 +5795,78 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 一般路过的中国侄女罢了
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 3472#       发表于 2021-8-31 23:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575766&amp;ptid=1909972" target="_blank">megapikachu 发表于 2021-8-31 23:37</a>
+
+实际上如果不考虑营业，声优之间关系有明显突破的就鲤鱼和pay这对“姐妹”吧。不过看了pay的访谈以后，总觉 ...</blockquote>
+和鲤鱼一起回家？？？ 哪篇访谈，我咋没看到？[https://www.bilibili.com/read/cv12949291](https://www.bilibili.com/read/cv12949291)？ 这个？  没找到这段啊
+
+
+*****
+
+####  名津流  
+##### 3473#       发表于 2021-8-31 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575868&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-31 23:49</a>
+
+和鲤鱼一起回家？？？ 哪篇访谈，我咋没看到？https://www.bilibili.com/read/cv12949291？ 这个？  没找 ...</blockquote>
+我记得是在官方广播生放送里提到的，比较靠前的一期
+
+
+*****
+
+####  黑雪姫  
+##### 3474#       发表于 2021-8-31 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575898&amp;ptid=1909972" target="_blank">名津流 发表于 2021-8-31 23:52</a>
+
+我记得是在官方广播生放送里提到的，比较靠前的一期</blockquote>
+额，好吧，有人知道是第几期吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜜梨柑  
+##### 3475#       发表于 2021-8-31 23:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575926&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-31 23:54</a>
+
+额，好吧，有人知道是第几期吗？</blockquote>
+其实4月份声a/g的访谈
+[https://weibo.com/ttarticle/p/show?id=2309404625603323363620](https://weibo.com/ttarticle/p/show?id=2309404625603323363620)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑雪姫| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  黑雪姫  
+##### 3476#       发表于 2021-9-1 00:01
+
+
+<img src="http://wx4.sinaimg.cn/mw690/0089S4Hmly1gu0ey2iiaoj30es154794.jpg" referrerpolicy="no-referrer">
+
+
