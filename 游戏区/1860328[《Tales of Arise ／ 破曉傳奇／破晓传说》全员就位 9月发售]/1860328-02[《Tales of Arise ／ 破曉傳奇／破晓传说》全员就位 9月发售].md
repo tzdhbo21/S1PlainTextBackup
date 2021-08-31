@@ -19100,3 +19100,23 @@ MC媒体评分是当天？？？
 说起来奥尔芬的火焰剑居然不像六郎的太刀一样会根据皮肤变外观<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 2925#       发表于 2021-8-31 12:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52568060&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-8-31 12:30</a>
+
+不知道有没有自带BGM............</blockquote>
+・【海水浴】
+
+・【校园生活】
+
+・【战国和装】
+
+这三个包分别有不同的服装自带战斗BGM和全队每人300SP加成
+
+
