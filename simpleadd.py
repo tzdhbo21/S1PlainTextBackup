@@ -19,7 +19,7 @@ while 1:
         break
     if(threadid in ids):
         print(u"早就有了！更新时间")
-        thdata[ids.index(threadid)]['active'] = True
+        thdata[threadid]['active'] = True
     else:
         print(u'请输入版面分类代号：\n1 = 外野\n2 = 漫区\n3 = 游戏区\n4 = 虚拟主播区专楼')
         threadcategory  = input(u'我选：')
