@@ -122,3 +122,14 @@ god乌索普的名气比他爹都高了<img src="https://static.saraba1st.com/im
 大和人设和声优都挺好的，就是为什么要做御田的狗呢，wt我杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  angelooo  
+##### 55509#       发表于 2021-8-31 11:02
+
+
+现在可以说真是白瞎人设加声优了，你妹的
+
+
