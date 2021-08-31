@@ -8505,3 +8505,17 @@ yxb什么的前几年都是拿sensor tower的数据来宣传的，今年sensor t
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">心血来潮去看了看那些只有立绘没有实装的新建文件夹
 
 
+
+
+*****
+
+####  qixinno2  
+##### 83211#       发表于 2021-9-1 05:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52574261&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-31 21:20</a>
+
+不要怕 马上就有5护符了。5宝稳了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你骗人 为什么五呼符全是绿方块
+
+
