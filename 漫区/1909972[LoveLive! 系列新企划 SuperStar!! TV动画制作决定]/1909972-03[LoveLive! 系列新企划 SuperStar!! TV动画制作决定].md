@@ -5870,3 +5870,26 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 <img src="http://wx4.sinaimg.cn/mw690/0089S4Hmly1gu0ey2iiaoj30es154794.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3477#       发表于 2021-9-1 00:06
+
+
+很多细节其实都还是出自采访多，看依协大佬翻译就行
+
+
+*****
+
+####  qratosone  
+##### 3478#       发表于 2021-9-1 00:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575565&amp;ptid=1909972" target="_blank">lj205 发表于 2021-8-31 23:14</a>
+
+鲤鱼可是提前预告可堇股的人吧？节目里对打铁和奈子也没少送秋波，估计更多是把佩佩当妹妹看待 ...</blockquote>
+之前鲤鱼就让佩酱叫她姐姐吧
+
+
