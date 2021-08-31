@@ -4676,3 +4676,28 @@ TC了
 补了一下tc前面，这头猪好像吃到嘴巴有点上火，担心是口内炎打算明天也就是九月第一件事去看牙医<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  路人庚  
+##### 1910#       发表于 2021-8-31 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52569042&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-8-31 13:44</a>
+
+补了一下tc前面，这头猪好像吃到嘴巴有点上火，担心是口内炎打算明天也就是九月第一件事去看牙医 ...</blockquote>
+现在还有公开的录播站吗，给点给点
+
+syl，东京20点播
+
+
+*****
+
+####  时间在我手中  
+##### 1911#       发表于 2021-8-31 14:15
+
+
+没公开的，我有些渠道和熟人分享而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有需要的话还是老话，私聊
+
+
