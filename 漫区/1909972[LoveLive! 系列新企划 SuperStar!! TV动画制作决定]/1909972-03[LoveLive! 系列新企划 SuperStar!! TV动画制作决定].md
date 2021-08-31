@@ -5540,3 +5540,17 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 这，还是喜欢乱炖多点
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 3450#       发表于 2021-8-31 21:22
+
+
+傻逼资本家迟早被吊路灯
+
+<img src="http://wx3.sinaimg.cn/mw690/001bJkYtgy1gu09uzt3r0j60u00z8jxx02.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/mw690/001bJkYtgy1gu09v0x6k3j60u00ngdl002.jpg" referrerpolicy="no-referrer">
+
+
