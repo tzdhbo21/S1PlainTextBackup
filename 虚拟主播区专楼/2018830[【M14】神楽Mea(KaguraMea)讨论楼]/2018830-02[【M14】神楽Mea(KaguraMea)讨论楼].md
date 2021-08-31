@@ -5510,3 +5510,23 @@ cry baby都唱这么好了
 今天的歌回是真的好
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 1992#       发表于 2021-8-31 23:14
+
+
+歌回录播下好了，开不开pre，思考
+
+
+*****
+
+####  Klience  
+##### 1993#       发表于 2021-8-31 23:25
+
+
+还好用平板看直播 边看边打游戏 合理利用时间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

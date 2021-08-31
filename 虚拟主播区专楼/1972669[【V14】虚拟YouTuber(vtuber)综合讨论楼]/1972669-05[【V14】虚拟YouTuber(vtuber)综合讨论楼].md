@@ -10063,3 +10063,25 @@ Selen&gt;bora&gt;条子oba&gt;（？）星宸&gt;黑毛axia&gt;nrk&gt;千&gt;&gt
 syl 圭利你开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  poipanchao  
+##### 6772#       发表于 2021-8-31 23:15
+
+
+没那么泾渭分明，我觉得只考虑全盛期的话
+
+selen，红毛，星辰（虽然没脑子但是枪确实强），bora是一级的
+
+然后黑毛，nrk，千，噗一级吧，黑黑不要来丢人
+
+oba毕竟还没直播，再看，010就不要算了吧……
+
+
+syl，发现p丸的大统领都4KW了，18号出的新歌也是300W，再加上小视频依然人气不减
+
+P丸算不算脱皮以后唯一一个混的更好的了
+
+
