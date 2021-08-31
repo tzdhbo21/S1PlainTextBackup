@@ -6397,3 +6397,51 @@ Windows 8和8.1都是靠Classic Shell过的
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不搞安卓，不会被砍掉吧
 
 
+
+
+*****
+
+####  dstar  
+##### 530#       发表于 2021-8-31 22:33
+
+
+<blockquote>引用第528楼雷之于2021-08-31 22:26发表的  :
+
+不搞安卓，不会被砍掉吧</blockquote>
+@雷之
+
+搞不好破釜沉舟，最后只留下安卓，把NT给砍了，然后给个虚拟机跑exe
+
+真有这魄力我就认为阿三牛**
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  Litccc  
+##### 531#       发表于 2021-8-31 22:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">win11主要是为了配合intel 12代，不然也不会出个换皮的win10
+
+
+*****
+
+####  distrowatch  
+##### 532#       发表于 2021-8-31 22:39
+
+
+看完我马上把我的8CX本卖了换Chromebook
+
+
+*****
+
+####  404489039  
+##### 533#       发表于 2021-8-31 22:43
+
+
+最近beta版更新了前天绿屏，今天开机黑屏能看到鼠标狂转只能强制关闭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
