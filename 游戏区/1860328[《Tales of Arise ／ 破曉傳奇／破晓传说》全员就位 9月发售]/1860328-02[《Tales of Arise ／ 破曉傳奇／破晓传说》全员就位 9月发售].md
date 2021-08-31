@@ -19120,3 +19120,31 @@ MC媒体评分是当天？？？
 这三个包分别有不同的服装自带战斗BGM和全队每人300SP加成
 
 
+
+
+*****
+
+####  改名了的  
+##### 2926#       发表于 2021-8-31 15:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">服装带历代bgm么
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  laoz  
+##### 2927#       发表于 2021-8-31 15:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52570078&amp;ptid=1860328" target="_blank">改名了的 发表于 2021-8-31 15:22</a>
+
+服装带历代bgm么
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+都单独拿出来卖了，怎么可能会带
+
+

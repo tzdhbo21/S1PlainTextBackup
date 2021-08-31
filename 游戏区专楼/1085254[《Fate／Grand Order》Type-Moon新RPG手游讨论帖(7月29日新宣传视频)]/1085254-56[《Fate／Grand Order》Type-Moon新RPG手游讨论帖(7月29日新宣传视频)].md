@@ -8223,3 +8223,26 @@ yxb什么的前几年都是拿sensor tower的数据来宣传的，今年sensor t
 这周肯定是长草啊，说好9月就是9月，不会提前<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  areklose  
+##### 83187#       发表于 2021-8-31 14:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明天9月1日，周三。今天不来个公告吗
+
+
+*****
+
+####  alucardcz  
+##### 83188#       发表于 2021-8-31 15:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52569775&amp;ptid=1085254" target="_blank">areklose 发表于 2021-8-31 14:58</a>
+
+明天9月1日，周三。今天不来个公告吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么能天天做梦呢 该醒了！
+
+
