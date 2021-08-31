@@ -4665,3 +4665,14 @@ TC了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 1909#       发表于 2021-8-31 13:44
+
+
+补了一下tc前面，这头猪好像吃到嘴巴有点上火，担心是口内炎打算明天也就是九月第一件事去看牙医<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+

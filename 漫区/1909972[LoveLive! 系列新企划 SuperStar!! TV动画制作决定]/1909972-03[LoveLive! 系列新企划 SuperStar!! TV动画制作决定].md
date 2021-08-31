@@ -4998,3 +4998,14 @@ https://b23.tv/yAxCHl
 就音宝那cqcq把队友唱笑了的水平那确实得炸锅了<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3402#       发表于 2021-8-31 13:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">经人指点后才发现，星团动画开播前的各种活动（yj的写真拍摄花絮、之前的鬼屋）鲤鱼就和奈子贴的很
+
+
