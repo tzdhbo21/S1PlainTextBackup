@@ -19077,3 +19077,26 @@ MC媒体评分是当天？？？
 2021-8-31 10:32 上传
 
 
+
+
+*****
+
+####  godless2020  
+##### 2923#       发表于 2021-8-31 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52566226&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-31 10:32</a>
+
+英文官推发布了 DLC 【校园生活】 套装的预览图，最后2张是战斗场景内截图</blockquote>
+不知道有没有自带BGM............
+
+
+*****
+
+####  蓝雉  
+##### 2924#       发表于 2021-8-31 12:35
+
+
+说起来奥尔芬的火焰剑居然不像六郎的太刀一样会根据皮肤变外观<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
