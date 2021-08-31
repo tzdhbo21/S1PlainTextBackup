@@ -169,3 +169,17 @@ god乌索普的名气比他爹都高了<img src="https://static.saraba1st.com/im
 后面黑胡子估计也会爆出一个什么惊天血统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  icewolf01  
+##### 55513#       发表于 2021-8-31 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571989&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-8-31 17:43</a>
+
+后面黑胡子估计也会爆出一个什么惊天血统</blockquote>
+黑胡子的特殊体质就可以拿出来大谈特谈
+
+

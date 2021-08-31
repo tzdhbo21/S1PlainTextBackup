@@ -5470,3 +5470,38 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 数据在这个其实还可以，不过还是得看花田大老师接下来怎么搞
 
 
+
+
+*****
+
+####  emmer  
+##### 3445#       发表于 2021-8-31 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571114&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-31 16:45</a>
+
+鲤鱼和nako关系真好</blockquote>
+关爱弱智的仙女.jpg
+
+
+*****
+
+####  张威克  
+##### 3446#       发表于 2021-8-31 19:20
+
+
+这个译名够接地气的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202108/31/191904uew8hewfhh7wz17v.png" referrerpolicy="no-referrer">
+
+
+<strong>爱与演唱会.png</strong> (5.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-31 19:19 上传
+
+
+（超级明星真的太土了
+
+

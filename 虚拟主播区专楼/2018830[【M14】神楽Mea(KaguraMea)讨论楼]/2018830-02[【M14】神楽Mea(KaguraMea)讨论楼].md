@@ -4858,3 +4858,137 @@ syl，东京20点播
 _(-ω-`_)⌒)_可能吧
 
 
+
+
+*****
+
+####  T_Hb  
+##### 1927#       发表于 2021-8-31 19:02
+
+
+今天兴致很高啊
+
+
+*****
+
+####  yywzjsw  
+##### 1928#       发表于 2021-8-31 19:03
+
+
+今天声音有些小呢
+
+
+*****
+
+####  T_Hb  
+##### 1929#       发表于 2021-8-31 19:04
+
+
+ 本帖最后由 T_Hb 于 2021-8-31 19:08 编辑 
+
+我每次都是音量拉到100的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今天状态真好啊
+
+
+*****
+
+####  时间在我手中  
+##### 1930#       发表于 2021-8-31 19:06
+
+
+竟然直接开唱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1931#       发表于 2021-8-31 19:08
+
+
+平常拉到一半就够了，今天拉满还小
+
+
+*****
+
+####  时间在我手中  
+##### 1932#       发表于 2021-8-31 19:10
+
+
+是有点小，不过还好，反正我耳机音量没小过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aisakahammer  
+##### 1933#       发表于 2021-8-31 19:11
+
+
+看到房管带个脆鲨牌子，笑嘻了
+
+
+*****
+
+####  时间在我手中  
+##### 1934#       发表于 2021-8-31 19:14
+
+
+没给你带凑阿夸很给面子了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 1935#       发表于 2021-8-31 19:15
+
+
+ 本帖最后由 T_Hb 于 2021-8-31 19:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播间摆放毫无美感，这横幅怎么挡到我大水袋了
+
+
+*****
+
+####  时间在我手中  
+##### 1936#       发表于 2021-8-31 19:16
+
+
+红体白框，死肥婆真有你的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 1937#       发表于 2021-8-31 19:16
+
+
+牛皮广告
+
+
+*****
+
+####  Rem-清曲  
+##### 1938#       发表于 2021-8-31 19:19
+
+
+今天声音好像确实小了很多
+
+
+*****
+
+####  T_Hb  
+##### 1939#       发表于 2021-8-31 19:20
+
+
+3首没拉了，我甚至有点不习惯
+
+
+*****
+
+####  时间在我手中  
+##### 1940#       发表于 2021-8-31 19:23
+
+
+别清唱了，赶紧来パプリカ
+
+

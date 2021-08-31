@@ -18611,3 +18611,35 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 5948#       发表于 2021-8-31 19:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571110&amp;ptid=1570791" target="_blank">クー子 发表于 2021-8-31 16:45</a>
+
+前面的联动服装卡池为什么多出来一张服装券？
+
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+推特活动多出来的or上次活动交换过。多出来的活动结束时会自动变成金币。如果上次活动刷完了那么这次会多出34张。
+
+
+*****
+
+####  江戸前ルナ  
+##### 5949#       发表于 2021-8-31 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571110&amp;ptid=1570791" target="_blank">クー子 发表于 2021-8-31 16:45</a>
+
+前面的联动服装卡池为什么多出来一张服装券？
+
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+你如果前面的活动服装券池子还是亮的就要继续抽，因为这次除了衣服还会追加一副眼镜。抽到抽卡按钮黑了才行。按钮黑了后的票真是真正多出来的票。
+
+

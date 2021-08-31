@@ -9871,3 +9871,24 @@ bloom这卖得和2nd孰高孰低
 bora看来是预定了2042出来后继续和队友开黑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 6757#       发表于 2021-8-31 19:13
+
+
+<img src="https://img.saraba1st.com/forum/202108/31/191114th6u5uezl4p647hq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>「3.0」Brushup!!　6名に実装決定！「3.0」Brushup!!　6名に実装決定！.jpeg.jpeg</strong> (628.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-31 19:11 上传
+
+
+补个图，織姫星三人齐了，smc差夜见
+
+
