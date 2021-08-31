@@ -8259,3 +8259,41 @@ PV的三维建模是不是有些直接用了TE的？</blockquote>
 那现在可不得沉迷假纸片人了么<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 581#       发表于 2021-8-31 10:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52565920&amp;ptid=1860817" target="_blank">轮太 发表于 2021-8-31 10:12</a>
+
+大龄，GAL玩家，日语水平相对较高
+
+那现在可不得沉迷假纸片人了么</blockquote>
+沉迷纸片人和沉迷管人还有点距离吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+难道二刺螈还包括管人了？
+
+
+*****
+
+####  轮太  
+##### 582#       发表于 2021-8-31 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52566196&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-8-31 10:30</a>
+
+沉迷纸片人和沉迷管人还有点距离吧
+
+
+难道二刺螈还包括管人了？</blockquote>
+假纸片人嘛
+
+我身边的部分老年官人吃早期确实是把日V当现实纸片人看的
+
+这几年又没有什么gal可以玩只能去这种地方找老婆了
+
+

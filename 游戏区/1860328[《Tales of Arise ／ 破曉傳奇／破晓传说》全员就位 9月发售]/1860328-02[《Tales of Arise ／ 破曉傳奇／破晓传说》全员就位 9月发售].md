@@ -19006,3 +19006,74 @@ MC媒体评分是当天？？？
 让我们来看看这个主题在发售前能不能积累到3000回复<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 2922#       发表于 2021-8-31 10:32
+
+
+英文官推发布了 DLC 【校园生活】 套装的预览图，最后2张是战斗场景内截图
+
+
+<img src="https://img.saraba1st.com/forum/202108/31/103208zycphyc3tcyxspct.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (233.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-31 10:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/31/103208mdqei60di6tmdm90.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (318.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-31 10:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/31/103209kn88fg2818t8ex8w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (208.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-31 10:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/31/103209vjcwyjty0jjaexej.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4.jpg</strong> (272.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-31 10:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/31/103209n5e87f8sz0fxj7rg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5.jpg</strong> (540.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-31 10:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202108/31/103210ga1l6lksnfgjvkqa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6.jpg</strong> (524.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-31 10:32 上传
+
+
