@@ -5,6 +5,9 @@ name: S1AutoBackup
 
 on: 
   workflow_dispatch:
+  schedule:
+  # * is a special character in YAML so you have to quote this string
+    - cron:  '13,33,53 */1 * * *'
 jobs:
   # AddThreads:
   #   runs-on: ubuntu-latest
