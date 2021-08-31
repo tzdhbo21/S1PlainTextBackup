@@ -9840,3 +9840,14 @@ bloom这卖得和2nd孰高孰低
 2nd我记得陆陆续续卖了蛮久来着1w肯定有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  真飞鸟i  
+##### 6754#       发表于 2021-8-31 17:24
+
+
+2nd初动比这高个2k左右吧好像，最终累计1w4左右？但是bloom还卖了1w多动画吧，不好比。
+
+

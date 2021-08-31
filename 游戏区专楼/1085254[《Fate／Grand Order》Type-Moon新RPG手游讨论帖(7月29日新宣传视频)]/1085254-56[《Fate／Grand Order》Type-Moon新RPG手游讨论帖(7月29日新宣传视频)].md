@@ -8310,3 +8310,26 @@ yxb什么的前几年都是拿sensor tower的数据来宣传的，今年sensor t
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 83195#       发表于 2021-8-31 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571376&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-31 17:01</a>
+
+居然有事发生---》出了个封禁公告</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你醒啦？那个一小时前就发了
+
+
+*****
+
+####  areklose  
+##### 83196#       发表于 2021-8-31 17:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天看来是复刻了
+
+

@@ -19206,3 +19206,49 @@ xbox上怎么买是最划算的？
 TO系列我基本只参考FAMI和日亚的用户评价
 
 
+
+
+*****
+
+####  司马千晶  
+##### 2933#       发表于 2021-8-31 17:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从之前国内各大媒体直播试玩版那个惨状来看，也就UCG那哥俩还能写点有价值的玩意吧。
+
+
+*****
+
+####  人如其名  
+##### 2934#       发表于 2021-8-31 17:46
+
+
+steam预购了基础版，等10号
+
+
+*****
+
+####  sdfzzha  
+##### 2935#       发表于 2021-8-31 17:51
+
+
+ 本帖最后由 sdfzzha 于 2021-8-31 17:52 编辑 
+
+steam发售日期为什么改成9月9日了？之前看还是9月10日。
+
+
+更新：刷新了一次又改回10号了，估计是我的问题<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  塔奇克马  
+##### 2936#       发表于 2021-8-31 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52566226&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-8-31 10:32</a>
+
+英文官推发布了 DLC 【校园生活】 套装的预览图，最后2张是战斗场景内截图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">盾女这黑丝...
+
+

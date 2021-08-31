@@ -144,3 +144,28 @@ god乌索普的名气比他爹都高了<img src="https://static.saraba1st.com/im
 主要还是god菜得令人迷惑，浪费了这两年锻炼回来的肌肉
 
 
+
+
+*****
+
+####  cashhellsing  
+##### 55511#       发表于 2021-8-31 17:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52544668&amp;ptid=98922" target="_blank">苟富贵daze 发表于 2021-8-29 11:34</a>
+三大主力身世都不一般啊，海贼团其他人是不是也要跟进</blockquote>
+现在回头看，路飞在上空岛之前和黑胡子关于梦想那一幕，太讽刺了，现在的op里没有家世和血脉是不配有梦想的
+
+
+*****
+
+####  白金口袋  
+##### 55512#       发表于 2021-8-31 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571922&amp;ptid=98922" target="_blank">cashhellsing 发表于 2021-8-31 03:37</a>
+
+现在回头看，路飞在上空岛之前和黑胡子关于梦想那一幕，太讽刺了，现在的op里没有家世和血脉是不配有梦想 ...</blockquote>
+后面黑胡子估计也会爆出一个什么惊天血统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
