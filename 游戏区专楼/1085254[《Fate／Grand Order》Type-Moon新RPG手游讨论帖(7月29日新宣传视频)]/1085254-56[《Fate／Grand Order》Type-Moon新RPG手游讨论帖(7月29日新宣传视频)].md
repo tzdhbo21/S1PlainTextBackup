@@ -8395,3 +8395,38 @@ yxb什么的前几年都是拿sensor tower的数据来宣传的，今年sensor t
 （贵啊
 
 
+
+
+*****
+
+####  areklose  
+##### 83202#       发表于 2021-8-31 20:25
+
+
+反正我不敢买谷歌卡了。限制太死
+
+
+*****
+
+####  alucardcz  
+##### 83203#       发表于 2021-8-31 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52573435&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-8-31 20:03</a>
+
+（贵啊</blockquote>
+（你有钱啊
+
+
+*****
+
+####  黑上シグマ  
+##### 83204#       发表于 2021-8-31 20:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52573676&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-8-31 20:27</a>
+
+（你有钱啊</blockquote>
+（是什么让你产生了这样的错觉
+
+
