@@ -5893,3 +5893,17 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 之前鲤鱼就让佩酱叫她姐姐吧
 
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 3479#       发表于 2021-9-1 00:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575566&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-08-31 23:14:57</a>
+鬼佬们嘛，讨论这都能扯到中美………………</blockquote>二刺猿建政是传统<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看P小将的样子就知道鬼佬也是差不多样子
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

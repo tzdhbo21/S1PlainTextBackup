@@ -10102,3 +10102,38 @@ selen，红毛，星辰（虽然没脑子但是枪确实强），bora是一级�
 倒不如说，她套皮就是证明自己从头开始百万都唾手可得吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 6774#       发表于 2021-9-1 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52574897&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-8-31 22:13</a>
+补图，所以现在虹FPS战力梯队是什么样子？
+
+Selen&gt;bora&gt;条子oba&gt;（？）星宸&gt;黑毛axia&gt;nrk&gt;千&gt;&gt;黑黑噗油&gt;七 ...</blockquote>
+id那边bonnie也要算上吧，元csgo职业，还赢过tournament，实力不错的
+
+
+*****
+
+####  winda  
+##### 6775#       发表于 2021-9-1 00:26
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/002557ejeha588zkeh8f06.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210831_201950.jpg</strong> (153.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-9-1 00:25 上传
+
+
+azulim后辈今（昨）天直播秀了下泳装
+
+

@@ -6445,3 +6445,14 @@ Windows 8和8.1都是靠Classic Shell过的
 最近beta版更新了前天绿屏，今天开机黑屏能看到鼠标狂转只能强制关闭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  faithlifer  
+##### 534#       发表于 2021-9-1 00:29
+
+
+11玩空轨steam汉化版会闪退，有人救救吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
