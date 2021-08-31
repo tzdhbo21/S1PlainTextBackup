@@ -5154,3 +5154,143 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 什么叫又？ 虹在部分人眼里一直是另类，日本5CH粪坑上的很多原教旨拉拉人从来不把虹当拉拉的，从一开始就是。
 
 
+
+
+*****
+
+####  lj205  
+##### 3417#       发表于 2021-8-31 16:41
+
+
+初动出来了，24809
+
+
+*****
+
+####  Norkey1  
+##### 3418#       发表于 2021-8-31 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571038&amp;ptid=1909972" target="_blank">we89623 发表于 2021-8-31 16:40</a>
+什么叫又？ 虹在部分人眼里一直是另类，日本5CH粪坑上的很多原教旨拉拉人从来不把虹当拉拉的，从一开始就 ...</blockquote>
+呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 3419#       发表于 2021-8-31 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52570487&amp;ptid=1909972" target="_blank">lj205 发表于 2021-8-31 15:59</a>
+
+只要承认星团最差就行了</blockquote>
+啥意思？不懂你什么？ 星团哪里差了？ 四月才出道成员这个表现完全是历代最好的吧
+
+
+*****
+
+####  阿姆罗二世  
+##### 3420#       发表于 2021-8-31 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571056&amp;ptid=1909972" target="_blank">lj205 发表于 2021-08-31 16:41:39</a>
+初动出来了，24809</blockquote>和虹差不多
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+*****
+
+####  寒风夜  
+##### 3421#       发表于 2021-8-31 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571098&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-31 16:44</a>
+
+啥意思？不懂你什么？ 星团哪里差了？ 四月才出道成员这个表现完全是历代最好的吧 ...</blockquote>
+人家不反讽么
+
+
+*****
+
+####  黑雪姫  
+##### 3422#       发表于 2021-8-31 16:45
+
+
+鲤鱼和nako关系真好
+
+<img src="http://wx3.sinaimg.cn/mw690/001bJkYtgy1gtzu5a7utig60dc07i4qp02.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3423#       发表于 2021-8-31 16:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571098&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-31 16:44</a>
+
+啥意思？不懂你什么？ 星团哪里差了？ 四月才出道成员这个表现完全是历代最好的吧 ...</blockquote>
+别激动，我是针对外面的贴说的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3424#       发表于 2021-8-31 16:46
+
+
+自身最高吧
+
+
+*****
+
+####  黑雪姫  
+##### 3425#       发表于 2021-8-31 16:49
+
+
+官方还想让你们入可香<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/mw690/005KgHjily1gty2azvnylj31uc1acnpe.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/mw690/006px52Nly1gtzqir5dirj60u02mbgv502.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/mw690/005KgHjily1gty2axe8lyj31uc1ackjm.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/mw690/006px52Nly1gtzqirnh6sj60u02t6ak602.jpg" referrerpolicy="no-referrer">
+
+
+翻译作者见水印
+
+
+*****
+
+####  蜜梨柑  
+##### 3426#       发表于 2021-8-31 16:50
+
+
+配信首周还不错的样子，两首主打都有3500+，对比ed的2200高不少
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 3427#       发表于 2021-8-31 16:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52571187&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-31 16:49</a>
+
+官方还想让你们入可香</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 3428#       发表于 2021-8-31 17:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹那边官宣米娅和岚珠入队了
+
+

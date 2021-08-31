@@ -19173,3 +19173,36 @@ MC媒体评分是当天？？？
 好酸
 
 
+
+
+*****
+
+####  医生狼多  
+##### 2930#       发表于 2021-8-31 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52561693&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-8-30 21:44</a>
+MC媒体评分是当天？？？</blockquote>
+9.8晚10点
+
+
+*****
+
+####  dbz9643  
+##### 2931#       发表于 2021-8-31 16:49
+
+
+xbox上怎么买是最划算的？
+
+
+*****
+
+####  qiyu1234  
+##### 2932#       发表于 2021-8-31 16:59
+
+
+不知道FAMI通下周杂志能不能出评分
+
+TO系列我基本只参考FAMI和日亚的用户评价
+
+

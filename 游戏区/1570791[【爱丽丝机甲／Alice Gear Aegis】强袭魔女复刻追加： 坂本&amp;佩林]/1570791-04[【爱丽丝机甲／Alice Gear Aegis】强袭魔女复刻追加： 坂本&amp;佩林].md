@@ -18598,3 +18598,16 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 刷了两周才把升天音分支炮筒的眼珠子开出来，算是给抽角色的手气还债了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  クー子  
+##### 5947#       发表于 2021-8-31 16:45
+
+
+前面的联动服装卡池为什么多出来一张服装券？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

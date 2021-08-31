@@ -1085,3 +1085,21 @@ chrome经常过夜消失，还以为怎么回事呢，这下找到了
 难怪最近b站播视频总是卡
 
 
+
+
+*****
+
+####  尔乃美家累  
+##### 95#       发表于 2021-8-31 17:05
+
+
+有些视频确实换canvas渲染了，大概看了下貌似是由wasm负责解码，把解码后的数据不知道怎么处理然后丢到了canvas上，然后canvas绘图上用了webgl进行渲染
+
+<img src="https://z3.ax1x.com/2021/08/31/hafM0H.png" referrerpolicy="no-referrer">
+
+<img src="https://z3.ax1x.com/2021/08/31/haf8ht.png" referrerpolicy="no-referrer">
+
+
+看到了组件里有video标签，然后实际画中画功能的时候也用了video标签的captureStream实现，所以感觉解码出来的内容应该还是丢给video标签了，也就是说，实际上这个新播放器是能剥离canvas直接使用video标签渲染的（除非一些情况下video标签无法展示内容）
+
+
