@@ -8297,3 +8297,28 @@ PV的三维建模是不是有些直接用了TE的？</blockquote>
 这几年又没有什么gal可以玩只能去这种地方找老婆了
 
 
+
+
+*****
+
+####  Toby_dak  
+##### 583#       发表于 2021-9-1 01:58
+
+
+ 本帖最后由 Toby_dak 于 2021-9-1 03:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52564043&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-8-31 05:50</a>
+
+动画项目和游戏项目的建模有可能通用，或者都来自3D公司的高精度模型吗？ ...</blockquote>
+不同项目要以事论事，不能一概而论。
+
+去年的新樱战，游戏的3D是三次元负责，TV动画也是它，所以建模通用没问题。
+
+Muv-Luv这次项目，tororo带的手游项目，明显跟TV的graphinica是不同开发团队。手游PV出现的战术机感觉就跟TV的不也一样。至于说ALT TV PV直接用了TE TV的建模就更加无稽之谈，首先是不一样的制作公司，其次时间差了多少年？拿N年前别的公司的建模另存复制出来就能赚钱，世界哪有这么好的工作？是当出资人都是傻子吗？还是不尊重TV动画制作团队的工作？
+
+
+再举个不合适例子，机战OG系列模型之前都是寿屋出的，最近BANDAI也开始出了。
+[https://bbs.saraba1st.com/2b/thread-2011714-1-1.html](https://bbs.saraba1st.com/2b/thread-2011714-1-1.html)
+
+同样是机器人，同样是模型，为什么没人说BANDAI拿寿屋的开模直接用？
+
+
