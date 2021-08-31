@@ -11966,3 +11966,19 @@ vr就这点好<img src="https://static.saraba1st.com/image/smiley/face2017/062.g
 突然想起来这周五就三周年了，绫总推特给点说法啊
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13030#       发表于 2021-8-31 11:49
+
+
+之前开台练字的破T真的要卖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl绫总还能有什么说法 顶多两天前发推记得来看
+
+卍组现在都躺平了 当天solo 中场找一两个熟人 最后宣传新歌和周边完事
+
+
