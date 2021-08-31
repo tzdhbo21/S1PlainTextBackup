@@ -6377,3 +6377,23 @@ Windows 8和8.1都是靠Classic Shell过的
 10月5号就出了 这个日子只是针对新设备 而且还没运行 android app 的能力…
 
 
+
+
+*****
+
+####  qazesz  
+##### 528#       发表于 2021-8-31 22:20
+
+
+不出所料拉了一裤裆
+
+
+*****
+
+####  雷之  
+##### 529#       发表于 2021-8-31 22:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不搞安卓，不会被砍掉吧
+
+

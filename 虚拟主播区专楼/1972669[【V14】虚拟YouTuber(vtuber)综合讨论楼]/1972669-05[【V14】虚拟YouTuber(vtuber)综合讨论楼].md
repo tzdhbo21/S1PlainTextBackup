@@ -10015,3 +10015,37 @@ Syl，夜见没跟bora说过一句话，本来以为这联动是meari当中间�
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">25杀5900匹配有点厉害了 boracp来了
 
 
+
+
+*****
+
+####  hulaoda007  
+##### 6769#       发表于 2021-8-31 22:09
+
+
+ 本帖最后由 hulaoda007 于 2021-8-31 22:12 编辑 
+
+算了...
+
+
+*****
+
+####  alcoholic1000  
+##### 6770#       发表于 2021-8-31 22:13
+
+
+<img src="https://img.saraba1st.com/forum/202108/31/220418a29jvols8a2052g2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>APEX 笑顔イイね.jpeg</strong> (482.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-8-31 22:04 上传
+
+
+补图，所以现在虹FPS战力梯队是什么样子？
+
+Selen&gt;bora&gt;条子oba&gt;（？）星宸&gt;黑毛axia&gt;nrk&gt;千&gt;&gt;黑黑噗油&gt;七海...？
+
+
