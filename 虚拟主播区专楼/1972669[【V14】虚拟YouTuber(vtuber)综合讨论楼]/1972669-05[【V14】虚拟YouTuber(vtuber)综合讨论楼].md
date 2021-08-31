@@ -10193,3 +10193,36 @@ YTB经常会给主播发视频反馈，会有类似“A视频的播放量不如B
 想做个一听就会大炎上的整蛊企划<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  リスカ  
+##### 6777#       发表于 2021-9-1 03:52
+
+
+魔王様もう大先輩だからね
+
+<img src="https://img.saraba1st.com/forum/202109/01/035115qji339d3z3s6x6vx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210901_034744.jpg</strong> (261.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 03:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/035213ufatluu010zss0nn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210901_034753.jpg</strong> (204.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 03:52 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
