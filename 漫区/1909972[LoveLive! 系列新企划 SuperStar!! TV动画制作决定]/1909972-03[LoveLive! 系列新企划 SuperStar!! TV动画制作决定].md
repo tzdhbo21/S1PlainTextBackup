@@ -5907,3 +5907,37 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  名津流  
+##### 3480#       发表于 2021-9-1 01:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52575926&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-8-31 23:54</a>
+
+额，好吧，有人知道是第几期吗？</blockquote>
+[https://www.bilibili.com/video/BV18p4y1h7E9](https://www.bilibili.com/video/BV18p4y1h7E9)
+
+发动群友找了一下，这期上节目时的介绍视频里有提到和liyuu同路电车，liyuu还让佩顿叫她姐姐
+
+
+看来应该是不止一处地方提到她俩通勤是一起的这件事的吧，除了3475楼提到的杂志访谈，我也记得在某期广播节目里也提过
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑雪姫| + 1|好评加鹅|
+
+
+查看全部评分
+
+
