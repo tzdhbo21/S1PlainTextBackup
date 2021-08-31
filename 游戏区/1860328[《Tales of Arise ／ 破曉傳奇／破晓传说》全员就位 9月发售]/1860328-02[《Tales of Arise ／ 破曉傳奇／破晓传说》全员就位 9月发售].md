@@ -19252,3 +19252,25 @@ steam发售日期为什么改成9月9日了？之前看还是9月10日。
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">盾女这黑丝...
 
 
+
+
+*****
+
+####  蓝雉  
+##### 2937#       发表于 2021-8-31 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52572200&amp;ptid=1860328" target="_blank">塔奇克马 发表于 2021-8-31 17:58</a>
+盾女这黑丝...</blockquote>
+我怀疑岩本设计时在玩风花雪月，女主这发型就差个红秋裤了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 2938#       发表于 2021-8-31 18:27
+
+
+好急 还有一周多才能玩
+
+

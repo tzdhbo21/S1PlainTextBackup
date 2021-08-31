@@ -9851,3 +9851,23 @@ bloom这卖得和2nd孰高孰低
 2nd初动比这高个2k左右吧好像，最终累计1w4左右？但是bloom还卖了1w多动画吧，不好比。
 
 
+
+
+*****
+
+####  FCCHua  
+##### 6755#       发表于 2021-8-31 18:12
+
+
+新一批3.0来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 6756#       发表于 2021-8-31 18:32
+
+
+bora看来是预定了2042出来后继续和队友开黑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
