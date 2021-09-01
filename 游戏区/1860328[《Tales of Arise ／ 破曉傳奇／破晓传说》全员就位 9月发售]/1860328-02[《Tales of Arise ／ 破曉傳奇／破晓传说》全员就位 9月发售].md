@@ -19668,3 +19668,39 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
 看这个奖杯列表，意思是dlc居然给新技能，让我想起来toz当初dlc给新秘奥义了
 
 
+
+
+*****
+
+####  moekyo  
+##### 2969#       发表于 2021-9-1 20:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52586974&amp;ptid=1860328" target="_blank">前途飘飘 发表于 2021-9-1 19:51</a>
+
+我当初是溢价300块买的国行……XGP太划算了以至于溢点价我觉得也能接受。日版的信道问题好像是有解法的， ...</blockquote>
+现在将近700<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，只能再等等了
+
+
+*****
+
+####  索田八公  
+##### 2970#       发表于 2021-9-1 20:17
+
+
+300小剧场也不是特别多，tob有435个，不过不知道这个300是全收集还是不用全收集的数量要求
+
+
+
+
+*****
+
+####  蓝雉  
+##### 2971#       发表于 2021-9-1 20:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52587312&amp;ptid=1860328" target="_blank">索田八公 发表于 2021-9-1 20:17</a>
+300小剧场也不是特别多，tob有435个，不过不知道这个300是全收集还是不用全收集的数量要求 ...</blockquote>
+纳尼，tob有这么多的吗？我都没感觉出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
