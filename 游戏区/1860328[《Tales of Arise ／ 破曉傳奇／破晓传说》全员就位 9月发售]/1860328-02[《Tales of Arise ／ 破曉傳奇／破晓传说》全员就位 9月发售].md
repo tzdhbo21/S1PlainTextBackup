@@ -19546,3 +19546,14 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
 我也没猜出是谁，感觉有点谜语人，我觉得可能是泽罗斯
 
 
+
+
+*****
+
+####  蓝雉  
+##### 2958#       发表于 2021-9-1 15:30
+
+
+小剧场有300个以上<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
