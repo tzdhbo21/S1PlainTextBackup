@@ -5985,3 +5985,16 @@ https://m.weibo.cn/5874089609/4676193703957055有人翻译了杂志可香的内�
 因为菜宝就是比鲤鱼大几个月啊
 
 
+
+
+*****
+
+####  cqc1021  
+##### 3485#       发表于 2021-9-1 09:46
+
+
+在推上搜了一下，感觉目前cos唐可可的，没一个比鲤鱼好看的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

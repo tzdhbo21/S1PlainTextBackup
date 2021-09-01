@@ -19325,3 +19325,17 @@ steam发售日期为什么改成9月9日了？之前看还是9月10日。
 话说按现在不再分母舰护航了的情况来看,下一作多半是重制?呼声最大的是幻想还是宿命来着?个人私心是想要风雨复刻,顺便把心灵R圣洁R的异世界坑给填了,最好能以那个世界为主题出个新作,主角团运用系列各作搜罗来的力量战斗啥的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cosmonova  
+##### 2943#       发表于 2021-9-1 09:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52577913&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-9-1 09:18</a>
+
+话说按现在不再分母舰护航了的情况来看,下一作多半是重制?呼声最大的是幻想还是宿命来着?个人私心是想要风 ...</blockquote>
+好像之前在哪儿看的一篇分析 toir和tohr的异世界多半就是toz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
