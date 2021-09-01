@@ -6290,3 +6290,51 @@ liyuu在泥潭能有4分吗
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  cqc1021  
+##### 3511#       发表于 2021-9-1 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52581996&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-1 14:04</a>
+刚好微博看了个太了吧热搜，尬住了</blockquote>
+某宝给李佳琦买的，都炒了好几天了
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  秋月艾莉  
+##### 3512#       发表于 2021-9-1 14:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对日本人发情无所谓，夸几句中国人就开扣饭圈是吧，差不多得了
+
+
+*****
+
+####  damian-wade  
+##### 3513#       发表于 2021-9-1 14:44
+
+
+我是get不到鲤鱼颜的……实际上镜和有滤镜的差距太大，身材高但上镜看起来是骨架大而不是很修长的那种，当然人确实挺努力，配音唱歌跳舞这些本职工作都跟上不拉跨，平时也都懒的唱反调了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 3514#       发表于 2021-9-1 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52581652&amp;ptid=1909972" target="_blank">DarthAka 发表于 2021-9-1 13:38</a>
+是菜宝大一点，而且互相叫姐不很正常么</blockquote>
+我怎么记得是菜宝比鲤鱼小。算了，国内生活过的都是小问题（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -19493,3 +19493,33 @@ TOAR之后的翻新移植作我觉得可能是TOGF
 毕竟前几年传说祭还是某个线下活动里提到过这个
 
 
+
+
+*****
+
+####  LT_Harry  
+##### 2954#         楼主| 发表于 2021-9-1 14:35
+
+
+重度剧透预警⚠没有心理准备不要打开
+
+https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/
+
+
+*****
+
+####  qiyu1234  
+##### 2955#       发表于 2021-9-1 14:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52582468&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-9-1 14:35</a>
+
+重度剧透预警⚠没有心理准备不要打开
+
+
+https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
+比较在意的是某个奖杯应该跟客串角色的任务有关
+
+但我还真想不起来符合描述的是哪对角色？
+
+

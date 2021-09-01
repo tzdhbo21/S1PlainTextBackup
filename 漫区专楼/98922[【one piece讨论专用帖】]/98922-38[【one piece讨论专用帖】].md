@@ -216,3 +216,14 @@ god乌索普的名气比他爹都高了<img src="https://static.saraba1st.com/im
 king的赏金比马尔科高<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  触手皇帝  
+##### 55517#       发表于 2021-9-1 14:35
+
+
+够了，TM的整体御田御田御田御田御田直接让御田做海贼王算了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
