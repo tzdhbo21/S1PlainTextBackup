@@ -10395,3 +10395,25 @@ AVALON研究生 / 花京院ちえり / GEMS COMPANY / 白雪みしろ / Palette 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">kr第一个新人初配信第一句蹦出来时日语
 
 
+
+
+*****
+
+####  free  
+##### 6788#       发表于 2021-9-1 19:48
+
+
+[https://www.youtube.com/watch?v=DvCshxI3sxY](https://www.youtube.com/watch?v=DvCshxI3sxY)
+
+【歌ってみた】六等星の夜 - Aimer covered by 明透
+
+
+*****
+
+####  FCCHua  
+##### 6789#       发表于 2021-9-1 19:48
+
+
+kr新男人在apex方面说的也太详细了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

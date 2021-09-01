@@ -19631,3 +19631,17 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
   法师妹子确实挺umb，本作最喜欢的角色了，不知道到时候有没有人画黄图
 
 
+
+
+*****
+
+####  moekyo  
+##### 2966#       发表于 2021-9-1 19:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52586504&amp;ptid=1860328" target="_blank">前途飘飘 发表于 2021-9-1 19:16</a>
+
+看下XGP里面有没有想玩的游戏，我觉得无论如何都亏不了。</blockquote>
+最近去搜了一下，这个已经不成问题，现在的问题是，根本买不到原价国行，日版又说会手柄断连，隔壁那楼说蹲微软官网，可是我就没看过显示有货的，总之还是难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
