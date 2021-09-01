@@ -10590,3 +10590,17 @@ piano みなみ様 @_minami_nanami_
 梅丽莎要3d了点进去看了一下，你们歌势都喜欢大a特a是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 6801#       发表于 2021-9-2 07:17
+
+
+https://note.com/futashika/n/na5902f5696d9
+看了一下隔壁，没想到当年没下文的辉夜月的后辈们以这种形式出现了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+pph能出道反而不知道是福是祸了。
+结果现在也毕业了
+
+
