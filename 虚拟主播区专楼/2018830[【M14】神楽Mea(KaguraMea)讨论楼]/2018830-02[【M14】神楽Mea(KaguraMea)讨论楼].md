@@ -5718,3 +5718,26 @@ cry baby都唱这么好了
 问题不大 今晚我也输了一整晚大乱斗 我和小麻贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 2009#       发表于 2021-9-1 23:09
+
+
+窗外下着雨，想到她一天没播，感觉这人真的无情<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，有种黑暗中牵着的手忽然松开的感觉。
+命运的相逢，从此刻印在灵魂上无法磨灭
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Klience  
+##### 2010#       发表于 2021-9-1 23:15
+
+
+没播就去干别的事情呗 打游戏也好 看电影也好  追番也好 总有其他消遣时间的方式 今晚总算把那30场都刷完了 结果宝珠给了我穿星魔峰赵信还行 虽然我不怎么玩赵信<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
