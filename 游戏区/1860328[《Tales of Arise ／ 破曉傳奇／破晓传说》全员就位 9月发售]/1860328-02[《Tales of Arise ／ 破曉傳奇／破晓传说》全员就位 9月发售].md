@@ -19523,3 +19523,26 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
 但我还真想不起来符合描述的是哪对角色？
 
 
+
+
+*****
+
+####  assdfe123  
+##### 2956#       发表于 2021-9-1 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52579350&amp;ptid=1860328" target="_blank">塔奇克马 发表于 2021-9-1 11:02</a>
+
+想到那谁谁了</blockquote>
+泥潭日常迫害的莓？<img src="https://static.saraba1st.com/image/smiley/carton2017/281.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  司马千晶  
+##### 2957#       发表于 2021-9-1 15:24
+
+
+我也没猜出是谁，感觉有点谜语人，我觉得可能是泽罗斯
+
+

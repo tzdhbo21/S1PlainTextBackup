@@ -6338,3 +6338,86 @@ liyuu在泥潭能有4分吗
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  ads147147  
+##### 3515#       发表于 2021-9-1 14:49
+
+
+个人来说还是吃青山的颜，哪怕是折腾外星活的时候（
+
+鲤鱼这都算不行，泥潭要求到底有多高。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  离心  
+##### 3516#       发表于 2021-9-1 14:51
+
+
+我个人看来星团的cv颜值担当还是青山。大家都好看。但青山的气质还是很突出的
+
+
+*****
+
+####  Norkey1  
+##### 3517#       发表于 2021-9-1 14:53
+
+
+青山+1
+就是发型不太行啊，她那活我可最爱看了
+
+
+*****
+
+####  cybernetics31  
+##### 3518#       发表于 2021-9-1 14:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52582649&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-1 14:48</a>
+我怎么记得是菜宝比鲤鱼小。算了，国内生活过的都是小问题（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菜宝96，鱼97，其实就差半年，鱼叫姐倒也没啥错
+
+
+*****
+
+####  chenflyyy  
+##### 3519#       发表于 2021-9-1 14:56
+
+
+青山散发真的t0水平，所以为什么非得契合角色发型啊
+
+
+*****
+
+####  lj205  
+##### 3520#       发表于 2021-9-1 15:00
+
+
+鲤鱼就是滤镜感觉比较幼，不加倒是有种更成熟这种感觉
+
+
+*****
+
+####  优妮可  
+##### 3521#       发表于 2021-9-1 15:06
+
+
+nako散发也不错的，还有爱爱。
+
+
+*****
+
+####  kata魂  
+##### 3522#       发表于 2021-9-1 15:16
+
+
+nako丸子头的时候，好想捏脸
+
+

@@ -18779,3 +18779,18 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 要不就是多pu，要不就是单pu
 
 
+
+
+*****
+
+####  Rincewind  
+##### 5959#       发表于 2021-9-1 15:14
+
+
+插播一则消息:
+你游大约50%的活动bgm(包括探险队和RPG等等，以及这次的小裤裤联动关卡bgm)作曲者下田祐昨天宣布从TAITO离职。
+八成是被炒了。
+
+—— 来自 Xiaomi Redmi K30i 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
