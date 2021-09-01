@@ -10473,3 +10473,38 @@ Na声音还挺可爱的，马猴烧酒爱抖露
 好像…变声器…
 
 
+
+
+*****
+
+####  patema  
+##### 6794#       发表于 2021-9-1 20:50
+
+
+又一个king粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  格林卡罗尔  
+##### 6795#       发表于 2021-9-1 20:51
+
+
+ 本帖最后由 格林卡罗尔 于 2021-9-1 20:52 编辑 
+
+居然首播就在聊豆猫，可真受欢迎
+
+还画了fanart
+
+<img src="https://img.saraba1st.com/forum/202109/01/205149jzyiwnvynnzfdyiv.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210901205135.png</strong> (98.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 20:51 上传
+
+

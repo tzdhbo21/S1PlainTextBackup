@@ -6689,3 +6689,90 @@ nako丸子头的时候，好想捏脸
 我开始怀疑上尉这是故意整活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（要不然就算其他人没发现鲤鱼姐这个老手总该发现了吧
 
 
+
+
+*****
+
+####  c.wenge  
+##### 3545#       发表于 2021-9-1 20:48
+
+
+<blockquote>megapikachu 发表于 2021-9-1 12:15
+我看你们都需要接受鲤鱼推特下那位美国老哥的再教育</blockquote>
+美国老哥怎么了
+
+
+*****
+
+####  优妮可  
+##### 3546#       发表于 2021-9-1 20:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52587709&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-1 20:44</a>
+
+我开始怀疑上尉这是故意整活了（要不然就算其他人没发现鲤鱼姐这个老手总该发现了吧
+
+ ...</blockquote>
+所以这是故意引诱鲤鱼教她p图是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AlfredXC  
+##### 3547#       发表于 2021-9-1 20:51
+
+
+说不定是故意的呢，是一种更高段位的あざとい，营造出一种想耍小心机但又没有经验、有些笨拙的形象，反而更让人觉得单纯可爱
+
+
+*****
+
+####  megapikachu  
+##### 3548#       发表于 2021-9-1 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52587783&amp;ptid=1909972" target="_blank">c.wenge 发表于 2021-9-1 20:48</a>
+
+美国老哥怎么了</blockquote>
+鲤鱼有个粉丝是个美国老哥（好像是亚利桑那的吧），你在鲤鱼的推特经常能见到他。因为鲤鱼的缘故，还开始学中文。
+
+
+*****
+
+####  cybernetics31  
+##### 3549#       发表于 2021-9-1 20:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52587860&amp;ptid=1909972" target="_blank">megapikachu 发表于 2021-9-1 20:53</a>
+
+鲤鱼有个粉丝是个美国老哥（好像是亚利桑那的吧），你在鲤鱼的推特经常能见到他。因为鲤鱼的缘故，还开始 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那位老哥好看的cos都关注了一圈的 属于各处d那种
+
+
+*****
+
+####  chenflyyy  
+##### 3550#       发表于 2021-9-1 20:58
+
+
+那个老哥我还在B站上看到过几次，不过他可能对lovelive不是很了解，更多是喜欢作为coser的鲤鱼
+
+
+*****
+
+####  AlfredXC  
+##### 3551#       发表于 2021-9-1 21:03
+
+
+那老哥非常铁杆了，我感觉基本鲤鱼每条推下面都能看到他
+
+
+*****
+
+####  AlfredXC  
+##### 3552#       发表于 2021-9-1 21:07
+
+
+下面也有因为喜欢鲤鱼学中文的日本人
+
+

@@ -19704,3 +19704,16 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
 纳尼，tob有这么多的吗？我都没感觉出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  中泽君  
+##### 2972#       发表于 2021-9-1 20:55
+
+
+小剧场还是要看质量吧，记得以前挺多那种指引性的，就一个人出来说两句话
+
+现在这种应该都做成战后对话那种形式吧
+
+
