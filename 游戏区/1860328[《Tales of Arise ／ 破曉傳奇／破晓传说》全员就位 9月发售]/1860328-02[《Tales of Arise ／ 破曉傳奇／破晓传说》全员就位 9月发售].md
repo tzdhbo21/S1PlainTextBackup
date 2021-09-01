@@ -19339,3 +19339,14 @@ steam发售日期为什么改成9月9日了？之前看还是9月10日。
 好像之前在哪儿看的一篇分析 toir和tohr的异世界多半就是toz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  七氷  
+##### 2944#       发表于 2021-9-1 10:43
+
+
+在印度服预购了终极版，在港服怎么不显示拥有<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
