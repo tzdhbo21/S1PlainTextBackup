@@ -5650,3 +5650,71 @@ cry baby都唱这么好了
 今天那叫一个摸的透彻
 
 
+
+
+*****
+
+####  雪风utopia  
+##### 2002#       发表于 2021-9-1 22:27
+
+
+我的小麻呢<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rosevalley46  
+##### 2003#       发表于 2021-9-1 22:29
+
+
+做三休一了属于是
+
+
+*****
+
+####  T_Hb  
+##### 2004#       发表于 2021-9-1 22:29
+
+
+ 本帖最后由 T_Hb 于 2021-9-1 22:31 编辑 
+
+今天如果没有牙医段子，我不是很能接受
+让我猜猜是金发mikey型，还是白衣大奶型
+
+
+*****
+
+####  2014720  
+##### 2005#       发表于 2021-9-1 22:30
+
+
+老三和大神了，今天lol有超神吗
+
+
+*****
+
+####  Klience  
+##### 2006#       发表于 2021-9-1 22:44
+
+
+大乱斗艾克和上单波比超鬼了 一个2/10 一个3/8 估计被对面下路德莱文砍得麻都不认识了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2007#       发表于 2021-9-1 22:46
+
+
+大家没直播看，101民升高了血压，你麻被打的妈都不认识，all lose了
+
+
+*****
+
+####  Klience  
+##### 2008#       发表于 2021-9-1 22:50
+
+
+问题不大 今晚我也输了一整晚大乱斗 我和小麻贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+

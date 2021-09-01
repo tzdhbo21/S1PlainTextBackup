@@ -289,3 +289,14 @@ king的赏金比马尔科高<img src="https://static.saraba1st.com/image/smiley/
 zzzq终于要拳打日本二刺螈了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hkguty  
+##### 55523#       发表于 2021-9-1 22:40
+
+
+其实这问题我也想过···如果大和上船，路飞肯定是将她当成索隆山治那样的兄弟看···但这很明显会产生很多问题吧·······但大和这个人设本身确实挺“ZZ正确”的，也刚好是他们缺少的女汉子角色
+
+
