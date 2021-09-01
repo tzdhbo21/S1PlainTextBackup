@@ -6914,3 +6914,14 @@ nako丸子头的时候，好想捏脸
 原来真的会这么干的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3564#       发表于 2021-9-2 01:15
+
+
+看了鲤鱼年初时的几个直播切片，发现那时说话的语速还很正常，对比现在，真就在日本呆久了需要中文复健啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
