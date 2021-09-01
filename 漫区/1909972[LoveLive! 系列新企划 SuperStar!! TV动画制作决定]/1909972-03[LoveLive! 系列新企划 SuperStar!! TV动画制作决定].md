@@ -6443,3 +6443,39 @@ nako丸子头的时候，好想捏脸
 整个系列长相最戳我的是阿兔嘭<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  pliee  
+##### 3525#       发表于 2021-9-1 15:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52583352&amp;ptid=1909972" target="_blank">秋月艾莉 发表于 2021-9-1 15:33</a>
+
+说起来上次生放送没有像第3话一样整个特别预告啊，可恶，等不及看全人类都该看看的第6话了 ...</blockquote>
+没有
+
+
+*****
+
+####  ads147147  
+##### 3526#       发表于 2021-9-1 15:59
+
+
+马尾党都没落了吗，青山马尾让我想起了当年凉宫扎马尾的感觉。而且青山还很喜欢甩马尾，很青春，马尾suki（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  bxcds  
+##### 3527#       发表于 2021-9-1 16:01
+
+
+你们是要出个散发单才能满足是吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+

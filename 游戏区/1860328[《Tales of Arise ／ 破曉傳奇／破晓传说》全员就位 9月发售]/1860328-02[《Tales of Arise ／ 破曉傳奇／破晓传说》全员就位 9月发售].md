@@ -19557,3 +19557,14 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
 小剧场有300个以上<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zero12  
+##### 2959#       发表于 2021-9-1 15:56
+
+
+这是一共八章吗？ 我还以为中盘就会去雷娜
+
+
