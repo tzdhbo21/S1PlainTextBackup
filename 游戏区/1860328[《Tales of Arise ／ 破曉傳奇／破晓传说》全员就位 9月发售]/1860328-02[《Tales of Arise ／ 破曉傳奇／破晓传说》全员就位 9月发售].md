@@ -19568,3 +19568,23 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
 这是一共八章吗？ 我还以为中盘就会去雷娜
 
 
+
+
+*****
+
+####  godless2020  
+##### 2960#       发表于 2021-9-1 18:31
+
+
+和液内谈了谈，玩的很欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  塔奇克马  
+##### 2961#       发表于 2021-9-1 18:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">啊?那么平均一章长度大概多少?
+
+
