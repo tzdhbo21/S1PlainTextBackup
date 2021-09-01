@@ -18744,3 +18744,14 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 狗游戏扫库真是绝了，双UP必然某一个狂+1   短剑+1    AN天音+2  胡桃+2   花音+1   TI2+1  坂本+2  抽不起再见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  yygundam  
+##### 5956#       发表于 2021-9-1 10:04
+
+
+虽然但是，frame arms girl我记得都是单UP
+
+
