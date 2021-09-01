@@ -10384,3 +10384,14 @@ AVALON研究生 / 花京院ちえり / GEMS COMPANY / 白雪みしろ / Palette 
 省一楼，杏en的死神正式发公告把名字由“森美声”改为“森 カリオペ”，不是很懂这啥操作，美声俩汉字侵谁的权吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 6787#       发表于 2021-9-1 19:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">kr第一个新人初配信第一句蹦出来时日语
+
+

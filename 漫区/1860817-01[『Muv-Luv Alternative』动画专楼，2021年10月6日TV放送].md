@@ -8357,3 +8357,41 @@ Muv-Luv这次项目，tororo带的手游项目，明显跟TV的graphinica是不�
 2021-9-1 17:48 上传
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 586#       发表于 2021-9-1 18:50
+
+
+要是动画能保留这些美国黑屁就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过不略过12.5事件的话，这些日本主体民族意识是删不了的
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/184812mpjdsss88zdipdpq.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-09-01 184803.png</strong> (308.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 18:48 上传
+
+
+*****
+
+####  kamarus  
+##### 587#       发表于 2021-9-1 19:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52586116&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-9-1 18:50</a>
+要是动画能保留这些美国黑屁就好了
+
+
+不过不略过12.5事件的话，这些日本主体民族意识是删不了的</blockquote>
+真要保留问题不大吧，反正外传2部黑屁也不少了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
