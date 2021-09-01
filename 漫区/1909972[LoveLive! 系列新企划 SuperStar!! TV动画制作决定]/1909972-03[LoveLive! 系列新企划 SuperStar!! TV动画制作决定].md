@@ -6196,3 +6196,26 @@ MD，你楼前后转变简直笑死<img src="https://static.saraba1st.com/image/
 从哪看的韩国人评论？自己在推上用google翻译了看的吗？
 
 
+
+
+*****
+
+####  lanslort  
+##### 3503#       发表于 2021-9-1 13:08
+
+
+拉拉从水开始就转型2.99次元企划了，望周知
+
+
+鲤鱼确实挺努力的，不过前面有几楼确实有点那味 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3504#       发表于 2021-9-1 13:16
+
+
+鲤鱼我是觉得一眼看过去就不是日本人，放到国内肯定不是美女那种，毕竟咱们国家上限高，但底子好中偏上
+
+
