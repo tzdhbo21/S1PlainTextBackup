@@ -6476,3 +6476,16 @@ win10就说要搞安卓模拟器了，怕不是要拖到win12
 就win11现在这个回炉重炼之后废掉的任务栏和右键菜单，正式版肯定恶评如潮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  凶手  
+##### 537#         楼主| 发表于 2021-9-2 01:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52574534&amp;ptid=2011727" target="_blank">凶手 发表于 2021-8-31 21:43</a>
+10月5号就出了 这个日子只是针对新设备 而且还没运行 android app 的能力…</blockquote>
+9.22 surface发布会…
+
+

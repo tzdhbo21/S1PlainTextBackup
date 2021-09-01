@@ -344,3 +344,14 @@ zzzq终于要拳打日本二刺螈了吗<img src="https://static.saraba1st.com/i
 大和是被海楼石手铐锁住的，然鹅在这种限制下依然能和ace打平，秒杀4亿的飞六胞，五皇开二三档也打不动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  蔺无双  
+##### 55528#       发表于 2021-9-2 01:29
+
+
+和之国结束后就差不多终局了，黑胡子加海军还是很难顶的，加点战斗力还是可以理解的，但是能不能先治好大和这御田病先……
+
+
