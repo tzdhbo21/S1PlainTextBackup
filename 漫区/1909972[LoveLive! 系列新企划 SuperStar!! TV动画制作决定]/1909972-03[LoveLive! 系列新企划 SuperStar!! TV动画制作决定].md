@@ -6512,3 +6512,34 @@ nako丸子头的时候，好想捏脸
 最近几期生放和广播怎么都没熟肉<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  proselyte  
+##### 3531#       发表于 2021-9-1 17:13
+
+
+熟肉发不出去？
+
+
+*****
+
+####  cybernetics31  
+##### 3532#       发表于 2021-9-1 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52584811&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-1 17:08</a>
+最近几期生放和广播怎么都没熟肉</blockquote>
+10组之前人员变动大，不少元老走了，更新慢不奇怪
+
+
+*****
+
+####  kata魂  
+##### 3533#       发表于 2021-9-1 17:25
+
+
+韩国佬好像很喜欢画鲤鱼断电图啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+

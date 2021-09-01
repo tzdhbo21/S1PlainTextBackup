@@ -8541,3 +8541,80 @@ yxb什么的前几年都是拿sensor tower的数据来宣传的，今年sensor t
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了，该奶一口今天有事发生
 
 
+
+
+*****
+
+####  千叶铁矢  
+##### 83214#       发表于 2021-9-1 17:01
+
+
+？读了30多m的条就无事发生？
+
+—— 来自 Lenovo TB-J716F, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 83215#       发表于 2021-9-1 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52584709&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-9-1 17:01</a>
+
+？读了30多m的条就无事发生？
+
+
+—— 来自 Lenovo TB-J716F, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+强化本体力减半 开心吗（
+
+
+*****
+
+####  exiaexa  
+##### 83216#       发表于 2021-9-1 17:05
+
+
+但凡开个复刻.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83217#       发表于 2021-9-1 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52584764&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-1 17:05</a>
+
+但凡开个复刻.JPG</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复课有什么好开的 开个卡池就好了（2个常驻池 抽啊
+
+
+*****
+
+####  alucardcz  
+##### 83218#       发表于 2021-9-1 17:07
+
+
+9.8生放送  这星期就别指望还能发生什么事情了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 83219#       发表于 2021-9-1 17:08
+
+
+哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  承尘  
+##### 83220#       发表于 2021-9-1 17:09
+
+
+得，又长一星期草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

@@ -817,3 +817,34 @@ trapstrafe最主要的用法就是进掩体啊<img src="https://static.saraba1st
 反正我是PS服玩家，与我无关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  fox  
+##### 65#       发表于 2021-9-1 17:16
+
+
+<blockquote>swrrt_11 发表于 2021-9-1 16:50
+希尔已经人没了</blockquote>
+还是很强的，那个被动和大招机制就离谱，而且不需要操作不需要配合，而且那个网状设计就像房地产广告设计师搞的，丑死了，太违和了。唯一好处就是凸显了之前的角色设计真不错。
+
+
+*****
+
+####  baoer  
+##### 66#       发表于 2021-9-1 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52578748&amp;ptid=2023880" target="_blank">refiver 发表于 2021-9-1 10:18</a>
+
+如果我没理解错的话这个就是旋转跳啊，这个讲道理是起源引擎特色啊……和重生还是COD倒是没什么关系了
+
+
+而 ...</blockquote>
+你说的是哪个csgo地图故意留着旋转跳  在我的印象里面除了个别点都是尽量让大家都能跳是设计的方向 
+
+
+比如说mirage的凳子 当然反例也有mirage的vip跳b小
+
+
