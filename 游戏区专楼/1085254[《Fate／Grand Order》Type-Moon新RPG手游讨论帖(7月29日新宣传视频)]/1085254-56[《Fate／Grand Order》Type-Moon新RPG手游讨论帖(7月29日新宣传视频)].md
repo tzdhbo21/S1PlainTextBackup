@@ -8650,3 +8650,28 @@ yxb什么的前几年都是拿sensor tower的数据来宣传的，今年sensor t
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  areklose  
+##### 83224#       发表于 2021-9-1 17:46
+
+
+我比较想看到的泳装大概是黑枪呆，绘理世，军神，藤乃，义妹，美游，太太，CBA，酒吞，荚膜，杨贵妃，和仇R。
+
+
+*****
+
+####  khxooo  
+##### 83225#       发表于 2021-9-1 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52585164&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-9-1 17:34</a>
+船长尼莫池，也就是说今年船长泳装肯定是没戏了
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+船长希望给个2.5.2的灵衣吧
+
+

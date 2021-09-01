@@ -10368,3 +10368,19 @@ AVALON研究生 / 花京院ちえり / GEMS COMPANY / 白雪みしろ / Palette 
 不唱歌靠拍片还是尬聊啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 6786#       发表于 2021-9-1 17:59
+
+
+[https://twitter.com/Fuka_Sibuki39/status/1432704515602587657](https://twitter.com/Fuka_Sibuki39/status/1432704515602587657)
+
+紫吹ふうか的“100日後に契約終了させられるかもしれないVtuber”，目前连载到第三天了，虽然都是用自己皮拼接的，不过有兴趣可以看看
+
+
+省一楼，杏en的死神正式发公告把名字由“森美声”改为“森 カリオペ”，不是很懂这啥操作，美声俩汉字侵谁的权吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

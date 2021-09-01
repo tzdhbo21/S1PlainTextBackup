@@ -8333,3 +8333,27 @@ Muv-Luv这次项目，tororo带的手游项目，明显跟TV的graphinica是不�
 这人好重的怨气
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 585#       发表于 2021-9-1 17:52
+
+
+跟着mla漫画，仿佛重新打了一遍游戏，剧情看上去没有明显阉割。漫画还把初次回去给夕乎敬礼这个令人感动的场面画出来了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+到这里漫画才区区16话，如果第一季12集但剧情不瞎搞的话做到这里完全没问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/174817qit43q0eyy09a0cz.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-09-01 174654.png</strong> (204.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 17:48 上传
+
+
