@@ -10594,3 +10594,14 @@ Abandoned Gameplay Reveal Is 'a Few Months' Away, But Trailer App Will Be Update
 
 
                                                  
+
+*****
+
+####  liyingdao  
+##### 839#       发表于 2021-9-2 00:32
+
+
+9月2日，mgsv发售六周年，BlueBox时隔半个月如愿上线了………一个FAQ
+真牛逼，简直疯了逼了
+
+

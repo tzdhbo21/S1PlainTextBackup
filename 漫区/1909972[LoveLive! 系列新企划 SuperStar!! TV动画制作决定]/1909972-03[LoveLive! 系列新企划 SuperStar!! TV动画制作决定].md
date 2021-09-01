@@ -6884,3 +6884,33 @@ nako丸子头的时候，好想捏脸
 就没这个设定………………
 
 
+
+
+*****
+
+####  Arccueid  
+##### 3562#       发表于 2021-9-2 00:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52590082&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-2 00:17</a>
+
+就没这个设定………………</blockquote>
+那可能是看到别人这么说吧，反正就是有这么个印象
+
+
+*****
+
+####  moudianzi  
+##### 3563#       发表于 2021-9-2 00:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52586844&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-9-1 19:40</a>
+
+之前发的照片更扭曲yhm的p图技术实属不行</blockquote>
+我以前一直都以为那种 ”为了将自己P的好看，而将一起合照的闺蜜给P的奇形怪状“ 的事都只是段子
+
+毕竟明明其他东西都被P的不成形了，却还打算把相骗还发到网上这种事，怎么想怎么怪吧
+
+原来真的会这么干的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
