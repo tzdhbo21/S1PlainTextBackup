@@ -19588,3 +19588,46 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">啊?那么平均一章长度大概多少?
 
 
+
+
+*****
+
+####  Rainwedell  
+##### 2962#       发表于 2021-9-1 19:11
+
+
+300个小剧场和70个支线，看起来还可以
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ff2077  
+##### 2963#       发表于 2021-9-1 19:15
+
+
+300个小剧场，好多啊
+
+
+*****
+
+####  前途飘飘  
+##### 2964#       发表于 2021-9-1 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52554410&amp;ptid=1860328" target="_blank">moekyo 发表于 2021-8-30 11:54</a>
+
+我的电脑配置太烂了，现在换的话，感觉亏爆了，在想要不要弄一台XSX，手上还有一台slim，而且目前索尼那边 ...</blockquote>
+看下XGP里面有没有想玩的游戏，我觉得无论如何都亏不了。
+
+
+*****
+
+####  415452356  
+##### 2965#       发表于 2021-9-1 19:21
+
+
+  法师妹子确实挺umb，本作最喜欢的角色了，不知道到时候有没有人画黄图
+
+

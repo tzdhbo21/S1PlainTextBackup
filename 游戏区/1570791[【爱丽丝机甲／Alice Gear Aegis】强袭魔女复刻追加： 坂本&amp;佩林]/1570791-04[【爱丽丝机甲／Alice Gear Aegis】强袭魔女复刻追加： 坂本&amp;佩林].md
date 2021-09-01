@@ -18794,3 +18794,14 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 —— 来自 Xiaomi Redmi K30i 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 5960#       发表于 2021-9-1 19:10
+
+
+对TAITO和ZUNTATA都不了解但是为你游作曲的COSIO和为你游画外传漫画的えらんと都是脱离TAITO单干的所以并不奇怪吧，难道有什么内幕？看了一下下田祐的推他也说了想继续和TAITO保持良好的关系，反正看样子对你游是没什么影响。
+
+

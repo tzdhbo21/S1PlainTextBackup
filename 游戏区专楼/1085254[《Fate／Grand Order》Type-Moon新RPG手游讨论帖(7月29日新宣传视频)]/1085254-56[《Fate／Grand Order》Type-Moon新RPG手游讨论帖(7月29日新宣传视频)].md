@@ -8701,3 +8701,51 @@ yxb什么的前几年都是拿sensor tower的数据来宣传的，今年sensor t
 已经一颗都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  areklose  
+##### 83228#       发表于 2021-9-1 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52586215&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-9-1 18:57</a>
+
+有没有人往这池里扔石头啊
+
+太险恶了开在泳装前我的小尼莫呦</blockquote>
+常驻+单体+立绘太摸鱼=完全不想抽。更不用说后面有泳装
+
+
+*****
+
+####  qixinno2  
+##### 83229#       发表于 2021-9-1 19:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">0石0呼符的感觉很爽
+
+
+*****
+
+####  zore  
+##### 83230#       发表于 2021-9-1 19:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5呼符备战
+
+
+*****
+
+####  exiaexa  
+##### 83231#       发表于 2021-9-1 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52586215&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-9-1 18:57</a>
+有没有人往这池里扔石头啊
+
+太险恶了开在泳装前我的小尼莫呦</blockquote>
+本来想给安妮抽个5，但是看了看尼莫和船长这俩没用的，我就放弃了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
