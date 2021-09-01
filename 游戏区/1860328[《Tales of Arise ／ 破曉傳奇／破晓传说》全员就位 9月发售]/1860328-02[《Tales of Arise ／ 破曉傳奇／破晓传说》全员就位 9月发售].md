@@ -19350,3 +19350,63 @@ steam发售日期为什么改成9月9日了？之前看还是9月10日。
 在印度服预购了终极版，在港服怎么不显示拥有<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  司马千晶  
+##### 2945#       发表于 2021-9-1 10:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来法师眉毛这么粗的
+
+
+TOAR1.jpg
+(118.12 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-1 10:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/105306azgqgc292c9c9clt.jpg" referrerpolicy="no-referrer">
+
+
+toar2.jpg
+(79.56 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-1 10:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/105315s9d4r0yljjdls79d.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zero12  
+##### 2946#       发表于 2021-9-1 11:01
+
+
+<blockquote>司马千晶 发表于 2021-9-1 10:53
+原来法师眉毛这么粗的</blockquote>
+粗眉毛 大额头
+
+
+*****
+
+####  塔奇克马  
+##### 2947#       发表于 2021-9-1 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52579239&amp;ptid=1860328" target="_blank">司马千晶 发表于 2021-9-1 10:53</a>
+
+原来法师眉毛这么粗的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">想到那谁谁了
+
+
