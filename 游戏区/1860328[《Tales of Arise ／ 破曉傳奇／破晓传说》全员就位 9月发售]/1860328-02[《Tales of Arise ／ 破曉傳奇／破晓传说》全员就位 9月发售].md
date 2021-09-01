@@ -19731,3 +19731,29 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
 能插网线的话日版也没问题，只能用wifi的话就尽量避免吧。
 
 
+
+
+*****
+
+####  moekyo  
+##### 2974#       发表于 2021-9-1 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52588204&amp;ptid=1860328" target="_blank">defer 发表于 2021-9-1 21:19</a>
+
+能插网线的话日版也没问题，只能用wifi的话就尽量避免吧。</blockquote>
+感谢提醒，就是租的房子，现在PC的网线都买了一根超长，实在不方便再弄一根<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  defer  
+##### 2975#       发表于 2021-9-1 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52588446&amp;ptid=1860328" target="_blank">moekyo 发表于 2021-9-1 21:43</a>
+
+感谢提醒，就是租的房子，现在PC的网线都买了一根超长，实在不方便再弄一根 ...</blockquote>
+pc和游戏机在一起的话可以买个几十块钱的交换机然后在最后半米分开。
+
+
