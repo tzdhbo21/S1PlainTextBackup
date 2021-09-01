@@ -10529,3 +10529,38 @@ Na声音还挺可爱的，马猴烧酒爱抖露
 2021-9-1 21:42 上传
 
 
+
+
+*****
+
+####  noHentai  
+##### 6797#       发表于 2021-9-1 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52579835&amp;ptid=1972669" target="_blank">free 发表于 2021-9-1 11:34</a>
+
+https://twitter.com/LifeLikeaLive/status/1432902702309150724
+
+https://lifelikealive.zan-live.com/
+
+htt ...</blockquote>
+还好吧，去年在SPWN播通票2w円。
+
+SPWN 4500码率，Z-aN 6000码率，抓取都没难度。
+
+不过你管人舞台花里胡哨，该糊一样糊。
+
+但话说回来，LLL这种看得是蛮爽的，毕竟大多专业练过的，唱跳拉满，气氛台风都不错。
+
+
+*****
+
+####  FCCHua  
+##### 6798#       发表于 2021-9-1 22:24
+
+
+ 本帖最后由 FCCHua 于 2021-9-1 22:25 编辑 
+
+花芽妹节目效果的神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 姐姐还是有些咳嗽啊...
+
+

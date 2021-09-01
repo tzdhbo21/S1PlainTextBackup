@@ -6798,3 +6798,16 @@ nako丸子头的时候，好想捏脸
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼看来真的忙坏了…………动态说北京时间7点唠嗑，预约那写6点…………
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 3555#       发表于 2021-9-1 22:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52587921&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-1 20:58</a>
+那个老哥我还在B站上看到过几次，不过他可能对lovelive不是很了解，更多是喜欢作为coser的鲤鱼 ...</blockquote>
+能追到B站看鲤鱼的美国人，能算得上赛博私生饭吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
