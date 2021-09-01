@@ -6078,3 +6078,43 @@ MD，你楼前后转变简直笑死<img src="https://static.saraba1st.com/image/
 有考虑过转型爱生活大明星声优真爱楼吗
 
 
+
+
+*****
+
+####  bxcds  
+##### 3492#       发表于 2021-9-1 11:59
+
+
+2.5企划本来就是两边都看的转啥
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+*****
+
+####  chenflyyy  
+##### 3493#       发表于 2021-9-1 12:03
+
+
+偶像企划聊声优不是很正常吗，况且这周停播动画也没得聊啊
+
+
+*****
+
+####  soranoguiji  
+##### 3494#       发表于 2021-9-1 12:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3495#       发表于 2021-9-1 12:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有一说一我觉得青山姐（静态）比鲤鱼要好看，韩国人不更应该吹青山吗
+
+
