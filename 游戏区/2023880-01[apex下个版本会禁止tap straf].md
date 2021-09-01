@@ -848,3 +848,109 @@ trapstrafe最主要的用法就是进掩体啊<img src="https://static.saraba1st
 比如说mirage的凳子 当然反例也有mirage的vip跳b小
 
 
+
+
+*****
+
+####  baoer  
+##### 67#       发表于 2021-9-1 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52577191&amp;ptid=2023880" target="_blank">战狼PTSD 发表于 2021-9-1 07:38</a>
+
+都要修改CFG了，删了不是正常，CS不也删了滚轮跳</blockquote>
+csgo 可没删一键跳投
+
+
+*****
+
+####  baoer  
+##### 68#       发表于 2021-9-1 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52578748&amp;ptid=2023880" target="_blank">refiver 发表于 2021-9-1 10:18</a>
+
+如果我没理解错的话这个就是旋转跳啊，这个讲道理是起源引擎特色啊……和重生还是COD倒是没什么关系了
+
+
+而 ...</blockquote>
+别引擎特色了  引擎特色能连跳加速 最开始apex能边跑边打药 越打越快 你觉得合理么？
+
+
+*****
+
+####  refiver  
+##### 69#       发表于 2021-9-1 17:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52585049&amp;ptid=2023880" target="_blank">baoer 发表于 2021-9-1 17:26</a>
+
+你说的是哪个csgo地图故意留着旋转跳  在我的印象里面除了个别点都是尽量让大家都能跳是设计的方向 
+
+
+比 ...</blockquote>
+mirage一次性跳小黑屋……
+
+我练了很久还没练会，后来还看了个直接VIP屋内板凳跳小黑屋的着实惊到了
+
+
+VIP跳B小只要对准点直接跳蹲不就能上吗我记得我之前还跳过
+
+不过旋转跳这个东西，光是mirage，CT开局进洞就能省时间啊
+
+
+还有大厦那个甚至改的更难跳了，不过现在那个跳了也没啥好处就是了
+
+inferno上棚子顶我记得也可以跳上去，但是忘记了
+
+
+哎，都是看视频看半天自己上手就垃了的那种
+
+
+*****
+
+####  refiver  
+##### 70#       发表于 2021-9-1 17:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52585154&amp;ptid=2023880" target="_blank">baoer 发表于 2021-9-1 17:33</a>
+
+别引擎特色了  引擎特色能连跳加速 最开始apex能边跑边打药 越打越快 你觉得合理么？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">什么意思，我说可以旋转跳是引擎特色一个普通的陈述句和你说的连跳还有打药又是啥关系……
+
+
+我压根没评价要不要修改这件事情啊，你找我也妹有用啊……
+
+
+*****
+
+####  baoer  
+##### 71#       发表于 2021-9-1 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52585210&amp;ptid=2023880" target="_blank">refiver 发表于 2021-9-1 17:37</a>
+
+mirage一次性跳小黑屋……
+
+我练了很久还没练会，后来还看了个直接VIP屋内板凳跳小黑屋的着实惊到了</blockquote>
+大致的设计方向都是跳了没啥用 或者让大家都能跳的方向改动的  比如说之前的双驾上vip 给你放了个凳子
+
+
+csgo说到底是个架枪游戏 
+
+
+*****
+
+####  baoer  
+##### 72#       发表于 2021-9-1 17:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52585243&amp;ptid=2023880" target="_blank">refiver 发表于 2021-9-1 17:39</a>
+
+什么意思，我说可以旋转跳是引擎特色一个普通的陈述句和你说的连跳还有打药又是啥关系……
+
+
+我压 ...</blockquote>
+因为连跳加速也是引擎特色啊。。
+
+
