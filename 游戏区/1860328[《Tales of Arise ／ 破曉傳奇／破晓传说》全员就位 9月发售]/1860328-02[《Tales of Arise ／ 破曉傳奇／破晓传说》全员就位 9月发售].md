@@ -19314,3 +19314,14 @@ steam发售日期为什么改成9月9日了？之前看还是9月10日。
 琳薇尔的不是裙子而是裤衩，<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥啊
 
 
+
+
+*****
+
+####  蓝雉  
+##### 2942#       发表于 2021-9-1 09:18
+
+
+话说按现在不再分母舰护航了的情况来看,下一作多半是重制?呼声最大的是幻想还是宿命来着?个人私心是想要风雨复刻,顺便把心灵R圣洁R的异世界坑给填了,最好能以那个世界为主题出个新作,主角团运用系列各作搜罗来的力量战斗啥的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
