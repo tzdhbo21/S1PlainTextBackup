@@ -19645,3 +19645,26 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
 最近去搜了一下，这个已经不成问题，现在的问题是，根本买不到原价国行，日版又说会手柄断连，隔壁那楼说蹲微软官网，可是我就没看过显示有货的，总之还是难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  前途飘飘  
+##### 2967#       发表于 2021-9-1 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52586744&amp;ptid=1860328" target="_blank">moekyo 发表于 2021-9-1 19:33</a>
+
+最近去搜了一下，这个已经不成问题，现在的问题是，根本买不到原价国行，日版又说会手柄断连，隔壁那楼说 ...</blockquote>
+我当初是溢价300块买的国行……XGP太划算了以至于溢点价我觉得也能接受。日版的信道问题好像是有解法的，不算什么太大的硬伤。
+
+
+*****
+
+####  izayoi39  
+##### 2968#       发表于 2021-9-1 20:06
+
+
+看这个奖杯列表，意思是dlc居然给新技能，让我想起来toz当初dlc给新秘奥义了
+
+

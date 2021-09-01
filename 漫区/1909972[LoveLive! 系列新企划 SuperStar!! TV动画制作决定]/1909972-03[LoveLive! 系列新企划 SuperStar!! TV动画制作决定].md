@@ -6667,3 +6667,14 @@ nako丸子头的时候，好想捏脸
 <img src="https://img.saraba1st.com/forum/202109/01/193853vwqjgb1j0t0t7oj3.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  a92063256  
+##### 3543#       发表于 2021-9-1 20:06
+
+
+上尉这张图p的真的是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉像是用手机的自动美颜p的，要不然cd上这么大的扭曲不会注意不到吧
+
+

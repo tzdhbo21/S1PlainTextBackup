@@ -10417,3 +10417,28 @@ AVALON研究生 / 花京院ちえり / GEMS COMPANY / 白雪みしろ / Palette 
 kr新男人在apex方面说的也太详细了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 6790#       发表于 2021-9-1 19:51
+
+
+ 本帖最后由 alcoholic1000 于 2021-9-1 20:04 编辑 
+
+看韩国人吐槽没有日英语就拿到1k4同接，我替前五期生不值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这游戏池...A撸PUBG，DJMax Respect和生化
+
+Apex用恶灵和狗R99和301
+
+
+不喜欢出门但去过日本很多城市，回答日语棉花糖也是用韩文
+
+怎么回事捏<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer"> 
+
+
+Na声音还挺可爱的，马猴烧酒爱抖露
+
+

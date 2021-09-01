@@ -8395,3 +8395,14 @@ Muv-Luv这次项目，tororo带的手游项目，明显跟TV的graphinica是不�
 真要保留问题不大吧，反正外传2部黑屁也不少了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hlazd  
+##### 588#       发表于 2021-9-1 19:58
+
+
+鸡总那哪是怨气，都可以说是魔怔了，换一般人十来年还没搞成估计就放弃了
+
+
