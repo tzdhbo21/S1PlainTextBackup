@@ -238,3 +238,43 @@ king的赏金比马尔科高<img src="https://static.saraba1st.com/image/smiley/
 什么!那大和什么时候上船!
 
 
+
+
+*****
+
+####  acejoe  
+##### 55519#       发表于 2021-9-1 21:11
+
+
+艹……
+<img src="https://p.sda1.dev/2/dbc84f1de927230baa1ecf39c2bd4285/IMG_CMP_89848169.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿拉纳克  
+##### 55520#       发表于 2021-9-1 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52588095&amp;ptid=98922" target="_blank">acejoe 发表于 2021-9-1 21:11</a>
+
+艹……</blockquote>
+尾田因为不够自由被欧美人士批了吗
+
+
+在保守者看来尾田的人设已经够自由了
+
+
+*****
+
+####  nuoer  
+##### 55521#       发表于 2021-9-1 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52588095&amp;ptid=98922" target="_blank">acejoe 发表于 2021-9-1 21:11</a>
+艹……</blockquote>
+？？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

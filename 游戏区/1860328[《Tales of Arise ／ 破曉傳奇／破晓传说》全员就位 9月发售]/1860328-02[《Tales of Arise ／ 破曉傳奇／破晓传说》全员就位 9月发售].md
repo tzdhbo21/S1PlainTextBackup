@@ -19717,3 +19717,17 @@ https://www.powerpyx.com/tales-of-arise-trophy-list-revealed/ ...</blockquote>
 现在这种应该都做成战后对话那种形式吧
 
 
+
+
+*****
+
+####  defer  
+##### 2973#       发表于 2021-9-1 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52586744&amp;ptid=1860328" target="_blank">moekyo 发表于 2021-9-1 19:33</a>
+
+最近去搜了一下，这个已经不成问题，现在的问题是，根本买不到原价国行，日版又说会手柄断连，隔壁那楼说 ...</blockquote>
+能插网线的话日版也没问题，只能用wifi的话就尽量避免吧。
+
+
