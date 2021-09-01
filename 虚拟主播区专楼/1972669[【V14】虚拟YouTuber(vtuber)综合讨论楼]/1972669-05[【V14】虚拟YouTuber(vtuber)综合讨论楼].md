@@ -10294,3 +10294,54 @@ syl 花芽姐妹和社筑还真没忘记那个随口一说的后续联动啊
 我想夢月ロア了。
 
 
+
+
+*****
+
+####  free  
+##### 6783#       发表于 2021-9-1 11:34
+
+
+ 本帖最后由 free 于 2021-9-1 11:46 编辑 
+
+[https://twitter.com/LifeLikeaLive/status/1432902702309150724](https://twitter.com/LifeLikeaLive/status/1432902702309150724)
+[https://lifelikealive.zan-live.com/](https://lifelikealive.zan-live.com/)
+[https://www.zan-live.com/live/detail/10099](https://www.zan-live.com/live/detail/10099)
+
+
+LLL第二期，全票居然要22000，这也太贵了，zan这平台谁知道咋样？
+
+比去年多的主要就最后一排那几个，那三个兽娘是咋回事......
+
+
+2021年9月18日(土) 夜公演 開場18:00 開演18:30予定
+
+えのぐ / GEMS COMPANY / VALIS / Palette Project / まりなす / もこ田めめめ / LiLYPSE / 叶秘蜜 / ドリームユニット
+
+2021年9月19日(日) 昼公演 開場12:00 開演12:30予定
+
+えのぐ / けものフレンズ Vぷろじぇくと / GEMS COMPANY / すたーべあ！ / VALIS / Palette Project / まりなす / もこ田めめめ / 小純マアメ / ドリームユニット
+
+2021年9月19日(日) 夜公演 開場18:00 開演18:30予定
+
+朝ノ姉妹 / GEMS COMPANY / Palette Project / VALIS / まりなす / LiLYPSE / 響歌シノ / ドリームユニット
+
+2021年9月20日(月・祝) 昼公演 開場12:00 開演12:30予定
+
+AVALON研究生 / 花京院ちえり / GEMS COMPANY / 白雪みしろ / Palette Project / VALIS / 徳井V青空 / 南條夢路 / まりなす / ミクチャオーディション枠 / ドリームユニット
+
+2021年9月20日(月・祝) 夜公演 開場18:00 開演18:30予定
+
+えのぐ / 大茑エル&amp;キミノミヤ / GEMS COMPANY / Palette Project / VALIS / まりなす / LiLYPSE / くまりすねこねこ / ドリームユニット
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/113430du04rlum0v007vuu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>LLL.jpg</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 11:34 上传
+
+
