@@ -6160,3 +6160,39 @@ MD，你楼前后转变简直笑死<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我先来，青山和兔，这俩毕竟都参加过选美，第一梯队
 
 
+
+
+*****
+
+####  plazum  
+##### 3500#       发表于 2021-9-1 12:31
+
+
+弹幕（第二集）<blockquote>（06:46）阿基米德了属于是
+
+（06:48）不要踩坏我的圆！</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 3501#       发表于 2021-9-1 12:36
+
+
+<blockquote>soranoguiji 发表于 2021-9-1 12:05
+你楼这也叫吹啊，韩国人都说鲤鱼美的不真实了</blockquote>
+一下子没理解过来，按他们意思是要整容才有这样吗？
+
+
+*****
+
+####  名津流  
+##### 3502#       发表于 2021-9-1 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52580340&amp;ptid=1909972" target="_blank">soranoguiji 发表于 2021-9-1 12:05</a>
+
+你楼这也叫吹啊，韩国人都说鲤鱼美的不真实了</blockquote>
+从哪看的韩国人评论？自己在推上用google翻译了看的吗？
+
+

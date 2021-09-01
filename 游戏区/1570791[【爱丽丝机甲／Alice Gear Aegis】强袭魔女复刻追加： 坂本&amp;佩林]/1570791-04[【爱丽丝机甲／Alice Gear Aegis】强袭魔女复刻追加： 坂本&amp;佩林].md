@@ -18755,3 +18755,27 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 虽然但是，frame arms girl我记得都是单UP
 
 
+
+
+*****
+
+####  arthes  
+##### 5957#       发表于 2021-9-1 12:29
+
+
+记忆中fag的池子好像只是概率up 
+实际上几个都会出，印象中我好像就是抽短剑的时候歪了闪燕
+不知道有没有记错
+
+
+*****
+
+####  hypnossz86  
+##### 5958#       发表于 2021-9-1 12:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">记错了吧
+这游戏好像没有这种pu一个其他还能歪的池子
+要不就是多pu，要不就是单pu
+
+
