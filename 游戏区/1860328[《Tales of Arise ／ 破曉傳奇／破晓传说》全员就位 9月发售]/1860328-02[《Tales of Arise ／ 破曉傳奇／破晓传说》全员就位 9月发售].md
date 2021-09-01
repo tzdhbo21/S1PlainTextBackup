@@ -19964,3 +19964,16 @@ pc和游戏机在一起的话可以买个几十块钱的交换机然后在最后
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">学生和战国融合一下就是红秋裤了！
 
 
+
+
+*****
+
+####  arsenalfcc  
+##### 2986#       发表于 2021-9-2 07:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52591005&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-2 07:11</a>
+学生和战国融合一下就是红秋裤了！</blockquote>
+不是艾黛尔贾特吗？
+
+
