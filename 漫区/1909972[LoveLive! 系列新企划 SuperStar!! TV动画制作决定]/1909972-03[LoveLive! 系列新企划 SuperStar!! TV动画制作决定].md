@@ -6855,3 +6855,32 @@ nako丸子头的时候，好想捏脸
 手套姐的这照片一眼难尽。。。
 
 
+
+
+*****
+
+####  Arccueid  
+##### 3560#       发表于 2021-9-2 00:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52589430&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-09-01 23:11:37</a>
+青山的推是暗示恋的母亲的事吗
+
+到底是死是活确实挺在意的，毕竟可能影响ll一贯的基调 ...</blockquote>印象中设定是死了，哪里看到的忘了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  cybernetics31  
+##### 3561#       发表于 2021-9-2 00:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52590071&amp;ptid=1909972" target="_blank">Arccueid 发表于 2021-9-2 00:16</a>
+印象中设定是死了，哪里看到的忘了
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+就没这个设定………………
+
+

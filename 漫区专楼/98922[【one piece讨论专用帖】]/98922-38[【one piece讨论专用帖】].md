@@ -333,3 +333,14 @@ zzzq终于要拳打日本二刺螈了吗<img src="https://static.saraba1st.com/i
 海贼王里已经有超越一般漫画数量的lgbt了吧，随处可见的人妖。而且基本上都急公好义？人妖王和闪电生命卡就是新人类
 
 
+
+
+*****
+
+####  saturnus  
+##### 55527#       发表于 2021-9-2 00:06
+
+
+大和是被海楼石手铐锁住的，然鹅在这种限制下依然能和ace打平，秒杀4亿的飞六胞，五皇开二三档也打不动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

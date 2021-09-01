@@ -19832,3 +19832,93 @@ pc和游戏机在一起的话可以买个几十块钱的交换机然后在最后
 实际上，现在就要发售了，pv和主题曲、人物介绍什么的全都有了，顶多就再来个媒体评分，不会再有什么新闻了吧
 
 
+
+
+*****
+
+####  laoz  
+##### 2981#       发表于 2021-9-2 00:08
+
+
+塞钱通这期没有评分，就把公布的东西总结了一下
+
+<img src="https://img.saraba1st.com/forum/202109/02/000532rmsfqos6m4mnmi6m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1 (2).jpg</strong> (642.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-2 00:05 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/02/000604vm32cs9ucuec9z34.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (625.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-2 00:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/02/000701tmm5zr2uuf4fwsbr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (639 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-2 00:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/02/000715wb3gnnk8rf8oka30.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4.jpg</strong> (594.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-2 00:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/02/000728h2ysptr0pqypyyyr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5.jpg</strong> (551.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-2 00:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/02/000733iqmev2qar226sjca.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5-1.jpg</strong> (569.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-2 00:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/02/000741qntc02m3v3n3ltvl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6.jpg</strong> (659.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-2 00:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/02/000746ko041kcov01144vc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>7.jpg</strong> (701.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-2 00:07 上传
+
+
