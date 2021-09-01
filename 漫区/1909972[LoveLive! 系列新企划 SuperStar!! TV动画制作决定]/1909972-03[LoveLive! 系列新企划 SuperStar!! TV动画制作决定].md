@@ -6118,3 +6118,45 @@ MD，你楼前后转变简直笑死<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有一说一我觉得青山姐（静态）比鲤鱼要好看，韩国人不更应该吹青山吗
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3496#       发表于 2021-9-1 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52580403&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-1 12:09</a>
+有一说一我觉得青山姐（静态）比鲤鱼要好看，韩国人不更应该吹青山吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是很懂韩国阿宅啥想法，反正画鲤鱼的图是不少
+
+
+*****
+
+####  没有爱就看不见  
+##### 3497#       发表于 2021-9-1 12:14
+
+
+外面有个声优颜值楼，你们要不要也来个拉拉内部声优颜值排名<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  megapikachu  
+##### 3498#       发表于 2021-9-1 12:15
+
+
+我看你们都需要接受鲤鱼推特下那位美国老哥的再教育<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3499#       发表于 2021-9-1 12:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52580491&amp;ptid=1909972" target="_blank">没有爱就看不见 发表于 2021-9-1 12:14</a>
+外面有个声优颜值楼，你们要不要也来个拉拉内部声优颜值排名</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我先来，青山和兔，这俩毕竟都参加过选美，第一梯队
+
+

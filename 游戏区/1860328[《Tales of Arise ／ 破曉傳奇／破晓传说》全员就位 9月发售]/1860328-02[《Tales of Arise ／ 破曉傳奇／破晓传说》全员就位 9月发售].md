@@ -19410,3 +19410,38 @@ toar2.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">想到那谁谁了
 
 
+
+
+*****
+
+####  BuffaloBills  
+##### 2948#       发表于 2021-9-1 12:19
+
+
+<blockquote>zero12 发表于 2021-9-1 11:01
+粗眉毛 大额头</blockquote>
+张了一张悠木碧的脸却不是悠木碧配音，本作最大遗憾
+
+
+*****
+
+####  zqqwe  
+##### 2949#       发表于 2021-9-1 12:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52580575&amp;ptid=1860328" target="_blank">BuffaloBills 发表于 2021-9-1 12:19</a>
+张了一张悠木碧的脸却不是悠木碧配音，本作最大遗憾</blockquote>
+校园dlc那套贝雷帽就是悠木碧本碧了
+
+
+*****
+
+####  BuffaloBills  
+##### 2950#       发表于 2021-9-1 12:25
+
+
+<blockquote>tmmd 发表于 2021-8-29 10:02
+除了tob,基本没什么苦大仇深的的。boy meet girl的桥段倒是是挺多的。</blockquote>
+TOB大部分时候也不苦大仇深啊，主角团基本都是搞笑高手，女主姐属性卖萌不要太可爱
+
+
