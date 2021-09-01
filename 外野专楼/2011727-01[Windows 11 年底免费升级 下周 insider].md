@@ -6456,3 +6456,23 @@ Windows 8和8.1都是靠Classic Shell过的
 11玩空轨steam汉化版会闪退，有人救救吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  拱猪  
+##### 535#       发表于 2021-9-1 07:53
+
+
+win10就说要搞安卓模拟器了，怕不是要拖到win12
+
+
+*****
+
+####  bestwood  
+##### 536#       发表于 2021-9-1 08:01
+
+
+就win11现在这个回炉重炼之后废掉的任务栏和右键菜单，正式版肯定恶评如潮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

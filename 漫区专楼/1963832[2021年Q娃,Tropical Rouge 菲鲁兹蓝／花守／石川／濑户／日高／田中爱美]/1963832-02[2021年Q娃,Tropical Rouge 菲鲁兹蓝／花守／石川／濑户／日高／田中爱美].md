@@ -7660,3 +7660,52 @@ image.png
 我感觉以后要出现医生和大厨在女巫手里保护虾姑牺牲然后虾姑来找主角帮忙的剧情了。。。
 
 
+
+
+*****
+
+####  hgcg-ix  
+##### 2057#       发表于 2021-9-1 07:50
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/074948oaaq77qst99okpnk.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (255.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 07:49 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/075002t7hy1gxhddfj7hqs.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (302.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 07:50 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/01/075008j5kfe0gqieem8exm.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (258.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-1 07:50 上传
+
+
+*****
+
+####  暗黑能乐  
+##### 2058#       发表于 2021-9-1 08:17
+
+
+这强化形态是不是在暗示萝拉变人力在消失，已经一半是鱼尾了
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
