@@ -1004,3 +1004,49 @@ csgo说到底是个架枪游戏
 推上很多人喊着ts砍了那把手柄辅助瞄准也摘了的人真的是让人看地哭笑不得
 
 
+
+
+*****
+
+####  Nanachi  
+##### 76#       发表于 2021-9-2 10:16
+
+
+[Apex手柄到底跟不跟人？记得看简介](https://www.bilibili.com/video/BV1kL411W7TM)
+
+[还有人说手柄没吸附？](https://www.bilibili.com/video/BV1mL4y1e7s5)
+
+
+PC由于手柄有力度较弱的辅助瞄准，插xim一样生效。
+
+[xim转换器顶猎有多锁？](https://www.bilibili.com/video/BV12b4y1k7ef)
+
+[离开XIM后我是什么水平？给那些想要提升枪法的人一个参考](https://www.bilibili.com/video/BV1Tw411R7ZC)
+
+
+*****
+
+####  RedKey  
+##### 77#       发表于 2021-9-2 10:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52584340&amp;ptid=2023880" target="_blank">fox 发表于 2021-9-1 16:35</a>
+
+把社区意见太当回事就是这样，最后根本不是设计师按着头教你玩游戏，而是菜鸟教老鸟玩游戏。下一步搞不好 ...</blockquote>
+真的是听社区意见吗？我怎么感觉听的是kol的意见，把ttv那帮主播当爹了都
+
+
+*****
+
+####  hallowilliam  
+##### 78#       发表于 2021-9-2 10:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52585845&amp;ptid=2023880" target="_blank">Colure 发表于 2021-9-1 18:28</a>
+
+好！支持！
+
+我看之前删连跳的时候我看大伙都蛮支持的呢，怎么这次骂开了</blockquote>
+这种一般都是因为本质不是一拨人在讨论。
+
+
