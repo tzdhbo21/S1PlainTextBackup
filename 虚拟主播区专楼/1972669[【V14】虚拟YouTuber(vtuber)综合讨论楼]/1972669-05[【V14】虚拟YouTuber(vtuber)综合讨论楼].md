@@ -10632,3 +10632,39 @@ https://note.com/futashika/n/na5902f5696d9
 我都开始怀疑六个人是不是都在神椿里了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  死体残留  
+##### 6804#       发表于 2021-9-2 14:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">虹这边还真不怕疫情啊，阿葵都中招了 还开两个线下的live，凛前辈还有线下专卖限定的怀表
+
+
+*****
+
+####  poipanchao  
+##### 6805#       发表于 2021-9-2 14:50
+
+
+开玩笑，整个日本就没在怕的
+
+
+*****
+
+####  free  
+##### 6806#       发表于 2021-9-2 14:59
+
+
+杏也不怕啊，10.12角卷10.21星街不都是线下live照样敢开。不过刚才又发了一条公告补充说
+
+
+“10月開催の弊社主催ライブは、コロナウィルス感染状況・社会情勢等を鑑みながら、現地開催有無を判断する予定でございます。
+
+追加のお知らせがございます場合、当Twitterアカウント及び各特設HPにてお知らせいたします。”
+
+[https://twitter.com/hololivetv/status/1433309211451084801](https://twitter.com/hololivetv/status/1433309211451084801)
+
+

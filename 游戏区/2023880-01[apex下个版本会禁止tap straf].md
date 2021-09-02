@@ -1104,3 +1104,22 @@ mirage一次性跳小黑屋……
 板凳跳黑屋要加6次速，比赛快进黑屋都是开局双架进。再说了一些人连跳失速连250都到不了，那还不如走路抢点。
 
 
+
+
+*****
+
+####  Nanachi  
+##### 83#       发表于 2021-9-2 14:30
+
+
+Let’s table that for a sec and dive right in to one of the spiciest topics in Apex: The MnK vs. Controller Debate. I can’t speak to one’s superiority over the other; they have their pros and cons. For the record though, across MMR levels, rank, you name it, the difference in weapon performance is not nearly as great as some would believe. Pred level controllers are not beating out pred level MnK with Prowlers in close range at any sort of crazy rate.
+
+Data aside, we can assume pro players with thousands of hours of playtime have legitimate concerns. I’m not writing these off. To quote the designer behind Apex’s aim assist, Rayme Vinson, “Conceptually; aim assist sits at the input layer, above balance design. Using it as a difficulty lever is bad. Aim assist is for accessibility. And, yes, it's easy for us to accidentally make it ‘too good,’ and where that line is can be up for debate.”
+
+As Apex and its players evolve, it’s only prudent for us to continue to evaluate whether or not aim assist is “too good.” When I see top-level controller players saying they would be alright with nerfing aim assist, I definitely take note. Players should not feel forced to use a specific input type, and if I see players converting out of what they think is necessity, I would 100% be concerned. In fact, I’m meeting with CGE, weapons, and analytics teams this week to take a temperature reading on the situation
+
+https://www.twitlonger.com/show/n_1srqb3c
+
+—— 来自 HUAWEI NOH-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
