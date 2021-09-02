@@ -258,3 +258,25 @@ XSX实体版相比数字版过于不划算所以没什么市场
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  天乃冥  
+##### 3022#       发表于 2021-9-3 03:27
+
+
+希望1060能跑的动…
+
+
+*****
+
+####  roxassix  
+##### 3023#       发表于 2021-9-3 03:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52600347&amp;ptid=1860328" target="_blank">正直的黄瓜 发表于 2021-9-2 21:19</a>
+有没有老哥说下国内怎么买XSX的实体版，淘宝搜了一圈一家都没有。</blockquote>
+这回toar的xbox版亚洲好像没有实体版。想要实体要美亚英亚啥的海淘或者代购吧。
+
+

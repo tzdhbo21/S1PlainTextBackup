@@ -1989,3 +1989,20 @@ You gave me anything？
 海子姐转发飞我去星的动态底下好多mihiru<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我真的不想看刀
 
 
+
+
+*****
+
+####  lucifer0607  
+##### 169#       发表于 2021-9-3 03:39
+
+
+三把匹配三连鸡，匹瘾犯了
+
+第一把有脆鲨水友carry，好好打
+第二把有小孩梓水友carry，开始摆烂，问题发言“你这么强就打小帮手吧”
+第三把什么都没有，彻底烂掉，260伤害躺鸡
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
