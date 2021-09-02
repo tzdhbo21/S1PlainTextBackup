@@ -1922,3 +1922,28 @@ yoga7咋和au干上了呢
 什么有小礼而无大义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ttgg777  
+##### 164#       发表于 2021-9-2 09:04
+
+
+贴吧也学会了，mihiru极速传播中：
+-------------------------------------
+阿梓：“唱完最后一首我就可以和海子姐好聚好散了。”
+好聚好散吧 是呢 说的也是呢
+我知道海子姐又和别的女v联动了 所以我刚刚发消息说我也要一起打apex 我待会等下播就要和海子姐双排apex
+“不要和坏女人打apex了”但是…再不联动打apex我就…我就没有优势了
+“明天还要开播呢”是啊 要等她的话估计要凌晨五点了
+但是我忍不住 忍不住
+海子姐夏日合唱活动时明明说过 就是好几个月前明明说过 想和我不止做朋…同事关系 想…更进一步的发展的 可是她…她已经忘了这句话了
+…… 
+I gave you everything
+You gave me anything？
+きつと いつまででも
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
