@@ -20130,3 +20130,35 @@ pc和游戏机在一起的话可以买个几十块钱的交换机然后在最后
 有试玩版，下下来玩下就知道了
 
 
+
+
+*****
+
+####  LT_Harry  
+##### 2999#         楼主| 发表于 2021-9-2 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52589457&amp;ptid=1860328" target="_blank">urvark 发表于 2021-9-1 23:14</a>
+旁友，我非常理解和支持你的观点，建议你在帖子的标题以及主贴的抬头用加大加粗字体注明请勿剧透
+
+
+虽然我 ...</blockquote>
+其实我根本不介意被剧透，因为我对这个系列的喜好侧重不在于剧情（当然也会了解一下到底讲了什么），我这样提醒是为了避免其他人之间的讨论出现纠纷，先给各位提个醒。
+
+并且，就算有人真的在这里剧透了，我也没有权限去管理，这只是一个君子协定😅希望大家和谐理性讨论。
+
+
+*****
+
+####  古明地雷  
+##### 3000#       发表于 2021-9-2 13:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52593630&amp;ptid=1860328" target="_blank">qzfjnv 发表于 2021-9-2 11:35</a>
+
+这游戏在slim上的表现怎么样？我要求很低，有绯红结系在slim上的表现就行</blockquote>
+战斗和跑图都还正常，小剧场卡的要命
+
+打算发售后观望一下买什么版本了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

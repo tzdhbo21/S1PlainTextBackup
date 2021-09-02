@@ -6939,3 +6939,30 @@ nako丸子头的时候，好想捏脸
 前几天就是在这楼里，有人提到鲤鱼打招呼说的是 哈喽大家，你想想这句直译为日语是啥，就知道她的中文已经被日语影响了
 
 
+
+
+*****
+
+####  用户名已注册  
+##### 3566#       发表于 2021-9-2 13:20
+
+
+话说，b站何时更新呀~
+
+
+*****
+
+####  D麦林  
+##### 3567#       发表于 2021-9-2 13:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52594741&amp;ptid=1909972" target="_blank">用户名已注册 发表于 2021-9-2 13:20</a>
+
+话说，b站何时更新呀~</blockquote>
+三集一审 不出意外一星期能过审的话下周可以更新
+
+理论上来说下周放第四集的话之后可以每周一集更到结束
+
+但是不知道叔叔怎么想的 搞不好直接一月一次一次更三集<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+

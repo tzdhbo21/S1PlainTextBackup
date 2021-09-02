@@ -10618,3 +10618,17 @@ https://note.com/futashika/n/na5902f5696d9
 当初花谱《魔女》的歌词里就已经有不少让人联想到KOTODAMA TRIBE的内容，现在这么一来就说得通了
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 6803#       发表于 2021-9-2 13:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52593633&amp;ptid=1972669" target="_blank">lhawp 发表于 2021-9-2 11:35</a>
+
+当初花谱《魔女》的歌词里就已经有不少让人联想到KOTODAMA TRIBE的内容，现在这么一来就说得通了 ...</blockquote>
+我都开始怀疑六个人是不是都在神椿里了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
