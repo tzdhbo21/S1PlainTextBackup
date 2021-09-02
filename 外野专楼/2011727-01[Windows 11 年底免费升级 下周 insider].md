@@ -6513,3 +6513,33 @@ win10就说要搞安卓模拟器了，怕不是要拖到win12
 7代U是不是就可以不用关心升级了
 
 
+
+
+*****
+
+####  r_ex  
+##### 540#       发表于 2021-9-2 21:44
+
+
+ 本帖最后由 r_ex 于 2021-9-2 21:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52590764&amp;ptid=2011727" target="_blank">两个路人 发表于 2021-9-2 03:08</a>
+我看各位期待猴机模拟器，那还是等牙膏厂把houdini从仓库里挖出来，或者QEMU性能突飞猛进了比较现实 ...</blockquote>
+微软说的Intel Bridge Technology应该就是libhoudini吧
+
+—— 来自 BlackBerry BBF100-4, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+*****
+
+####  JudgmentEye  
+##### 541#       发表于 2021-9-2 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52590912&amp;ptid=2011727" target="_blank">无动于衷 发表于 2021-9-2 06:13</a>
+
+7代U是不是就可以不用关心升级了</blockquote>
+我4代e3，装的160beta，前几天都给推送了168
+
+

@@ -231,3 +231,14 @@
 有没有老哥说下国内怎么买XSX的实体版，淘宝搜了一圈一家都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  assdfe123  
+##### 3020#       发表于 2021-9-2 21:42
+
+
+有没有人知道PS4和PS5的存档通不通用
+
+
