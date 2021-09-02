@@ -19997,3 +19997,14 @@ pc和游戏机在一起的话可以买个几十块钱的交换机然后在最后
 日本很少有中文配音的，受众基本都很受用日版CV
 
 
+
+
+*****
+
+####  ky怪  
+##### 2988#       发表于 2021-9-2 10:45
+
+
+红秋裤好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
