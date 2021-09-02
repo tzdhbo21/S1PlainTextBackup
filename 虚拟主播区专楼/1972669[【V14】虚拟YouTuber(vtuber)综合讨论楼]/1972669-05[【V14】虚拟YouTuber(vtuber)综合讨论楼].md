@@ -10688,3 +10688,14 @@ king金盾了啊
 看起来King应该还在睡觉
 
 
+
+
+*****
+
+####  FCCHua  
+##### 6809#       发表于 2021-9-2 17:12
+
+
+可算有个金盾的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
