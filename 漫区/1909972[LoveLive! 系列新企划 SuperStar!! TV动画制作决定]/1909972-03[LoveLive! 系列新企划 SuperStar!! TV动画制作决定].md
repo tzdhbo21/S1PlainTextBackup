@@ -7124,3 +7124,57 @@ hello 民那
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
+
+
+*****
+
+####  北方挖掘  
+##### 3581#       发表于 2021-9-2 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52599386&amp;ptid=1909972" target="_blank">itsmyrailgun 发表于 2021-9-2 19:51</a>
+
+喜报，纯k已经加入小星星，该唱了
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+二 木 佳 奈
+
+
+*****
+
+####  kata魂  
+##### 3582#       发表于 2021-9-2 23:08
+
+
+<img src="https://img.saraba1st.com/forum/202109/02/230745iglroo9lyxir9ybr.png" referrerpolicy="no-referrer">
+
+
+<strong>11.png</strong> (28.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-2 23:07 上传
+
+
+这样貌越看越有姐妹感啊~~~~
+
+
+*****
+
+####  TTAA  
+##### 3583#       发表于 2021-9-2 23:20
+
+
+确实好像啊，上次那个合影就有点分不清两人了
+
+
+*****
+
+####  lj205  
+##### 3584#       发表于 2021-9-2 23:22
+
+
+感觉鲤鱼是不是胖了点
+
+

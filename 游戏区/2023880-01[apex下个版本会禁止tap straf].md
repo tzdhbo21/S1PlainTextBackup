@@ -1174,3 +1174,14 @@ https://www.bilibili.com/video/BV1oy4y1p7Hn
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电子竞技的世界不相信眼泪，要对自己的实力有清晰的自我认知
 
 
+
+
+*****
+
+####  引爆时尚潮流  
+##### 88#       发表于 2021-9-2 23:26
+
+
+手柄玩家九成九都是很菜的休闲玩家，一定要盯着百里挑一的高玩或者xim战士骂哎呀手柄自动锁头，何必呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
