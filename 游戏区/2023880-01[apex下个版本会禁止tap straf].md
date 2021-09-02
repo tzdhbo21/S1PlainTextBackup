@@ -1185,3 +1185,15 @@ https://www.bilibili.com/video/BV1oy4y1p7Hn
 手柄玩家九成九都是很菜的休闲玩家，一定要盯着百里挑一的高玩或者xim战士骂哎呀手柄自动锁头，何必呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  盐星  
+##### 89#       发表于 2021-9-3 00:56
+
+
+我觉得楼上那段里 <blockquote>我们所说的 "难以接近 "是指它是一种不透明的技术，几乎不可能有机地学习（最令人震惊的例子需要一个奇怪的键位）</blockquote>
+这段就深得我心
+
+
