@@ -242,3 +242,19 @@
 有没有人知道PS4和PS5的存档通不通用
 
 
+
+
+*****
+
+####  4ckc  
+##### 3021#       发表于 2021-9-2 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52600347&amp;ptid=1860328" target="_blank">正直的黄瓜 发表于 2021-9-2 21:19</a>
+有没有老哥说下国内怎么买XSX的实体版，淘宝搜了一圈一家都没有。</blockquote>
+XSX实体版相比数字版过于不划算所以没什么市场
+想实体收藏或出二手那只有PS了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
