@@ -7070,3 +7070,16 @@ nako丸子头的时候，好想捏脸
 hello 民那
 
 
+
+
+*****
+
+####  itsmyrailgun  
+##### 3577#       发表于 2021-9-2 19:51
+
+
+喜报，纯k已经加入小星星，该唱了<img src="https://p.sda1.dev/2/1a7a2a28a34993875c7b828833686755/IMG_CMP_141666627.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+

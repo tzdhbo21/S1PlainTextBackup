@@ -12057,3 +12057,34 @@ syl绫总还能有什么说法 顶多两天前发推记得来看
 最近买的衣服：白色蕾丝洋装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13037#       发表于 2021-9-2 19:24
+
+
+到现在推特一点动静也没有
+
+绫总不会打算明天也摸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fami水  
+##### 13038#       发表于 2021-9-2 19:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">完全没有预告呢 是不是忘了
+
+
+*****
+
+####  nian1538  
+##### 13039#       发表于 2021-9-2 19:46
+
+
+今天还吃了牛肉烩饭呢，起码推特密码没忘
+
+
