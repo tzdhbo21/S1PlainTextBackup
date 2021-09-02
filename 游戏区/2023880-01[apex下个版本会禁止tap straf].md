@@ -1163,3 +1163,14 @@ https://www.bilibili.com/video/BV1oy4y1p7Hn
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">不懂为什么能和手柄玩家对立起来，除了顶尖一批手柄玩家，最多也就50米内对枪能有点优势吧，更别说一打起来人就像个靶子位置一不好你一换一都做不到
 
 
+
+
+*****
+
+####  deadpeople  
+##### 87#       发表于 2021-9-2 21:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电子竞技的世界不相信眼泪，要对自己的实力有清晰的自我认知
+
+

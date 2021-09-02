@@ -187,3 +187,47 @@
 这游戏数字版是不是没有单独PS5版，4和5合在一起的？？？
 
 
+
+
+*****
+
+####  laoz  
+##### 3017#       发表于 2021-9-2 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52600215&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-9-2 21:04</a>
+
+这游戏数字版是不是没有单独PS5版，4和5合在一起的？？？</blockquote>
+你在ps5商店买了会显示ps5版，下载的时候会有两个版让你选
+
+<img src="https://img.saraba1st.com/forum/202109/02/211112umcc6qbbpbcdzchf.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (25.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-2 21:11 上传
+
+
+*****
+
+####  godless2020  
+##### 3018#       发表于 2021-9-2 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52600297&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-2 21:14</a>
+
+你在ps5商店买了会显示ps5版，下载的时候会有两个版让你选</blockquote>
+怪不得......
+
+
+*****
+
+####  正直的黄瓜  
+##### 3019#       发表于 2021-9-2 21:19
+
+
+有没有老哥说下国内怎么买XSX的实体版，淘宝搜了一圈一家都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
