@@ -355,3 +355,17 @@ zzzq终于要拳打日本二刺螈了吗<img src="https://static.saraba1st.com/i
 和之国结束后就差不多终局了，黑胡子加海军还是很难顶的，加点战斗力还是可以理解的，但是能不能先治好大和这御田病先……
 
 
+
+
+*****
+
+####  触手皇帝  
+##### 55529#       发表于 2021-9-2 11:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52588095&amp;ptid=98922" target="_blank">acejoe 发表于 2021-9-1 21:11</a>
+
+艹……</blockquote>
+大和是女人不是很明显的事情？人妖之前不是已经有一堆了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

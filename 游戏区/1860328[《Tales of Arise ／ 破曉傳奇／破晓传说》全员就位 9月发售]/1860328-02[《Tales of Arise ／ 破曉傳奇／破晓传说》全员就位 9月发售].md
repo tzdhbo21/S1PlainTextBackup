@@ -20008,3 +20008,29 @@ pc和游戏机在一起的话可以买个几十块钱的交换机然后在最后
 红秋裤好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  woshenc  
+##### 2989#       发表于 2021-9-2 11:03
+
+
+这游戏还没发售，居然就有100页接近3000楼热度？真是不得了啊
+
+
+*****
+
+####  masterzx  
+##### 2990#       发表于 2021-9-2 11:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52593190&amp;ptid=1860328" target="_blank">woshenc 发表于 2021-9-2 11:03</a>
+
+这游戏还没发售，居然就有100页接近3000楼热度？真是不得了啊</blockquote>
+草，这么一看轨迹nb
+
+
+然而xb3分分钟超过这个纪录
+
+
