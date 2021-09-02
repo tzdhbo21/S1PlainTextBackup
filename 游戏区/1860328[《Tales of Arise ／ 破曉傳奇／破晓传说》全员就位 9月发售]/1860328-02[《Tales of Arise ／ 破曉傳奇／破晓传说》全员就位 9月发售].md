@@ -20034,3 +20034,49 @@ pc和游戏机在一起的话可以买个几十块钱的交换机然后在最后
 然而xb3分分钟超过这个纪录
 
 
+
+
+*****
+
+####  angela5d30  
+##### 2991#       发表于 2021-9-2 11:31
+
+
+一开始是因为PSN免费送TOZ才接触这系列的，硬是被劝退了，然后17年机缘巧合玩TOB又觉得蛮对味的，可是后来补坛友口里评价平均下来比较高的TOV又打不下去，TOS倒是可以。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+这作在公布宣传片的时候就觉得人设蛮好看的，有点兴趣。虽然现在看起来缩水了点，可还是会首发的，希望这作的剧情能对自己口味吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gniyehz  
+##### 2992#       发表于 2021-9-2 11:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52593252&amp;ptid=1860328" target="_blank">masterzx 发表于 2021-9-2 11:07</a>
+
+草，这么一看轨迹nb</blockquote>
+刚刚去xb2专楼看了下，xb2发售前一天，260多页讨论
+
+
+*****
+
+####  qzfjnv  
+##### 2993#       发表于 2021-9-2 11:35
+
+
+这游戏在slim上的表现怎么样？我要求很低，有绯红结系在slim上的表现就行
+
+
+*****
+
+####  红魔馆的糖  
+##### 2994#       发表于 2021-9-2 11:45
+
+
+小姑娘的战国服是cos鸦天狗么，好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+用这个放风系魔法
+
+

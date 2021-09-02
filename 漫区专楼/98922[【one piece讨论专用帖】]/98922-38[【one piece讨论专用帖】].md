@@ -369,3 +369,16 @@ zzzq终于要拳打日本二刺螈了吗<img src="https://static.saraba1st.com/i
 大和是女人不是很明显的事情？人妖之前不是已经有一堆了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  海克托尔  
+##### 55530#       发表于 2021-9-2 11:25
+
+
+<blockquote>触手皇帝 发表于 2021-9-2 11:20
+大和是女人不是很明显的事情？人妖之前不是已经有一堆了吗</blockquote>
+说的是性别认知障碍啦，但是大和自我认知性别明明是御田啊⊙ω⊙
+
+

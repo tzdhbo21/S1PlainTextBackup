@@ -1086,3 +1086,21 @@ csgo限制了地速了
 apex还是枪法、意识更重要，这种特殊身法是锦上添花的东西，不妨碍上钻，但是游戏会失去很多可玩性，重生一刀切也太不行了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cheatdeath3  
+##### 82#       发表于 2021-9-2 11:35
+
+
+ 本帖最后由 cheatdeath3 于 2021-9-2 11:37 编辑 
+<blockquote>refiver 发表于 2021-9-1 17:37
+mirage一次性跳小黑屋……
+
+我练了很久还没练会，后来还看了个直接VIP屋内板凳跳小黑屋的着实惊到了
+
+</blockquote>
+板凳跳黑屋要加6次速，比赛快进黑屋都是开局双架进。再说了一些人连跳失速连250都到不了，那还不如走路抢点。
+
+

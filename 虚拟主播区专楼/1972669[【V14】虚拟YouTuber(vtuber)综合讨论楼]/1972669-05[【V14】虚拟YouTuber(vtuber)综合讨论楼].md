@@ -10604,3 +10604,17 @@ pph能出道反而不知道是福是祸了。
 结果现在也毕业了
 
 
+
+
+*****
+
+####  lhawp  
+##### 6802#       发表于 2021-9-2 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52591026&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-9-2 07:17</a>
+https://note.com/futashika/n/na5902f5696d9
+看了一下隔壁，没想到当年没下文的辉夜月的后辈们以这种形式 ...</blockquote>
+当初花谱《魔女》的歌词里就已经有不少让人联想到KOTODAMA TRIBE的内容，现在这么一来就说得通了
+
+
