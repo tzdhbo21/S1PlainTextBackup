@@ -7083,3 +7083,14 @@ hello 民那
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
+
+
+*****
+
+####  优妮可  
+##### 3578#       发表于 2021-9-2 20:13
+
+
+好像中文翻译就能唱
+
+
