@@ -7014,3 +7014,59 @@ nako丸子头的时候，好想捏脸
 这没事管不到，不过看到有人在央视新闻那里戴个狗头刷ll的还是想骂一句伞兵。
 
 
+
+
+*****
+
+####  chexk03  
+##### 3572#       发表于 2021-9-2 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52590952&amp;ptid=1909972" target="_blank">lyflyflxf 发表于 2021-9-2 06:43</a>
+前几天就是在这楼里，有人提到鲤鱼打招呼说的是 哈喽大家，你想想这句直译为日语是啥，就知道她的中文已 ...</blockquote>
+米娜桑哦哈哟？？
+
+
+*****
+
+####  lj205  
+##### 3573#       发表于 2021-9-2 15:40
+
+
+各位岳父们，记得周日嗨新动画，周一嗨直播唠嗑
+
+
+*****
+
+####  cat1230  
+##### 3574#       发表于 2021-9-2 15:42
+
+
+直播已预约，上次没赶上。这次一定<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  NameLess2501  
+##### 3575#       发表于 2021-9-2 15:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52596187&amp;ptid=1909972" target="_blank">chexk03 发表于 2021-9-2 15:30</a>
+米娜桑哦哈哟？？</blockquote>
+中文只需 大家好 就够了。鲤鱼这是日语直译中文了。
+
+
+*****
+
+####  DarthAka  
+##### 3576#       发表于 2021-9-2 16:04
+
+
+<blockquote>chexk03 发表于 2021-9-2 15:30
+米娜桑哦哈哟？？</blockquote>
+hello 民那
+
+
