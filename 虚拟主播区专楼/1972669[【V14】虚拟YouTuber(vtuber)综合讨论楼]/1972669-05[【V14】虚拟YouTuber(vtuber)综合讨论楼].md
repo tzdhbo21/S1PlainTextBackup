@@ -10752,3 +10752,23 @@ Syl，越来越喜欢圭利了<img src="https://static.saraba1st.com/image/smile
 按你虹这个性，不搞个金盾纪念回?
 
 
+
+
+*****
+
+####  OldGlory  
+##### 6813#       发表于 2021-9-2 17:57
+
+
+king已经超脱了虹杏之争，他的粉丝组成已经和其他v的不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">皮套人会衰落，king不会。
+
+
+*****
+
+####  hulaoda007  
+##### 6814#       发表于 2021-9-2 18:04
+
+
+虹杏一统靠葛king。未来只有エニカバー了。
+
+

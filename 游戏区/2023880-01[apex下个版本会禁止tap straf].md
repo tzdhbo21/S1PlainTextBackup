@@ -1152,3 +1152,14 @@ https://www.bilibili.com/video/BV1oy4y1p7Hn
 阅读量5000多，如果是“看看手柄自瞄有多离谱”，阅读量最少上万。这就是fps没有讲道理一说，输了都是别人的错。
 
 
+
+
+*****
+
+####  CCCCCC梵  
+##### 86#       发表于 2021-9-2 17:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">不懂为什么能和手柄玩家对立起来，除了顶尖一批手柄玩家，最多也就50米内对枪能有点优势吧，更别说一打起来人就像个靶子位置一不好你一换一都做不到
+
+
