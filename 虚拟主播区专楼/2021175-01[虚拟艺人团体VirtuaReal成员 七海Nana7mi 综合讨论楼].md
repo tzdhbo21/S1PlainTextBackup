@@ -1898,3 +1898,14 @@ yoga7咋和au干上了呢
 试了几次都玩不进去Apex<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  DKD  
+##### 162#       发表于 2021-9-2 08:06
+
+
+之前火的时候猛玩了一段时间apex，现在也是玩不进去的状态
+
+
