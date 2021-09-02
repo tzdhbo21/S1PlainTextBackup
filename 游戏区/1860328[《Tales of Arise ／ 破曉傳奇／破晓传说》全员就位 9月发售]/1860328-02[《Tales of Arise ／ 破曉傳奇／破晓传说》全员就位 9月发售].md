@@ -20080,3 +20080,53 @@ pc和游戏机在一起的话可以买个几十块钱的交换机然后在最后
 用这个放风系魔法
 
 
+
+
+*****
+
+####  defer  
+##### 2995#       发表于 2021-9-2 12:46
+
+
+仅次于坛游和轨迹了，ff15发售前也不过二十来页。
+
+
+不过那时候主机禁令刚解，专楼习惯也未养成，游戏区发帖量天天被漫区倍杀不止。
+
+
+*****
+
+####  kyonkoism  
+##### 2996#       发表于 2021-9-2 13:00
+
+
+淘宝买的盘，估计到手都要12号了，得被群友剧透狂暴轰入2天，我不要啊（悲）
+
+
+*****
+
+####  kyonkoism  
+##### 2997#       发表于 2021-9-2 13:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52593578&amp;ptid=1860328" target="_blank">Gniyehz 发表于 2021-9-2 11:31</a>
+
+刚刚去xb2专楼看了下，xb2发售前一天，260多页讨论</blockquote>
+毕竟泥潭最爱在出之前谁知道会变成泥潭最爱呢
+
+
+*****
+
+####  kyonkoism  
+##### 2998#       发表于 2021-9-2 13:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52589450&amp;ptid=1860328" target="_blank">hqtkkb 发表于 2021-9-1 23:13</a>
+
+路人玩家，有点想入手steam。
+
+
+好奇的问一下，这游戏前几代好玩吗？剧情这块倒不是特别在意， ...</blockquote>
+有试玩版，下下来玩下就知道了
+
+
