@@ -10783,3 +10783,14 @@ king已经超脱了虹杏之争，他的粉丝组成已经和其他v的不一样
 King确实和其他同事不在一个level了，估计就和hololive&gt;vtuber一样，以后也是king&gt;nijisanji了
 
 
+
+
+*****
+
+####  sonyjam  
+##### 6816#       发表于 2021-9-2 19:13
+
+
+<img src="https://i.niupic.com/images/2021/09/02/9u9v.jpg" referrerpolicy="no-referrer">这是咋了
+
+
