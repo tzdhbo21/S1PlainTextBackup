@@ -968,3 +968,14 @@ csgo说到底是个架枪游戏
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  modkingr  
+##### 74#       发表于 2021-9-2 08:34
+
+
+本质是因为这操作手柄做不了吧 还是支持了
+
+
