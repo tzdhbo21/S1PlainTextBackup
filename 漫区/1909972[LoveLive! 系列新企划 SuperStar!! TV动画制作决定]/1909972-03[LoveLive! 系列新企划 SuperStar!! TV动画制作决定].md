@@ -6966,3 +6966,40 @@ nako丸子头的时候，好想捏脸
 但是不知道叔叔怎么想的 搞不好直接一月一次一次更三集<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 3568#       发表于 2021-9-2 14:02
+
+
+草 不过还有个事 应该是我想多了虽然
+
+这个新增的整治偶像养成节目的规矩不知道会不会影响拉拉播出
+
+但那文件里提到的拉拉一点都不沾应该没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 3569#       发表于 2021-9-2 14:02
+
+
+草 不过还有个事 应该是我想多了虽然
+
+这个新增的整治偶像养成节目的规矩不知道会不会影响拉拉播出
+
+但那文件里提到的拉拉一点都不沾应该没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pliee  
+##### 3570#       发表于 2021-9-2 14:08
+
+
+想的太多，还能管到日本是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
