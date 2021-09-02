@@ -8749,3 +8749,14 @@ yxb什么的前几年都是拿sensor tower的数据来宣传的，今年sensor t
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  霧谷藤乃  
+##### 83232#       发表于 2021-9-2 15:21
+
+
+emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看到，然后才发觉可能是街机版……真尼玛鬼才运营
+
+
