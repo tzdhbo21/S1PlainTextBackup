@@ -7094,3 +7094,33 @@ hello 民那
 好像中文翻译就能唱
 
 
+
+
+*****
+
+####  名津流  
+##### 3579#       发表于 2021-9-2 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52599386&amp;ptid=1909972" target="_blank">itsmyrailgun 发表于 2021-9-2 19:51</a>
+
+喜报，纯k已经加入小星星，该唱了
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+这画面的右上角怎么还挂着B站UP主的水印啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  itsmyrailgun  
+##### 3580#       发表于 2021-9-2 20:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52599815&amp;ptid=1909972" target="_blank">名津流 发表于 2021-9-2 20:30</a>
+这画面的右上角怎么还挂着B站UP主的水印啊</blockquote>
+唉，那应该是投屏了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+

@@ -115,3 +115,55 @@
 躲不過的,所以都懶得躲了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  隔壁老黄  
+##### 3010#       发表于 2021-9-2 20:37
+
+
+已经被剧透了，不过算是世界舞台或者说大地图那种剧透，反倒是更加期待了
+
+
+*****
+
+####  蓝雉  
+##### 3011#       发表于 2021-9-2 20:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52599887&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-9-2 20:37</a>
+已经被剧透了，不过算是世界舞台或者说大地图那种剧透，反倒是更加期待了 ...</blockquote>
+大地图旅行回归了？
+
+
+*****
+
+####  隔壁老黄  
+##### 3012#       发表于 2021-9-2 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52599923&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-9-2 20:40</a>
+
+大地图旅行回归了？</blockquote>
+并没有，怎么可能
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3013#       发表于 2021-9-2 20:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又玩了玩感觉不对劲，这锁定是只锁镜头不锁人物方向的吗，经常摇杆一转远程就打空了
+
+
+*****
+
+####  塔奇克马  
+##### 3014#       发表于 2021-9-2 20:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧透随意,全透了也无所谓的.
+
+

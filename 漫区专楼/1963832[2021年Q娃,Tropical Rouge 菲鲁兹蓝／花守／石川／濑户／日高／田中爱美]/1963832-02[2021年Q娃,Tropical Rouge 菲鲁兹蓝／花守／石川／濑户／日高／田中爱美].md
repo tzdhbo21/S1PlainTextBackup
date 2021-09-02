@@ -7792,3 +7792,20 @@ image.png
 讲道理，果子学姐存在感还是蛮强的
 
 
+
+
+*****
+
+####  風駿  
+##### 2066#       发表于 2021-9-2 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52577388&amp;ptid=1963832" target="_blank">暗黑能乐 发表于 2021-9-1 08:17</a>
+
+这强化形态是不是在暗示萝拉变人力在消失，已经一半是鱼尾了
+
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的  ...</blockquote>
+能不能想点好的
+
+
