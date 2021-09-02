@@ -10668,3 +10668,23 @@ https://note.com/futashika/n/na5902f5696d9
 [https://twitter.com/hololivetv/status/1433309211451084801](https://twitter.com/hololivetv/status/1433309211451084801)
 
 
+
+
+*****
+
+####  aptx318  
+##### 6807#       发表于 2021-9-2 16:37
+
+
+king金盾了啊
+
+
+*****
+
+####  nian1538  
+##### 6808#       发表于 2021-9-2 16:45
+
+
+看起来King应该还在睡觉
+
+

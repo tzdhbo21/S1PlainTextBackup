@@ -1136,3 +1136,19 @@ https://www.twitlonger.com/show/n_1srqb3c
 原来重生也知道自己位移英雄做太多导致游戏环境出问题的啊
 
 
+
+
+*****
+
+####  fox  
+##### 85#       发表于 2021-9-2 16:43
+
+
+<blockquote>modkingr 发表于 2021-9-2 09:34
+https://www.bilibili.com/video/BV1oy4y1p7Hn
+
+
+这个视频是讲键鼠手柄FPS区别的，没什么概念的可以看一下， ...</blockquote>
+阅读量5000多，如果是“看看手柄自瞄有多离谱”，阅读量最少上万。这就是fps没有讲道理一说，输了都是别人的错。
+
+
