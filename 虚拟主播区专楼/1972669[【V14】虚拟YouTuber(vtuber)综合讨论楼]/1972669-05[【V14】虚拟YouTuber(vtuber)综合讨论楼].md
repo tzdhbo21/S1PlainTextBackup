@@ -10805,3 +10805,14 @@ King确实和其他同事不在一个level了，估计就和hololive&gt;vtuber�
 为啥一堆人开始r6了啊
 
 
+
+
+*****
+
+####  FCCHua  
+##### 6818#       发表于 2021-9-3 00:39
+
+
+因为最近会有比赛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
