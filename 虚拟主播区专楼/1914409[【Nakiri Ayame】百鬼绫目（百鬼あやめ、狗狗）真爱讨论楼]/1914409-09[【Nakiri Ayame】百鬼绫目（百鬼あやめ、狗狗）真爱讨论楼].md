@@ -12288,3 +12288,54 @@ tag：虚拟萌宠
 草 开场就宣传破T
 
 
+
+
+*****
+
+####  allenz3  
+##### 13057#       发表于 2021-9-3 20:25
+
+
+就你的周年在摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fami水  
+##### 13058#       发表于 2021-9-3 20:28
+
+
+预料之中的摆烂亦是一种不摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nian1538  
+##### 13059#       发表于 2021-9-3 20:30
+
+
+反正周年纪念播什么SC都是狂收，办live属于是fan service了
+
+
+*****
+
+####  Badwoman  
+##### 13060#       发表于 2021-9-3 20:34
+
+
+摆摆摆
+
+
+*****
+
+####  cctvyt1  
+##### 13061#       发表于 2021-9-3 20:34
+
+
+ 本帖最后由 cctvyt1 于 2021-9-3 20:38 编辑 
+
+真的是你杏各个争相来祝贺<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+希小姐看到心心来马上接着来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

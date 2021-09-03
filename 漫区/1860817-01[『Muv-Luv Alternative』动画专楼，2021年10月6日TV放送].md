@@ -8430,3 +8430,24 @@ Muv-Luv这次项目，tororo带的手游项目，明显跟TV的graphinica是不�
 其实人设绘柄还不错，但能不能稳定是另一回事，马三角的惨案还历历在目
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 591#       发表于 2021-9-3 20:45
+
+
+杀人诛心<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202109/03/204442dcmwehr727jery97.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210902-195847_Twitter.png</strong> (116.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-3 20:44 上传
+
+
