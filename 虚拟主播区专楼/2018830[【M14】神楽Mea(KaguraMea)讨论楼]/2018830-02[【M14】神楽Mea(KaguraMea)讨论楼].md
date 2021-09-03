@@ -6624,3 +6624,16 @@ syl，子兔音卡组感觉好久不见了（
 子兔音卡组在我印象里上次还是开眼补那次
 
 
+
+
+*****
+
+####  2014720  
+##### 2090#       发表于 2021-9-3 18:40
+
+
+并不新鲜
+
+她几把能杀谁啊，来杀我吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+

@@ -7410,3 +7410,17 @@ fc咋入来着？
 下周三生放
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3603#       发表于 2021-9-3 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52610307&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-3 17:39</a>
+
+fc咋入来着？</blockquote>
+yuu koi days iOS要日区id 安卓好像可以绕过商店安装 虽然普遍是用礼品卡付
+
+

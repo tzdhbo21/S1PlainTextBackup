@@ -18896,3 +18896,17 @@ PC版前射太爽不想放弃霰弹啊，不过没4星不关我的事<img src="h
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 5967#       发表于 2021-9-3 18:34
+
+
+这次活动最后还是失忆了看来敌人依然没彻底清除，请以后务必要加上桑尼亚找怪明娜定位艾拉预知501全员来个合体技彻底解决问题<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+再说莉捏的狙分支，当然可以用啊，莉塔这么笨重的分支步枪大触手一样在高难用得风生水起。只是我个人觉得以无脑狙射著名的莉捏需要带脑子去玩狙找上弹时机啥的要去习惯要去练，就非常蛋痛，所以不推荐<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
