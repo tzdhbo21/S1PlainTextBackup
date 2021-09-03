@@ -6563,3 +6563,16 @@ win10就说要搞安卓模拟器了，怕不是要拖到win12
 看着网课突然给我黑屏了，强制重启才恢复
 
 
+
+
+*****
+
+####  distrowatch  
+##### 544#       发表于 2021-9-3 07:44
+
+
+买了台Chromebook玩发现谷歌自己的x86安卓模拟都没做好，那win11也不用期待了
+
+—— 来自 Xiaomi 2106118C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
