@@ -385,3 +385,34 @@ XSX实体版相比数字版过于不划算所以没什么市场
 其他的算收集要素慢慢打就是了
 
 
+
+
+*****
+
+####  laoz  
+##### 3032#       发表于 2021-9-3 19:42
+
+
+ 本帖最后由 laoz 于 2021-9-3 19:44 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202109/03/194225p99q58opupz5fuo8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (125.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-3 19:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/03/194429rddddnepdenkdczd.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (50.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-3 19:44 上传
+
+
