@@ -7839,3 +7839,17 @@ yuu koi days iOS要日区id 安卓好像可以绕过商店安装 虽然普遍是
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  qratosone  
+##### 3634#       发表于 2021-9-4 02:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52614465&amp;ptid=1909972" target="_blank">cqc1021 发表于 2021-9-4 01:07</a>
+
+日本那么多知名混血女艺人，远有四分之一意大利人的安室奈美惠，近有半个缅甸人的斋藤飞鸟，感觉也没啥啊， ...</blockquote>
+可能是因为佩酱长相有点美国大妞的感觉，跟死宅审美对不上吧。然后佩酱本人毕竟年纪小，抗压估计也差点
+
+
