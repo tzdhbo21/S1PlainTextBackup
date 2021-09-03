@@ -1210,3 +1210,19 @@ https://www.bilibili.com/video/BV1oy4y1p7Hn
 这……您没玩过titanfall 2吧。去补一下吧，补了不吃亏，补了不上当，不用多人，单人就行。
 
 
+
+
+*****
+
+####  杨千fa单推人  
+##### 91#       发表于 2021-9-3 08:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52603017&amp;ptid=2023880" target="_blank">yang1820 发表于 2021-9-3 07:17</a>
+
+这……您没玩过titanfall 2吧。去补一下吧，补了不吃亏，补了不上当，不用多人，单人就行。 ...</blockquote>
+PS4会免的时候我把单人模式打完了啊。。。
+
+哦我知道了你们说的是那个在墙上一直跳就不会掉下来吧。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
