@@ -6328,3 +6328,23 @@ cry baby都唱这么好了
 没事，明年这句话还能用<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 2063#       发表于 2021-9-3 10:09
+
+
+这不东京才发现新的变异，还能再变变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 2064#       发表于 2021-9-3 10:19
+
+
+现在疫苗有异物 就算打了疫苗也会被德尔塔突破 还有其他的变种病毒 东京现在这吊样能不能度过今年还是个问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
