@@ -1226,3 +1226,17 @@ PS4会免的时候我把单人模式打完了啊。。。
 哦我知道了你们说的是那个在墙上一直跳就不会掉下来吧。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  k12320593  
+##### 92#       发表于 2021-9-3 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52597154&amp;ptid=2023880" target="_blank">fox 发表于 2021-9-2 16:43</a>
+
+阅读量5000多，如果是“看看手柄自瞄有多离谱”，阅读量最少上万。这就是fps没有讲道理一说，输了都是别 ...</blockquote>
+无敌的4k240hz机械键盘电竞婆罗门居然被原装手柄小学生杀了，这怎么可能！都怪辅助瞄准imba！
+
+
