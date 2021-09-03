@@ -509,3 +509,16 @@ BGM可以设置具体曲目勾选以及播放顺序
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  herryk159  
+##### 3041#       发表于 2021-9-4 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52614163&amp;ptid=1860328" target="_blank">zero12 发表于 2021-9-4 00:12</a>
+ 最大影响是延期了一年啊</blockquote>
+那一切好说<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+

@@ -7779,3 +7779,50 @@ yuu koi days iOS要日区id 安卓好像可以绕过商店安装 虽然普遍是
 恋恋肯定是倒数了，希望别太难看吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  kata魂  
+##### 3629#       发表于 2021-9-4 00:26
+
+
+ 本帖最后由 kata魂 于 2021-9-4 00:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">最近开始有人研究可千的可能性了，感觉是那个up的岬鱼87次开始的
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">当然了，岬鱼对我来说还是差一手鲤鱼在左2，nako坐在左一的论证，要是那时候鲤鱼还是不断的看着nako，那我就承认岬鱼的含金量（动画再不播大家都要疯了）
+
+
+*****
+
+####  黑雪姫  
+##### 3630#       发表于 2021-9-4 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52614154&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-4 00:11</a>
+
+恋恋肯定是倒数了，希望别太难看吧</blockquote>
+那倒不一定，动画演完才投票，有可能恋恋个人回是神回呢？ 复刻果南三单登顶。
+
+
+
+
+*****
+
+####  Erikas  
+##### 3631#       发表于 2021-9-4 00:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">佩顿毕竟年纪小又在日本长大，就日呆的价值观容易被影响
+海龟子女倒是见识相对广些普遍不会把这些傻逼言论当回事，无情的业务机器
+
+
+*****
+
+####  优妮可  
+##### 3632#       发表于 2021-9-4 00:47
+
+
+历代学生会长人气都不低吧
+
+
