@@ -8788,3 +8788,37 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  shimotsuki14  
+##### 83235#       发表于 2021-9-3 12:22
+
+
+伽摩和魔总<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83236#       发表于 2021-9-3 12:25
+
+
+这次这个我信了，带小芬奇的职阶。布狄卡，小芬奇，迦摩，魔总，阿塔，皇女，帝王花。只有迦摩一个有兴趣。。
+
+<img src="https://p.sda1.dev/2/efe4630d226f20766d5d59eb305ebb69/-2048388774.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83237#       发表于 2021-9-3 12:31
+
+
+布妈卡面大概率灾难，剩下的都挺想要啊混蛋
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
