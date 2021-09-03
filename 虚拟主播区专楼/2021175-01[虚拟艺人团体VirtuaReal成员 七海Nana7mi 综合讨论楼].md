@@ -2006,3 +2006,29 @@ You gave me anything？
 —— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  stlover  
+##### 170#       发表于 2021-9-3 08:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52602792&amp;ptid=2021175" target="_blank">lucifer0607 发表于 2021-9-3 03:39</a>
+
+三把匹配三连鸡，匹瘾犯了
+
+
+第一把有脆鲨水友carry，好好打</blockquote>
+#nana7mi颜值##nana7mi学霸##天道酬勤#
+
+
+*****
+
+####  RStocking  
+##### 171#       发表于 2021-9-3 08:28
+
+
+看了海子姐和臭寄吧彩笔辣辣米的切片，只能说，海子姐有点眷顾直播之神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

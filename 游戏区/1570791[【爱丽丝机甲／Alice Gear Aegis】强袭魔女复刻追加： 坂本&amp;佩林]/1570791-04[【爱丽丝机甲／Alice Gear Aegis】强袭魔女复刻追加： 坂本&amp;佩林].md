@@ -18835,3 +18835,16 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 哈特曼宫藤分支问题不大，几乎纯变强。莉捏虽然5发变强但是打光了就失去了分裂弹片平时要不时蓄力上弹要三思。妹控看上去输出高了但是整个输出过程比较长，也是三思。这两位最后各留一把。
 
 
+
+
+*****
+
+####  unsh  
+##### 5962#       发表于 2021-9-3 08:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还第一时间把莉捏的改了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
