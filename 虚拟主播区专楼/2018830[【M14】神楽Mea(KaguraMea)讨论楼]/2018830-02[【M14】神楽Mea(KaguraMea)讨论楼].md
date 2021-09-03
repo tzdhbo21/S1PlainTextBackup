@@ -7071,3 +7071,25 @@ Tulip可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  2014720  
+##### 2132#       发表于 2021-9-4 03:11
+
+
+现在评论区明显就是很多故意招魂恶心你罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过最近也少了，比起前段时间视频下面八竿子打不着的都有嗯扯的已经很好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 2133#       发表于 2021-9-4 03:18
+
+
+虽然习惯了，但这个评论区也太。。。<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
