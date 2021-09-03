@@ -18870,3 +18870,16 @@ PS:看了BD版，泡澡那段有点的莉捏的mimi真是赞<img src="https://st
 莉涅这新枪好像攒气也变快了，不过注意弹匣打空的时候的射击比通常版的枪少了扩散弹。
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 5965#       发表于 2021-9-3 15:16
+
+
+PC版前射太爽不想放弃霰弹啊，不过没4星不关我的事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这次小裤裤联动剧情真的不错。第一次联动的剧情很空洞高次元人就是空气，这次居然直接变成loop系主角了。而且这设定太方便今后的联动了，我看要501凑齐了才能打败幕后黑手终结loop<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
