@@ -1186,3 +1186,59 @@ wasm软解，好处太多了。省服务器带宽，控制内容，没办法跳�
 b站这个wasm解码是因为编码方式是h265，这玩意同等画质能节省40%带宽！40%啊！对于带宽成本高昂的视频站点这是极大的吸引力，所以才强行搞wasm软解。
 
 
+
+
+*****
+
+####  wddark  
+##### 103#       发表于 2021-9-3 17:55
+
+
+控制内容也好理解。我就是搞这玩意（wasm播放器核心）的，扔到微信小程序处理特殊视频需求的。
+
+浏览器websocket连接服务器接收帧，这个帧由于是自定义格式什么都能玩。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，比如前面20秒把广告画面和真正内容揉在一起加密加密封装为自定义帧返回，页面收到就扔wasm解码器里面解码分离播放广告什么的一条龙。
+
+这种广告就没法拦截，就一个流处理全部数据。全部解码解密甚至渲染（sdl）逻辑都在c/rust代码里面。
+
+
+*****
+
+####  starrlit  
+##### 104#       发表于 2021-9-3 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52610449&amp;ptid=2023333" target="_blank">wddark 发表于 2021-9-3 17:55</a>
+
+控制内容也好理解。我就是搞这玩意（wasm播放器核心）的，扔到微信小程序处理特殊视频需求的。
+
+浏览器webso ...</blockquote>
+谢科普！怪不得一堆人都在推 wasm，原来都他妈是为了赚钱<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiddolck  
+##### 105#       发表于 2021-9-3 18:03
+
+
+。原来是视频云的 KPI，意念召唤周总了
+
+
+*****
+
+####  maritimus  
+##### 106#       发表于 2021-9-3 18:06
+
+
+这不就是新时代的flash？除了因为有沙盒，漏洞少一点，解码性能一样甚至比flash更差。希望苹果爸爸出面怼回去，但是技术上似乎很难禁止这种手段
+
+
+*****
+
+####  foraiur  
+##### 107#       发表于 2021-9-3 18:07
+
+
+是不是说明批站要上贴片广告了？
+
+

@@ -352,3 +352,36 @@ XSX实体版相比数字版过于不划算所以没什么市场
 所以是9号凌晨解锁吗，那就是新西兰人周三晚上就能玩到了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  司马千晶  
+##### 3030#       发表于 2021-9-3 17:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起来本人最不喜欢的就是刷称号，讨厌果冻那种战斗相关其实怎么都好。
+
+
+一想到什么送餐，短跑比赛，推箱子，花牌，打鼓，射箭，区域制霸，再加某些限时支线的称号<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  中泽君  
+##### 3031#       发表于 2021-9-3 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52610381&amp;ptid=1860328" target="_blank">司马千晶 发表于 2021-9-3 17:48</a>
+
+说起来本人最不喜欢的就是刷称号，讨厌果冻那种战斗相关其实怎么都好。
+
+
+一想到什么送餐，短跑比赛 ...</blockquote>
+这次应该没有限时支线了吧
+
+其他的算收集要素慢慢打就是了
+
+
