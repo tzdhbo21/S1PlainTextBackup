@@ -7522,3 +7522,66 @@ yuu koi days iOS要日区id 安卓好像可以绕过商店安装 虽然普遍是
 2021-9-3 21:20 上传
 
 
+
+
+*****
+
+####  TTAA  
+##### 3607#       发表于 2021-9-3 21:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52612428&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-3 21:12</a>
+这个女人真有意思。</blockquote>
+这图看一次吓一次，好精神污染<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 3608#       发表于 2021-9-3 21:28
+
+
+鲤鱼这种纯血外国人比上尉好混的，因为有后路，可以不需要融入他们，大不了回国，上尉家都在日本不融入不行啊...  结论就是日本人傻逼。
+
+
+*****
+
+####  离心  
+##### 3609#       发表于 2021-9-3 21:39
+
+
+日本人伞兵+1
+
+
+*****
+
+####  离心  
+##### 3610#       发表于 2021-9-3 21:39
+
+
+风怒编辑
+
+
+*****
+
+####  优妮可  
+##### 3611#       发表于 2021-9-3 21:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52612601&amp;ptid=1909972" target="_blank">TTAA 发表于 2021-9-3 21:26</a>
+
+这图看一次吓一次，好精神污染</blockquote>
+青山姐那么怕鬼屋，却喜欢整这种哈人的活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3612#       发表于 2021-9-3 21:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52612468&amp;ptid=1909972" target="_blank">努斯万克 发表于 2021-9-3 21:14</a>
+请问这是谁说的，什么情况？</blockquote>
+佩顿发的。大概就是有网友说佩顿是1/4日本血统，佩顿说她其实是一半一半的，然后一直被人说出身血统这种事情，心里还是不太舒服的，希望大家不要排斥她。<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+
