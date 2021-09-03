@@ -7826,3 +7826,16 @@ yuu koi days iOS要日区id 安卓好像可以绕过商店安装 虽然普遍是
 历代学生会长人气都不低吧
 
 
+
+
+*****
+
+####  cqc1021  
+##### 3633#       发表于 2021-9-4 01:07
+
+
+日本那么多知名混血女艺人，远有四分之一意大利人的安室奈美惠，近有半个缅甸人的斋藤飞鸟，感觉也没啥啊，二刺螈肥宅破事多？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
