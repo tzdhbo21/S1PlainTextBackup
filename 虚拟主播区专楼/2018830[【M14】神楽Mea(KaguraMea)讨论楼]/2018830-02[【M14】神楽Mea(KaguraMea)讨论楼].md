@@ -6969,3 +6969,72 @@ Tulip可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 安心
 
 
+
+
+*****
+
+####  yywzjsw  
+##### 2122#       发表于 2021-9-3 22:25
+
+
+竟然是这首，爱了！
+
+
+*****
+
+####  T_Hb  
+##### 2123#       发表于 2021-9-3 22:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2124#       发表于 2021-9-3 22:27
+
+
+这首还是得练，上次感觉音准不太行，这次直接翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2125#       发表于 2021-9-3 22:30
+
+
+ 本帖最后由 T_Hb 于 2021-9-3 22:35 编辑 
+
+甜的来了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+跑路了，明天有啥事呢
+
+
+*****
+
+####  yywzjsw  
+##### 2126#       发表于 2021-9-3 22:34
+
+
+跑了，还以为能到零点
+
+
+*****
+
+####  时间在我手中  
+##### 2127#       发表于 2021-9-3 22:36
+
+
+今晚也不错，最近唱歌气挺足，是好事，说明肥了，坦赢！
+
+
+*****
+
+####  yywzjsw  
+##### 2128#       发表于 2021-9-3 22:37
+
+
+坦了的话，胸也会变大（
+
+
