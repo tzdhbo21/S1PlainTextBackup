@@ -10816,3 +10816,18 @@ King确实和其他同事不在一个level了，估计就和hololive&gt;vtuber�
 因为最近会有比赛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  free  
+##### 6819#       发表于 2021-9-3 17:12
+
+
+[https://www.youtube.com/watch?v=-HFzAT4Caxo](https://www.youtube.com/watch?v=-HFzAT4Caxo)
+
+DUSTCELL 2nd Album「自白」Teaser
+
+又发片啦，这样跟着裸春混也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

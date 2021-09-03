@@ -6579,3 +6579,14 @@ cry baby都唱这么好了
 就是这对啊，发现丈夫和JK私联，妻子直接图图了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然他们都是V咧
 
 
+
+
+*****
+
+####  Ky·Kiske  
+##### 2086#       发表于 2021-9-3 17:03
+
+
+迟早会有这种事情的，虽然严格来说这个事件里管人粉才是受害者吧
+
+

@@ -1138,3 +1138,35 @@ tmd，我说怎么感觉怪怪的，居然没注意到这个问题。 换回h5�
 真是绝了，怎么想到这种主意的
 
 
+
+
+*****
+
+####  wddark  
+##### 99#       发表于 2021-9-3 16:31
+
+
+wasm软解，好处太多了。省服务器带宽，控制内容，没办法跳广告，可加密等等。坏处就是纯CPU软解，没办法用硬件加速，卡的很
+
+
+*****
+
+####  奥古斯都  
+##### 100#         楼主| 发表于 2021-9-3 16:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52609393&amp;ptid=2023333" target="_blank">wddark 发表于 2021-9-3 16:31</a>
+
+wasm软解，好处太多了。省服务器带宽，控制内容，没办法跳广告，可加密等等。坏处就是纯CPU软解，没办法用 ...</blockquote>
+省宽带我没搞懂。canvas和video一样是获取m4s fragment data。一个是浏览器负责解码，一个是自己写的wasm软解。有啥区别吗？
+
+
+*****
+
+####  灯香朱  
+##### 101#       发表于 2021-9-3 17:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">很难不支持蒙古上单，snm终于明白为啥b站最近体验那么差
+
+

@@ -280,3 +280,75 @@ XSX实体版相比数字版过于不划算所以没什么市场
 这回toar的xbox版亚洲好像没有实体版。想要实体要美亚英亚啥的海淘或者代购吧。
 
 
+
+
+*****
+
+####  改名了的  
+##### 3024#       发表于 2021-9-3 16:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这次是不是没称号了。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  中泽君  
+##### 3025#       发表于 2021-9-3 16:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52609371&amp;ptid=1860328" target="_blank">改名了的 发表于 2021-9-3 16:29</a>
+
+这次是不是没称号了。
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端</blockquote>
+有，还是TOG那种带成长内容的称号，不过估计数量会比较少
+
+
+*****
+
+####  ff2077  
+##### 3026#       发表于 2021-9-3 16:51
+
+
+没有万恶的d加密，好事
+
+
+*****
+
+####  iqbsh38  
+##### 3027#       发表于 2021-9-3 17:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">看到这里我才想起来 我上礼拜在NGA写了个系列推荐贴 写了一半忘记更了
+
+真的
+
+我开完房就在床边更 不学某人
+
+
+*****
+
+####  izayoi39  
+##### 3028#       发表于 2021-9-3 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52609371&amp;ptid=1860328" target="_blank">改名了的 发表于 2021-9-3 16:29</a>
+这次是不是没称号了。
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端</blockquote>
+这作有啊，而且术技啥的都跟着称号才能解锁
+
+
+*****
+
+####  NorLaTu  
+##### 3029#       发表于 2021-9-3 17:20
+
+
+所以是9号凌晨解锁吗，那就是新西兰人周三晚上就能玩到了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
