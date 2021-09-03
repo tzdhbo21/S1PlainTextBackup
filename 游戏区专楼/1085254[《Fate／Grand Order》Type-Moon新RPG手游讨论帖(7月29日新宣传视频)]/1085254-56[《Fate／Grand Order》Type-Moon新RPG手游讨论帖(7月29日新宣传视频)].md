@@ -8864,3 +8864,26 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 这半个月清理各种free和强化本，终于够100石头砸泳装，就看能出几个了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  yzj134100  
+##### 83242#       发表于 2021-9-3 13:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52606732&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-3 12:57</a>
+
+没有艾蕾的</blockquote>
+呜，另一个舅舅图害我<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 83243#       发表于 2021-9-3 13:40
+
+
+两版偷跑消息了，伽摩和魔总肯定是没跑了，个人觉得带艾蕾的那个可能性更高些
+
+
