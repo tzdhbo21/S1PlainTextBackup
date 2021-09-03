@@ -470,3 +470,15 @@ BGM可以设置具体曲目勾选以及播放顺序
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这次塞的太多了，法师直接抄起法米通打架，给个39分不过分吧
 
 
+
+
+*****
+
+####  herryk159  
+##### 3038#       发表于 2021-9-4 00:03
+
+
+怪怪的，刚预购了就突然有种不好的预感。
+也不知疫情对这游戏的影响会体现在哪里？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
