@@ -6894,3 +6894,36 @@ Tulip可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png"
 这首可以，就爱高音
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2115#       发表于 2021-9-3 21:12
+
+
+这首最近经常唱可惜总是蚌埠猪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2116#       发表于 2021-9-3 21:13
+
+
+ 本帖最后由 T_Hb 于 2021-9-3 21:17 编辑 
+
+感觉最近没怎么唱地狱先生啊
+
+嗨！  嗨！<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 2117#       发表于 2021-9-3 21:14
+
+
+一千万会唱吗
+
+
