@@ -1170,3 +1170,19 @@ wasm软解，好处太多了。省服务器带宽，控制内容，没办法跳�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">很难不支持蒙古上单，snm终于明白为啥b站最近体验那么差
 
 
+
+
+*****
+
+####  wddark  
+##### 102#       发表于 2021-9-3 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52609663&amp;ptid=2023333" target="_blank">奥古斯都 发表于 2021-9-3 16:50</a>
+
+省宽带我没搞懂。canvas和video一样是获取m4s fragment data。一个是浏览器负责解码，一个是自己写的wasm ...</blockquote>
+正常播放是扔给video标签，视频编码是h264，主流浏览器都会使用显卡硬件加速解码，所以不占cpu。
+
+b站这个wasm解码是因为编码方式是h265，这玩意同等画质能节省40%带宽！40%啊！对于带宽成本高昂的视频站点这是极大的吸引力，所以才强行搞wasm软解。
+
+

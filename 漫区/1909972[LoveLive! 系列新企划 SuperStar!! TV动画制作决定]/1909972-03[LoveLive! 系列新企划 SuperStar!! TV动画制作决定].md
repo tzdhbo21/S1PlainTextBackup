@@ -7327,3 +7327,41 @@ BV1qP4y1a7rg
 才发现是两年前的，B站刚有人转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qratosone  
+##### 3597#       发表于 2021-9-3 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52609739&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-3 16:55</a>
+一段时间没看小星星都140w了，哈人</blockquote>
+现在星团播放量已经快有虹团的一半了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  武男  
+##### 3598#       发表于 2021-9-3 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52609739&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-3 16:55</a>
+
+一段时间没看小星星都140w了，哈人</blockquote>
+怎么说呢，之前没买那段时间可不可以算某种意义上的饥饿营销呢
+
+
+*****
+
+####  lj205  
+##### 3599#       发表于 2021-9-3 17:39
+
+
+<blockquote>cybernetics31 发表于 2021-9-3 16:51
+你这都两年前的视频了…………那时候长发脸圆挺可爱的，现在短发又圆了不少…………看她fc ...</blockquote>
+fc咋入来着？
+
+
