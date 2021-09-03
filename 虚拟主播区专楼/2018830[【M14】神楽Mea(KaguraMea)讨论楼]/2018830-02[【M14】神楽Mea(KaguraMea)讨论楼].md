@@ -6317,3 +6317,14 @@ cry baby都唱这么好了
 讲得过了今年疫情会变好一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2062#       发表于 2021-9-3 09:02
+
+
+没事，明年这句话还能用<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
