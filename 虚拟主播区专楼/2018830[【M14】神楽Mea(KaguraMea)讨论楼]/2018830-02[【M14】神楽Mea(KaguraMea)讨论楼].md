@@ -6637,3 +6637,74 @@ syl，子兔音卡组感觉好久不见了（
 她几把能杀谁啊，来杀我吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 2091#       发表于 2021-9-3 20:04
+
+
+冲
+
+
+*****
+
+####  时间在我手中  
+##### 2092#       发表于 2021-9-3 20:04
+
+
+ 本帖最后由 时间在我手中 于 2021-9-3 20:06 编辑 
+
+坦来！是新开头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 2093#       发表于 2021-9-3 20:05
+
+
+换了aut的开头阿
+
+
+*****
+
+####  Rem-清曲  
+##### 2094#       发表于 2021-9-3 20:07
+
+
+这开头感觉像是卡住了，加载有点慢
+
+
+*****
+
+####  T_Hb  
+##### 2095#       发表于 2021-9-3 20:07
+
+
+她怎么每次都手打这段话，不能存一下每次复制吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好快，直接开唱了
+
+
+*****
+
+####  时间在我手中  
+##### 2096#       发表于 2021-9-3 20:08
+
+
+竟然没啥要说的，直接开唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 2097#       发表于 2021-9-3 20:08
+
+
+<blockquote>Rem-清曲 发表于 2021-9-3 20:07
+这开头感觉像是卡住了，加载有点慢</blockquote>
+就是这个效果，有两种
+
+
