@@ -8822,3 +8822,34 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  angelooo  
+##### 83238#       发表于 2021-9-3 12:44
+
+
+如果是真的我觉得正常人类二池都会等皇女单up再抽，这仨在一个池子里光是抽卡界面估计都是公开处刑了
+
+
+*****
+
+####  yzj134100  
+##### 83239#       发表于 2021-9-3 12:47
+
+
+艾蕾 耶
+
+
+*****
+
+####  zakki  
+##### 83240#       发表于 2021-9-3 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52606598&amp;ptid=1085254" target="_blank">yzj134100 发表于 2021-9-3 12:47</a>
+艾蕾 耶</blockquote>
+没有艾蕾的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
