@@ -2043,3 +2043,20 @@ You gave me anything？
 后半夜几乎把把有脆鲨，海子姐是带明星了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  老岳  
+##### 173#       发表于 2021-9-3 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52602792&amp;ptid=2021175" target="_blank">lucifer0607 发表于 2021-9-3 03:39</a>
+
+三把匹配三连鸡，匹瘾犯了
+
+
+第一把有脆鲨水友carry，好好打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">第三把至少跳板扔的不错，决赛圈发挥作用了
+
+
