@@ -7616,3 +7616,48 @@ yuu koi days iOS要日区id 安卓好像可以绕过商店安装 虽然普遍是
 令人感叹，上尉在这种环境下真不容易啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  努斯万克  
+##### 3615#       发表于 2021-9-3 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52612930&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-3 21:50</a>
+
+佩顿发的。大概就是有网友说佩顿是1/4日本血统，佩顿说她其实是一半一半的，然后一直被人说出身血统这种 ...</blockquote>
+心酸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 3616#       发表于 2021-9-3 22:15
+
+
+菜宝在那边有被网友说过出身问题么
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3617#       发表于 2021-9-3 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52613257&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-3 22:15</a>
+
+菜宝在那边有被网友说过出身问题么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">不混5ch，但是推特上也能看到黑屁（搜可可的时候看到的），我猜肯定不少
+
+
+*****
+
+####  Norkey1  
+##### 3618#       发表于 2021-9-3 22:24
+
+
+名菜姐生放里说了这么多中文，感觉比中国人还中国人了，加上手游剧情，不用想也知道意见很多了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+按理说白人混血比起其他混血儿应该好得多，上尉自身性格敏感还年龄小，而且企划曝光度大，抗压跟不上了吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+

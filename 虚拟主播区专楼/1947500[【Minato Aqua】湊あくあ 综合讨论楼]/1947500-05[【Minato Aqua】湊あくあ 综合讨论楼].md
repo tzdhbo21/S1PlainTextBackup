@@ -10946,3 +10946,18 @@ https://twitter.com/umaiyo_puyoman/status/1432640700638629889
 スバルを犯す配信<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 6885#       发表于 2021-9-3 22:06
+
+
+又低气压头疼，打哈欠犯困，听着怎么感觉不像低气压像睡眠不足
+
+以为余3周年是8点，结果是9点，等的时候睡着了，很急，对面正下播呢从Discord call过去，3周年快乐说成生日快乐，聊了两句发了个信息完事了
+
+这次自己出了岔子把人鸽了很气，下次要让Subaru轮到放鸽子的那个，打算等Subaru睡觉的时候突击开播
+
+
