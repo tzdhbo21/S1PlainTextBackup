@@ -18883,3 +18883,16 @@ PC版前射太爽不想放弃霰弹啊，不过没4星不关我的事<img src="h
 这次小裤裤联动剧情真的不错。第一次联动的剧情很空洞高次元人就是空气，这次居然直接变成loop系主角了。而且这设定太方便今后的联动了，我看要501凑齐了才能打败幕后黑手终结loop<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  灰色蔓延  
+##### 5966#       发表于 2021-9-3 16:02
+
+
+莉涅强化弹推射也很强力。就是操作习惯要改改
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+

@@ -8923,3 +8923,14 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有四石 只能看你们到时豹跳了
 
 
+
+
+*****
+
+####  zakki  
+##### 83247#       发表于 2021-9-3 16:04
+
+
+当时出摩根的时候我就说还抽个寄吧的泳装，这次全随缘抽，能出一个4星就是赚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

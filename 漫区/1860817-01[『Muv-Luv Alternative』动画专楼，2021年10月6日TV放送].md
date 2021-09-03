@@ -8419,3 +8419,14 @@ Muv-Luv这次项目，tororo带的手游项目，明显跟TV的graphinica是不�
 <img src="https://p.sda1.dev/2/562db9586a8d551e07bde694553c6817/20210903_160702.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sauron.j  
+##### 590#       发表于 2021-9-3 16:18
+
+
+其实人设绘柄还不错，但能不能稳定是另一回事，马三角的惨案还历历在目
+
+
