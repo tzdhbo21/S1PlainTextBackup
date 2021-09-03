@@ -12240,3 +12240,26 @@ tag：虚拟萌宠
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  一仙  
+##### 13053#       发表于 2021-9-3 19:11
+
+
+昨天就在想三周年纪念会不会就是挂了一个“本日の主役”横幅带一个墨镜然后开始杂谈，别真给奶中了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+重大发表不会是一百万粉丝的谷终于准备好了和三周年的一起开卖吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FCCHua  
+##### 13054#       发表于 2021-9-3 19:12
+
+
+看了眼，评论真就挑着回复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
