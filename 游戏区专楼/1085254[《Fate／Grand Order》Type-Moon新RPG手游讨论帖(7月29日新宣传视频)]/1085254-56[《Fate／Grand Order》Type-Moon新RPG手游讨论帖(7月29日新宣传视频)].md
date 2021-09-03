@@ -8887,3 +8887,17 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 两版偷跑消息了，伽摩和魔总肯定是没跑了，个人觉得带艾蕾的那个可能性更高些
 
 
+
+
+*****
+
+####  areklose  
+##### 83244#       发表于 2021-9-3 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52606808&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-9-3 13:04</a>
+
+这半个月清理各种free和强化本，终于够100石头砸泳装，就看能出几个了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不是应该问你钱包吗
+
+

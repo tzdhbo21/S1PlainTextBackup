@@ -7221,3 +7221,14 @@ hello 民那
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">再次感叹鲤鱼各种自搜看评论…………抗压能力确实可以
 
 
+
+
+*****
+
+####  ads147147  
+##### 3588#       发表于 2021-9-3 14:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">担心啥，就算高强度自搜也肯定是在微博和b站，再说最近鲤鱼估计也没空折腾这个了，minilive里明显练的还不够（
+
+
