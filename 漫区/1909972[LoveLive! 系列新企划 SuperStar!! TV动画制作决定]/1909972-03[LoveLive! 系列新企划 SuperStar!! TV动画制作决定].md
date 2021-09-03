@@ -7674,3 +7674,35 @@ yuu koi days iOS要日区id 安卓好像可以绕过商店安装 虽然普遍是
 不少，不过菜宝心态好，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日常搓搓日麻，打打apex
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3620#       发表于 2021-9-3 22:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到推特上一个在学中文的日本初中生说不看中文字幕都听不懂可可的中文
+
+
+*****
+
+####  plazum  
+##### 3621#       发表于 2021-9-3 22:47
+
+
+不是，我听说日本男足不是全员归化么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plazum  
+##### 3622#       发表于 2021-9-3 22:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52613512&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-3 22:46</a>
+
+看到推特上一个在学中文的日本初中生说不看中文字幕都听不懂可可的中文 ...</blockquote>
+刚播出的时候就有很多中国人说听不懂了啊，日本人听不懂算什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
