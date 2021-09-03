@@ -8406,3 +8406,16 @@ Muv-Luv这次项目，tororo带的手游项目，明显跟TV的graphinica是不�
 鸡总那哪是怨气，都可以说是魔怔了，换一般人十来年还没搞成估计就放弃了
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 589#       发表于 2021-9-3 16:08
+
+
+[https://muv-luv-alternative-anime.com/news/detail.php?id=1093928](https://muv-luv-alternative-anime.com/news/detail.php?id=1093928)
+<img src="https://p.sda1.dev/2/090a87f23f43dad3bf81c25d83178fd3/20210903_160654.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/562db9586a8d551e07bde694553c6817/20210903_160702.jpg" referrerpolicy="no-referrer">
+
+
