@@ -482,3 +482,30 @@ BGM可以设置具体曲目勾选以及播放顺序
 也不知疫情对这游戏的影响会体现在哪里？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zero12  
+##### 3039#       发表于 2021-9-4 00:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52614106&amp;ptid=1860328" target="_blank">herryk159 发表于 2021-9-4 00:03</a>
+
+怪怪的，刚预购了就突然有种不好的预感。
+
+也不知疫情对这游戏的影响会体现在哪里？ ...</blockquote>
+最大影响是延期了一年啊
+
+
+*****
+
+####  heseran  
+##### 3040#       发表于 2021-9-4 00:22
+
+
+琳薇尔太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
