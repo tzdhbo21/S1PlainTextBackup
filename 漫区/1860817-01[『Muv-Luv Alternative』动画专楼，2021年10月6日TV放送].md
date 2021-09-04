@@ -8451,3 +8451,24 @@ Muv-Luv这次项目，tororo带的手游项目，明显跟TV的graphinica是不�
 2021-9-3 20:44 上传
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 592#       发表于 2021-9-5 07:27
+
+
+mla漫画看完了，非常地满足。
+
+大妈之家就有，整整100话。
+
+剧情饱满的同时还有背景补充，只看mla漫画也能感受到人物强烈的情感。
+
+跟动画对比起来，人设也十分还原<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还没看过的建议去看，可以复习或了解一遍游戏剧情，看完了也动画也开播了。
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
