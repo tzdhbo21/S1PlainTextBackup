@@ -647,3 +647,29 @@ pc有高刷新率144 有修改器改钱改材料什么的 省下不少时间
 DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗
 
 
+
+
+*****
+
+####  rak1  
+##### 3051#       发表于 2021-9-4 16:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52618771&amp;ptid=1860328" target="_blank">Rinne70 发表于 2021-9-4 16:29</a>
+DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗</blockquote>
+阿区和美区定价差别不大，所以不如低价美区充值卡了，最便宜的是土区，看你有没有渠道了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Chia  
+##### 3052#       发表于 2021-9-4 16:48
+
+
+还是把普通版预购上了，来点销量预测。
+
+200小赢，300大赢？
+
+

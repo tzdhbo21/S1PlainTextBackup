@@ -783,3 +783,17 @@ WT不是去年就说5年内完结？如果第十人是个从未出场的新人�
 谢大佬....
 
 
+
+
+*****
+
+####  白金口袋  
+##### 55564#       发表于 2021-9-4 16:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52618262&amp;ptid=98922" target="_blank">modkingr 发表于 2021-9-4 01:33</a>
+
+我也觉得薇薇作为第十人回归 和阿拉巴斯坦结尾做对应比大和跑船上来合理得多 大和这个角色作为船员来说分量 ...</blockquote>
+薇薇的战斗力已经跟不上了啊，难道要让她在老家学会霸气吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
