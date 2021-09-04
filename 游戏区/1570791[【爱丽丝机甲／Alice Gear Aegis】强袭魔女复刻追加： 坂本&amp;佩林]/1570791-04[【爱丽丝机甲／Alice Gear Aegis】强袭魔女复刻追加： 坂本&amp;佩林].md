@@ -18910,3 +18910,47 @@ PC版前射太爽不想放弃霰弹啊，不过没4星不关我的事<img src="h
 再说莉捏的狙分支，当然可以用啊，莉塔这么笨重的分支步枪大触手一样在高难用得风生水起。只是我个人觉得以无脑狙射著名的莉捏需要带脑子去玩狙找上弹时机啥的要去习惯要去练，就非常蛋痛，所以不推荐<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  LEOKO~  
+##### 5968#       发表于 2021-9-4 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52610834&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-9-3 18:34</a>
+
+这次活动最后还是失忆了看来敌人依然没彻底清除，请以后务必要加上桑尼亚找怪明娜定位艾拉预知501全员来个 ...</blockquote>
+完全翻车，有生之年的复刻再见
+
+话说这次首次提出二周目的概念
+
+
+*****
+
+####  LEOKO~  
+##### 5969#       发表于 2021-9-4 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52610834&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-9-3 18:34</a>
+
+这次活动最后还是失忆了看来敌人依然没彻底清除，请以后务必要加上桑尼亚找怪明娜定位艾拉预知501全员来个 ...</blockquote>
+完全翻车，有生之年的复刻再见
+
+话说这次首次提出二周目的概念
+
+
+*****
+
+####  LEOKO~  
+##### 5970#       发表于 2021-9-4 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52610834&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2021-9-3 18:34</a>
+
+这次活动最后还是失忆了看来敌人依然没彻底清除，请以后务必要加上桑尼亚找怪明娜定位艾拉预知501全员来个 ...</blockquote>
+完全翻车，有生之年的复刻再见
+
+话说这次首次提出二周目的概念
+
+

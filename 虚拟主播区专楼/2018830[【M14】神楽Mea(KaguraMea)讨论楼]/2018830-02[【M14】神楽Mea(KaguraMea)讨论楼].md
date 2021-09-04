@@ -7510,3 +7510,23 @@ syl  感觉肥婆今天有合唱九成九是不播的了
 我果然还是喜欢你麻的苦情声线不喜欢卖萌的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Klience  
+##### 2169#       发表于 2021-9-4 20:46
+
+
+咩唱这种吃瘪苦情败犬的歌才好 就很有感觉 特别是在下雨天听她唱这些歌 氛围一下子起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2170#       发表于 2021-9-4 20:53
+
+
+萌萌加特林不好吗
+
+
