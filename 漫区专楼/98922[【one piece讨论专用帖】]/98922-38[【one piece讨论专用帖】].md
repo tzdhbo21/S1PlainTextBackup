@@ -844,3 +844,46 @@ WT不是去年就说5年内完结？如果第十人是个从未出场的新人�
 — from HMD Global Nokia 7 plus, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
+
+
+*****
+
+####  C男人  
+##### 55569#       发表于 2021-9-4 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52618896&amp;ptid=98922" target="_blank">绝赞販売中 发表于 2021-9-4 16:42</a>
+
+尾田的特色就是会实现角色的梦想，大和如果留在和之国那就是纯粹违背她梦想了.在场的三艘船，罗和基德她都不认识，怎么可能呢. ...</blockquote>
+罗和基德不行，但是场上还有马尔高啊。
+
+
+御田、以藏、艾斯，都是白团的人，
+
+
+大和跟白团的因缘可比草帽团深多了。
+
+
+*****
+
+####  绝赞販売中  
+##### 55570#       发表于 2021-9-4 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52620229&amp;ptid=98922" target="_blank">C男人 发表于 2021-9-4 19:25</a>
+罗和基德不行，但是场上还有马尔高啊。
+
+
+御田、以藏、艾斯，都是白团的人，</blockquote>
+小马哥之前都不想出海躲在村子里当医生了，要不是御田艾斯两层关系都不会去和之国.他就是为了老爹才出海，要不然白团现在也不至于四分五裂.大和要真能上白团那不是盗版御田那是盗版白胡子
+
+
+*****
+
+####  Yeaha123  
+##### 55571#       发表于 2021-9-4 19:31
+
+
+这些武士明明能砍门却等了10天?
+
+

@@ -710,3 +710,16 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  angela5d30  
+##### 3056#       发表于 2021-9-4 19:38
+
+
+预购了份普通版<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+我看steam上写的是9月10日解锁，是比主机版晚一天吗？
+
+
