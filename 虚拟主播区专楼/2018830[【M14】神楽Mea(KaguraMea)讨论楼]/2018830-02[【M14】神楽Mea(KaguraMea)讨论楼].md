@@ -7385,3 +7385,82 @@ syl  感觉肥婆今天有合唱九成九是不播的了
 这MV的画师的推特头图竟然是阿咩
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2158#       发表于 2021-9-4 19:11
+
+
+这歌还凑合吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2159#       发表于 2021-9-4 19:12
+
+
+ 本帖最后由 T_Hb 于 2021-9-4 19:19 编辑 
+
+我的评价是， 没啥评价，为什么会产生这种评价呢
+
+
+*****
+
+####  专业划水人员  
+##### 2160#       发表于 2021-9-4 19:16
+
+
+这人404频道越来越像唱歌势的v了。。。。
+
+
+
+
+*****
+
+####  Rem-清曲  
+##### 2161#       发表于 2021-9-4 19:21
+
+
+我的评价是：找你麻和声准没错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ashero  
+##### 2162#       发表于 2021-9-4 19:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52620153&amp;ptid=2018830" target="_blank">专业划水人员 发表于 2021-9-4 19:16</a>
+
+这人404频道越来越像唱歌势的v了。。。。</blockquote>
+去掉像 她现在就是歌势 游戏不玩 杂谈没有单开档
+
+
+无情的播放器<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 2163#       发表于 2021-9-4 19:25
+
+
+ 本帖最后由 2014720 于 2021-9-4 19:27 编辑 
+
+尼玛这两人声音我都分辨不来
+
+所以肥婆什么时候做过激asmr
+
+
+*****
+
+####  T_Hb  
+##### 2164#       发表于 2021-9-4 19:27
+
+
+毕业回
+
+
