@@ -709,3 +709,40 @@ WT不是去年就说5年内完结？如果第十人是个从未出场的新人�
 他那个号称“百发百中”的老爹就明显是见闻色。
 
 
+
+
+*****
+
+####  svmkty  
+##### 55558#       发表于 2021-9-4 15:24
+
+
+问下这是哪集里的？？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="http://tiebapic.baidu.com/forum/pic/item/d1d8e0fe9925bc31870c538b03df8db1cb13707a.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  modkingr  
+##### 55559#       发表于 2021-9-4 15:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52618172&amp;ptid=98922" target="_blank">svmkty 发表于 2021-9-4 15:24</a>
+
+问下这是哪集里的？？</blockquote>
+幽灵船娜美在洗澡的时候被隐身果实劫持的片段
+
+
+*****
+
+####  modkingr  
+##### 55560#       发表于 2021-9-4 15:33
+
+
+我也觉得薇薇作为第十人回归 和阿拉巴斯坦结尾做对应比大和跑船上来合理得多 大和这个角色作为船员来说分量实在太轻了，目前的塑造完全说不上是新船员级
+
+
+反而薇薇是万事俱备的
+
+

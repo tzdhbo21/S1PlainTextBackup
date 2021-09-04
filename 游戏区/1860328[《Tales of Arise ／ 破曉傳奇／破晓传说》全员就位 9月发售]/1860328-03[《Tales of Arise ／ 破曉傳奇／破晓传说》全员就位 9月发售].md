@@ -606,3 +606,16 @@ BGM可以设置具体曲目勾选以及播放顺序
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  wuliang  
+##### 3048#       发表于 2021-9-4 15:46
+
+
+请教下游戏该买哪个版本比较好？ps5还是pc？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
