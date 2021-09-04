@@ -12454,3 +12454,14 @@ tag：虚拟萌宠
 绫总地声给点给点
 
 
+
+
+*****
+
+####  stedckk  
+##### 13072#       发表于 2021-9-4 13:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听了一下，她这地声不是跟前世直播差不多吗？
+
+
