@@ -935,3 +935,19 @@ WT不是去年就说5年内完结？如果第十人是个从未出场的新人�
 不切腹也配称武士
 
 
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 55576#       发表于 2021-9-4 21:57
+
+
+ 本帖最后由 风浦可符香(P.N) 于 2021-9-4 21:58 编辑 
+
+喷了，贴吧看见的，sbs里说：乌尔缇和佩吉万是收养的，而且俩人的果实都是乌尔缇当初从凯多那偷来的，进而一步步成了六子（ [https://tieba.baidu.com/p/7523159243](https://tieba.baidu.com/p/7523159243) ）真是好姐姐啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+再看看大孝女……除了柰子大而且露侧乳这点儿优点真的没任何可以夸的地方了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

@@ -8142,3 +8142,26 @@ sayurin算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  lj205  
+##### 3655#       发表于 2021-9-4 22:09
+
+
+鲤鱼又在征集cos角色了
+
+
+*****
+
+####  chenflyyy  
+##### 3656#       发表于 2021-9-4 22:15
+
+
+ 本帖最后由 chenflyyy 于 2021-9-4 22:20 编辑 
+
+就没几个正常回复的，能征集到什么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+久美子不错
+
+
