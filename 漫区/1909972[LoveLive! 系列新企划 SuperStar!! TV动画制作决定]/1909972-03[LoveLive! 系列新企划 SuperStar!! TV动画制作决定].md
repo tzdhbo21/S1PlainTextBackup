@@ -7877,3 +7877,16 @@ xxg里的资源没了，国际站也没了,阿B速度又跟不上orz
 还有一种是杂志附投票码，虽然可以买电子版不过一本也要几十块rmb
 
 
+
+
+*****
+
+####  lyflyflxf  
+##### 3637#       发表于 2021-9-4 08:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52614684&amp;ptid=1909972" target="_blank">cat1230 发表于 2021-9-4 02:32</a>
+xxg里的资源没了，国际站也没了,阿B速度又跟不上orz</blockquote>
+还有字幕组啊
+
+
