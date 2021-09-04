@@ -8198,3 +8198,35 @@ sayurin算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/
 <img src="https://i.loli.net/2021/09/04/iE8K3XbZPYLzw7n.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 3660#       发表于 2021-9-4 22:49
+
+
+感觉鲤鱼日常着装搭配是不是要改改？……几次看到她私服差不多就是牛仔裤加T恤之类……
+
+
+
+
+*****
+
+####  cybernetics31  
+##### 3661#       发表于 2021-9-4 22:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评论无语了，这一堆鲤鱼老早cos过的……………………
+顺便一提，10组这个字幕组人变化挺大的啊，最近又出了新的字幕组yuistar，不知道是个什么情况
+
+
+*****
+
+####  优妮可  
+##### 3662#       发表于 2021-9-4 23:07
+
+
+这个新的字幕组我好像在那个群里。
+
+

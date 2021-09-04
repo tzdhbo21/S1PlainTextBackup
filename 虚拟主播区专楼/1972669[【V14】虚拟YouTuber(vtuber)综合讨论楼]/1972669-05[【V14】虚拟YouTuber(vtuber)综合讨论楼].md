@@ -10973,3 +10973,14 @@ DUSTCELL 2nd Album「自白」Teaser
 特技：絵を描くこと</blockquote>
 
 
+
+
+*****
+
+####  winda  
+##### 6826#       发表于 2021-9-4 22:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">king拿了vcc的冠军啊，算是报了cr杯垫底的气了
+
+
