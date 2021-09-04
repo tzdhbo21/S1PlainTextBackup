@@ -619,3 +619,31 @@ BGM可以设置具体曲目勾选以及播放顺序
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  a7828986  
+##### 3049#       发表于 2021-9-4 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52618369&amp;ptid=1860328" target="_blank">wuliang 发表于 2021-9-4 15:46</a>
+
+请教下游戏该买哪个版本比较好？ps5还是pc？
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+pc配置够的话当然是pc拉
+
+pc有高刷新率144 有修改器改钱改材料什么的 省下不少时间
+
+
+*****
+
+####  Rinne70  
+##### 3050#       发表于 2021-9-4 16:29
+
+
+DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗
+
+
