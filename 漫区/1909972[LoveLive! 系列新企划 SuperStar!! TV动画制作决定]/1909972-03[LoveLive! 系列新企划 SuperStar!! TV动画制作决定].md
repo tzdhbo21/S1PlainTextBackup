@@ -8165,3 +8165,36 @@ sayurin算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/
 久美子不错
 
 
+
+
+*****
+
+####  优妮可  
+##### 3657#       发表于 2021-9-4 22:28
+
+
+刷吴京的有点离谱，那次直播刷搞的还道歉了。久美子cos过了，这次希望来个马娘角色。
+
+
+*****
+
+####  chenflyyy  
+##### 3658#       发表于 2021-9-4 22:38
+
+
+翻到鲤鱼15年cos的久美子了，跟现在差别好大
+
+
+*****
+
+####  AlfredXC  
+##### 3659#       发表于 2021-9-4 22:43
+
+
+<img src="https://abs-0.twimg.com/emoji/v2/72x72/23f0.png" referrerpolicy="no-referrer">
+)唐 可可 役のLiyuu([@Liyu0109](https://twitter.com/Liyu0109)
+)嵐 千砂都 役の岬なこ([@MisakiNako_](https://twitter.com/MisakiNako_)
+)メンバーや曲のことなど色々教えてくれます<img src="https://abs-0.twimg.com/emoji/v2/72x72/1f3b6.png" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2021/09/04/iE8K3XbZPYLzw7n.jpg" referrerpolicy="no-referrer">
+
+

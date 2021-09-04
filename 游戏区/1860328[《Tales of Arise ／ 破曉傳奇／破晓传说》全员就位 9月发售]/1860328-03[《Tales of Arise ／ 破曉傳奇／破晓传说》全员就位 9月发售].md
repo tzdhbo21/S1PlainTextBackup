@@ -747,3 +747,14 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 但是联动那个不太有把握.....
 
 
+
+
+*****
+
+####  Yason  
+##### 3059#       发表于 2021-9-4 22:42
+
+
+纠结预购steam还是ps5，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在没很多时间刷想风灵月影救救我
+
+
