@@ -10984,3 +10984,31 @@ DUSTCELL 2nd Album「自白」Teaser
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">king拿了vcc的冠军啊，算是报了cr杯垫底的气了
 
 
+
+
+*****
+
+####  哈曼的YY  
+##### 6827#       发表于 2021-9-5 01:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52620619&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2021-9-4 20:04</a>
+
+说到铃，这几天悄悄换了头像。</blockquote>
+以前就有的
+
+第一次看到时惊呼真会画画啊？
+
+
+*****
+
+####  哈曼的YY  
+##### 6828#       发表于 2021-9-5 01:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52619082&amp;ptid=1972669" target="_blank">ポップコーン 发表于 2021-9-4 17:06</a>
+
+才发现みすみ女士换了新的icon和banner，むくちゃん这个充满智慧的表情也太生草了</blockquote>
+一公一母 会生一窝吧
+
+
