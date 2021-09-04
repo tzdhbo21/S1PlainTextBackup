@@ -92,13 +92,13 @@ if __name__ == '__main__':
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
         thdata=json.load(f)
     for i in range(20):
-        rstr = rstr +str(i+1)+'. [url=https://bbs.saraba1st.com/2b/thread-'+threadorder[i][0]+'-1-1.html]'+thdata[threadorder[i][0]]['newtitle'] +'[/url]（[b]+'+str(threadorder[i][1])+'[/b]）\n'
+        rstr = rstr +str(i+1)+'. [url=https://bbs.saraba1st.com/2b/thread-'+threadorder[i][0]+'-1-1.html]'+thdata[threadorder[i][0]]['title'] +'[/url]（[b]+'+str(threadorder[i][1])+'[/b]）\n'
     rstr = rstr + '\n' + '[b]回帖数量前20的用户：[/b]\n'
     for i in range(20):
         nameth = replydict1[today][nameorder[i][0]]
         nameth.pop('num')
         norder = sorted(nameth.items(),key=lambda x:x[1],reverse=True)
-        rstr = rstr +str(i+1)+'. '+nameorder[i][0]+'发表了[b]'+str(nameorder[i][1]) +'[/b]条回复，回复最频繁的帖子是：\n'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['newtitle'] +'[/url]（+'+str(norder[0][1])+'）\n'
+        rstr = rstr +str(i+1)+'. '+nameorder[i][0]+'发表了[b]'+str(nameorder[i][1]) +'[/b]条回复，回复最频繁的帖子是：\n'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['title'] +'[/url]（+'+str(norder[0][1])+'）\n'
     rstr = rstr + '\n[color=7c6f64]提示：\n1. 本统计仅包括外野、漫区、游戏区\n[/color]'
     cookie_str1 = os.getenv('S1_COOKIE')
     cookie_str = repr(cookie_str1)[1:-1]
