@@ -7921,3 +7921,16 @@ ll投票不全是黑箱操作嘛，上次垫底下次榜首，还有中报战神
 回回中华炮确实想多了，人气再高顶多也就是中报战神二代<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ads147147  
+##### 3641#       发表于 2021-9-4 11:56
+
+
+这次如果恋恋没有变数的话，大概率就是kanon和可可二选一，其他人很明显花田不想着墨太多。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
