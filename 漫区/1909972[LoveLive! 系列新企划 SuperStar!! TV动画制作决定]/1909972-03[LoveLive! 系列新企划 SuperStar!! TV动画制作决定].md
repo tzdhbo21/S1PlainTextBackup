@@ -7945,3 +7945,62 @@ ll投票不全是黑箱操作嘛，上次垫底下次榜首，还有中报战神
 五个人根本没有任何必要分什么人气了，都拉起来也是可以的（话虽这么说恋恋的戏份也太少了…）
 
 
+
+
+*****
+
+####  优妮可  
+##### 3643#       发表于 2021-9-4 18:32
+
+
+op签售会
+
+<img src="https://img.saraba1st.com/forum/202109/04/183220ks8c4bts6lzogsag.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210904_182857.jpg</strong> (279.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-4 18:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/04/183220hdobzccozdlxb7br.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210904_182854.jpg</strong> (276.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-4 18:32 上传
+
+
+*****
+
+####  优妮可  
+##### 3644#       发表于 2021-9-4 18:34
+
+
+<img src="https://img.saraba1st.com/forum/202109/04/183247ztfaeoyeenbbt4eh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210904_182053.jpg</strong> (51.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-4 18:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/04/183247ykcgg6vce5u8dcwd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210904_182110.jpg</strong> (292.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-4 18:32 上传
+
+
+pay酱的个人照片总是蒙蒙的。
+
+
