@@ -8129,3 +8129,16 @@ sayurin算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/
 2021-9-4 20:27 上传
 
 
+
+
+*****
+
+####  ads147147  
+##### 3654#       发表于 2021-9-4 21:39
+
+
+好强的姐妹感，这就是大个子妹妹和小个子姐姐吗（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

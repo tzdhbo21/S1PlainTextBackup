@@ -734,3 +734,16 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 泳装和和装要数字究极版才有吗，我超<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">还是可以单独买dlc
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 3058#       发表于 2021-9-4 21:29
+
+
+主题衣服后面应该都会卖dlc的
+
+但是联动那个不太有把握.....
+
+

@@ -924,3 +924,14 @@ WT不是去年就说5年内完结？如果第十人是个从未出场的新人�
 关东煮太恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  团结奋进碇真嗣  
+##### 55575#       发表于 2021-9-4 21:33
+
+
+不切腹也配称武士
+
+
