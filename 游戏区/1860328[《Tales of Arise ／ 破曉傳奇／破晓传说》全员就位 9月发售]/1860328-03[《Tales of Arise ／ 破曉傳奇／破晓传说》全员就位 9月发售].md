@@ -522,3 +522,14 @@ BGM可以设置具体曲目勾选以及播放顺序
 那一切好说<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  司马千晶  
+##### 3042#       发表于 2021-9-4 07:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下演示，霸道灭封可能是聚怪后清屏的主力技了，但是跟阿斯贝尔，蒂姆罗斯的比，男主这招好短···
+
+
