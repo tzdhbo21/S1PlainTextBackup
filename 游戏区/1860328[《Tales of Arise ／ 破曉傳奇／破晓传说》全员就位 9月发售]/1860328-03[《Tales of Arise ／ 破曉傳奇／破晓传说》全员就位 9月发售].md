@@ -695,3 +695,18 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 直播视频哪里有看........
 
 
+
+
+*****
+
+####  Rainwedell  
+##### 3055#       发表于 2021-9-4 17:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52619281&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-9-4 17:27</a>
+直播视频哪里有看........</blockquote>
+油管法米通官方吧，官推也有转发链接，不过也不长，大概1h多一点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
