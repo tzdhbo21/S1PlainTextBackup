@@ -558,3 +558,40 @@ BGM可以设置具体曲目勾选以及播放顺序
 两场战斗结算，bonus竟然都是*15+
 
 
+
+
+*****
+
+####  laoz  
+##### 3045#       发表于 2021-9-4 12:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52616969&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-9-4 12:45</a>
+
+之前就有这种感觉，昨天的直播让我必须说富泽玩得真烂，到底是故意随便打的还是制作人不需要玩得好
+
+两场战 ...</blockquote>
+不需要，三太子打怪猎不也是很下饭
+
+
+*****
+
+####  qiyu1234  
+##### 3046#       发表于 2021-9-4 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52616969&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-9-4 12:45</a>
+
+之前就有这种感觉，昨天的直播让我必须说富泽玩得真烂，到底是故意随便打的还是制作人不需要玩得好
+
+两场战 ...</blockquote>
+游戏总监玩的好就行（
+
+游戏战斗系统平衡这些都是香川在做
+
+
+另外这奖励看上去是跟流程进度挂钩的吧
+
+难度还是normal
+
+
