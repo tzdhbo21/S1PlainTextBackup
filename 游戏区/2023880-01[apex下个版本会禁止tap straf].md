@@ -1329,3 +1329,40 @@ csgo 可没删一键跳投</blockquote>
 这种改动看公司风格，V社不会管，拳头暴雪这类公司肯定会管，所以重生是哪种风格？
 
 
+
+
+*****
+
+####  talse  
+##### 101#       发表于 2021-9-4 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52597968&amp;ptid=2023880" target="_blank">CCCCCC梵 发表于 2021-9-2 17:47</a>
+
+不懂为什么能和手柄玩家对立起来，除了顶尖一批手柄玩家，最多也就50米内对枪能有点优势吧，更别说 ...</blockquote>
+手柄要保证横移的话，靶场满配301一梭子打死人形靶对普通玩家来说超过35米就很难了，实战差不多也是这个距离，鼠标可以在35米以上依然保持准确的定位，手柄就很难准确定位这么小的目标。
+
+30米到贴脸因为摇杆输入平滑加上辅助的减速帮助，确实比整天拉枪过头的鼠标强一些，不过代价是转身慢
+
+
+*****
+
+####  talse  
+##### 102#       发表于 2021-9-4 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52606294&amp;ptid=2023880" target="_blank">haruh1 发表于 2021-9-3 12:22</a>
+
+社区是毛的菜鸟教老鸟打游戏，各种改动提议有几个是菜鸟玩家题的？永远都是打游戏最多的人上社区最多，而 ...</blockquote>
+缅怀被这么送进去的喷火同志
+
+
+*****
+
+####  AvengerRideon  
+##### 103#       发表于 2021-9-5 00:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 就菜鸡玩家的游戏理解和技术，哪能知道什么改动对自己有益啊，跟着dalao们复读就完事了。
+
+
