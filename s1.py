@@ -166,7 +166,7 @@ async def UpdateThread(threaddict,semaphore):
     if(thdata[threaddict['id']]['title'] =='待更新'):
         titles = newtitles
     #采取增量更新后仅第一次更新标题
-    if((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 1296000 or (not newtitles)):
+    if((int(time.time()) - thdata[threaddict['id']]['lastedit']) > 1296000 or totalpage == 1):
         thdata[threaddict['id']]['active'] = False
         filedir = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'【已归档】'+newtitles+'/'
         mkdir(filedir)
