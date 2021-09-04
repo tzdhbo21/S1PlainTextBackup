@@ -10926,3 +10926,16 @@ DUSTCELL 2nd Album「自白」Teaser
 还是小绿：2434建了个猫奴群，说到猫的命名，力一家猫叫酷拉皮卡
 
 
+
+
+*****
+
+####  adamtheo  
+##### 6824#       发表于 2021-9-4 19:04
+
+
+ 本帖最后由 adamtheo 于 2021-9-4 19:05 编辑 
+
+机台这场nico评价83.9%/8.6%/3.1%/2.8%/1.6%，是你虹付费活动有史以来最低的吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
