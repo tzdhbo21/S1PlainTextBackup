@@ -7890,3 +7890,14 @@ xxg里的资源没了，国际站也没了,阿B速度又跟不上orz</blockquote
 还有字幕组啊
 
 
+
+
+*****
+
+####  saglork  
+##### 3638#       发表于 2021-9-4 09:21
+
+
+ll投票不全是黑箱操作嘛，上次垫底下次榜首，还有中报战神渡边曜，这次人数少了反而更方便给每个人分猪肉，有啥好担心的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
