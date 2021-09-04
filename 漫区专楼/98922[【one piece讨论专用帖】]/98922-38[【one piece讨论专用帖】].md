@@ -797,3 +797,26 @@ WT不是去年就说5年内完结？如果第十人是个从未出场的新人�
 薇薇的战斗力已经跟不上了啊，难道要让她在老家学会霸气吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  icewolf01  
+##### 55565#       发表于 2021-9-4 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52618811&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-9-4 16:33</a>
+
+薇薇的战斗力已经跟不上了啊，难道要让她在老家学会霸气吗</blockquote>
+让薇薇把冥王搞到手就瞬间战斗力爆棚了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绝赞販売中  
+##### 55566#       发表于 2021-9-4 16:42
+
+
+尾田的特色就是会实现角色的梦想，大和如果留在和之国那就是纯粹违背她梦想了.在场的三艘船，罗和基德她都不认识，怎么可能呢.而且薇薇就算在红土大陆得跑多远才能和草帽团汇合，大结局篇章登场倒是可能，现在最可能就是大和上船了.但是目前看或许是见习生角色吧
+
+

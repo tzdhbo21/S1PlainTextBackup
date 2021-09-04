@@ -673,3 +673,14 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 200小赢，300大赢？
 
 
+
+
+*****
+
+####  战狼PTSD  
+##### 3053#       发表于 2021-9-4 16:49
+
+
+放的消息太多了，搞得我好想玩又玩不到，啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
