@@ -723,3 +723,14 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 我看steam上写的是9月10日解锁，是比主机版晚一天吗？
 
 
+
+
+*****
+
+####  Yason  
+##### 3057#       发表于 2021-9-4 20:41
+
+
+泳装和和装要数字究极版才有吗，我超<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">还是可以单独买dlc
+
+

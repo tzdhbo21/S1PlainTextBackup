@@ -7497,3 +7497,16 @@ syl  感觉肥婆今天有合唱九成九是不播的了
 该投诉一波了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Mr.shelter  
+##### 2168#       发表于 2021-9-4 20:29
+
+
+子兔音声线是这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我果然还是喜欢你麻的苦情声线不喜欢卖萌的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
