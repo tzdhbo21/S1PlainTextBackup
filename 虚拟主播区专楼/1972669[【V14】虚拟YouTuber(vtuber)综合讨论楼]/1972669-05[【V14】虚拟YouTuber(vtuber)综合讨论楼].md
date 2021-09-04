@@ -10939,3 +10939,37 @@ DUSTCELL 2nd Album「自白」Teaser
 机台这场nico评价83.9%/8.6%/3.1%/2.8%/1.6%，是你虹付费活动有史以来最低的吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 6825#       发表于 2021-9-4 20:04
+
+
+说到铃，这几天悄悄换了头像。
+
+<img src="https://img.saraba1st.com/forum/202109/04/200320e343zat4485vq4na.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ltBuVJ1q.jpg</strong> (28.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-4 20:03 上传
+
+
+然后资料栏不知道什么时候有了一个个人网页，
+
+可能是我之前一直将它忽略了吧。
+ <blockquote>生年月日：1993年7月9日
+
+血液型：A型
+
+出身地：静岡県
+
+趣味：ホラー映画鑑賞、ゲーム
+
+特技：絵を描くこと</blockquote>
+
+
