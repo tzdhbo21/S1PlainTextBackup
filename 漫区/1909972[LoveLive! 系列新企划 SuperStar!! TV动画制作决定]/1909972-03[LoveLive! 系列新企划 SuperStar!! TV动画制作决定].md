@@ -8230,3 +8230,17 @@ sayurin算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/
 这个新的字幕组我好像在那个群里。
 
 
+
+
+*****
+
+####  lyflyflxf  
+##### 3663#       发表于 2021-9-5 07:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52622191&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-4 22:49</a>
+
+感觉鲤鱼日常着装搭配是不是要改改？……几次看到她私服差不多就是牛仔裤加T恤之类…… ...</blockquote>
+口水巾的人气挺高的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
