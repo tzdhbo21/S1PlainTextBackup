@@ -1366,3 +1366,16 @@ csgo 可没删一键跳投</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 就菜鸡玩家的游戏理解和技术，哪能知道什么改动对自己有益啊，跟着dalao们复读就完事了。
 
 
+
+
+*****
+
+####  haruhiismer  
+##### 104#       发表于 2021-9-5 00:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52615250&amp;ptid=2023880" target="_blank">缺德猫 发表于 2021-9-4 08:24</a>
+这种改动看公司风格，V社不会管，拳头暴雪这类公司肯定会管，所以重生是哪种风格？ ...</blockquote>
+v社不好说ti5的时候还不禁红孩儿呢，现在蜘蛛绝活哥还有那种改游戏文件的也不管，可以说是蛮奇怪的
+
+
