@@ -12338,3 +12338,16 @@ bangumi.tv目前LL本家也就7.0的评分，你觉得质量算好？LLSS两季�
 那么异地的前因是啥？SP的出场并发出旅行邀请，可这段真的有必要在这个时间点插入吗？把SP的出场放到解决完小千的矛盾之后又有何不可呢？如果说是急着要塑造对手团，可这两集下来效果大家也都看见了，对手团的塑造几乎约等于无
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 4007#       发表于 2021-9-6 03:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633064&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 01:01</a>
+动画能拉新跟“高质量的动画有助于拉新”是两个概念，动画能拉新这个是必然的，但是“动画质量”这种明摆 ...</blockquote>
+山本宽：我做WUG的时候怎么没人这么说，不然第二季我也不会被炒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
