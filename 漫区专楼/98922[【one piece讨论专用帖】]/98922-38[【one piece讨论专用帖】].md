@@ -1309,3 +1309,30 @@ WT不是去年就说5年内完结？如果第十人是个从未出场的新人�
 （凯多计划再养只猫，就叫香克斯）
 
 
+
+
+*****
+
+####  绝赞販売中  
+##### 55598#       发表于 2021-9-5 12:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52625688&amp;ptid=98922" target="_blank">C男人 发表于 2021-9-5 12:21</a>
+大和：我是白胡子！
+
+凯多：你没有胡子……</blockquote>
+那不是更惨，顶上被香克斯挡了回去，回家还得给香克斯铲屎<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巴尔干炮  
+##### 55599#       发表于 2021-9-5 12:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52625959&amp;ptid=98922" target="_blank">绝赞販売中 发表于 2021-9-5 12:49</a>
+
+那不是更惨，顶上被香克斯挡了回去，回家还得给香克斯铲屎</blockquote>
+凯多知道这个世界的内幕，估计也知道红发的身世，顶上红发团那么快就能赶过来，真的是红发面子果实发威，两个四皇团根本就没交手凯多就撤退了。
+
+

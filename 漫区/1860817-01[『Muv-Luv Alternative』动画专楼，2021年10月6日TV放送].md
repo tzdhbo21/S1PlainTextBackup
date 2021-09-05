@@ -8489,3 +8489,14 @@ mla漫画看完了，非常地满足。
 也没啥，12.5说到底是大陆派遣军的残兵败将被打破胆了不想继续抵抗想原地等死罢了hhhh
 
 
+
+
+*****
+
+####  球獭  
+##### 594#       发表于 2021-9-5 12:56
+
+
+漫画的机战完全看不懂，是我想象力不够丰富吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
