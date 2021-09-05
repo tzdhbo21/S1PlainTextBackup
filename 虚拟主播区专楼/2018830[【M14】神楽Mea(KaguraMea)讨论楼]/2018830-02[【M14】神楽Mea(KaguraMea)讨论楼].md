@@ -7623,3 +7623,32 @@ syl  感觉肥婆今天有合唱九成九是不播的了
 含金量不如直接F12改她的推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Klience  
+##### 2180#       发表于 2021-9-5 08:54
+
+
+还以为这人又会打一个晚上 没想到打几局就不打了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2181#       发表于 2021-9-5 08:58
+
+
+好事，能发个早安推就更好了
+
+
+*****
+
+####  Klience  
+##### 2182#       发表于 2021-9-5 09:01
+
+
+她也就昨晚6 7点打了几局 后面就没打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

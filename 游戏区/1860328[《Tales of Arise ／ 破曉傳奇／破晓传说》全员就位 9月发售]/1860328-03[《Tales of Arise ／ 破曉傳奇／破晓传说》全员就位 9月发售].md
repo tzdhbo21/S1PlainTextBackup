@@ -758,3 +758,41 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 纠结预购steam还是ps5，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在没很多时间刷想风灵月影救救我
 
 
+
+
+*****
+
+####  Yeaha123  
+##### 3060#       发表于 2021-9-5 08:55
+
+
+竟然首发有steam版，不怕海盗版猖獗吗
+
+
+
+
+*****
+
+####  qiyu1234  
+##### 3061#       发表于 2021-9-5 09:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52624177&amp;ptid=1860328" target="_blank">Yeaha123 发表于 2021-9-5 08:55</a>
+
+竟然首发有steam版，不怕海盗版猖獗吗</blockquote>
+[https://www.thegamer.com/tales-o ... ew-yusuke-tomizawa/](https://www.thegamer.com/tales-of-arise-interview-yusuke-tomizawa/)
+
+
+“曾经有一段时间，我们相当消极，不相信JRPG会吸引海外人士，但现在每个人都对此相当乐观。几年前，当[tales]在Steam上发布时，我们看到这么多用户在玩，我们开始收到来自粉丝们的直接反馈，这对我们来说真的很有启发。它帮助扩大了我们在本地化方面的范围，并使Bandai Namco意识到tales是一个值得与世界分享的系列。”
+
+
+*****
+
+####  tafice  
+##### 3062#       发表于 2021-9-5 09:09
+
+
+销量主战场还是在主机平台，这种体量的作品上pc有加密也是迟早被破，为了一点销量上昂贵的加密不合适，毕竟不想付费的最后还是不付费。
+另外，绯红结系的steam版也没有加密，直接找到exe，同级目录创建steamappid文本文件就能脱离steam运行。最后全平台销量也证明了，绯红销量拉跨和pc盗版也没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
