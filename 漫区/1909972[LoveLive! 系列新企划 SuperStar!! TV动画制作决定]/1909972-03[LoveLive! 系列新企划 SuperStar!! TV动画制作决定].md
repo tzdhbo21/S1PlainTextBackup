@@ -8244,3 +8244,25 @@ sayurin算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/
 口水巾的人气挺高的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  平贺才人  
+##### 3664#       发表于 2021-9-5 09:28
+
+
+<img src="http://tva4.sinaimg.cn/large/0022VSBzly1gu5hvfaaepj60yi1b744h02.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  damian-wade  
+##### 3665#       发表于 2021-9-5 09:41
+
+
+口水巾是最近的流行款式吗，之前看虹live的安可服也有这个设计，声优自己都吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
