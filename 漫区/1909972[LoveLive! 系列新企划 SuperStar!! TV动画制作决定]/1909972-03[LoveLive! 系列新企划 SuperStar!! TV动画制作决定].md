@@ -11311,3 +11311,127 @@ DMHY已经有熟肉了，0点SNS那边估计也会更新
 我记得杂志宣传就是以可可邀请香音做学园偶像，然后剩下人以香音为中心聚集的，那应该就是香音拉恋入队
 
 
+
+
+*****
+
+####  qratosone  
+##### 3931#       发表于 2021-9-5 23:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632265&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-5 23:23</a>
+
+我记得杂志宣传就是以可可邀请香音做学园偶像，然后剩下人以香音为中心聚集的，那应该就是香音拉恋入队 ...</blockquote>
+也没准是可恋假药在香哥哥推动下解决呢
+
+
+*****
+
+####  cybernetics31  
+##### 3932#       发表于 2021-9-5 23:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就456这三集表现，花田明显搞不定可恋这种假药的
+
+
+*****
+
+####  支仓爱理  
+##### 3933#       发表于 2021-9-5 23:35
+
+
+白毛这感情也太重了，这live感觉是目前为止最好的
+
+
+*****
+
+####  kata魂  
+##### 3934#       发表于 2021-9-5 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632310&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-5 23:30</a>
+
+也没准是可恋假药在香哥哥推动下解决呢</blockquote>
+花田现在连他最常搞的幼驯染都搞不好了，他还能有这能力处理三个人的关系？
+
+我不信的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3935#       发表于 2021-9-5 23:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">重看一遍还是觉得千酱小时候画圆和哭哭的样子真可爱啊，就喜欢这样的孩子
+
+
+*****
+
+####  久井路路  
+##### 3936#       发表于 2021-9-5 23:36
+
+
+应该说是对拆妮斯JK和对樱花妹的期待是不一样的（
+
+
+前三集可香狂欢，第四集可堇狂欢，第五集可香哀嚎，第六集可香倒算香千，不论内容本身如何，期待值最高的位子总是在可可身上
+
+
+*****
+
+####  Arccueid  
+##### 3937#       发表于 2021-9-5 23:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632366&amp;ptid=1909972" target="_blank">支仓爱理 发表于 2021-9-5 23:35</a>
+
+白毛这感情也太重了，这live感觉是目前为止最好的</blockquote>
+现在幼驯染流行重女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3938#       发表于 2021-9-5 23:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这身打歌服有点色，答应我，真人live的时候也露肩露腋好吗
+
+
+*****
+
+####  cybernetics31  
+##### 3939#       发表于 2021-9-5 23:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可可回搞砸的话那基本gg了
+
+
+*****
+
+####  qratosone  
+##### 3940#       发表于 2021-9-5 23:41
+
+
+另外仔细看了一下，小千发消息香音一直都没回，可能是坐飞机回来的
+
+
+*****
+
+####  chenflyyy  
+##### 3941#       发表于 2021-9-5 23:41
+
+
+现在对星团动画没多少期待了，不搞事播完就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 3942#       发表于 2021-9-5 23:42
+
+
+小千这话是不是有几处声线不对？
+
+
