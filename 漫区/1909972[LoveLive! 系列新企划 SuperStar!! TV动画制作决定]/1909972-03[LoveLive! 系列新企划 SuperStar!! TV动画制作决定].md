@@ -10871,3 +10871,197 @@ b站什么时候更新啊，真就三集一更？
 寄
 
 
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3897#       发表于 2021-9-5 21:29
+
+
+[https://www.bilibili.com/video/BV1PM4y1G7Hf](https://www.bilibili.com/video/BV1PM4y1G7Hf)
+
+
+live是真的不错，歌也好听，可堇小互动太可爱了！
+
+
+kj.PNG
+(1.22 MB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-5 21:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/212931niwjwipppx8k3o80.png" referrerpolicy="no-referrer">
+
+
+kj02.PNG
+(915.44 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-5 21:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/212931fc5ecwxrgi19xglx.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 3898#       发表于 2021-9-5 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630603&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-5 20:53</a>
+
+搞这么赶莫非只有一季动画？</blockquote>
+怎么可能 都是一年级的设定肯定是奔着长久企划去的
+
+
+*****
+
+####  lj205  
+##### 3899#       发表于 2021-9-5 21:31
+
+
+我知道了，其实剧情早就写好了，奈何鲤鱼和打铁匠身高实在不好搭舞，干脆临时重新改剧本
+
+
+*****
+
+####  寒风夜  
+##### 3900#       发表于 2021-9-5 21:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631010&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-5 21:31</a>
+
+我知道了，其实剧情早就写好了，奈何鲤鱼和打铁匠身高实在不好搭舞，干脆临时重新改剧本 ...</blockquote>
+草
+
+
+
+
+*****
+
+####  lj205  
+##### 3901#       发表于 2021-9-5 21:36
+
+
+其实这集把鲨鱼牙的台词给可可说就不会那么突兀了，毕竟上一集还在跟卡农讨论千入队的事，鲨鱼牙一个外人在引导就很莫名其妙 ​​​
+
+
+*****
+
+####  D麦林  
+##### 3902#       发表于 2021-9-5 21:47
+
+
+草 你们怎么搞得做烂了一样 还有人和隔壁魔纪那明显的工期爆炸类比的
+
+我觉得就是回归拉拉平均水平 顺带有点没法满足观众被吊了两周的胃口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+快进到小星星把拉拉带到了不该有的高度（
+
+
+*****
+
+####  saglork  
+##### 3903#       发表于 2021-9-5 21:49
+
+
+小星星也只是live好看+CP党嗑嗨了吧，就剧情本身来说并没有什么超出花田ll平均水平的地方<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3904#       发表于 2021-9-5 21:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我选择在看波爱马仕
+
+
+*****
+
+####  kata魂  
+##### 3905#       发表于 2021-9-5 21:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">并非青梅竹马起源论就已经超越了花田的本身，就算是水水那种千梨天降，起源也是千曜啊
+
+当然了，现在只不过他又回去了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+更何况并非leader拉人而是外来者这点还是有新意的
+
+
+*****
+
+####  寒风夜  
+##### 3906#       发表于 2021-9-5 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631234&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-5 21:52</a>
+
+并非青梅竹马起源论就已经超越了花田的本身，就算是水水那种千梨天降，起源也是千曜啊
+
+当然了，现在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3907#       发表于 2021-9-5 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631173&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-5 21:47</a>
+
+草 你们怎么搞得做烂了一样 还有人和隔壁魔纪那明显的工期爆炸类比的
+
+我觉得就是回归拉拉平均水平 顺带有点 ...</blockquote>
+这都是低谷了吧
+
+
+*****
+
+####  寒风夜  
+##### 3908#       发表于 2021-9-5 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631173&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-5 21:47</a>
+
+草 你们怎么搞得做烂了一样 还有人和隔壁魔纪那明显的工期爆炸类比的
+
+我觉得就是回归拉拉平均水平 顺带有点 ...</blockquote>
+
+
+*****
+
+####  寒风夜  
+##### 3909#       发表于 2021-9-5 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631173&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-5 21:47</a>
+
+草 你们怎么搞得做烂了一样 还有人和隔壁魔纪那明显的工期爆炸类比的
+
+我觉得就是回归拉拉平均水平 顺带有点 ...</blockquote>
+
+
+*****
+
+####  Arccueid  
+##### 3910#       发表于 2021-9-5 22:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631196&amp;ptid=1909972" target="_blank">saglork 发表于 2021-09-05 21:49:52</a>
+小星星也只是live好看+CP党嗑嗨了吧，就剧情本身来说并没有什么超出花田ll平均水平的地方 ...</blockquote>前三集起承转合结构完整，叙事节奏也合理，同时塑造了两个主要角色还彻底解决了主角的最大问题，花田负责的拉拉真的平均水准有这样？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
