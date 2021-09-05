@@ -11649,3 +11649,154 @@ DMHY已经有熟肉了，0点SNS那边估计也会更新
 就现在这么急的发展，要第三季难了啊，第一季组队，第二季比赛，第三季讲毕业？也不是不行，…………但明显还是两季度加剧场版
 
 
+
+
+*****
+
+####  saglork  
+##### 3958#       发表于 2021-9-6 00:04
+
+
+讲真，这种高中生社团偶像，日常贴贴+主线比赛，两季+剧场版，其实该讲的也就讲的差不多了，强如轻音也就这长度，再多恐怕都是套路重复<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 3959#       发表于 2021-9-6 00:06
+
+
+按道理来说应该第一季凑人，第二季打比赛，第三季毕业季，现在看看太急了
+
+
+*****
+
+####  cybernetics31  
+##### 3960#       发表于 2021-9-6 00:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632630&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 00:00</a>
+除非扑街成大车祸现场，否则动画拉不拉又有什么影响？整个企划生命周期内就一整个年番一个剧场版，就算做 ...</blockquote>
+中规中矩吸引不到新人咯，单靠三次元五个人明显是加上好动画效果足啊
+
+
+
+
+*****
+
+####  shudushimo  
+##### 3961#       发表于 2021-9-6 00:14
+
+
+太像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/06/001424twxy24ck1d16qykw.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (104.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 00:14 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cqc1021| + 1|就是本人！就是本人！|
+
+
+查看全部评分
+
+
+*****
+
+####  Arccueid  
+##### 3962#       发表于 2021-9-6 00:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632739&amp;ptid=1909972" target="_blank">shudushimo 发表于 2021-9-6 00:14</a>
+
+太像了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是本人，就是本人，要不然怎么那么怂
+
+
+*****
+
+####  qratosone  
+##### 3963#       发表于 2021-9-6 00:17
+
+
+ 本帖最后由 qratosone 于 2021-9-6 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632687&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-6 00:08</a>
+
+中规中矩吸引不到新人咯，单靠三次元五个人明显是加上好动画效果足啊</blockquote>
+所谓“好动画”这种东西真的能吸引到新人？“好动画”本身带来的拉新效果恐怕还不如硬着头皮上NHK的效果好吧。除非是少数极端情况（超神或者超翻车），否则所谓“质量”本身就是一个高度主观性的因素，这个因素对圆盘销量本身的影响都很玄学，更别提给企划拉新了。归根结底，抛去Live和情怀加成，LL初代的动画，只看动画本身也绝对算不上什么神作。
+
+
+*****
+
+####  cybernetics31  
+##### 3964#       发表于 2021-9-6 00:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632763&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 00:17</a>
+深夜动画的所谓“质量”这种东西真的能吸引到新人？“好动画”本身带来的拉新效果恐怕还不如硬着头皮上NHK ...</blockquote>
+前三集小星星拉到不少新人了，好质量动画拉到新人很正常啊，隔壁nga都有看了星后跑去看水团的………………
+
+
+*****
+
+####  qratosone  
+##### 3965#       发表于 2021-9-6 00:23
+
+
+ 本帖最后由 qratosone 于 2021-9-6 00:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632800&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-6 00:22</a>
+
+前三集小星星拉到不少新人了，好质量动画拉到新人很正常啊，隔壁nga都有看了星后跑去看水团的…………… ...</blockquote>
+抠掉企划本身带来的Live和人设，小星星算好动画么？说实话也就那么回事。小星星最后呈现的质量特别好，是因为可香两人人设的饱满和优秀（尤其是可可），以及几乎是历代最高水平的初次Live，抛开这些企划外部附加因素，动画本身质量并没有强到可以称为神作的地步。
+
+
+*****
+
+####  TTAA  
+##### 3966#       发表于 2021-9-6 00:23
+
+
+感觉第一季可恋糖机会渺茫了，现在看来入团契机还是以香音为中心。可可是因为听到香音的歌声，堇是因为香音星探，小千和香音青梅竹马。照这个顺序下去，恋恋入团应该也和香音有点关系。
+可恋假药要无了（不是）
+
+
+*****
+
+####  cybernetics31  
+##### 3967#       发表于 2021-9-6 00:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632804&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 00:23</a>
+抠掉Live和人设本身，小星星算好动画么？说实话也就那么回事。小星星最后呈现的质量好是因为可可人设的饱 ...</blockquote>
+？这前三集还不够好吗？花田样板戏中算好看的前三集了吧，你一定要按泥潭标准来我也没话说
+
+
+*****
+
+####  黑雪姫  
+##### 3968#       发表于 2021-9-6 00:26
+
+
+唐哆啦·A·梦可可
+
+那个比人还高的球是从哪里拿出来的？
+
+你过来不就背个小包吗？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
