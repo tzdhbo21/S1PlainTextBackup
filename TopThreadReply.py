@@ -98,7 +98,7 @@ if __name__ == '__main__':
         nameth = replydict1[today][nameorder[i][0]]
         nameth.pop('num')
         norder = sorted(nameth.items(),key=lambda x:x[1],reverse=True)
-        rstr = rstr +str(i+1)+'. '+nameorder[i][0]+'****'+nameorder[i][-1]+'（[b]+'+str(nameorder[i][1]) +'[/b]）：\n'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['title'] +'[/url]（[b]+'+str(norder[0][1])+'[/b]）\n'
+        rstr = rstr +str(i+1)+'. '+str(nameorder[i][0])+'****'+str(nameorder[i][-1])+'（[b]+'+str(nameorder[i][1]) +'[/b]）：\n'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['title'] +'[/url]（[b]+'+str(norder[0][1])+'[/b]）\n'
     rstr = rstr + '\n[color=7c6f64]提示：\n1. 本统计仅包括外野、漫区、游戏区\n[/color]'
     cookie_str1 = os.getenv('S1_COOKIE')
     cookie_str = repr(cookie_str1)[1:-1]
