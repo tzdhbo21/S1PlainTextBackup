@@ -12582,3 +12582,51 @@ tag：虚拟萌宠
 盲猜3D化重大发布的是手办
 
 
+
+
+*****
+
+####  一仙  
+##### 13082#       发表于 2021-9-5 12:32
+
+
+ 本帖最后由 一仙 于 2021-9-5 12:40 编辑 
+
+时间线看到绫总关注了kanata<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+关注列表一看这是全都取关了再关注了一遍吗
+
+
+话说推特关注序列是后关注的排在上面吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 
+
+
+SYL，其他人也只这样，大概只是推特抽风了
+
+
+20210905123013.png
+(134.51 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-5 12:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/123049ibt6biftldy1881e.png" referrerpolicy="no-referrer">
+
+
+X~$$0~R802VXI~S9H$D[[DY.png
+(48.79 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-5 12:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/123129bjyy9b6fy9fbrkjf.png" referrerpolicy="no-referrer">
+
+
