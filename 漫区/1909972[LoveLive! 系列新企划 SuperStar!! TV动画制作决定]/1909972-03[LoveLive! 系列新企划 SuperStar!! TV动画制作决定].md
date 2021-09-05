@@ -11149,3 +11149,62 @@ kj02.PNG
 解决问题其实真的也就那么回事，主要还是唐可可和香音本身人物性格塑造的比较讨喜，所以直接拉高了印象分<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  iuhehc  
+##### 3918#       发表于 2021-9-5 22:28
+
+
+ 本帖最后由 iuhehc 于 2021-9-5 22:32 编辑 
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+..png
+(51.15 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-5 22:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/223204lzmb8nu87lvnc7z9.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3919#       发表于 2021-9-5 22:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631587&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-5 22:23</a>
+
+解决问题其实真的也就那么回事，主要还是唐可可和香音本身人物性格塑造的比较讨喜，所以直接拉高了印象分 ...</blockquote>
+观感拉太多了，毕竟动画怎么样还是从看后体验如何这里来区分的
+
+
+*****
+
+####  Arccueid  
+##### 3920#       发表于 2021-9-5 22:42
+
+
+DMHY已经有熟肉了，0点SNS那边估计也会更新
+
+
+*****
+
+####  hgcg-ix  
+##### 3921#       发表于 2021-9-5 22:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631660&amp;ptid=1909972" target="_blank">iuhehc 发表于 2021-9-5 22:28</a>
+
+草</blockquote>
+挺像
+
+
