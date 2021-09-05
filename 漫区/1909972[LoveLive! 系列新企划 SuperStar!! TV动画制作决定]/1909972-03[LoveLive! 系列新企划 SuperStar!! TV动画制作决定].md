@@ -9904,3 +9904,213 @@ I told you so.jpg</blockquote>
 加农炮赶在失火前把火苗灭了
 
 
+
+
+*****
+
+####  寒风夜  
+##### 3813#       发表于 2021-9-5 19:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">升啊 ，别 今年tv全麻了
+
+
+*****
+
+####  离心  
+##### 3814#       发表于 2021-9-5 19:25
+
+
+这集约等于友情夭寿啦。缪水的青梅集打乱再利用罢了
+
+
+*****
+
+####  离心  
+##### 3815#       发表于 2021-9-5 19:26
+
+
+没事，tv麻了还有高达剧场版镇着呢
+
+
+*****
+
+####  寒风夜  
+##### 3816#       发表于 2021-9-5 19:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629588&amp;ptid=1909972" target="_blank">lanslort 发表于 2021-9-5 19:21</a>
+
+堇的问题真没这么大，本来定位就是有点中二但并不认生的那类角色，入队快很好理解（而且堇自己本来也没啥事 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这写不来不如2集就 进队 好了
+
+
+*****
+
+####  Arccueid  
+##### 3817#       发表于 2021-9-5 19:27
+
+
+ 本帖最后由 Arccueid 于 2021-9-5 19:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629588&amp;ptid=1909972" target="_blank">lanslort 发表于 2021-9-5 19:21</a>
+
+堇的问题真没这么大，本来定位就是有点中二但并不认生的那类角色，入队快很好理解（而且堇自己本来也没啥事 ...</blockquote>
+还好吧，遇到可可前的香音已经完全颓了啊经历那么多次失败，没那么在意小千这边可以理解，而且小千这边实际上相比香音算很顺利了。
+
+反正我个人觉得这两集感情方面的转变在逻辑上还是合情合理的，就是太快了。
+
+
+*****
+
+####  寒风夜  
+##### 3818#       发表于 2021-9-5 19:30
+
+
+ 本帖最后由 寒风夜 于 2021-9-5 19:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 3819#       发表于 2021-9-5 19:31
+
+
+现在对可可有个人回的猜想其实主要原因还是因为可可没有单独唱过ED
+
+如果她唱过，那么个人回的猜想就会少很多...
+
+下集恋恋个人回肯定要单独SOLOED的，
+
+这样就只有可可没有单独SOLO过ED了，其他四人都单独SOLO了没道理可可例外。
+
+
+除非下两话真是讲可恋的...一集恋SOLO，一集可可SOLO<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+可恋的假药是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3820#       发表于 2021-9-5 19:34
+
+
+看了下横田都没参加这集啊 草，搞事呢
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3821#       发表于 2021-9-5 19:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cat1230  
+##### 3822#       发表于 2021-9-5 19:35
+
+
+啊B会更新最新一话吗
+
+
+*****
+
+####  棒读  
+##### 3823#       发表于 2021-9-5 19:35
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/193519aju2gvc0zxjg3tg1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>无标题.jpg</strong> (218.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-5 19:35 上传
+
+
+每次下集预告都要搞个大 新闻啊
+
+
+*****
+
+####  Troy_VoV  
+##### 3824#       发表于 2021-9-5 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629691&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-5 19:35</a>
+
+这集虽然千香拉胯了，但是可堇还是很香的，开头敌团进门阿堇把被子拉上的操作颇有种被捉奸在床的感 ...</blockquote>
+“我们排练呢！”
+
+
+*****
+
+####  Piano-Forest  
+##### 3825#       发表于 2021-9-5 19:37
+
+
+【アナザーカバー公開】9月10日発売 声優グランプリ10月号は『ラブライブ！スーパースター!!』をアナザーカバー＆巻末特集！Liella!の伊達さゆりさん、Liyuuさん、岬なこさん、ペイトン尚未さん、青山なぎささんがアニメ６話までを振り返り💫
+
+詳細はコチラ👉[https://seigura.com/news/71359/](https://seigura.com/news/71359/)
+<img src="https://p.sda1.dev/2/b30404a936d0f48cdc1cf8b543f5f209/57.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/3eeb545e7d07578551ab032730782bd0/6d8bc13129dc43ae05f927fc5368b29d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/30b71119d3c52cb9880bf8fabf1b751a/d1f217952f5bd700b2ab0121359424c8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/85312b5d285f0cbcf0d801e6609c88a6/fd9872a6aa6b422b803903a5eccc57bf.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/8613445fe5e234b14d2f6014a55e5ec4/10a0d6c15ac4f3b800c176eaea662039.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 3826#       发表于 2021-9-5 19:40
+
+
+虽然第一张搂腰好磕，但为啥老是让鲤鱼和小百活在一起拍呢，真的像个孩子。
+
+
+*****
+
+####  寒风夜  
+##### 3827#       发表于 2021-9-5 19:40
+
+
+其实就没懂为什么一定要春夏秋冬
+
+
+*****
+
+####  离心  
+##### 3828#       发表于 2021-9-5 19:43
+
+
+代表一学年过去吧
+
+
+*****
+
+####  寒风夜  
+##### 3829#       发表于 2021-9-5 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629771&amp;ptid=1909972" target="_blank">离心 发表于 2021-9-5 19:43</a>
+
+代表一学年过去吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">感觉就没必要搞这么快
+
+
+*****
+
+####  寒风夜  
+##### 3830#       发表于 2021-9-5 19:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">话说他们塞 歌一定非要live么..能不能学学爱马仕
+
+
