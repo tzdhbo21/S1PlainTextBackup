@@ -11435,3 +11435,217 @@ DMHY已经有熟肉了，0点SNS那边估计也会更新
 小千这话是不是有几处声线不对？
 
 
+
+
+*****
+
+####  qratosone  
+##### 3943#       发表于 2021-9-5 23:43
+
+
+ 本帖最后由 qratosone 于 2021-9-5 23:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631484&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-5 22:14</a>
+
+铺垫了是小队中的太阳，自来熟不过分吧（反正铺了，信不信随你的人物塑造法）
+
+
+—— 来自 Xiaomi Mi 10 P ...</blockquote>
+主要还是讨论的话题是“做校园偶像受到全校同学的爱戴，要为了家乡父老奋斗”，这个给可可也确实不合适
+
+
+*****
+
+####  支仓爱理  
+##### 3944#       发表于 2021-9-5 23:44
+
+
+拼一拼 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/05/234417maf2f2fju2ojnnvn.jpg" referrerpolicy="no-referrer">
+
+
+<strong></strong> (11.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-5 23:44 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/234417jjfdfv2dpffv5pt5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>8RSQ{Y3RFZ(13D0HR90_W62.jpg</strong> (13.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-5 23:44 上传
+
+
+*****
+
+####  cybernetics31  
+##### 3945#       发表于 2021-9-5 23:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">讲真的，这5个中之人虽然都可以，但又像水团那样动画拉了只能全力三次元，那这企划也就这样了。
+
+
+*****
+
+####  sqd  
+##### 3946#       发表于 2021-9-5 23:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631660&amp;ptid=1909972" target="_blank">iuhehc 发表于 2021-9-5 22:28</a>
+
+草</blockquote>
+瞳色都一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TTAA  
+##### 3947#       发表于 2021-9-5 23:50
+
+
+单看live很不错，这集可堇糖也可以。但整体看下来像删了很多互动细节的总集篇一样<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 3948#       发表于 2021-9-5 23:50
+
+
+ 本帖最后由 黑雪姫 于 2021-9-5 23:51 编辑 
+
+熟肉看完了，扔掉CP脑，我觉得没你们说的那么差吧。 
+
+中规中矩的小千个人回吧，套版式幼驯染剧情。
+
+花田正常的水平，你们是不是期待值太高了？
+
+虽然来回瞬移是挺唐突的但并不是太致命。
+
+
+这集打分的话..10分满分，至少6分还是有的。
+
+
+*****
+
+####  笋狐  
+##### 3949#       发表于 2021-9-5 23:52
+
+
+目前可可个人回讲家庭矛盾的可能性已经呼之欲出了，家庭这边出面的应该是姐姐，鉴于目前唐可可这个人物的塑造已经比较立体，再深挖一波人物性格，讲得好这人气飞升（虽然已经很高了）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然许多人比起矛盾怎么解决可能更关心是谁介入解决
+
+
+*****
+
+####  kata魂  
+##### 3950#       发表于 2021-9-5 23:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全人类该看的第六集，这可不是我们定下的期待。
+
+这集糟糕的不是个人回，而是sunnypa又没塑造，一场四人live可堇两个人跟凑人数一样
+
+6分这个是合理的
+
+但这也是最糟糕的，这可是个人回加live啊，发挥好点的话至少第六集能人称“小第三”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3951#       发表于 2021-9-5 23:54
+
+
+ 本帖最后由 Arccueid 于 2021-9-5 23:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632528&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-5 23:50</a>
+
+熟肉看完了，扔掉CP脑，我觉得没你们说的那么差吧。 
+
+中规中矩的小千个人回吧，套版式幼驯染剧情。
+
+花田正 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一时间会去看生肉直播肯定是期望很高的啊，现在只能说及格水平吧，live很不错，千的情感补充也可以，节奏分配太差观感差了很多。
+
+
+而且主要你真要这么急，那上一集还悠哉悠哉的在岛上玩，纠结歌词的戏码还弄两次，结果这集就光速直接live了，可可和民警也就真的跟工具人一样，真的太怪了
+
+
+*****
+
+####  saglork  
+##### 3952#       发表于 2021-9-5 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632528&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-5 23:50</a>
+熟肉看完了，扔掉CP脑，我觉得没你们说的那么差吧。 
+
+中规中矩的小千个人回吧，套版式幼驯染剧情。
+
+花田正 ...</blockquote>
+从全人类都该来看一看到最后只有6分肯定是有落差的，不过前面我也说了，确实也没太大问题，ll平均水平线的处理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+顺带可可这动手能力还真是爱好专精，料理是杀人级，偶像相关都是专业级<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星降る森  
+##### 3953#       发表于 2021-9-5 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631173&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-5 21:47</a>
+
+草 你们怎么搞得做烂了一样 还有人和隔壁魔纪那明显的工期爆炸类比的
+
+我觉得就是回归拉拉平均水平 顺带有点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前2周声优对这话的评价可是全人类都该来看，吹嗨了
+
+
+*****
+
+####  黑雪姫  
+##### 3954#       发表于 2021-9-5 23:56
+
+
+横田吹的第六话，但一看他这集根本没参加制作。怕不是反串黑
+
+
+*****
+
+####  星降る森  
+##### 3955#       发表于 2021-9-5 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630603&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-5 20:53</a>
+
+搞这么赶莫非只有一季动画？</blockquote>
+两季保底的，现在悬念就是全员一年级能不能憋出个第三季
+
+
+*****
+
+####  qratosone  
+##### 3956#       发表于 2021-9-6 00:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632475&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-5 23:45</a>
+
+讲真的，这5个中之人虽然都可以，但又像水团那样动画拉了只能全力三次元，那这企划也就这样了。 ...</blockquote>
+除非翻车翻到突破天际，否则动画拉不拉又有什么影响？整个企划生命周期内就一整个年番一个剧场版，就算做成一等一的神作又能怎么样？中规中矩把剧情做完就行了
+
+
+*****
+
+####  cybernetics31  
+##### 3957#       发表于 2021-9-6 00:00
+
+
+就现在这么急的发展，要第三季难了啊，第一季组队，第二季比赛，第三季讲毕业？也不是不行，…………但明显还是两季度加剧场版
+
+
