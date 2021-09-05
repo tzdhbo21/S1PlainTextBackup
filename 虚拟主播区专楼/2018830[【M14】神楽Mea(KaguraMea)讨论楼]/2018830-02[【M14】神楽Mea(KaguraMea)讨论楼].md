@@ -7723,3 +7723,14 @@ syl  感觉肥婆今天有合唱九成九是不播的了
 <img src="https://p.sda1.dev/2/0e2cee7de30be35eeab9a8e444ecc7a3/IMG_CMP_159843046.jpeg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Klience  
+##### 2190#       发表于 2021-9-5 18:19
+
+
+确实 输了一个下午状态是挺差的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

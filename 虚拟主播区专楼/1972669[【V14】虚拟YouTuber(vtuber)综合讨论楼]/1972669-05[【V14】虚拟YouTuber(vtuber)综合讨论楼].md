@@ -11123,3 +11123,17 @@ Syl， <blockquote>【minecraft】隣の客はよくいらずんば【にじさ�
 プロVSにじさんじ企画うおおおおおおおおおおおおおお</blockquote>
 
 
+
+
+*****
+
+####  rzrbtk  
+##### 6835#       发表于 2021-9-5 18:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52628297&amp;ptid=1972669" target="_blank">我不是很好 发表于 2021-9-5 17:05</a>
+把这个算进去有啥意义啊</blockquote>
+只要有榜单存在，作为网红做第一和倒数第一都是有意义的，起码效果上来说会让不少人看到嘛。
+省一楼，郡道直播挑衅伊东，伊东气不过说要给enkr投诉，郡笑道：“反正我已经被那边放弃了，没什么好怕的。”，什么糊作非为<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

@@ -8531,3 +8531,434 @@ v总那边被警告了草</blockquote>
 [https://plus.nhk.jp/watch/ch/e1](https://plus.nhk.jp/watch/ch/e1) 算了直接去nhk看了
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 3691#       发表于 2021-9-5 18:08
+
+
+https://live.bilibili.com/9352456?broadcast_type=0&amp;is_room_feed=0&amp;share_source=copy_link
+不知道能坚持多久
+
+
+*****
+
+####  离心  
+##### 3692#       发表于 2021-9-5 18:09
+
+
+啊cr柠檬什么时候酸啊啊啊啊啊啊（土拨鼠音<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pliee  
+##### 3693#       发表于 2021-9-5 18:12
+
+
+又是说话说一半<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 3694#       发表于 2021-9-5 18:12
+
+
+一半都过去了了，怎么感觉还是没到主题啊
+
+怎么感觉这集恋性格还有点崩啊····
+
+
+*****
+
+####  离心  
+##### 3695#       发表于 2021-9-5 18:13
+
+
+都无了（悲）
+
+
+*****
+
+####  a92063256  
+##### 3696#       发表于 2021-9-5 18:14
+
+
+只剩一个练听力的了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3697#       发表于 2021-9-5 18:15
+
+
+青梅竹马拉满了啊..
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  pliee  
+##### 3698#       发表于 2021-9-5 18:15
+
+
+直接去nhk那个呗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 3699#       发表于 2021-9-5 18:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田，你这处理厂收的还是九折的塑料瓶啊
+
+
+*****
+
+####  离心  
+##### 3700#       发表于 2021-9-5 18:17
+
+
+恋性格没崩，只是前几集反对学院偶像看起来太强势了，广播剧加自我介绍的恋是很温柔的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 3701#       发表于 2021-9-5 18:17
+
+
+这就是全人类要看的第六集的话可真要笑死了
+
+
+*****
+
+####  Troy_VoV  
+##### 3702#       发表于 2021-9-5 18:17
+
+
+闪现还行
+
+
+*****
+
+####  kata魂  
+##### 3703#       发表于 2021-9-5 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52628902&amp;ptid=1909972" target="_blank">离心 发表于 2021-9-5 18:17</a>
+
+恋性格没崩，只是前几集反对学院偶像看起来太强势了，广播剧加自我介绍的恋是很温柔的 ...</blockquote>
+别说的绘里不温柔啊，但人家可真是挺到了加入后
+
+
+*****
+
+####  Arccueid  
+##### 3704#       发表于 2021-9-5 18:18
+
+
+感觉前三集太优秀对这集是debuff
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  Troy_VoV  
+##### 3705#       发表于 2021-9-5 18:20
+
+
+这都拍的啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cao1rui2  
+##### 3706#       发表于 2021-9-5 18:20
+
+
+太硬了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3707#       发表于 2021-9-5 18:20
+
+
+为什么敌团live还不放完整版
+
+
+*****
+
+####  pliee  
+##### 3708#       发表于 2021-9-5 18:21
+
+
+这是怎么来回闪现的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 3709#       发表于 2021-9-5 18:21
+
+
+听你们这说的，等生肉出看个live算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3710#       发表于 2021-9-5 18:21
+
+
+算了，就看个live吧，这青梅羁绊无敌了已经
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  离心  
+##### 3711#       发表于 2021-9-5 18:22
+
+
+ll还是青梅无敌啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3712#       发表于 2021-9-5 18:22
+
+
+新歌和live都很不错
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  cao1rui2  
+##### 3713#       发表于 2021-9-5 18:22
+
+
+歌还行
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  a92063256  
+##### 3714#       发表于 2021-9-5 18:22
+
+
+青梅竹马之间的羁绊可以超越时空<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Troy_VoV  
+##### 3715#       发表于 2021-9-5 18:23
+
+
+可以开始公审战犯花田了吗
+
+
+*****
+
+####  kata魂  
+##### 3716#       发表于 2021-9-5 18:23
+
+
+全人类该看的第六集（指live）
+
+
+*****
+
+####  笋狐  
+##### 3717#       发表于 2021-9-5 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这入队貌似没比民警好多少啊，果然就不该对花田抱有啥期待
+
+
+*****
+
+####  pliee  
+##### 3718#       发表于 2021-9-5 18:23
+
+
+看个live吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3719#       发表于 2021-9-5 18:24
+
+
+我这。。
+
+
+*****
+
+####  寒风夜  
+##### 3720#       发表于 2021-9-5 18:24
+
+
+有点那什么。。
+
+
+
+
+*****
+
+####  chenflyyy  
+##### 3721#       发表于 2021-9-5 18:25
+
+
+看了预告，可香又贴起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3722#       发表于 2021-9-5 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 3723#       发表于 2021-9-5 18:25
+
+
+看笑了
+
+
+*****
+
+####  笋狐  
+##### 3724#       发表于 2021-9-5 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这预告又来可香了，你丫别给我整每几话就来次断层式观感差异行不行
+
+
+*****
+
+####  cybernetics31  
+##### 3725#       发表于 2021-9-5 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。。。。。。啊这 这也太快了吧 不是 。。。。。这也没必要全人类来看啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看live凑合了只能
+
+
+*****
+
+####  待宵  
+##### 3726#       发表于 2021-9-5 18:26
+
+
+打破了日本人对中国人的固有印象（指会中华料理
+
+
+*****
+
+####  离心  
+##### 3727#       发表于 2021-9-5 18:26
+
+
+下一集八成搞笑回了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3728#       发表于 2021-9-5 18:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52628956&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-09-05 18:23:18</a>
+这入队貌似没比民警好多少啊，果然就不该对花田抱有啥期待</blockquote>太生硬了，不知道那么急干什么。不过好消息是还有半季度，看看后续如何了。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  chenflyyy  
+##### 3729#       发表于 2021-9-5 18:26
+
+
+所以啊，你们对花田是还有什么多余的期待没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 3730#       发表于 2021-9-5 18:27
+
+
+最后的tp也太急了，五个人也能这么急
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3731#       发表于 2021-9-5 18:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">花田难道以为他这剧情很感人吗
+
+
+*****
+
+####  lj205  
+##### 3732#       发表于 2021-9-5 18:28
+
+
+买可堇股的我赢麻了～
+
+
+*****
+
+####  寒风夜  
+##### 3733#       发表于 2021-9-5 18:28
+
+
+是不是太快了 哥，感觉不只是花大叔毛病了。
+
+
+*****
+
+####  lj205  
+##### 3734#       发表于 2021-9-5 18:28
+
+
+但是这集真难看
+
+
+*****
+
+####  kata魂  
+##### 3735#       发表于 2021-9-5 18:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">花田的幼驯染，真是一代比一代完蛋，怎么一个个莫名其妙的
+
+
