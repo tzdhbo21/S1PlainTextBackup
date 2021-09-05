@@ -8288,3 +8288,34 @@ sayurin算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/
 之前不是说cos南梦芽吗，怎么又要征集cos角色了
 
 
+
+
+*****
+
+####  优妮可  
+##### 3668#       发表于 2021-9-5 12:14
+
+
+啥时候说的？那可能是已经cos好了，现在发是当个预告？
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3669#       发表于 2021-9-5 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52625633&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-5 12:14</a>
+啥时候说的？那可能是已经cos好了，现在发是当个预告？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我记得好像就是这楼看到的，说什么南梦芽选的人挺多？难道是mkm那次？最后cos了mkm？
+
+
+*****
+
+####  lj205  
+##### 3670#       发表于 2021-9-5 12:19
+
+
+莫不是明天cos完唠嗑？
+
+
