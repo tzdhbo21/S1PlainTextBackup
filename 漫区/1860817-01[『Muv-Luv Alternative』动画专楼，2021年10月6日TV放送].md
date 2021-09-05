@@ -8517,3 +8517,19 @@ mla漫画看完了，非常地满足。
 所以就看动画能不能补完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 596#       发表于 2021-9-6 06:36
+
+
+动画化的15年曲折之路【âge公式生放送 [still breathing] #95 20210903】剪辑全熟
+
+[https://www.bilibili.com/video/BV1bQ4y1C79R](https://www.bilibili.com/video/BV1bQ4y1C79R)
+
+
+80分钟的全熟肉，值得致敬
+
+
