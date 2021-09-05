@@ -12402,3 +12402,14 @@ bangumi.tv目前LL本家也就7.0的评分，你觉得质量算好？LLSS两季�
 说叙述快了导致观感奇怪没问题，但前面几页有些楼友反应也太夸张了，一副已经搞砸了的样子<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 4011#       发表于 2021-9-6 06:55
+
+
+落差吧，这集staff吹有九十分，大伙期待有八十分，结果正片可能就六七十分。
+
+
