@@ -8352,3 +8352,182 @@ sayurin算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/
 昨天魔纪的生放没事，星团应该也不会ban吧
 
 
+
+
+*****
+
+####  优妮可  
+##### 3674#       发表于 2021-9-5 17:18
+
+
+经典凹型合照
+
+<img src="https://img.saraba1st.com/forum/202109/05/171845twzzxwkk8v582e84.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210905_171437.jpg</strong> (279.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-5 17:18 上传
+
+
+*****
+
+####  depthlee  
+##### 3675#       发表于 2021-9-5 17:24
+
+
+铜球今晚生放地址，难得有个周末可以在播放时间有电脑用ww
+
+
+*****
+
+####  七百年后  
+##### 3676#       发表于 2021-9-5 17:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52624934&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-5 10:49</a>
+
+今天电视台不打棒球了吧</blockquote>
+甲子园上周日就结束了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 3677#       发表于 2021-9-5 17:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我倒要看看说的全人类应该看的第六集能有啥新鲜玩意
+
+
+*****
+
+####  努斯万克  
+##### 3678#       发表于 2021-9-5 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52628403&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-5 17:18</a>
+
+经典凹型合照</blockquote>
+感觉liyuu好像胖了
+
+
+*****
+
+####  pliee  
+##### 3679#       发表于 2021-9-5 17:45
+
+
+这脸一看就胖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 3680#       发表于 2021-9-5 17:47
+
+
+有双下巴趋势～……
+
+
+*****
+
+####  chenflyyy  
+##### 3681#       发表于 2021-9-5 17:49
+
+
+这种播前吹就没一个名副其实的，放低期待吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3682#       发表于 2021-9-5 17:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘛 胖点好 年底20场呢 
+
+
+*****
+
+####  没有爱就看不见  
+##### 3683#       发表于 2021-9-5 17:52
+
+
+印象里好几个这样吹的都没有到群众心中期待的高度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  player3960  
+##### 3684#       发表于 2021-9-5 17:53
+
+
+要求真不高，来场好看的live就行了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cybernetics31  
+##### 3685#       发表于 2021-9-5 17:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52628688&amp;ptid=1909972" target="_blank">没有爱就看不见 发表于 2021-9-5 17:52</a>
+
+印象里好几个这样吹的都没有到群众心中期待的高度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正隔壁魔纪这周崩了 这集来个live就是胜利（
+
+
+*****
+
+####  chenflyyy  
+##### 3686#       发表于 2021-9-5 18:01
+
+
+开幕经典幼驯染
+
+
+*****
+
+####  离心  
+##### 3687#       发表于 2021-9-5 18:05
+
+
+v总那边被警告了草<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Troy_VoV  
+##### 3688#       发表于 2021-9-5 18:06
+
+
+寄！
+
+
+*****
+
+####  chenflyyy  
+##### 3689#       发表于 2021-9-5 18:06
+
+
+还有哪里可以看<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 3690#       发表于 2021-9-5 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52628814&amp;ptid=1909972" target="_blank">离心 发表于 2021-9-5 18:05</a>
+
+v总那边被警告了草</blockquote>
+还有其他地方能看吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经变成广播剧了
+[https://plus.nhk.jp/watch/ch/e1](https://plus.nhk.jp/watch/ch/e1) 算了直接去nhk看了
+
+
