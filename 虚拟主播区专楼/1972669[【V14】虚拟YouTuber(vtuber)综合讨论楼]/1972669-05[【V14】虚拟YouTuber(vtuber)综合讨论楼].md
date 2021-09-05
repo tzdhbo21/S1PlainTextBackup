@@ -11321,3 +11321,50 @@ KING
 隔壁怎么拉60了
 
 
+
+
+*****
+
+####  Rosefinch  
+##### 6846#       发表于 2021-9-6 01:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633179&amp;ptid=1972669" target="_blank">flyskywalker92 发表于 2021-9-6 01:21</a>
+隔壁怎么拉60了</blockquote>
+某人的前世被挖出来就拉了窗帘，睡醒应该就好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  余情自取  
+##### 6847#       发表于 2021-9-6 01:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633268&amp;ptid=1972669" target="_blank">Rosefinch 发表于 2021-9-6 01:46</a>
+某人的前世被挖出来就拉了窗帘，睡醒应该就好了</blockquote>
+为什么拉60就不能是50吗<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rosefinch  
+##### 6848#       发表于 2021-9-6 01:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633275&amp;ptid=1972669" target="_blank">余情自取 发表于 2021-9-6 01:50</a>
+为什么拉60就不能是50吗</blockquote>
+我也是50啊，我找谁说理去啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winsloven  
+##### 6849#       发表于 2021-9-6 01:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633275&amp;ptid=1972669" target="_blank">余情自取 发表于 2021-9-6 01:50</a>
+
+为什么拉60就不能是50吗</blockquote>
+还好我有坚持每天签到，大HAPPY，贴吧跳舞。EMJ
+
+
