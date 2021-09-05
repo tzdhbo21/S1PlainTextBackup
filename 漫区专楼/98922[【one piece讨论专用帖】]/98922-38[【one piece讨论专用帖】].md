@@ -1444,3 +1444,20 @@ WT不是去年就说5年内完结？如果第十人是个从未出场的新人�
 快乐男孩是和草帽小子一样的外号，是个巨人族，可能比舞王争议性还要大。
 
 
+
+
+*****
+
+####  绝赞販売中  
+##### 55606#       发表于 2021-9-6 03:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630527&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2021-9-5 20:47</a>
+不聊和之国了，聊聊海贼王真正决定剧情的24个人物，分别为光和影路飞/黑胡子-自由
+
+索隆/山治-二把手
+
+薇薇/ ...</blockquote>
+罗志祥也就是让和之国惨了20年，快乐男孩这可是快千年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不说还忘了这茬，按尾田的能力说不定能烂出新境界
+
+
