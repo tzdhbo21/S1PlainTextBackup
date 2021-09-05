@@ -8022,3 +8022,34 @@ image.png
 寄！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rosevalley46  
+##### 2216#       发表于 2021-9-5 22:47
+
+
+好不容易有时间听一回<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2217#       发表于 2021-9-5 22:49
+
+
+ 本帖最后由 T_Hb 于 2021-9-5 22:50 编辑 
+
+该来点遮羞布了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 2218#       发表于 2021-9-5 22:51
+
+
+这人以后唱歌得来个轮椅了
+
+

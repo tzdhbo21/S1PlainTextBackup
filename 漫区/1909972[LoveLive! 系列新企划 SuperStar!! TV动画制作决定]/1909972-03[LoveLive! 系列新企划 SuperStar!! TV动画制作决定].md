@@ -11208,3 +11208,62 @@ DMHY已经有熟肉了，0点SNS那边估计也会更新
 挺像
 
 
+
+
+*****
+
+####  lj205  
+##### 3922#       发表于 2021-9-5 22:53
+
+
+大家不如去看青山新的整活视频吧
+
+
+*****
+
+####  Norkey1  
+##### 3923#       发表于 2021-9-5 22:57
+
+
+还是那个熟悉的柠檬头
+感觉一天的疲惫都消失了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+青山姐我的超人求求你多来点这种外星活罢（
+
+
+*****
+
+####  ads147147  
+##### 3924#       发表于 2021-9-5 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631555&amp;ptid=1909972" target="_blank">Arccueid 发表于 2021-9-5 22:20</a>
+反正对花田没啥期望了，不过虹二期要加新人的话压力也挺大的，毕竟AS那么阴间 ...</blockquote>
+相信田中仁肯定全部推到重来啊<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+不过现在看，卖歌的任务这么重，田中仁也需要取舍了，之前一期其实也让一些角色很单薄。
+
+其实我没懂既然要让千6集入队，那么干嘛要分离开来写第五集，搞得现在疯狂用绯红之王。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cybernetics31  
+##### 3925#       发表于 2021-9-5 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">…………12人每人一首？真这样太难了虹二季度
+
+
+*****
+
+####  damian-wade  
+##### 3926#       发表于 2021-9-5 23:07
+
+
+第一集明明应该是香音solo结果弄个全员曲你们都没有这么纠结过，期待变了看事物的眼光也变了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
