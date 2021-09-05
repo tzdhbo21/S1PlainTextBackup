@@ -10114,3 +10114,170 @@ I told you so.jpg</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">话说他们塞 歌一定非要live么..能不能学学爱马仕
 
 
+
+
+*****
+
+####  kata魂  
+##### 3831#       发表于 2021-9-5 19:47
+
+
+live就是卖点啊~~~
+
+这集要是没live那彻底完了
+
+
+*****
+
+####  lanslort  
+##### 3832#       发表于 2021-9-5 19:47
+
+
+还有小千这性格也极端了点，参加比赛赢了就转部，输了就退学<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 3833#       发表于 2021-9-5 19:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都没到秋啊 不还暑假来着。。。。所以发展就太快了
+
+
+*****
+
+####  蔵女  
+##### 3834#       发表于 2021-9-5 19:48
+
+
+个人感觉还挺好的，人物上比前两集可自然多了
+
+就是这进度为啥和飞一样快…
+
+
+*****
+
+####  pliee  
+##### 3835#       发表于 2021-9-5 19:48
+
+
+这集不还是夏天吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 3836#       发表于 2021-9-5 19:51
+
+
+既视感
+
+<img src="http://wx1.sinaimg.cn/mw690/002Q234tgy1gu5ywbs23qj60t20gbtbc02.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3837#       发表于 2021-9-5 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629823&amp;ptid=1909972" target="_blank">pliee 发表于 2021-9-5 19:48</a>
+
+这集不还是夏天吗</blockquote>
+看预告下集还是夏，怎么回事呢
+
+
+*****
+
+####  lanslort  
+##### 3838#       发表于 2021-9-5 19:54
+
+
+live那是一定要live的，企划的核心卖点已经变成二三次元同步或者说主要为三次元服务的live了，每次上NHK都是同样的吹法我都看麻了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3839#       发表于 2021-9-5 19:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">该评价是否是4部最拉第6集了？
+
+
+*****
+
+####  寒风夜  
+##### 3840#       发表于 2021-9-5 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629872&amp;ptid=1909972" target="_blank">lanslort 发表于 2021-9-5 19:54</a>
+
+live那是一定要live的，企划的核心卖点已经变成二三次元同步或者说主要为三次元服务的live了，每次上NHK都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">卖歌企划
+
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3841#       发表于 2021-9-5 19:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">敌团live不会最后boss战（有没有不好说）才完整放出来吧……同一段舞步已经看了三次看麻了都
+
+
+*****
+
+####  优妮可  
+##### 3842#       发表于 2021-9-5 20:00
+
+
+<blockquote>蔵女 发表于 2021-9-5 19:48
+个人感觉还挺好的，人物上比前两集可自然多了
+
+就是这进度为啥和飞一样快… ...</blockquote>
+不止这集，前面好几集也快。个人猜想，剩下六集要搞定，恋入团，组合名，五人参加比赛，合宿应该没了，可可个人回大概类似小鸟那种留学，然后大伙劝回，然后五人live。
+
+
+*****
+
+####  寒风夜  
+##### 3843#       发表于 2021-9-5 20:01
+
+
+虽说本身没期望，不过这集我是真的晕了有点，
+
+
+*****
+
+####  lj205  
+##### 3844#       发表于 2021-9-5 20:02
+
+
+求求恋giegie 回上点药吧，我宁愿嗑药都不想这么百米冲刺看剧
+
+
+*****
+
+####  寒风夜  
+##### 3845#       发表于 2021-9-5 20:02
+
+
+真没想到这4人live..
+
+
+*****
+
+####  寒风夜  
+##### 3846#       发表于 2021-9-5 20:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629971&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-5 20:02</a>
+
+求求恋giegie 回上点药吧，我宁愿嗑药都不想这么百米冲刺看剧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">想补你头像，听说第2 3 4季不太好，推荐看吗
+
+
