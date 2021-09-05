@@ -829,3 +829,17 @@ STEAM全球热销现在排第四，除了两个骨折文明六只有个开拓者
 淘宝好像开始偷跑了？
 
 
+
+
+*****
+
+####  laoz  
+##### 3066#       发表于 2021-9-5 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52624652&amp;ptid=1860328" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2021-9-5 10:14</a>
+
+淘宝好像开始偷跑了？</blockquote>
+挂个现货运输而已，以前运输快的这次都进去了，现在那几个不知道运多久才到
+
+
