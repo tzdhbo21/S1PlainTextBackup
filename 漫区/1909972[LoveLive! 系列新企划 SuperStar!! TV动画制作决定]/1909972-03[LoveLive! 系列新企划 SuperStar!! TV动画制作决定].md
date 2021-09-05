@@ -12110,3 +12110,152 @@ DMHY已经有熟肉了，0点SNS那边估计也会更新
 而且怎么评价“动画质量”？水水第一季在泥潭众看来明显也很一言难尽，然后累积BD销量至少48W+，这个算质量好还是质量差？
 
 
+
+
+*****
+
+####  qratosone  
+##### 3992#       发表于 2021-9-6 01:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633037&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-6 00:58</a>
+
+所以为啥觉得动画拉不了新呢………………即使是水团动画也有人因此入坑啊 ...</blockquote>
+就一句话，你评价“动画拉了”的标准是什么？水水第一季累积BD销量至少48W（统计口径原因实际还不止），那么你是从哪个角度得出了“动画拉了且影响到路人缘”的结论的？
+
+
+*****
+
+####  二条乃梨子  
+##### 3993#       发表于 2021-9-6 01:09
+
+
+前面还好，后面加农突然跑去千酱那好突兀，两个人后面也是平平淡淡就把憋了好几年的执念说开了，虽然逻辑上没问题但总感觉感情不到位
+
+
+*****
+
+####  型月重工  
+##### 3994#       发表于 2021-9-6 01:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633083&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 01:03</a>
+
+动画从无到有确实是能拉新，这个显然没有疑问，但这个能证明“高质量动画有助于拉新”么？而且本家第一季 ...</blockquote>
+不是..你这水团BD销量48W+你怎么算的？ 
+
+你会不会算销量？ 销量是你这么算的？
+
+累计平均是指..
+
+如果一部动画分7卷发售，如果每卷的销量是1万，那么它的累平就是1万，而不是7万。
+
+也就是说它最终销量是一万，算的是平均值不是总和。你这么算销量在壁吧要被人笑掉大牙的。
+
+
+水团第二季的累平是4.6万 水团第一季的累平是5.4万，你这个48W+我很想知道是怎么算的？
+
+
+*****
+
+####  cybernetics31  
+##### 3995#       发表于 2021-9-6 01:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633108&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 01:08</a>
+就一句话，你评价“动画拉了”的标准是什么？水水第一季累积BD销量至少48W（统计口径原因实际还不止），那 ...</blockquote>
+剧情，逻辑，观感
+路人评论
+
+
+*****
+
+####  qratosone  
+##### 3996#       发表于 2021-9-6 01:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633133&amp;ptid=1909972" target="_blank">型月重工 发表于 2021-9-6 01:13</a>
+
+不是..你这水团BD销量48W+你怎么算的？ 
+
+你会不会算销量？ 销量是你这么算的？
+
+累计平均是指..</blockquote>
+你看错了啊，写得累积销量啊，不是每卷平均销量。人家公司财报自己说的
+
+[https://tieba.baidu.com/p/5149288769?red_tag=3364834264](https://tieba.baidu.com/p/5149288769?red_tag=3364834264)
+
+
+*****
+
+####  黑雪姫  
+##### 3997#       发表于 2021-9-6 01:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633083&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 01:03</a>
+
+动画从无到有确实是能拉新，这个显然没有疑问，但这个能证明“高质量动画有助于拉新”么？而且本家第一季 ...</blockquote>
+48W+？？ 这什么旷世神作？哪个时间线的水团销量 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 3998#       发表于 2021-9-6 01:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633136&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-6 01:14</a>
+
+剧情，逻辑，观感
+
+路人评论</blockquote>
+bangumi.tv目前LL本家也就7.0的评分，你觉得质量算好？LLSS两季当时正好赶上缪水大战，动画评分也有6.4分。另外现在虹团评分7.7，星团评分7.6，然后虹团累积B站点击不到800W，日本那边第一卷BD首周销量相当于水2首周销量的四分之一。于是你的路人缘呢？
+
+
+*****
+
+####  qratosone  
+##### 3999#       发表于 2021-9-6 01:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633142&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-6 01:16</a>
+
+48W+？？ 这什么旷世神作？哪个时间线的水团销量</blockquote>
+楼上贴了，NBGI财报给的，全7卷累积销量。我还把原链接搜出来了
+
+[https://www.bandainamco.co.jp/cg ... /8566?entry_id=5840](https://www.bandainamco.co.jp/cgi-bin/releases/index.cgi/file/view/8566?entry_id=5840)
+
+
+*****
+
+####  黑雪姫  
+##### 4000#       发表于 2021-9-6 01:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633138&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 01:15</a>
+
+你看错了啊，写得累积销量啊，不是每卷平均销量。人家公司财报自己说的
+
+
+https://tieba.baidu.com/p/51492 ...</blockquote>
+笑死，官方还真这么算啊，这是跟我们销量厨作对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过水团动画..哦不，应该说疫情之前大部分的偶像动画的销量因为塞了王之力所以不能判断出是不是动画质量才导致卖这么多的。
+
+
+*****
+
+####  qratosone  
+##### 4001#       发表于 2021-9-6 01:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633176&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-6 01:21</a>
+
+笑死，官方还真这么算啊，这是跟我们销量厨作对
+
+
+不过水团动画..哦不，应该说疫情之前大部分的偶 ...</blockquote>
+统计口径差异，跟O榜销量肯定不一样。归根结底动画质量及其一系列后续影响这玩意本来就是个玄学，要么大爆（可能性极低）要么大翻车，否则都没啥影响，中规中矩做完就得了。
+
+

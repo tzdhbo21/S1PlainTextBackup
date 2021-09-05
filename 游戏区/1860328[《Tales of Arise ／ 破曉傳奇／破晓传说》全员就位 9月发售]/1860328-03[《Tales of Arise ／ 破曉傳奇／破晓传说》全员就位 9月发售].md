@@ -943,3 +943,23 @@ xsx新西兰区商店我看是9月10号解锁，怎么还晚一天解锁的<img 
 次世代版本跟本世代版本同价啊
 
 
+
+
+*****
+
+####  moekyo  
+##### 3075#       发表于 2021-9-6 01:08
+
+
+还是没蹲到主机<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fuero  
+##### 3076#       发表于 2021-9-6 01:19
+
+
+试了两个平台的demo，ps5手柄震动还算调教的可以接受，入了ps5版
+
+

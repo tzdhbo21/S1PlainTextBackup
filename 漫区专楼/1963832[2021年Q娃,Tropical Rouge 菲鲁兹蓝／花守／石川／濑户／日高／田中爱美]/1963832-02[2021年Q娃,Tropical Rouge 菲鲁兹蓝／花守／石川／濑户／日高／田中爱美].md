@@ -7900,3 +7900,16 @@ image.png
 平时只是打架节奏拉胯，这集感觉日常衔接也不太流畅<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但青山充一人回也不能要求太高了
 
 
+
+
+*****
+
+####  李可  
+##### 2075#       发表于 2021-9-6 01:21
+
+
+为什么这集夏哥跟磕了药一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2105K81AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
