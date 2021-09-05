@@ -1347,3 +1347,21 @@ WT不是去年就说5年内完结？如果第十人是个从未出场的新人�
 海贼御田舞王就是火影鼬鼠一个类型了，想要毁掉哪个角色只要把这个角色和傻逼舞王联系起来就行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  klzxs  
+##### 55601#       发表于 2021-9-5 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52626788&amp;ptid=98922" target="_blank">届得到 发表于 2021-9-5 14:11</a>
+
+海贼御田舞王就是火影鼬鼠一个类型了，想要毁掉哪个角色只要把这个角色和傻逼舞王联系起来就行
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不行 别的角色垫宇智波至少是真的垫出了鼬的人气
+
+御田是越垫越气人 
+
+
