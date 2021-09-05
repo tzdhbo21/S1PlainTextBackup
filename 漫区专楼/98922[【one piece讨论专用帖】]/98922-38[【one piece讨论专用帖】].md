@@ -1365,3 +1365,32 @@ WT不是去年就说5年内完结？如果第十人是个从未出场的新人�
 御田是越垫越气人 
 
 
+
+
+*****
+
+####  saturnus  
+##### 55602#       发表于 2021-9-5 15:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52624386&amp;ptid=98922" target="_blank">C男人 发表于 2021-9-5 09:31</a>
+凯多的人设不是冷血禽兽，该有的伦理感情还是有的。
+
+
+甚至还迁就大和的性别认知障碍，该称她“儿子”，根本 ...</blockquote>
+还有剧场版巴特雷<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+话说青椒放在这群人中间实乃霸王色之耻<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saturnus  
+##### 55603#       发表于 2021-9-5 15:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52623050&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-9-5 00:38</a>
+说凯多实在不行就炸死手下我认为不合理，因为从对人的态度来看凯多的心胸就比一般人宽广，白胡子看到御田不 ...</blockquote>
+按凯多这个行为与大和这个逻辑，路飞不要把卡普杀个几百遍了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
