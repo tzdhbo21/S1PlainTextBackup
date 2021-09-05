@@ -7913,3 +7913,16 @@ image.png
 —— 来自 Xiaomi M2105K81AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  最低人间肥宅  
+##### 2076#       发表于 2021-9-6 05:35
+
+
+真夏这集有点点因为想强调可爱反而诡异的感觉
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
