@@ -8962,3 +8962,550 @@ ll还是青梅无敌啊<img src="https://static.saraba1st.com/image/smiley/face2
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">花田的幼驯染，真是一代比一代完蛋，怎么一个个莫名其妙的
 
 
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3736#       发表于 2021-9-5 18:29
+
+
+人妻属性点满的民警可太棒了，可可动手能力这么强，居然料理苦手，果然是理科专精的缘故么
+
+
+*****
+
+####  笋狐  
+##### 3737#       发表于 2021-9-5 18:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">这年头幼驯染想独立行走有够困难的
+
+
+*****
+
+####  Arccueid  
+##### 3738#       发表于 2021-9-5 18:30
+
+
+严格来说青梅竹马羁绊深其实是挺好的，要是这集的内容拆成两集，先讲小千大赛再讲一起过来演出，补充点细节配合这集高质量的live可能是不亚于第三回的小神回。
+
+现在这么搞真的除了live其他都有点蚌埠住，妈的只能默认花田可能需要更多篇幅后面来点大的了，否则六人团也要这么急真的想不明白了。
+
+
+*****
+
+####  寒风夜  
+##### 3739#       发表于 2021-9-5 18:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">还好，没把谁谁吹 放心上
+
+
+*****
+
+####  凡人  
+##### 3740#       发表于 2021-9-5 18:31
+
+
+不喜欢丸子头，千放下一边就好看多了
+
+
+*****
+
+####  kata魂  
+##### 3741#       发表于 2021-9-5 18:31
+
+
+有没有不磕cp的来评价一下这集，反正我是被迷惑到了
+
+
+*****
+
+####  cybernetics31  
+##### 3742#       发表于 2021-9-5 18:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大闸蟹就放着蒸熟就行啊 强行可可不会烧菜。。。。明明鲤鱼是星团厨力担当
+
+
+*****
+
+####  寒风夜  
+##### 3743#       发表于 2021-9-5 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629046&amp;ptid=1909972" target="_blank">Arccueid 发表于 2021-9-5 18:30</a>
+
+严格来说青梅竹马羁绊深其实是挺好的，要是这集的内容拆成两集，先讲小千大赛再讲一起过来演出，补充点细节 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉这不只有花田问题
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3744#       发表于 2021-9-5 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629062&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-5 18:31</a>
+
+大闸蟹就放着蒸熟就行啊 强行可可不会烧菜。。。。明明鲤鱼是星团厨力担当 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后半句细嗦，啥时候提到过的，别跟我说就那烤面包机
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 3745#       发表于 2021-9-5 18:33
+
+
+入团了后不会就变成对圆形发情bot吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不安dese
+
+
+*****
+
+####  chenflyyy  
+##### 3746#       发表于 2021-9-5 18:33
+
+
+星团这节奏赶的像是只预订一季的样子
+
+
+*****
+
+####  Arccueid  
+##### 3747#       发表于 2021-9-5 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629052&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-5 18:31</a>
+
+有没有不磕cp的来评价一下这集，反正我是被迷惑到了</blockquote>
+个人观感这集发生的剧情确实可以做成前三集那样的水准，但是跳的太过分导致观感很糟糕，而且很难共情。
+
+
+*****
+
+####  寒风夜  
+##### 3748#       发表于 2021-9-5 18:34
+
+
+话说这举办live是同一天吗，。。
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3749#       发表于 2021-9-5 18:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">只能安慰自己大的还在后面，这恋感觉2话就能收了
+
+
+*****
+
+####  soranoguiji  
+##### 3750#       发表于 2021-9-5 18:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集我看着还行啊，歌也好听没有辜负期待，当然在第三集可香面前全都是被秒的
+
+
+
+
+*****
+
+####  优妮可  
+##### 3751#       发表于 2021-9-5 18:34
+
+
+六集已经搞定四个人了，剩下六集对付一个会长？
+
+
+*****
+
+####  lj205  
+##### 3752#       发表于 2021-9-5 18:34
+
+
+我本来以为会有千跳舞专场，莫不是小星星把经费烧完了？
+
+
+*****
+
+####  cybernetics31  
+##### 3753#       发表于 2021-9-5 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629072&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-5 18:32</a>
+
+后半句细嗦，啥时候提到过的，别跟我说就那烤面包机</blockquote>
+推特晒过自己做的菜啊 唠嗑的时候也说开火了 
+
+
+*****
+
+####  寒风夜  
+##### 3754#       发表于 2021-9-5 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629097&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-5 18:34</a>
+
+我本来以为会有千跳舞专场，莫不是小星星把经费烧完了？</blockquote>
+讲的东西太多了 
+
+
+*****
+
+####  黑雪姫  
+##### 3755#       发表于 2021-9-5 18:36
+
+
+其实时间也没剩多少了，这季只有12集。
+
+7.8两话讲恋恋，之后还有可可个人回起码需要占1-2话的时间。
+
+还需要给两话打BOSS。 时间其实够紧了。
+
+
+*****
+
+####  寒风夜  
+##### 3756#       发表于 2021-9-5 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629115&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-5 18:36</a>
+
+其实时间也没剩多少了，这季只有12集。
+
+7.8两话讲恋恋，之后还有可可个人回起码需要占1-2话的时间。
+
+还需要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">看这集 你确定要2话
+
+
+*****
+
+####  Piano-Forest  
+##### 3757#       发表于 2021-9-5 18:37
+
+
+[https://twitter.com/kamatamanankotu/status/1434462952036261897](https://twitter.com/kamatamanankotu/status/1434462952036261897)
+<img src="https://p.sda1.dev/2/bcdbe7b9c4cd8c6c68c04ea359ad371f/20210905_183557.jpg" referrerpolicy="no-referrer">
+
+
+第6話挿入歌『常夏☆サンシャイン』
+
+作詞：宮嶋淳子
+
+作曲・編曲：EFFY
+
+
+【💫CD情報💫】
+
+本日流れた第6話挿入歌「常夏✩サンシャイン」は、9/29(水)に発売されるTVアニメ『ラブライブ！スーパースター!!』挿入歌シングル第2弾に収録🙌✨
+
+
+そして❣
+
+形態①のジャケットを公開👀💕
+
+
+CD💿の詳細は追ってお知らせいたしますので、続報をお楽しみに♪
+<img src="https://p.sda1.dev/2/a44d6b14903e67aa805dbc0f8d84bd8a/20210905_183601.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/eacc98871467150a2ffb9ce1a97100f0/20210905_183603.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 3758#       发表于 2021-9-5 18:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629092&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-5 18:34</a>
+
+六集已经搞定四个人了，剩下六集对付一个会长？</blockquote>
+还有可可个人回呢，她现在还没有SOLO过ED，肯定是留后面的
+
+
+*****
+
+####  cybernetics31  
+##### 3759#       发表于 2021-9-5 18:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629115&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-5 18:36</a>
+
+其实时间也没剩多少了，这季只有12集。
+
+7.8两话讲恋恋，之后还有可可个人回起码需要占1-2话的时间。
+
+还需要 ...</blockquote>
+说真的 参考无印 真不一定有打boss 。。。。。
+
+
+*****
+
+####  黑雪姫  
+##### 3760#       发表于 2021-9-5 18:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629120&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-5 18:37</a>
+
+看这集 你确定要2话</blockquote>
+反正不是一话就是两话，如果只是一话那么后面在加一集特训回就是了，反正可可大概率还有个人回。
+
+
+*****
+
+####  笋狐  
+##### 3761#       发表于 2021-9-5 18:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这走向恋入队撑死两话，如果剧本突发恶疾和民警一样一话投降....那我估计恋这人气应该没救了
+
+
+*****
+
+####  寒风夜  
+##### 3762#       发表于 2021-9-5 18:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">不会写你们还不如第2集千写入队算了...
+
+
+*****
+
+####  黑雪姫  
+##### 3763#       发表于 2021-9-5 18:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629134&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-5 18:38</a>
+
+说真的 参考无印 真不一定有打boss 。。。。。</blockquote>
+我指是举个例子，反正最后两话肯定是五人集合干点什么。 不可能11.12话还是个人回，过渡回，搞笑回。
+
+
+*****
+
+####  player3960  
+##### 3764#       发表于 2021-9-5 18:41
+
+
+香音3话，堇1话，千酱2话，恋应该也是2话，可可回感觉也得2话的样子，感觉堇好亏啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  kata魂  
+##### 3765#       发表于 2021-9-5 18:41
+
+
+花田这还不如干脆继续弄你的青梅竹马起源论，第一集建队就是她俩得了
+
+
+*****
+
+####  离心  
+##### 3766#       发表于 2021-9-5 18:41
+
+
+拿我n114的日语水平和听力就是赶，非常赶。新歌不错。星的老问题。不知道是只有一季的问题还是后面有大的。细节很糟糕。大方向没问题。但问题你只有五人啊，即使算上敌团也就七人。但时间跨度和加人间隔太长了，割裂感太大了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  damian-wade  
+##### 3767#       发表于 2021-9-5 18:41
+
+
+大部分人都只听了广播剧吧，看看成品再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Piano-Forest  
+##### 3768#       发表于 2021-9-5 18:41
+
+
+第七话预告
+
+[https://twitter.com/nhk_animeworld/status/1434463849193824261](https://twitter.com/nhk_animeworld/status/1434463849193824261)
+
+＼次回予告／
+
+💫✨💫✨💫✨💫✨💫✨
+
+ラブライブ！スーパースター!!
+
+第7話「決戦！生徒会長選」
+
+Eテレ 9/12(日)夜7時
+
+💫✨💫✨💫✨💫✨💫✨
+
+
+次回もどうぞお楽しみに！
+
+
+*****
+
+####  chenflyyy  
+##### 3769#       发表于 2021-9-5 18:41
+
+
+看完live了，除了服装太土都挺不错的，到时看看真人能不能拯救这套衣服
+
+
+*****
+
+####  cybernetics31  
+##### 3770#       发表于 2021-9-5 18:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">花田老贼你给点作用啊 
+
+看恋和可可的个人回了 希望不要变成水二季那样。。。。。。。。。
+
+
+*****
+
+####  JustW  
+##### 3771#       发表于 2021-9-5 18:44
+
+
+听广播剧那几分钟还行，换个有画面的直播间接着看反而差点
+
+
+*****
+
+####  离心  
+##### 3772#       发表于 2021-9-5 18:44
+
+
+反正我也没把那全人类都看的第六集当回事，放低期待完事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等熟肉出了再看
+
+
+*****
+
+####  kata魂  
+##### 3773#       发表于 2021-9-5 18:44
+
+
+这集观感最大的问题就是全程在讲香千的故事，而可堇这俩人在live开始前跟live一点关系都没有的样子，然后香音突然瞬移回去，之后香千再一起瞬移回live（日本学生挺有钱的啊）
+
+这live双人都比四人好，毕竟俩划水基本啥都没干
+
+
+*****
+
+####  寒风夜  
+##### 3774#       发表于 2021-9-5 18:44
+
+
+其实是太跳跃了吧
+
+
+*****
+
+####  ads147147  
+##### 3775#       发表于 2021-9-5 18:45
+
+
+看你们的反应我就知道第六集不看直播是对的。
+
+I told you so.jpg
+公审花田十辉.jpg
+
+还有一季13集，缪水星大家都是13集，不太可能突然弄成12集。
+
+现在只能说等恋恋大招了，不过想想还是不太可能，除非恋恋天降青梅假药成真。
+
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 3776#       发表于 2021-9-5 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629206&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-5 18:44</a>
+
+这集观感最大的问题就是全程在讲香千的故事，而可堇这俩人在live开始前跟live一点关系都没有的样子，然后香 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">就是后面太快了
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3777#       发表于 2021-9-5 18:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629097&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-5 18:34</a>
+
+我本来以为会有千跳舞专场，莫不是小星星把经费烧完了？</blockquote>
+大概率是吧，不过要是跳舞专场，然后以后真人live也得在一旁跳，估计企划方也想避免这种吧
+
+
+*****
+
+####  kata魂  
+##### 3778#       发表于 2021-9-5 18:47
+
+
+ 本帖最后由 kata魂 于 2021-9-5 18:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629218&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-5 18:45</a>
+
+就是后面太快了</blockquote>
+真是奇了怪了，怎么五个人的戏份比九个人的还要赶啊，当初九人虽然总是白搭一个但好歹八个人都有塑造，更何况白搭那个细节上能感觉到，到了五个人反而不会分配剧情发展了
+
+
+*****
+
+####  cybernetics31  
+##### 3779#       发表于 2021-9-5 18:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你还别说 花田要真能把可恋写出来算他牛逼。。。。。可他这样板戏大家太熟了 想想也知道牡蛎
+
+
+*****
+
+####  ads147147  
+##### 3780#       发表于 2021-9-5 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629206&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-5 18:44</a>
+这集观感最大的问题就是全程在讲香千的故事，而可堇这俩人在live开始前跟live一点关系都没有的样子，然后香 ...</blockquote>
+看了下有up提到了，海运慢船二等舱（动画里就是二等舱）12小时左右，票价4k6，快船6k，飞机1w2。而且还是偏僻的机场。
+
+顺便才知道第五集里出现的大桥就是虹的大桥，当时可可就应该去虹:-D
+<img src="https://p.sda1.dev/2/4adb4b09ac1d996dd8d3458ebc8d19de/IMG_CMP_165512669.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  Arccueid  
+##### 3781#       发表于 2021-9-5 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629217&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-5 18:45</a>
+
+看你们的反应我就知道第六集不看直播是对的。
+
+
+I told you so.jpg</blockquote>
+没那么差，主要还是期望高了点，毕竟全人类是吧
+
+不过连续TP确实一瞬间让我有点PTSD了
+
+
