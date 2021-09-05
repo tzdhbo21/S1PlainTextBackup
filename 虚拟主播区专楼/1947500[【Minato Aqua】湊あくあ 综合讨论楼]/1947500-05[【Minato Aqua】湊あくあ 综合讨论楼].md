@@ -11064,3 +11064,91 @@ https://twitter.com/umaiyo_puyoman/status/1432640700638629889
 才意识到这俩还是第一次单独开live
 
 
+
+
+*****
+
+####  离魂仙  
+##### 6895#       发表于 2021-9-5 20:22
+
+
+ 本帖最后由 离魂仙 于 2021-9-5 20:25 编辑 
+
+原来有实时的部分的啊，不说现场磨个豆腐了，好歹中间别空出个微妙的距离给点肢体互动吧…
+夸宝难道只会对小粥这样有安全感的类型投怀送抱吗
+
+
+啊…有了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">虽然有点不一样
+
+
+*****
+
+####  面具13  
+##### 6896#       发表于 2021-9-5 20:24
+
+
+肢体接触——推搡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">交换身体了
+
+
+*****
+
+####  乌鸦绅士  
+##### 6897#       发表于 2021-9-5 20:25
+
+
+ 本帖最后由 乌鸦绅士 于 2021-9-5 20:28 编辑 
+
+演技感人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 6898#       发表于 2021-9-5 20:26
+
+
+好尬哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑场了
+
+
+*****
+
+####  离魂仙  
+##### 6899#       发表于 2021-9-5 20:30
+
+
+靠嫩娘，能省点心吗
+
+
+*****
+
+####  梅斯之围  
+##### 6900#       发表于 2021-9-5 20:31
+
+
+ 本帖最后由 梅斯之围 于 2021-9-5 20:35 编辑 
+
+刚才怎么卡了，吓我一跳，差点上次工商live又重演
+
+syl好了，但是掉的同接怕是涨不回来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  离魂仙  
+##### 6901#       发表于 2021-9-5 20:36
+
+
+幸好裙子大，不然这劈腿动作做出来 夸宝风评被害了
+
+
+*****
+
+####  面具13  
+##### 6902#       发表于 2021-9-5 20:39
+
+
+打上花火的背景图很贴啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+

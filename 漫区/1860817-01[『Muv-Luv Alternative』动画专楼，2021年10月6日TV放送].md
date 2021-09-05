@@ -8500,3 +8500,20 @@ mla漫画看完了，非常地满足。
 漫画的机战完全看不懂，是我想象力不够丰富吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 595#       发表于 2021-9-5 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52626027&amp;ptid=1860817" target="_blank">球獭 发表于 2021-9-5 12:56</a>
+
+漫画的机战完全看不懂，是我想象力不够丰富吗</blockquote>
+静态画面表现力总会差一些，看不懂不是问题，游戏稍好一点，但也不容易看懂。
+
+
+所以就看动画能不能补完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

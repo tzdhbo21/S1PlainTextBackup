@@ -10499,3 +10499,114 @@ live那是一定要live的，企划的核心卖点已经变成二三次元同步
 是重复利用！
 
 
+
+
+*****
+
+####  寒风夜  
+##### 3867#       发表于 2021-9-5 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630235&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-5 20:24</a>
+
+哦对了，为了设定而设定和粗暴式表现的细节随着这话也越来越多了，比如敌团到底厉害在哪，live木得目前为止 ...</blockquote>
+其实失声用的也挺搞的，尤其在我看完爱马仕的情况下
+
+
+*****
+
+####  星降る森  
+##### 3868#       发表于 2021-9-5 20:31
+
+
+ 本帖最后由 星降る森 于 2021-9-5 20:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话给我写的话，肯定抛弃小千，先把上一话那个没了小千剩下3人没有主观能动性的坑填了，下一话再给幼驯染回，小千看到团队没有自己也能前进想退出，香音把她劝回来，虽然还是有点老套，逻辑应该比现在这个强多了。
+
+真的，也不急着赶一话卖四人曲吧，先给个三人曲也行的
+
+
+*****
+
+####  寒风夜  
+##### 3869#       发表于 2021-9-5 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630326&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-5 20:31</a>
+
+这话给我写的话，肯定抛弃小千，先把上一话那个没了小千剩下3人没有主观能动性的坑填了，下一话再给 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3870#       发表于 2021-9-5 20:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630326&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-5 20:31</a>
+
+这话给我写的话，肯定抛弃小千，先把上一话那个没了小千剩下3人没有主观能动性的坑填了，下一话再给 ...</blockquote>
+其实第 1集唐突5人也挺抽象，
+
+
+
+
+*****
+
+####  saglork  
+##### 3871#       发表于 2021-9-5 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630326&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-5 20:31</a>
+这话给我写的话，肯定抛弃小千，先把上一话那个没了小千剩下3人没有主观能动性的坑填了，下一话再给 ...</blockquote>
+这集证明了千女士压根没把敌团的屁话当回事，思想十分坚定，说到底还是纠结自己的那点心事，而且做事果决不留后路<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 3872#       发表于 2021-9-5 20:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后这个破釜沉舟的过程被略过去了，代表学校拿了优胜就跑路，理事长还很支持的样子，说好的这学校最注重成果的呢？只注重成果不注重人才是吧，拿完奖爱哪哪去（
+
+
+*****
+
+####  寒风夜  
+##### 3873#       发表于 2021-9-5 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630481&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-5 20:43</a>
+
+然后这个破釜沉舟的过程被略过去了，代表学校拿了优胜就跑路，理事长还很支持的样子，说好的这学校 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">有点要寄的感觉了，
+
+
+*****
+
+####  寒风夜  
+##### 3874#       发表于 2021-9-5 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630481&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-5 20:43</a>
+
+然后这个破釜沉舟的过程被略过去了，代表学校拿了优胜就跑路，理事长还很支持的样子，说好的这学校 ...</blockquote>
+
+
+*****
+
+####  kata魂  
+##### 3875#       发表于 2021-9-5 20:46
+
+
+逛了一下贴吧还有人帮花田脑补细节的
+
+缪斯是大家一起实现的梦想
+
+星团是大家一起写的故事吧
+
+怪不得花田敢这么写，有人帮忙补细节自己还写个锤子的细节啊
+
+
