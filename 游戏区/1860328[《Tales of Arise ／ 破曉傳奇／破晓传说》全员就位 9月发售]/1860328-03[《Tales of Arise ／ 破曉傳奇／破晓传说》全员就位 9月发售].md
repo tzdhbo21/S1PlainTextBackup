@@ -881,3 +881,17 @@ STEAM全球热销现在排第四，除了两个骨折文明六只有个开拓者
 steam的话买哪个版本 ？
 
 
+
+
+*****
+
+####  izayoi39  
+##### 3070#       发表于 2021-9-5 20:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630364&amp;ptid=1860328" target="_blank">褪色的雪花 发表于 2021-9-5 20:34</a>
+
+steam的话买哪个版本 ？</blockquote>
+steam推荐只买游戏本体，比主机单游戏便宜不少。国服终极版也就跟主机豪华版差不多，价格也没便宜多少。
+
+

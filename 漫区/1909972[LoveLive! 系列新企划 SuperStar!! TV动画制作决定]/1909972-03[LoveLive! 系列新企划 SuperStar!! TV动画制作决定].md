@@ -10610,3 +10610,188 @@ live那是一定要live的，企划的核心卖点已经变成二三次元同步
 怪不得花田敢这么写，有人帮忙补细节自己还写个锤子的细节啊
 
 
+
+
+*****
+
+####  JustW  
+##### 3876#       发表于 2021-9-5 20:48
+
+
+ 本帖最后由 JustW 于 2021-9-5 20:50 编辑 
+
+虽然最后的live还行，但我觉得实在没必要硬让四个人上，就这次三个人上台+演出后小千正式入团不是挺好？后面还有七集不够多唱两首的？你这去舞蹈比赛了，还能来回tp上台演出，中间也没给入团排练过程，显得上一集的分头行动和三个人老早就去岛上排练很憨批啊……
+
+
+*****
+
+####  寒风夜  
+##### 3877#       发表于 2021-9-5 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630508&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-5 20:46</a>
+
+逛了一下贴吧还有人帮花田脑补细节的
+
+缪斯是大家一起实现的梦想
+
+星团是大家一起写的故事吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3878#       发表于 2021-9-5 20:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630540&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-5 20:48</a>
+
+虽然最后的live还行，但我觉得实在没必要硬让四个人上，就这次三个人上台+演出后小千正式入团不是挺好？你 ...</blockquote>
+[https://bbs.nga.cn/read.php?tid= ... #pid547572241Anchor](https://bbs.nga.cn/read.php?tid=27370159&amp;page=95#pid547572241Anchor)
+
+
+隔壁整理出来的时间线
+
+
+*****
+
+####  寒风夜  
+##### 3879#       发表于 2021-9-5 20:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630540&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-5 20:48</a>
+
+虽然最后的live还行，但我觉得实在没必要硬让四个人上，就这次三个人上台+演出后小千正式入团不是挺好？后 ...</blockquote>
+全给你跳咯
+
+
+*****
+
+####  lj205  
+##### 3880#       发表于 2021-9-5 20:53
+
+
+搞这么赶莫非只有一季动画？
+
+
+*****
+
+####  笋狐  
+##### 3881#       发表于 2021-9-5 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630540&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-5 20:48</a>
+
+虽然最后的live还行，但我觉得实在没必要硬让四个人上，就这次三个人上台+演出后小千正式入团不是挺好？你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为这话不塞的话后面live的安排怕不是要等到9话左右恋入队后的5人团了，你说是吧民警？
+
+至于细节无所谓的拉，花田随便放飞，反正动画播出之后自有贴吧大儒为其汴京
+
+
+*****
+
+####  JustW  
+##### 3882#       发表于 2021-9-5 20:53
+
+
+<blockquote>Pumpkin_ccc 发表于 2021-9-5 20:50
+https://bbs.nga.cn/read.php?tid=27370159&amp;page=95#pid547572241Anchor
+
+
+隔壁整理出来的时间线 ...</blockquote>
+时间线我还是能理解的，但看起来还是感觉赶成哈皮了，三人live换成四人live中间连一个镜头都没给。哪怕给一个小千跑到岛上，可可民警会心一笑，我都当尽力了（）
+
+
+*****
+
+####  寒风夜  
+##### 3883#       发表于 2021-9-5 20:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630607&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-5 20:53</a>
+
+时间线我还是能理解的，但看起来还是感觉赶成哈皮了，三人live换成四人live中间连一个镜头都没给。哪怕给 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">其实不如把oped砍了
+
+
+*****
+
+####  优妮可  
+##### 3884#       发表于 2021-9-5 20:57
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/205746nwmd7mpkssb17m7v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210905_205432.jpg</strong> (34.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-5 20:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/205746wzidire9dkdhln6d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210905_205658.jpg</strong> (62.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-5 20:57 上传
+
+
+学外语
+
+
+*****
+
+####  凡人  
+##### 3885#       发表于 2021-9-5 21:01
+
+
+九人两季，五人人数少了近一半所以一季就够了？不会这么nt吧...
+
+
+*****
+
+####  saglork  
+##### 3886#       发表于 2021-9-5 21:01
+
+
+堇那个盖被子的动作实在有点欲盖弥彰<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dark_Zagi  
+##### 3887#       发表于 2021-9-5 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629050&amp;ptid=1909972" target="_blank">凡人 发表于 2021-9-5 18:31</a>
+
+不喜欢丸子头，千放下一边就好看多了</blockquote>
+我和你正好相反
+
+
+*****
+
+####  saglork  
+##### 3888#       发表于 2021-9-5 21:03
+
+
+一季铁定不够，星团特意放到一年级，怎么可能就一季，第一季现在看春夏秋冬完成入队，最后基本就是停在一年级的春假前后
+
+
+*****
+
+####  寒风夜  
+##### 3889#       发表于 2021-9-5 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630697&amp;ptid=1909972" target="_blank">凡人 发表于 2021-9-5 21:01</a>
+
+九人两季，五人人数少了近一半所以一季就够了？不会这么nt吧...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
