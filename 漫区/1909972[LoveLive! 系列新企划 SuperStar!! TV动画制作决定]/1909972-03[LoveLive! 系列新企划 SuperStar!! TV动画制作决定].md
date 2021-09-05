@@ -9509,3 +9509,206 @@ I told you so.jpg</blockquote>
 不过连续TP确实一瞬间让我有点PTSD了
 
 
+
+
+*****
+
+####  ads147147  
+##### 3782#       发表于 2021-9-5 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629255&amp;ptid=1909972" target="_blank">Arccueid 发表于 2021-9-5 18:49</a>
+没那么差，主要还是期望高了点，毕竟全人类是吧
+
+不过连续TP确实一瞬间让我有点PTSD了</blockquote>
+上次知道这个说法好像还是成神之日，所以我直接当不存在来处理了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 3783#       发表于 2021-9-5 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629217&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-5 18:45</a>
+
+看你们的反应我就知道第六集不看直播是对的。
+
+
+I told you so.jpg</blockquote>
+也没那样，青梅竹马的感情倒还行
+
+
+*****
+
+####  寒风夜  
+##### 3784#       发表于 2021-9-5 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629238&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-5 18:47</a>
+
+真是奇了怪了，怎么五个人的戏份比九个人的还要赶啊，当初九人虽然总是白搭一个但好歹八个人都有塑造，更 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">可能不只是他问题了，
+
+
+*****
+
+####  谁的无聊中  
+##### 3785#       发表于 2021-9-5 18:55
+
+
+花田还是那个花田，星团只有12集啊……肯定会有第二季，我这么想的啊，还有后半太快。。
+
+
+*****
+
+####  寒风夜  
+##### 3786#       发表于 2021-9-5 18:55
+
+
+不过嘛，确实是没期望，卖歌卖歌jpg. 
+
+
+*****
+
+####  型月重工  
+##### 3787#       发表于 2021-9-5 18:56
+
+
+给可可戏份太多了，第1-3集仅次于香音外的重点描写角色，然后每集都有戏份，之后还有一两话个人回。与之对比就是民警<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 3788#       发表于 2021-9-5 18:57
+
+
+民警仓促入团后这两集的戏份和塑造也是十分有限，后面也感觉不会有个人回了，难
+
+
+*****
+
+####  ads147147  
+##### 3789#       发表于 2021-9-5 18:58
+
+
+群像这方面，我理解花田大概是有任务，seele要求多少集内恋恋就要登场，多少集就要齐了之类的，只是我没想到他弄了3集可香后居然马上拉胯，三板斧好歹挺过6集啊喂。
+
+只能说，恋恋别再炸了，千酱反正有感情基础无所谓了，补番的估计拉进度条直接去看live了，苦的只有追番的傻孩子。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  离心  
+##### 3790#       发表于 2021-9-5 19:01
+
+
+我倒是觉得民堇性格慢慢开始完善了。可惜的是大概率一季只有一个个人回了
+
+
+*****
+
+####  寒风夜  
+##### 3791#       发表于 2021-9-5 19:01
+
+
+第4集 就不对劲了，前三集虽然也有点小问题 但不怪 
+
+
+*****
+
+####  星降る森  
+##### 3792#       发表于 2021-9-5 19:03
+
+
+真的还行吗？我觉得太拉了。前三话可香展开节奏控制的不错，这话最后为了塞歌把整个流程都加速了，而且千砂都想让三人用自己动力去练舞的目的也没达成，太仓促了
+
+
+*****
+
+####  Arccueid  
+##### 3793#       发表于 2021-9-5 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629375&amp;ptid=1909972" target="_blank">离心 发表于 2021-9-5 19:01</a>
+
+我倒是觉得民堇性格慢慢开始完善了。可惜的是大概率一季只有一个个人回了 ...</blockquote>
+现在这样慢慢补充也挺好的，不过确实个人挺喜欢现在的民警的，戏分相对来说这么少有点可怜了。
+
+
+*****
+
+####  笋狐  
+##### 3794#       发表于 2021-9-5 19:04
+
+
+知道剧本想要表达什么但拍出来观感就是很诡异：就像大学做毕设自信满满找了个经典题目结果答辩时自己叨叨一堆却只看到导师的神情越来越凝重一样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说的来着，流于表面，浮于形式？你前几话安插点细节暗示或者多一话来写千的入队剧情（民警：？）都不至于看着这么奇怪
+
+
+*****
+
+####  kata魂  
+##### 3795#       发表于 2021-9-5 19:04
+
+
+现在仔细思考一下，入队对应的
+
+前三集：果海鸟--千梨曜--可香
+
+第四集：花凛姬--花露--民堇
+
+第五集：妮可--善子--小千铺垫回
+
+第六集：六人组--六人组--四人组
+
+那问题很tm明显了，现在ll动画连两集铺垫都不会了，加入太多无用镜头导致细节缺失，可香党也不用哭嚎了，三集节奏真是恩赐了，现在想想第三集节奏也确实有点快，当时就该看出这个弊病的。
+
+现在大家可以准备恋入土回了
+
+
+*****
+
+####  寒风夜  
+##### 3796#       发表于 2021-9-5 19:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629401&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-5 19:03</a>
+
+真的还行吗？我觉得太拉了。前三话可香展开节奏控制的不错，这话最后为了塞歌把整个流程都加速了，而且千砂 ...</blockquote>
+太跳跃了 。
+
+
+*****
+
+####  cybernetics31  
+##### 3797#       发表于 2021-9-5 19:05
+
+
+民警好歹搞笑位置 和可可一起搞笑剧情在人气差不了 恋要是处理不好真的就人气垫底了。。。。。。。。。花田给点作用吧 
+
+
+*****
+
+####  宋西湖  
+##### 3798#       发表于 2021-9-5 19:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3799#       发表于 2021-9-5 19:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">其实我觉得失声 童星也没用好..这波啊 是集体放飞 
+
+
