@@ -843,3 +843,17 @@ STEAM全球热销现在排第四，除了两个骨折文明六只有个开拓者
 挂个现货运输而已，以前运输快的这次都进去了，现在那几个不知道运多久才到
 
 
+
+
+*****
+
+####  godless2020  
+##### 3067#       发表于 2021-9-5 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52624758&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-5 10:28</a>
+
+挂个现货运输而已，以前运输快的这次都进去了，现在那几个不知道运多久才到 ...</blockquote>
+原装吧.........
+
+
