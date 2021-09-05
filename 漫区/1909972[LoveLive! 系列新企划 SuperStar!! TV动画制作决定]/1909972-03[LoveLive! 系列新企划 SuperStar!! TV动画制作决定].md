@@ -12259,3 +12259,29 @@ https://tieba.baidu.com/p/51492 ...</blockquote>
 统计口径差异，跟O榜销量肯定不一样。归根结底动画质量及其一系列后续影响这玩意本来就是个玄学，要么大爆（可能性极低）要么大翻车，否则都没啥影响，中规中矩做完就得了。
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 4002#       发表于 2021-9-6 01:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633163&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 01:19</a>
+bangumi.tv目前LL本家也就7.0的评分，你觉得质量算好？LLSS两季当时正好赶上官方智障操作引发缪水大战，动 ...</blockquote>
+我说的路人评论就是指从路人评论这个角度得出“动画拉了且影响到路人缘”的结论，当然我这个也只适用于水团在国内的评论。
+
+
+*****
+
+####  qratosone  
+##### 4003#       发表于 2021-9-6 01:30
+
+
+ 本帖最后由 qratosone 于 2021-9-6 01:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633211&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-6 01:28</a>
+
+我说的路人评论就是指从路人评论这个角度得出“动画拉了且影响到路人缘”的结论，当然我这个也只适用于水 ...</blockquote>
+那你这个统计本身就是有偏差的，如果只看国内的话当时缪水大战打出狗脑子这个情况，本身不可避免地对路人缘会有极大的影响（这还不算你观察到的路人缘是不是当时的水黑帆船）。水水出生的时候本来也是多事之秋，你指望路人缘反映动画质量那是真想多了——甚至观察到比较客观的路人缘都很难
+
+
