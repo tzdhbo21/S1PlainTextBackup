@@ -11065,3 +11065,87 @@ kj02.PNG
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3911#       发表于 2021-9-5 22:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631281&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-5 21:57</a>
+
+这都是低谷了吧</blockquote>
+这集的前半+后边的live，算个啥子低谷。。。
+
+
+*****
+
+####  ads147147  
+##### 3912#       发表于 2021-9-5 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631070&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-5 21:36</a>
+其实这集把鲨鱼牙的台词给可可说就不会那么突兀了，毕竟上一集还在跟卡农讨论千入队的事，鲨鱼牙一个外人在 ...</blockquote>
+铺垫了是小队中的太阳，自来熟不过分吧（反正铺了，信不信随你的人物塑造法）
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  寒风夜  
+##### 3913#       发表于 2021-9-5 22:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">3集后是真有点呃  
+
+
+*****
+
+####  ads147147  
+##### 3914#       发表于 2021-9-5 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631196&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-5 21:49</a>
+小星星也只是live好看+CP党嗑嗨了吧，就剧情本身来说并没有什么超出花田ll平均水平的地方 ...</blockquote>
+是这样，稍微反套路了一点，但是实际上只是人设定位上的反套路，人设本事，故事架构，发展高潮都是老三板斧。
+
+造假药还是等虹的二期吧，如果还是田中仁的话。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Arccueid  
+##### 3915#       发表于 2021-9-5 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631505&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-5 22:16</a>
+
+是这样，稍微反套路了一点，但是实际上只是人设定位上的反套路，人设本事，故事架构，发展高潮都是老三板 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">反正对花田没啥期望了，不过虹二期要加新人的话压力也挺大的，毕竟AS那么阴间
+
+
+*****
+
+####  cybernetics31  
+##### 3916#       发表于 2021-9-5 22:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹那边明显更难搞啊，12个人啊
+青山姐家里竟然还有个哥哥还行
+
+
+*****
+
+####  saglork  
+##### 3917#       发表于 2021-9-5 22:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52631334&amp;ptid=1909972" target="_blank">Arccueid 发表于 2021-9-5 22:02</a>
+前三集起承转合结构完整，叙事节奏也合理，同时塑造了两个主要角色还彻底解决了主角的最大问题，花田负责的 ...</blockquote>
+解决问题其实真的也就那么回事，主要还是唐可可和香音本身人物性格塑造的比较讨喜，所以直接拉高了印象分<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+

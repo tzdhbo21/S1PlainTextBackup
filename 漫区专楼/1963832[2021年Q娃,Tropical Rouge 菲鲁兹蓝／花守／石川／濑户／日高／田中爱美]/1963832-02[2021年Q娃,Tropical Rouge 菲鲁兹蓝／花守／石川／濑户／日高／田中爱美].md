@@ -7878,3 +7878,14 @@ image.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">确实，感觉要么就是暑假回打乱顺序来播了，这几集都太水了剧情
 
 
+
+
+*****
+
+####  haojie_ma  
+##### 2073#       发表于 2021-9-5 22:10
+
+
+站在海豚身上的战斗方式，好像和很久以前哪部老动画很像？可惜记不起名字了
+
+

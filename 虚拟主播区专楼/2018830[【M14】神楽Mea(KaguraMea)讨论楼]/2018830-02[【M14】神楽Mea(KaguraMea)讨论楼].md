@@ -7829,3 +7829,132 @@ syl  感觉肥婆今天有合唱九成九是不播的了
 大部分新歌学了一次就再不唱了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 2200#       发表于 2021-9-5 22:06
+
+
+debuff拉满 开不了播了吗
+
+
+*****
+
+####  时间在我手中  
+##### 2201#       发表于 2021-9-5 22:09
+
+
+怕不是补觉睡过头系列）
+
+
+*****
+
+####  2014720  
+##### 2202#       发表于 2021-9-5 22:10
+
+
+没打lol吧，怕是已经睡了
+
+
+*****
+
+####  T_Hb  
+##### 2203#       发表于 2021-9-5 22:10
+
+
+ 本帖最后由 T_Hb 于 2021-9-5 22:12 编辑 
+
+来了，怎么一开播就在吐槽comment<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 2204#       发表于 2021-9-5 22:11
+
+
+运动了一下午已经累的睡着了
+
+
+*****
+
+####  Klience  
+##### 2205#       发表于 2021-9-5 22:11
+
+
+ 本帖最后由 Klience 于 2021-9-5 22:12 编辑 
+
+9点半才打完 睡个屁 0/7/0的波比我也是第一次见 被对面上单塔姆舔的死死的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 2206#       发表于 2021-9-5 22:13
+
+
+是不是大姨妈了（日期野差不多），浑身疼
+
+
+*****
+
+####  T_Hb  
+##### 2207#       发表于 2021-9-5 22:15
+
+
+ 本帖最后由 T_Hb 于 2021-9-5 22:20 编辑 
+
+一来就是饿，是我听错了吗，是牙疼还是肚子疼
+
+她这食欲，不像是体调不良阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 2208#       发表于 2021-9-5 22:16
+
+
+打了一个晚上连饭都没吃吗 瘾那么大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 2209#       发表于 2021-9-5 22:19
+
+
+lol属于是信仰了
+
+
+*****
+
+####  时间在我手中  
+##### 2210#       发表于 2021-9-5 22:20
+
+
+ 本帖最后由 时间在我手中 于 2021-9-5 22:25 编辑 
+
+为什么说开心的事会说自己一个人去吃烤肉的事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+连一小时都没吃到，3-40分钟就在那里一直吃啊吃啊，吃完了就润了
+
+
+每个月刚开始的时候都觉得自己的肩膀很沉重
+
+
+*****
+
+####  T_Hb  
+##### 2211#       发表于 2021-9-5 22:25
+
+
+ 本帖最后由 T_Hb 于 2021-9-5 22:27 编辑 
+
+可以，开唱了
+
+可惜，第一首就拉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
