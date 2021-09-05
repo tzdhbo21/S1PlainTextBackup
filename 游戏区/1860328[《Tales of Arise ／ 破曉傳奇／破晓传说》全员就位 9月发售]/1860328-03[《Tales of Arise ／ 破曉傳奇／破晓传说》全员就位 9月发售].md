@@ -895,3 +895,18 @@ steam的话买哪个版本 ？</blockquote>
 steam推荐只买游戏本体，比主机单游戏便宜不少。国服终极版也就跟主机豪华版差不多，价格也没便宜多少。
 
 
+
+
+*****
+
+####  LT_Harry  
+##### 3071#         楼主| 发表于 2021-9-5 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630144&amp;ptid=1860328" target="_blank">TheOccuria 发表于 2021-9-5 20:17</a>
+说到steam版，看解锁日期是比主机版晚一天？
+
+记得上次绯红也是steam晚一天，有无买了的兄弟说下大概第二天 ...</blockquote>
+有人告诉我当时发布时间是北京时间0800，PC 版的发布时间参照时区应该是 UTC ±0（也就是该时区的9月10日0点）
+
+
