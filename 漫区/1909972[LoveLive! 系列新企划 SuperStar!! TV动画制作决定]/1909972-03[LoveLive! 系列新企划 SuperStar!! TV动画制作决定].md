@@ -11267,3 +11267,47 @@ DMHY已经有熟肉了，0点SNS那边估计也会更新
 —— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 3927#       发表于 2021-9-5 23:10
+
+
+把恋怎么入队讲完再定论吧，万一花田作用了呢(<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saglork  
+##### 3928#       发表于 2021-9-5 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632026&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-5 23:02</a>
+相信田中仁肯定全部推到重来啊
+
+不过现在看，卖歌的任务这么重，田中仁也需要取舍了，之前一期其 ...</blockquote>
+因为，萨尼啪应该也要卖歌<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 3929#       发表于 2021-9-5 23:21
+
+
+ 本帖最后由 笋狐 于 2021-9-5 23:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按照剧情走向来讨论的话，最后拉恋入队的个人多半是加农炮（C位，参考民警），其次千（私下交流多），再其次可（假药？别闹那可是花田啊），或者全员；至于为什么不是民警...因为这俩目前是真正意义上的0交流，正儿八经照面都没打过的那种
+
+
+*****
+
+####  kata魂  
+##### 3930#       发表于 2021-9-5 23:23
+
+
+我记得杂志宣传就是以可可邀请香音做学园偶像，然后剩下人以香音为中心聚集的，那应该就是香音拉恋入队
+
+

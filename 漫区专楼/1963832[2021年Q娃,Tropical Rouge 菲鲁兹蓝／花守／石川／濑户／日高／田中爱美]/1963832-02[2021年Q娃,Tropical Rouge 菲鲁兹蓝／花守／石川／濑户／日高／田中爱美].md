@@ -7889,3 +7889,14 @@ image.png
 站在海豚身上的战斗方式，好像和很久以前哪部老动画很像？可惜记不起名字了
 
 
+
+
+*****
+
+####  saya1892  
+##### 2074#       发表于 2021-9-5 23:20
+
+
+平时只是打架节奏拉胯，这集感觉日常衔接也不太流畅<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">但青山充一人回也不能要求太高了
+
+

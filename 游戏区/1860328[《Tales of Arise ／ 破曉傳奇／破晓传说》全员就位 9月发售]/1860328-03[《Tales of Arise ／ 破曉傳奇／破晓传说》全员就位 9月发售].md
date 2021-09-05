@@ -921,3 +921,14 @@ steam推荐只买游戏本体，比主机单游戏便宜不少。国服终极版
 于是下单了 XSX 版本体，再上一周班 XD
 
 
+
+
+*****
+
+####  skyfaker305  
+##### 3073#       发表于 2021-9-5 23:13
+
+
+xsx新西兰区商店我看是9月10号解锁，怎么还晚一天解锁的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
