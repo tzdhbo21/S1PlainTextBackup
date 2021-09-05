@@ -10281,3 +10281,221 @@ live那是一定要live的，企划的核心卖点已经变成二三次元同步
 <img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">想补你头像，听说第2 3 4季不太好，推荐看吗
 
 
+
+
+*****
+
+####  saglork  
+##### 3847#       发表于 2021-9-5 20:07
+
+
+堇的话上面也说了，其实这角色这两集才丰满起来，而且是极为讨喜的追加设定，总体待遇还是很不错的
+这一话前边其实还凑活，花田的青梅竹马屁大点事要死要活基本是定式了，香音追到现场加油的剧情其实还挺好，就是千女士这个要么退学出国要么转科偶像，实在是有点重女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+最后这live是我觉得处理的最不好的，这个穿越时空的拉人回来实在莫名其妙，本来我还以为是这边香音在台下给千女士加油，那边可堇唱香音写给千女士的歌的模式，两边画面切换，类似水团的思念合一，现在只能说第六集四人舞台应该是个硬指标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3848#       发表于 2021-9-5 20:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630030&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-5 20:07</a>
+
+堇的话上面也说了，其实这角色这两集才丰满起来，而且是极为讨喜的追加设定，总体待遇还是很不错的
+
+这一话 ...</blockquote>
+哭笑不得啊
+
+
+*****
+
+####  Ditfran  
+##### 3849#       发表于 2021-9-5 20:10
+
+
+最后沙滩上画的东西代表了什么？她们4个人吗？
+
+
+*****
+
+####  lj205  
+##### 3850#       发表于 2021-9-5 20:11
+
+
+<blockquote>寒风夜 发表于 2021-9-5 20:04
+想补你头像，听说第2 3 4季不太好，推荐看吗</blockquote>
+一二季可以看，经典歌和名场面不少，四季是真女同片
+
+
+*****
+
+####  kata魂  
+##### 3851#       发表于 2021-9-5 20:13
+
+
+苹果是香音，圆是千砂都，小星星是可可，笑脸是民堇吧
+
+
+*****
+
+####  寒风夜  
+##### 3852#       发表于 2021-9-5 20:14
+
+
+ 本帖最后由 寒风夜 于 2021-9-5 20:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">就这么炸了，其实后面有什么大的也很难看好吧
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3853#       发表于 2021-9-5 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629588&amp;ptid=1909972" target="_blank">lanslort 发表于 2021-9-5 19:21</a>
+
+堇的问题真没这么大，本来定位就是有点中二但并不认生的那类角色，入队快很好理解（而且堇自己本来也没啥事 ...</blockquote>
+恋前几集不就自己说了么，只要不是lovelive就是支持你们，而这集小千是舞蹈比赛，还是校方推荐去的
+
+
+*****
+
+####  lanslort  
+##### 3854#       发表于 2021-9-5 20:16
+
+
+第六话肯定是要上live的，毕竟要卖歌的嘛。至于为什么不让可堇双人live可能是怕可香党骂娘（真的有区别吗 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）而且剧情上来说让一个没有登台过的和一个技术水平不太行的打客场比赛也不太好
+
+缪水第六话都是已经阶段性齐人了然后整活+拍PV最后上歌，节奏都还行；虹不说了，从剧情到LIVE都可以堪称当季最高回；这么一看星这还真不太行 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lanslort  
+##### 3855#       发表于 2021-9-5 20:16
+
+
+第六话肯定是要上live的，毕竟要卖歌的嘛。至于为什么不让可堇双人live可能是怕可香党骂娘（真的有区别吗 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）而且剧情上来说让一个没有登台过的和一个技术水平不太行的打客场比赛也不太好
+
+缪水第六话都是已经阶段性齐人了然后整活+拍PV最后上歌，节奏都还行；虹不说了，从剧情到LIVE都可以堪称当季最高回；这么一看星这还真不太行 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蔵女  
+##### 3856#       发表于 2021-9-5 20:17
+
+
+所以说这点就很怪，明明只有五个人了，有人的戏份还被牺牲掉了，为啥进度还能这么赶…
+
+这集明显分两集更合适些，放一集集再加个live有些挤了。
+
+
+*****
+
+####  寒风夜  
+##### 3857#       发表于 2021-9-5 20:18
+
+
+有点想一出是一出了
+
+
+*****
+
+####  saglork  
+##### 3858#       发表于 2021-9-5 20:19
+
+
+这集这随便一转科，也宣告之前网友脑洞的音乐科普通科矛盾激化，通过lovelive和后两个成员入队打破学科之间的隔阂这个可能会很有意思的点也算是基本没了，这剩下能挖的东西可能也就恋恋为什么反偶像了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ditfran  
+##### 3859#       发表于 2021-9-5 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630094&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-5 20:13</a>
+
+苹果是香音，圆是千砂都，小星星是可可，笑脸是民堇吧</blockquote>
+圆和小星星还可以理解，苹果和笑脸跟角色联系不起来啊
+
+
+*****
+
+####  kata魂  
+##### 3860#       发表于 2021-9-5 20:20
+
+
+这集就是两集啊，上集都是小千铺垫回，然后呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3861#       发表于 2021-9-5 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630164&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-5 20:19</a>
+
+这集这随便一转科，也宣告之前网友脑洞的音乐科普通科矛盾激化，通过lovelive和后两个成员入队打破学科之间 ...</blockquote>
+设定就随便抛出来随便解决，寄
+
+
+*****
+
+####  kata魂  
+##### 3862#       发表于 2021-9-5 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630170&amp;ptid=1909972" target="_blank">Ditfran 发表于 2021-9-5 20:19</a>
+
+圆和小星星还可以理解，苹果和笑脸跟角色联系不起来啊</blockquote>
+烤苹果和艺人完美的笑容吧
+
+
+*****
+
+####  saglork  
+##### 3863#       发表于 2021-9-5 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630138&amp;ptid=1909972" target="_blank">lanslort 发表于 2021-9-5 20:16</a>
+第六话肯定是要上live的，毕竟要卖歌的嘛。至于为什么不让可堇双人live可能是怕可香党骂娘（真的有区别吗 [ ...</blockquote>
+我是没那么在意CP的，尤其是星团现在这种乱炖处理的，这一集小千这个重女设定以后还有啥可香啊，唐女士小心被小千直接遣送回国好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3864#       发表于 2021-9-5 20:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">不想写属实可以不接这活了 何必，话说这都换新制作人了，虹都换阵容，为什么 非还要花田
+
+
+*****
+
+####  笋狐  
+##### 3865#       发表于 2021-9-5 20:24
+
+
+哦对了，为了设定而设定和粗暴式表现的细节随着这话也越来越多了，比如敌团到底厉害在哪，live木得目前为止只体现在设定上和可可的粉丝滤镜里，跑到新手场炸鱼还一脸余裕的经典“你们引起了我的注意”，“好吃留最后”转头当起人生导师玩养成系，对徒弟的live也是一次一个死国以....
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便前一话让很多炒股人上天台的“约定的场所”这话好像一笔带过了，和地方本身有什么意义没关系，只是刚好在那说出来而已，那我寻思换成小沙坑滑滑梯好像更合理啊
+
+
+*****
+
+####  寒风夜  
+##### 3866#       发表于 2021-9-5 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52630235&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-5 20:24</a>
+
+哦对了，为了设定而设定和粗暴式表现的细节随着这话也越来越多了，比如敌团到底厉害在哪，live木得目前为止 ...</blockquote>
+是重复利用！
+
+
