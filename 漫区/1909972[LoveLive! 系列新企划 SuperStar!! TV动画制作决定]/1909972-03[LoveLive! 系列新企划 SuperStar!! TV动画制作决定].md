@@ -9712,3 +9712,195 @@ I told you so.jpg</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">其实我觉得失声 童星也没用好..这波啊 是集体放飞 
 
 
+
+
+*****
+
+####  ads147147  
+##### 3800#       发表于 2021-9-5 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629423&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-5 19:04</a>
+现在仔细思考一下，入队对应的
+
+前三集：果海鸟--千梨曜--可香
+
+第四集：花凛姬--花露--民堇</blockquote>
+我开始觉得，导演问题也大，他们真不清楚这样搞的缺点么，怕不是真是工期太紧卡了进度只能走一步算一步强行塞进度了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  优妮可  
+##### 3801#       发表于 2021-9-5 19:12
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/191151mrehbrz2rbdhgrtt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1630839708655.jpg</strong> (211.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-5 19:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/191154flg6f6efjh6zghbj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1630839714939.jpg</strong> (231.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-5 19:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/05/191154y3wd90uduxoiz60e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210905_190844.jpg</strong> (110.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-5 19:11 上传
+
+
+商品和ins的合影
+
+
+*****
+
+####  寒风夜  
+##### 3802#       发表于 2021-9-5 19:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629466&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-5 19:09</a>
+
+我开始觉得，导演问题也大，他们真不清楚这样搞的缺点么，怕不是真是工期太紧卡了进度只能走一步算一步强 ...</blockquote>
+这脚本肯定动工前 就完成了 ..
+
+
+*****
+
+####  kata魂  
+##### 3803#       发表于 2021-9-5 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629466&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-5 19:09</a>
+
+我开始觉得，导演问题也大，他们真不清楚这样搞的缺点么，怕不是真是工期太紧卡了进度只能走一步算一步强 ...</blockquote>
+现在是整体都有问题了（除了负责live的）
+
+我是真不看好恋个人回，从这选举会长的切入角度很明显又要加搞笑部分，但这几集已经很明显了，他只会加搞笑然后塑造全没了，堇个人回搞笑了半天然后加速流程，可堇俩人活宝了一段时间又加速流程，这集甚至sunnypa的实力还是没看到
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3804#       发表于 2021-9-5 19:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">本来还想着可恋假药说不定能成，现在就门把手女士这前面苦大仇深这集直接tp入团的剧情来看还是别想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  we89623  
+##### 3805#       发表于 2021-9-5 19:18
+
+
+如果可可之后真有个人回...那么我就相信前面某楼所说的星团企划是围绕唐可可和鲤鱼这个角色创建的。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 3806#       发表于 2021-9-5 19:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">其实感觉这么快 推出 的 动画都
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3807#       发表于 2021-9-5 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629339&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-5 18:57</a>
+
+民警仓促入团后这两集的戏份和塑造也是十分有限，后面也感觉不会有个人回了，难 ...</blockquote>
+五集民警吐槽，照顾可可，拉住敲头制止乱来，递水，
+
+可可打哈欠那里，民警打趣，可可“无路赛desu”，民警宠溺的表情
+
+第六集人妻属性点满
+
+我觉得民警的形象比起前四集丰富了立体了很多
+
+本以为的搞笑役，结果五六两集下来真的越来越喜欢民警了
+
+个人回估计要等第二季来了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 3808#       发表于 2021-9-5 19:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过看起来应该不会重现友情夭寿喽的操作了
+
+
+*****
+
+####  寒风夜  
+##### 3809#       发表于 2021-9-5 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52629574&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-5 19:19</a>
+
+不过看起来应该不会重现友情夭寿喽的操作了</blockquote>
+这个  倒没
+
+
+*****
+
+####  Norkey1  
+##### 3810#       发表于 2021-9-5 19:21
+
+
+这集动画微妙<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  lanslort  
+##### 3811#       发表于 2021-9-5 19:21
+
+
+堇的问题真没这么大，本来定位就是有点中二但并不认生的那类角色，入队快很好理解（而且堇自己本来也没啥事情要干的
+
+倒是小千这边，其实这种羡慕幼驯染有自己没有的能力的关系是很微妙的，而香音作为一个细腻的容易自己想多的角色竟然这么多年都毫无感觉其实挺OOC的。最后那段明显是想照着无印第一季最终话来写，但最终话那段剧情从第九话结尾开始埋伏笔然后11 12话引爆13解决一共花了三话，而且果本身作为一个粗神经比较任性的角色不管是察觉不到朋友的心意还是最后去拉人都显得更合理，但同样的剧情放在香音身上就感觉很怪
+
+恋就不说了，你啥时候变得这么关心同学了啊你们很熟吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+而且这一话总感觉台词塞得太多了密度过高以至于说出来都是一个语速，就很难调动起情绪
+
+
+*****
+
+####  星降る森  
+##### 3812#       发表于 2021-9-5 19:24
+
+
+<blockquote>兔姬姬姬姬姬 发表于 2021-9-5 19:19
+不过看起来应该不会重现友情夭寿喽的操作了</blockquote>
+加农炮赶在失火前把火苗灭了
+
+
