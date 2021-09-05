@@ -11857,3 +11857,256 @@ DMHY已经有熟肉了，0点SNS那边估计也会更新
 想多了，国内是靠烂梗，日本可是靠动画和线下LIVE拉新的，你以为之后星团要连开20场线下LIVE是为了什么。
 
 
+
+
+*****
+
+####  qratosone  
+##### 3974#       发表于 2021-9-6 00:49
+
+
+ 本帖最后由 qratosone 于 2021-9-6 00:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632950&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-6 00:45</a>
+
+想多了，国内是靠烂梗，日本可是靠动画和线下LIVE拉新的，你以为之后星团要连开20场线下LIVE是为了什么。 ...</blockquote>
+这人扯高质量动画本来也是不着边际，“提高质量”这么虚无缥缈的东西在日本本土产生的效果甚至都比不上硬着头皮上NHK
+
+
+*****
+
+####  TRIScRE  
+##### 3975#       发表于 2021-9-6 00:49
+
+
+<blockquote>黑雪姫 发表于 2021-9-6 00:45
+想多了，国内是靠烂梗，日本可是靠动画和线下LIVE拉新的，你以为之后星团要连开20场线下LIVE是为了什么。 ...</blockquote>
+我是回上面那个说动画不行 小星星不行 让每集造烂梗出圈拉新那个的
+
+
+*****
+
+####  lanslort  
+##### 3976#       发表于 2021-9-6 00:51
+
+
+线下live拉什么新，圈外人谁去看你这live抽选还要买CD/BD难抽得要死的不认识的团啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且无印的妮可妮可妮传遍日韩二三次元其实也算是烂梗破圈 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 当然无印的动画质量比较稳定，起码第一季没什么太大问题也不无聊
+
+
+*****
+
+####  qratosone  
+##### 3977#       发表于 2021-9-6 00:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632974&amp;ptid=1909972" target="_blank">TRIScRE 发表于 2021-9-6 00:49</a>
+
+我是回上面那个说动画不行 小星星不行 让每集造烂梗出圈拉新那个的</blockquote>
+那你是讨论国内人气还是日本人气呢？哪怕在日本，生放送节目里的观众投稿已经可以剪出迫害Pay酱的切片了
+
+
+*****
+
+####  黑雪姫  
+##### 3978#       发表于 2021-9-6 00:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632859&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 00:29</a>
+
+但是远没有强到可以依靠动画本身的质量取胜的地步，真跟花田带先辈自己的水平对比的话显然也没可能比得过 ...</blockquote>
+拉谁的新？ 国内的吗？ 国内能奉献多少商业价值，撑死就是多买点周边而已。 
+
+
+别看这次星团有个中国人唐可可，但归根到底拉拉的主流消费群体是日本人。
+
+
+*****
+
+####  qratosone  
+##### 3979#       发表于 2021-9-6 00:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632990&amp;ptid=1909972" target="_blank">lanslort 发表于 2021-9-6 00:51</a>
+
+线下live拉什么新，圈外人谁去看你这live抽选还要买CD/BD难抽得要死的不认识的团啊 
+
+而且无印的妮可 ...</blockquote>
+现在除了水2加剧场版之外也没几个“有太大问题”的LL动画啊，甚至水2算不算“有太大问题”都不好说
+
+
+*****
+
+####  qratosone  
+##### 3980#       发表于 2021-9-6 00:54
+
+
+ 本帖最后由 qratosone 于 2021-9-6 00:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633006&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-6 00:53</a>
+
+拉谁的新？ 国内的吗？ 国内能奉献多少商业价值，撑死就是多买点周边而已。 
+
+
+别看这次星团有个中国人唐 ...</blockquote>
+那你指望靠一个深夜动画的质量拉新？
+
+恐怕质量提高的拉新效果有没有上NHK的零头都不一定。
+
+
+而且这个问题本来就缺乏判断标准——什么叫“质量好”？什么叫“拉新效果好”？如果看BD销量的话水2的第一卷销量有82K+，没比本家第二季差，怎么衡量“拉新效果”？这都是一笔糊涂账，根本没法算
+
+
+*****
+
+####  黑雪姫  
+##### 3981#       发表于 2021-9-6 00:55
+
+
+ 本帖最后由 黑雪姫 于 2021-9-6 00:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633014&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 00:54</a>
+
+那你指望靠一个深夜动画的质量拉新？
+
+恐怕质量提高的拉新效果有没有上NHK的零头都不一定。
+
+ ...</blockquote>
+抱歉，缪斯当时就是深夜动画，知道缪斯动画前和动画后CD的销量差距是多少吗？
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 3982#       发表于 2021-9-6 00:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52632574&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-5 23:55</a>
+
+从全人类都该来看一看到最后只有6分肯定是有落差的，不过前面我也说了，确实也没太大问题，ll平均水平线 ...</blockquote>
+典型的理科生动手能力极高，但是用化学器皿料理么（雾）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lanslort  
+##### 3983#       发表于 2021-9-6 00:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633007&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 00:53</a>
+
+现在除了水2加剧场版之外也没几个“有太大问题”的LL动画啊，甚至水2算不算“有太大问题”都不好说 ...</blockquote>
+其实水的剧情我还挺喜欢的，但日常做得实在是无聊了点 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  cybernetics31  
+##### 3984#       发表于 2021-9-6 00:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以为啥觉得动画拉不了新呢………………即使是水团动画也有人因此入坑啊
+
+
+*****
+
+####  qratosone  
+##### 3985#       发表于 2021-9-6 00:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633019&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-6 00:55</a>
+
+抱歉，缪斯当时就是深夜动画，知道缪斯动画前和动画后销量差距是多少吗？ ...</blockquote>
+本家第一卷自己的BD销量还不到2W
+
+
+*****
+
+####  PLANETDANCE  
+##### 3986#       发表于 2021-9-6 01:00
+
+
+在公园角落偷画贤者之石炼成阵被发现的千酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/06/005826rvo52zqlcc7dqnlz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>124.jpg</strong> (68.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 00:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/06/005826cwnk59slmnxsskx5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>125.jpg</strong> (49.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 00:58 上传
+
+
+*****
+
+####  Arccueid  
+##### 3987#       发表于 2021-9-6 01:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633059&amp;ptid=1909972" target="_blank">PLANETDANCE 发表于 2021-09-06 01:00:00</a>
+在公园角落偷画贤者之石炼成阵被发现的千酱</blockquote>这里超可爱
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  qratosone  
+##### 3988#       发表于 2021-9-6 01:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633037&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-6 00:58</a>
+
+所以为啥觉得动画拉不了新呢………………即使是水团动画也有人因此入坑啊 ...</blockquote>
+动画能拉新跟“高质量的动画有助于拉新”是两个概念，动画能拉新这个是必然的，但是“动画质量”这种明摆着主观性极大的东西则远没有什么显著可观测的影响（除非真翻车翻成冈达那种）
+
+
+*****
+
+####  黑雪姫  
+##### 3989#       发表于 2021-9-6 01:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633056&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 00:59</a>
+
+本家第一卷自己的BD销量还不到2W</blockquote>
+我跟你科普下，缪斯在动画前CD销量平均只有四位数，动画后CD的销量直接五位数起。
+
+
+*****
+
+####  cybernetics31  
+##### 3990#       发表于 2021-9-6 01:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633056&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-6 00:59</a>
+本家第一卷自己的BD销量还不到2W</blockquote>
+这明显说的cd销量了
+
+
+
+
+*****
+
+####  qratosone  
+##### 3991#       发表于 2021-9-6 01:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633066&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-6 01:01</a>
+
+我跟你科普下，缪斯在动画前CD销量平均只有四位数，动画后CD的销量直接五位数起。 ...</blockquote>
+动画从无到有确实是能拉新，这个显然没有疑问，但这个能证明“高质量动画有助于拉新”么？
+
+
+而且怎么评价“动画质量”？水水第一季在泥潭众看来明显也很一言难尽，然后累积BD销量至少48W+，这个算质量好还是质量差？
+
+

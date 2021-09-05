@@ -932,3 +932,14 @@ steam推荐只买游戏本体，比主机单游戏便宜不少。国服终极版
 xsx新西兰区商店我看是9月10号解锁，怎么还晚一天解锁的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hui.w  
+##### 3074#       发表于 2021-9-6 00:43
+
+
+次世代版本跟本世代版本同价啊
+
+
