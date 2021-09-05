@@ -796,3 +796,14 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 另外，绯红结系的steam版也没有加密，直接找到exe，同级目录创建steamappid文本文件就能脱离steam运行。最后全平台销量也证明了，绯红销量拉跨和pc盗版也没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  LMBS  
+##### 3063#       发表于 2021-9-5 09:49
+
+
+STEAM全球热销现在排第四，除了两个骨折文明六只有个开拓者，PC销量可能也可以期待下
+
+
