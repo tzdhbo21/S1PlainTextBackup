@@ -13728,3 +13728,76 @@ FuRyu的景品官图，可可和香音的
 迟到了～
 
 
+
+
+*****
+
+####  优妮可  
+##### 4114#       发表于 2021-9-6 19:05
+
+
+在点外卖？
+
+
+*****
+
+####  最强惠酱  
+##### 4115#       发表于 2021-9-6 19:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52642043&amp;ptid=1909972" target="_blank">soranoguiji 发表于 2021-9-6 18:11</a>
+你们讨论剧情也就算了连live也要去想合理性，那虹每集solo突然换舞台不是更魔幻，人家偶活噗里啪啦 ...</blockquote>
+是这个道理，未来预报还是开的魔法通道合唱呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  lj205  
+##### 4116#       发表于 2021-9-6 19:07
+
+
+我怕迟到还在麦当劳直接边吃边看
+
+
+*****
+
+####  chenflyyy  
+##### 4117#       发表于 2021-9-6 19:11
+
+
+来了来了
+
+
+*****
+
+####  最强惠酱  
+##### 4118#       发表于 2021-9-6 19:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52642311&amp;ptid=1909972" target="_blank">Pumpkin_ccc 发表于 2021-9-6 18:35</a>
+FuRyu的景品官图，可可和香音的</blockquote>
+感觉香想掀开裙子，可可一手在后面挡住<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Goisdust  
+##### 4119#       发表于 2021-9-6 19:20
+
+
+本来期待小千可以走出和历代青梅不同的道路，结果还是演回花田样板戏。香音说服也是特别狗血，又是日漫10几年不好好说话然后问题一朝解决那套
+
+
+*****
+
+####  kata魂  
+##### 4120#       发表于 2021-9-6 19:24
+
+
+崎岖是个什么鬼形容啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

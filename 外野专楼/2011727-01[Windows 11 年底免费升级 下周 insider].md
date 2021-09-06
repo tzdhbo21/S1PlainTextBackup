@@ -6661,3 +6661,14 @@ chromeOS的安卓兼容方案有两种，一个是现在在使用的基于容器
 浏览器标签，我这机器比较新拿到手92就已经是arcvm的android11了
 
 
+
+
+*****
+
+####  shabee001  
+##### 550#       发表于 2021-9-6 19:15
+
+
+你们的wsa是咋进去的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我在hyper-v里装的11，打开那个wsa的图标显示的窗口一直白屏
+
+
