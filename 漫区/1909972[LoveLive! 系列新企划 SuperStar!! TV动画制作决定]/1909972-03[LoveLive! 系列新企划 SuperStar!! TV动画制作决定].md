@@ -12462,3 +12462,39 @@ bangumi.tv目前LL本家也就7.0的评分，你觉得质量算好？LLSS两季�
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  JustW  
+##### 4015#       发表于 2021-9-6 08:08
+
+
+<blockquote>子夜微雪 发表于 2021-9-6 08:03
+我觉得这集观感差至少8成的锅要归SP这个奇怪的人设进来
+
+上一集SP专程跑来和小千谈心，觉得她们仨离了你就主 ...</blockquote>
+而且在观众难以get到sunnypa的魅力的情况下，可可连续几集的otaku表现就慢慢开始起反效果了……
+
+
+*****
+
+####  一个陆仁贾  
+##### 4016#       发表于 2021-9-6 08:17
+
+
+字幕组微博发熟肉仅粉丝可见都会和谐掉，叔叔真就开播动画卸磨杀驴啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  saglork  
+##### 4017#       发表于 2021-9-6 08:25
+
+
+不至于，萨尼啪和二赖子圣雪相比就少个完整live，至于实力这玩意本来就是靠设定吹，反而和主角团接触的早，人物形象也挺讨喜
+至于可可更不用担心，在本土粉里，声优角色双重重度拉拉人身份反而是超大加分点，国内的观感根本影响不到基本盘
+
+
