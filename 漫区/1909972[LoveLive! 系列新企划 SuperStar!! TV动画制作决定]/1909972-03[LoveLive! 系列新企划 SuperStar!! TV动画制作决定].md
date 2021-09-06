@@ -14316,3 +14316,21 @@ https://www.bilibili.com/video/BV1Hg411577x</blockquote>
 2021-9-6 23:27 上传
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 4165#       发表于 2021-9-7 02:17
+
+
+你们发没发现动画剧情完全是按照一单的PV动画里展开的。
+
+考虑到一单PV花田就下场了基本就可以确定了。
+
+
+香音不敢唱歌，堇想当主角，小千小时候内向都是PV中展现的。就剩恋和可可了。
+
+<img src="http://wx3.sinaimg.cn/mw690/0089S4Hmly1gu7glzzm8hj30bt0xon0p.jpg" referrerpolicy="no-referrer">
+
+
