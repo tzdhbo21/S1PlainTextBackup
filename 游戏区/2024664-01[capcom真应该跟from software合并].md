@@ -813,3 +813,17 @@ M&amp;A的相关讨论，总有一种“我来组成头部！”之感
 虽然但是，mh旧时代双刀不吃强走就是很考验体力控制的啊……
 
 
+
+
+*****
+
+####  高龙  
+##### 66#       发表于 2021-9-6 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52638434&amp;ptid=2024664" target="_blank">galm2pixy 发表于 2021-9-6 13:32</a>
+
+虽然但是，mh旧时代双刀不吃强走就是很考验体力控制的啊……</blockquote>
+那是MH策划家里养着轰龙，派格斗家去刺杀很困难。
+
+
