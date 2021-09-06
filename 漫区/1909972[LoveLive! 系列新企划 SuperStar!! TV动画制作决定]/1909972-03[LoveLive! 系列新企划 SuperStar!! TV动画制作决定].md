@@ -14334,3 +14334,19 @@ https://www.bilibili.com/video/BV1Hg411577x</blockquote>
 <img src="http://wx3.sinaimg.cn/mw690/0089S4Hmly1gu7glzzm8hj30bt0xon0p.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 4166#       发表于 2021-9-7 03:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52646443&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-7 02:17</a>
+
+你们发没发现动画剧情完全是按照一单的PV动画里展开的。
+
+考虑到一单PV花田就下场了基本就可以确定了。</blockquote>
+那看来恋入队是围绕芭蕾展开的，可恋的假药就算要有感觉也是第二季的事了
+
+
