@@ -12740,3 +12740,155 @@ mari那纯属有钱任性 把所有高级食材加调料一锅炖 就这样子�
 话说回来仔细想想 那shi煮不就是佛跳墙的做法吗（
 
 
+
+
+*****
+
+####  D麦林  
+##### 4038#       发表于 2021-9-6 10:24
+
+
+隔壁虹咲的厨房毁灭者三人组是各有各的特色
+
+雪菜：虹咲料理点子王，想到什么加什么，哪怕是按着菜谱做 过程中经过她不断的突发奇想以后成果也会非常奇葩
+
+岚珠：没下过厨房的大小姐，对料理这个过程的理解发生了偏差，不管是什么总之整个下到锅里去，比如整只南瓜下油锅
+
+米娅：享受现代食品工业成果和快餐长大的美国小孩，对料理一无所知，试图用洗衣机洗菜
+
+
+相比之下可可只是控制火候有问题而已 未来可期好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+搞不好这季动画之内就能看到可可的厨艺长进的剧情了
+
+
+*****
+
+####  笋狐  
+##### 4039#       发表于 2021-9-6 10:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别闹，佛跳墙那些个食材汇一起炖之前的加工处理步骤费的功夫起码占了67成（亲身体会），更别提煨的时候还要看时间分段放入食材，啥都不管直接一股脑丢下去烧那叫黑暗火锅
+
+
+*****
+
+####  优妮可  
+##### 4040#       发表于 2021-9-6 10:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52635161&amp;ptid=1909972" target="_blank">星降る森 发表于 2021-9-6 10:10</a>
+
+几个黑暗料理区别是挺大的，鞠莉是顶级食材乱炖，唐可可是操作捉急，雪菜是最标准的，喜欢乱放辣椒和其他材 ...</blockquote>
+阿这，我一直都有看和回复帖子啊，你这拐弯抹角的和直接点名有什么区别呢？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 4041#       发表于 2021-9-6 10:29
+
+
+岚珠那能叫不怎么会吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看nga里有人发的as剧情截图里岚珠把整个的南瓜扔进油里炸，这已经是炸厨房的级别了吧
+
+
+*****
+
+####  寒风夜  
+##### 4042#       发表于 2021-9-6 10:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633328&amp;ptid=1909972" target="_blank">名津流 发表于 2021-9-6 02:06</a>
+
+我跟前面某楼看法一致，live部分如果是千酱跳舞比赛现场配合可堇现场live的画面同步来回切或许观感会好一些 ...</blockquote>
+是，sp这时间出现的不行
+
+
+*****
+
+####  JustW  
+##### 4043#       发表于 2021-9-6 10:36
+
+
+<blockquote>凡人 发表于 2021-9-6 09:48
+堇一话觉得赶，千两话还是赶，现在就看剩下的可恋有没有人能和香音一样分到三话了。 ...</blockquote>
+其实不是量多少的问题，这么点剧情两集完全够用了，但拍出来就让人觉得赶
+
+
+*****
+
+####  寒风夜  
+##### 4044#       发表于 2021-9-6 10:40
+
+
+还有这寄把live插的也。。。。
+
+
+*****
+
+####  cybernetics31  
+##### 4045#       发表于 2021-9-6 10:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52635640&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-6 10:40</a>
+还有这寄把live插的也。。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">卖歌任务呗…………按这一套，第9集又是一首歌
+
+
+*****
+
+####  优妮可  
+##### 4046#       发表于 2021-9-6 10:44
+
+
+要配合卖歌吧，先安排好那几集要有live然后再把剧情分配下去
+
+
+*****
+
+####  寒风夜  
+##### 4047#       发表于 2021-9-6 10:45
+
+
+ 本帖最后由 寒风夜 于 2021-9-6 10:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52635676&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-6 10:43</a>
+
+卖歌任务呗…………按这一套，第9集又是一首歌</blockquote>
+这4人live.....
+
+
+*****
+
+####  王留美  
+##### 4048#       发表于 2021-9-6 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52635738&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-6 10:45</a>
+这4人live.....</blockquote>
+本质广告，不理解的去看几集来打战队凹凸Q娃敢达就知道了
+区别无非是那几个卖的是塑料，这边卖的……也是塑料（
+
+
+*****
+
+####  cybernetics31  
+##### 4049#       发表于 2021-9-6 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52635738&amp;ptid=1909972" target="_blank">寒风夜 发表于 2021-9-6 10:45</a>
+这4人live.....</blockquote>
+小星星2个人也是卖歌，人数没啥，主要还是硬插live观感太差
+
+
+*****
+
+####  寒风夜  
+##### 4050#       发表于 2021-9-6 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52635999&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-6 11:02</a>
+
+小星星2个人也是卖歌，人数没啥，主要还是硬插live观感太差</blockquote>
+是  这样
+
+

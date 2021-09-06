@@ -6576,3 +6576,35 @@ win10就说要搞安卓模拟器了，怕不是要拖到win12
 —— 来自 Xiaomi 2106118C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  masakahaha  
+##### 545#       发表于 2021-9-6 10:39
+
+
+好消息，android子系统的文件夹应该是建好了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/06/103857xs5fd1lddyydpdzp.png" referrerpolicy="no-referrer">
+
+
+<strong>win11.png</strong> (57.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 10:38 上传
+
+
+[https://www.microsoft.com/zh-cn/ ... =pivot:overviewtab#](https://www.microsoft.com/zh-cn/p/windows-subsystem-for-android/9p3395vx91nr?activetab=pivot:overviewtab#)
+
+
+*****
+
+####  Nanachi  
+##### 546#       发表于 2021-9-6 10:42
+
+
+到时候正式版升级是直接用易升吗？
+
+
