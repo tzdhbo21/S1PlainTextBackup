@@ -780,3 +780,22 @@ M&amp;A的相关讨论，总有一种“我来组成头部！”之感
 能别放屁么，魂只剩动作系统了狗都不玩
 
 
+
+
+*****
+
+####  鹅大人  
+##### 64#       发表于 2021-9-6 12:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52627779&amp;ptid=2024664" target="_blank">Chia 发表于 2021-9-5 16:03</a>
+有一说一，魂的老年动作系统近年对业界的影响，比卡普空那些要大得多。
+
+婆罗门误事的
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">什么大影响能举举例子吗？反正我看学魂的战斗的都是独立游戏多，而且学得很蹩脚，当然独立游戏要求不能太高，大多数所谓的魂味独立游戏都很蹩脚。真正学魂又掺入自己东西做得好的我就只知道仁王。
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

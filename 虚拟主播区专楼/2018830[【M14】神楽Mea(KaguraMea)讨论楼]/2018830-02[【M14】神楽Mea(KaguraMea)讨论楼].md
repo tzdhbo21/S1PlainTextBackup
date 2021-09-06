@@ -8535,3 +8535,77 @@ bei
 也不好说，毕竟哪怕是咱们的灭活疫苗，也有打完觉得难受两天的。万一你麻天生体质强，打完啥事没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 2257#       发表于 2021-9-6 11:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正少出门就完事儿了
+
+
+*****
+
+####  yywzjsw  
+##### 2258#       发表于 2021-9-6 11:53
+
+
+和你麻一样，没打被人天天说
+
+
+*****
+
+####  时间在我手中  
+##### 2259#       发表于 2021-9-6 11:54
+
+
+国内还是能打就打吧，虽然真到某些时候好像也没啥区别，假如爆发了，之后基本都要过核酸，摇头
+
+
+*****
+
+####  yywzjsw  
+##### 2260#       发表于 2021-9-6 11:56
+
+
+我也想打，但容易过敏，怕死（和你麻一个想法）
+
+
+*****
+
+####  T_Hb  
+##### 2261#       发表于 2021-9-6 11:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灭活疫苗不会过敏的，绝大部分
+
+
+*****
+
+####  yywzjsw  
+##### 2262#       发表于 2021-9-6 12:02
+
+
+那就怕死（
+
+
+*****
+
+####  掉头学姐  
+##### 2263#       发表于 2021-9-6 12:04
+
+
+肥宅懒癌晚期，社交恐惧症
+
+
+*****
+
+####  T_Hb  
+##### 2264#       发表于 2021-9-6 12:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那没事，别人都打了就等于你也打了
+
+
