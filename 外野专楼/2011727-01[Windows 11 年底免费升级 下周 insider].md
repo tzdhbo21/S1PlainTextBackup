@@ -6647,3 +6647,17 @@ chomrebook这玩意也太难用了吧，设置了保存标签无 ...</blockquote
 chromeOS的安卓兼容方案有两种，一个是现在在使用的基于容器技术的ARC++，另一个下一代是基于虚拟化技术的ARCVM，网络和图形都有谷歌自己的魔改，前者由于使用容器技术所以最好使用arm架构的机器使用安卓应用，下一代更接近wsl2，但与操作系统结合的更紧密，你说的“标签”是什么东西
 
 
+
+
+*****
+
+####  distrowatch  
+##### 549#       发表于 2021-9-6 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52640520&amp;ptid=2011727" target="_blank">colodes 发表于 2021-9-6 16:13</a>
+
+chromeOS的安卓兼容方案有两种，一个是现在在使用的基于容器技术的ARC++，另一个下一代是基于虚拟化技术的 ...</blockquote>
+浏览器标签，我这机器比较新拿到手92就已经是arcvm的android11了
+
+

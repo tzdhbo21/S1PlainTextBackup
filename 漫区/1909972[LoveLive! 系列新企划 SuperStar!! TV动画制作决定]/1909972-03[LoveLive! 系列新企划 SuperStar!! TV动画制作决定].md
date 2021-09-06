@@ -13417,3 +13417,55 @@ mari那纯属有钱任性 把所有高级食材加调料一锅炖 就这样子�
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  1096beam  
+##### 4089#       发表于 2021-9-6 16:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52640332&amp;ptid=1909972" target="_blank">AlfredXC 发表于 2021-9-6 15:57</a>
+
+还有就是想吐个槽，虹的时候就有这种感觉了，这个世界观下是不是随便拉个人都能唱能跳啊？小千是音乐科，会 ...</blockquote>
+比起这个作曲写词才是玄幻，立刻能唱能跳把他理解成脑内结界和卖家秀就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 4090#       发表于 2021-9-6 16:29
+
+
+lovelive的事不需要搞得那么清楚
+
+
+*****
+
+####  TTAA  
+##### 4091#       发表于 2021-9-6 16:38
+
+
+还是有一些排练的细节的，只是没有前三集那么丰富。
+
+香音赶来小千入团退学动机确实很难理解，拿不到冠军就退了，没必要吧。
+
+
+*****
+
+####  D麦林  
+##### 4092#       发表于 2021-9-6 16:41
+
+
+说起来LL怎么没吸取日升隔壁棚的经验发明个什么拉芜莱芜斯基粒子 用了以后就能让所有人变成能唱能跳的四库爱豆那种
+
+
+*****
+
+####  cybernetics31  
+##### 4093#       发表于 2021-9-6 16:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">毕竟20场live得多吃点(
+
+
