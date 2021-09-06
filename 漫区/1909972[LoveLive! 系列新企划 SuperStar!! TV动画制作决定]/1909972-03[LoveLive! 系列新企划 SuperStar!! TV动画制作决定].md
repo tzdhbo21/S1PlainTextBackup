@@ -13801,3 +13801,71 @@ FuRyu的景品官图，可可和香音的</blockquote>
 崎岖是个什么鬼形容啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 4121#       发表于 2021-9-6 19:30
+
+
+这直播还是一如既往地虚无，直播效果全靠观众<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看这次弹幕能不能把她逗乐吧
+
+
+*****
+
+####  邈无烟尘  
+##### 4122#       发表于 2021-9-6 19:32
+
+
+找回看皮套人直播的感觉了，还是说这就是正常人的直播水平<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 4123#       发表于 2021-9-6 19:33
+
+
+皮套人好歹会整节目效果的<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 4124#       发表于 2021-9-6 19:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们都一次看？她一直都这样啊
+
+
+*****
+
+####  chenflyyy  
+##### 4125#       发表于 2021-9-6 19:37
+
+
+我是第二次看，上次被弹幕逗乐后放开点了还行，这次又绷回去了
+
+
+*****
+
+####  宋西湖  
+##### 4126#       发表于 2021-9-6 19:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">第二次看鲤鱼直播，不习惯，
+
+
+*****
+
+####  宋西湖  
+##### 4127#       发表于 2021-9-6 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52642321&amp;ptid=1909972" target="_blank">平贺才人 发表于 2021-9-6 18:36</a>
+
+https://www.bilibili.com/video/BV1Hg411577x</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唬哈哈哈哈哈，真好活，笑疯我了，，
+
+

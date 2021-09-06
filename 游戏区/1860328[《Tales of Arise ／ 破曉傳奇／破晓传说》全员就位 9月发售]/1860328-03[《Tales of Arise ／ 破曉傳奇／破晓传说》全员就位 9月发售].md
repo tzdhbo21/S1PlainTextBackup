@@ -1325,3 +1325,16 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 DLC真不要担心，除了某些绑定的，大部分都单卖，打包更实惠些，问了一圈下来，大家对BGM版热情很高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  隔壁老黄  
+##### 3109#       发表于 2021-9-6 19:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52641358&amp;ptid=1860328" target="_blank">培根芝士蛋堡XD 发表于 2021-9-6 17:17</a>
+听说游戏时长比tob还短一点，感觉还是有疫情影响，这年头能一周目玩70小时以上的就只剩下xb和p系列 ...</blockquote>
+TOB流程很长啊，都能竞争传说之最了
+
+
