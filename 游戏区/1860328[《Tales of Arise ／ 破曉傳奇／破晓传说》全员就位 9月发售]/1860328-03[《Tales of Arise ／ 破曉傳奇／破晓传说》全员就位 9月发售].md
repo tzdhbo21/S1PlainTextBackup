@@ -1205,3 +1205,17 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  faithlifer  
+##### 3098#       发表于 2021-9-6 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52639049&amp;ptid=1860328" target="_blank">ricarto 发表于 2021-9-6 14:25</a>
+
+传消息首发进xgp，不如等一下</blockquote>
+哪来的消息，万代的进xgp一般要等一段时间吧，绯红都还没进<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+

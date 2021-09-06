@@ -11507,3 +11507,19 @@ lain几个:回顾nijinoon时吐槽不破撒谎，不破早操时说“同期男�
 算了...
 
 
+
+
+*****
+
+####  free  
+##### 6861#       发表于 2021-9-6 15:51
+
+
+[https://shop.hololivepro.com/](https://shop.hololivepro.com/)
+
+杏也搞了自己的官方商店，嫌booth抽成高么...
+
+
+P丸200万粉达成
+
+

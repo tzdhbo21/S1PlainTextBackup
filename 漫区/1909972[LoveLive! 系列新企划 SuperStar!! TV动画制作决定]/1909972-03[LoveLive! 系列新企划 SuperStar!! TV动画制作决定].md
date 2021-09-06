@@ -13355,3 +13355,26 @@ mari那纯属有钱任性 把所有高级食材加调料一锅炖 就这样子�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 4084#       发表于 2021-9-6 15:57
+
+
+还有就是想吐个槽，虹的时候就有这种感觉了，这个世界观下是不是随便拉个人都能唱能跳啊？小千是音乐科，会唱也不奇怪，但你们前天还是三人团，新曲大概刚写好词，隔了一天就作为四人团上台表演，真就无缝对接呗
+
+
+*****
+
+####  寒风夜  
+##### 4085#       发表于 2021-9-6 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52640332&amp;ptid=1909972" target="_blank">AlfredXC 发表于 2021-9-6 15:57</a>
+
+还有就是想吐个槽，虹的时候就有这种感觉了，这个世界观下是不是随便拉个人都能唱能跳啊？小千是音乐科，会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ll就是这么魔幻
+
+
