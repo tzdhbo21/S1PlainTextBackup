@@ -1615,3 +1615,16 @@ ps可以预载了
 tot 1+2 HD好，正好想重温一遍PS3光驱又坏了
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 3133#       发表于 2021-9-7 07:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">后排提醒一下steam最好不要预载
+预载了到时候解锁后解压缩的时间肯定远远大于你解锁后再下载所需的下载时间
+得不偿失
+
+
