@@ -2965,3 +2965,18 @@ TV版好感是慢慢刷出来的,一开始香和丽都不喜欢真嗣,虽然因�
 真希波完全不能接受,铺垫是零,真嗣对她的唯一记忆是跳伞结果强行配对,应该说整个新剧场版剧情一塌糊涂感情线莫名其妙
 
 
+
+
+*****
+
+####  蛇头  
+##### 1689#       发表于 2021-9-7 02:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52552806&amp;ptid=2013091" target="_blank">缘去皆空 发表于 2021-8-30 10:06</a>
+看完了，最大感觉就是真嗣这种男主能有妹子喜欢，果然是因为妹子出厂设定里面就有好感设置啊。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">他才14岁啊，我14岁能有他这个能力我要笑死了
+
+—— 来自 OnePlus ONEPLUS A6010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
