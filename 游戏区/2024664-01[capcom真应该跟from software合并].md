@@ -905,3 +905,19 @@ M&amp;A的相关讨论，总有一种“我来组成头部！”之感
 这两种我其实都挺佩服
 
 
+
+
+*****
+
+####  碎镜子  
+##### 73#       发表于 2021-9-6 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52641597&amp;ptid=2024664" target="_blank">五元请收好 发表于 2021-9-6 17:35</a>
+纯探讨，把鬼泣连招练到逆天的，和无伤过剑圣的，那个更婆罗门？
+
+
+这两种我其实都挺佩服 ...</blockquote>
+这俩练习难度怕不是要差快100倍了（指练习时间
+
+

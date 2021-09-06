@@ -13647,3 +13647,24 @@ lovelive的事不需要搞得那么清楚
 慢慢地，多出来的肉就变成肌肉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  二月十日  
+##### 4109#       发表于 2021-9-6 18:05
+
+
+草
+<img src="https://p.sda1.dev/2/aba24d90799cb877a5c67272e94be1e6/IMG_CMP_252061661.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  soranoguiji  
+##### 4110#       发表于 2021-9-6 18:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们讨论剧情也就算了连live也要去想合理性，那虹每集solo突然换舞台不是更魔幻，人家偶活噗里啪啦好歹是变身完才开唱的
+
+
