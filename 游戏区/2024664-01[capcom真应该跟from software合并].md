@@ -1007,3 +1007,21 @@ M&amp;A的相关讨论，总有一种“我来组成头部！”之感
 扎心了老铁
 
 
+
+
+*****
+
+####  violettor  
+##### 80#       发表于 2021-9-7 00:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52627779&amp;ptid=2024664" target="_blank">Chia 发表于 2021-9-5 16:03</a>
+
+有一说一，魂的老年动作系统近年对业界的影响，比卡普空那些要大得多。
+
+婆罗门误事的
+
+ ...</blockquote>
+可“老年动作系统”就是怪物猎人开的先河吧……
+
+
