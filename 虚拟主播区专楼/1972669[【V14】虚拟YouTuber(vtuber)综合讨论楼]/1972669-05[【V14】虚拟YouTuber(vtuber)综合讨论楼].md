@@ -11563,3 +11563,18 @@ https://youtu.be/jaYxLyG3j0k
 美大生以前的mv演唱会有没被烧过啊
 
 
+
+
+*****
+
+####  winda  
+##### 6865#       发表于 2021-9-6 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52641425&amp;ptid=1972669" target="_blank">free 发表于 2021-9-6 17:22</a>
+https://www.anycolor.co.jp/news/b-rkqlkpi
+
+「攻撃的行為及び誹謗中傷行為対策チーム」活動報告（2021年9 ...</blockquote><blockquote>えにから：1年間の開示請求、削除請求、被害届提出、法的措置等全部まとめて90件
+カバー：半年間の法的措置2件</blockquote>
+
+

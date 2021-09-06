@@ -13668,3 +13668,63 @@ lovelive的事不需要搞得那么清楚
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们讨论剧情也就算了连live也要去想合理性，那虹每集solo突然换舞台不是更魔幻，人家偶活噗里啪啦好歹是变身完才开唱的
 
 
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 4111#       发表于 2021-9-6 18:35
+
+
+ 本帖最后由 Pumpkin_ccc 于 2021-9-6 18:37 编辑 
+
+FuRyu的景品官图，可可和香音的
+
+
+4540f586512a447a827f876279221488.jpg
+(54.93 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-6 18:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/06/183440xuwwr1dgxdowozzx.jpg" referrerpolicy="no-referrer">
+
+
+753a5ba282fe442db11058582797ffce.jpg
+(72.91 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-6 18:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/06/183510tgio9dgkrt6zgt6y.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  平贺才人  
+##### 4112#       发表于 2021-9-6 18:36
+
+
+[https://www.bilibili.com/video/BV1Hg411577x](https://www.bilibili.com/video/BV1Hg411577x)
+
+
+发现个好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4113#       发表于 2021-9-6 19:03
+
+
+迟到了～
+
+

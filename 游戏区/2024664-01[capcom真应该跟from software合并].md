@@ -921,3 +921,16 @@ M&amp;A的相关讨论，总有一种“我来组成头部！”之感
 这俩练习难度怕不是要差快100倍了（指练习时间
 
 
+
+
+*****
+
+####  火的意志  
+##### 74#       发表于 2021-9-6 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52636337&amp;ptid=2024664" target="_blank">ssobsb 发表于 2021-9-6 11:20</a>
+你举例的猛汉在我眼里已经是大卖热门ip了，这销量还不够多吗，不至于到gta水平才能叫大卖吧 ...</blockquote>
+500w不到确实不能算大热呀，魂三部曲可是卖了1000w的，这种才能算大热
+
+

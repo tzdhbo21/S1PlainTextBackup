@@ -1292,3 +1292,36 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 现在就想知道具体dlc怎么卖
 
 
+
+
+*****
+
+####  索田八公  
+##### 3106#       发表于 2021-9-6 18:29
+
+
+奖杯图标跟内容有不少剧透，在意的还是避免接触吧
+
+
+*****
+
+####  roxassix  
+##### 3107#       发表于 2021-9-6 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52641733&amp;ptid=1860328" target="_blank">金子一马 发表于 2021-9-6 17:46</a>
+现在就想知道具体dlc怎么卖</blockquote>
+[https://toarise.tales-ch.jp/special/dlc.php](https://toarise.tales-ch.jp/special/dlc.php)
+这回实体版是除了预购/店特啥dlc都没有的。
+各种下载版带的那些dlc统统发售后全平台单卖
+
+
+*****
+
+####  godless2020  
+##### 3108#       发表于 2021-9-6 18:41
+
+
+DLC真不要担心，除了某些绑定的，大部分都单卖，打包更实惠些，问了一圈下来，大家对BGM版热情很高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
