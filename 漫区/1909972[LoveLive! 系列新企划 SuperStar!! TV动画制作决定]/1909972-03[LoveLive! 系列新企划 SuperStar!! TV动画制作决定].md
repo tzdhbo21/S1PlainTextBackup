@@ -13378,3 +13378,42 @@ mari那纯属有钱任性 把所有高级食材加调料一锅炖 就这样子�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ll就是这么魔幻
 
 
+
+
+*****
+
+####  江口夕  
+##### 4086#       发表于 2021-9-6 16:10
+
+
+这集除了跳了点简单干脆，其实花田那玩意并没有占太多戏份，希望还是有的，之前看你们说还以为花田独掌大权了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  JustW  
+##### 4087#       发表于 2021-9-6 16:12
+
+
+<blockquote>AlfredXC 发表于 2021-9-6 15:57
+还有就是想吐个槽，虹的时候就有这种感觉了，这个世界观下是不是随便拉个人都能唱能跳啊？小千是音乐科，会 ...</blockquote>
+随便拉个人都能唱跳这个没啥好说的，否则又该《映像研》.jpg了，但无缝转成四人live还是太牛了
+
+
+*****
+
+####  ads147147  
+##### 4088#       发表于 2021-9-6 16:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52640332&amp;ptid=1909972" target="_blank">AlfredXC 发表于 2021-9-6 15:57</a>
+还有就是想吐个槽，虹的时候就有这种感觉了，这个世界观下是不是随便拉个人都能唱能跳啊？小千是音乐科，会 ...</blockquote>
+贩卖梦想就是这样，是个人都知道偶像这个东西背后的支援才是最重要的，甚至说很多偶像自己就是背后生产机器的标签产品而已。
+
+动画把这个淡化掉了，虹其实还算写得多了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

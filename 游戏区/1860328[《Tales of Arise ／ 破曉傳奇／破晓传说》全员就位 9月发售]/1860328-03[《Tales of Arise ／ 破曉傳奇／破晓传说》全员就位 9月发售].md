@@ -1219,3 +1219,25 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 哪来的消息，万代的进xgp一般要等一段时间吧，绯红都还没进<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sad6504  
+##### 3099#       发表于 2021-9-6 16:20
+
+
+首发进的话早公布了，这都要发售了还传个屁
+
+
+*****
+
+####  roxassix  
+##### 3100#       发表于 2021-9-6 16:25
+
+
+怎么谣传首发进xgp都来了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+当初绯红各种给微软站台，传的可真了，最后也是发售前直接官方辟谣。（不过看销量感觉确实快进xgp了，反正卖不出去，不如赶紧进xgp再最后讹爸爸一笔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+破晓这边从头到尾都没说跟微软有啥关系。。
+
+

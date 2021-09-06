@@ -6629,3 +6629,21 @@ win10就说要搞安卓模拟器了，怕不是要拖到win12
 感觉应该是wsl下运行安卓了，谷歌自己的也是差不多方案
 
 
+
+
+*****
+
+####  colodes  
+##### 548#       发表于 2021-9-6 16:13
+
+
+ 本帖最后由 colodes 于 2021-9-6 16:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52639785&amp;ptid=2011727" target="_blank">distrowatch 发表于 2021-9-6 15:18</a>
+
+感觉应该是wsl下运行安卓了，谷歌自己的也是差不多方案
+
+
+chomrebook这玩意也太难用了吧，设置了保存标签无 ...</blockquote>
+chromeOS的安卓兼容方案有两种，一个是现在在使用的基于容器技术的ARC++，另一个下一代是基于虚拟化技术的ARCVM，网络和图形都有谷歌自己的魔改，前者由于使用容器技术所以最好使用arm架构的机器使用安卓应用，下一代更接近wsl2，但与操作系统结合的更紧密，你说的“标签”是什么东西
+
+
