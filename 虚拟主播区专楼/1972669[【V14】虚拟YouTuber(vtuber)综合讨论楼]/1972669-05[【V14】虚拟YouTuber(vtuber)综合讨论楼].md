@@ -11419,3 +11419,27 @@ holo观众里傻逼也有，魔怔人也有。但是这么恶心的阴湿风气�
 表串民diedie
 
 
+
+
+*****
+
+####  真飞鸟i  
+##### 6854#       发表于 2021-9-6 12:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">独角兽也有男有女嘛，说起来好像男v女v出现绯闻好像主要都是踩女v？虹那边的几次感觉是这样，杏的话有绯闻的好像都是女v和非vtb的来着？所以也踩的是女v，夏色律可就不太清楚了，好像是踩的律可？
+女v实惨了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  winda  
+##### 6855#       发表于 2021-9-6 12:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">新人烧烧都是常态了，土人/绿色/hero都这么烧过来了，lain和劳伦也都烧过了，现在教授也要折腾这么一回。
+不过现在论地位确实是虹男大于虹女了，虹男的粉丝火力确实比虹女粉丝足
+
+

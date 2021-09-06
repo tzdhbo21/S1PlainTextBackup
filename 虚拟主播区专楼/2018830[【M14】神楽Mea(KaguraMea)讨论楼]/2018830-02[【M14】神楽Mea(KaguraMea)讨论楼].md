@@ -8622,3 +8622,14 @@ bei
 真怕死反而应该打疫苗，国外的也就算了，国内的疫苗还是应该信信。
 
 
+
+
+*****
+
+####  Klience  
+##### 2266#       发表于 2021-9-6 12:53
+
+
+当时4月份公司就安排下午去打疫苗了 本来还想着排队能排一个下午摸鱼一个下午 没想到不到半个小时就打完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
