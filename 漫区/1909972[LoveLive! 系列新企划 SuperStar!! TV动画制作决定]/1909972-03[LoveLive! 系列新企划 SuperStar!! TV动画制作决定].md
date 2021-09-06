@@ -12535,3 +12535,73 @@ bangumi.tv目前LL本家也就7.0的评分，你觉得质量算好？LLSS两季�
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  cqc1021  
+##### 4021#       发表于 2021-9-6 09:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52634237&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-6 09:03</a>
+群里在讨论怎么把蒸的东西弄焦。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+A岛名作：超合金螃蟹
+<img src="https://p.sda1.dev/2/688b00cd96534390db6fd1b415a65cc1/IMG_CMP_225712495.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  saglork  
+##### 4022#       发表于 2021-9-6 09:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52634237&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-6 09:03</a>
+群里在讨论怎么把蒸的东西弄焦。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+只要你不关火，啥都可以黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 4023#       发表于 2021-9-6 09:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52634237&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-6 09:03</a>
+ 群里在讨论怎么把蒸的东西弄焦。  —— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+唯有对做饭这一件事上大伙都是如此认真讨论
+
+
+*****
+
+####  星降る森  
+##### 4024#       发表于 2021-9-6 09:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633829&amp;ptid=1909972" target="_blank">子夜微雪 发表于 2021-9-6 08:03</a>
+
+我觉得这集观感差至少8成的锅要归SP这个奇怪的人设进来
+
+上一集SP专程跑来和小千谈心，觉得她们仨离了你就主 ...</blockquote>
+对，我想法和你一样，要么不挖这个“主动”的坑，要么就填上，结果2个都没做到，解决法变成小千入团迎刃而解，根本说不过去，到头来三人还是依赖小千，作为偶像动画把这种成长剧情擦了观感上真的很差
+
+
+*****
+
+####  星降る森  
+##### 4025#       发表于 2021-9-6 09:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633019&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-6 00:55</a>
+
+抱歉，缪斯当时就是深夜动画，知道缪斯动画前和动画后CD的销量差距是多少吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">缪有时代特殊性，没法比，要比也是拿虹说事，不过如果提这个这楼里某人又要说挑起组合矛盾了，还是不提罢了。
+
+动画/歌质量对碟的影响其实看虹插曲会直观一点，有，但不算很大
+
+
