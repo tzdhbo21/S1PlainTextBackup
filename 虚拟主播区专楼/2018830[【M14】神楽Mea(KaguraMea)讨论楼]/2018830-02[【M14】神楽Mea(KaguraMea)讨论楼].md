@@ -8479,3 +8479,59 @@ bei
 兔妈打完第二针🤒发烧39.5℃
 
 
+
+
+*****
+
+####  yywzjsw  
+##### 2251#       发表于 2021-9-6 11:08
+
+
+你麻不会被组长拉一起去打了吧？
+
+
+*****
+
+####  时间在我手中  
+##### 2252#       发表于 2021-9-6 11:09
+
+
+小麻要变成烤猪扒了
+
+
+*****
+
+####  路人庚  
+##### 2253#       发表于 2021-9-6 11:10
+
+
+日本的疫苗问题本来就挺多的，你咩姐不去打算是对的（虽然正如她自己所说，不去打疫苗还会被人说像做了坏事一样
+
+
+*****
+
+####  T_Hb  
+##### 2254#       发表于 2021-9-6 11:15
+
+
+她昨天那么嗨，肯定不是打了疫苗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 2255#       发表于 2021-9-6 11:19
+
+
+昨天先排除下午和晚上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 2256#       发表于 2021-9-6 11:22
+
+
+也不好说，毕竟哪怕是咱们的灭活疫苗，也有打完觉得难受两天的。万一你麻天生体质强，打完啥事没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+

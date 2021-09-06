@@ -12892,3 +12892,62 @@ mari那纯属有钱任性 把所有高级食材加调料一锅炖 就这样子�
 是  这样
 
 
+
+
+*****
+
+####  lj205  
+##### 4051#       发表于 2021-9-6 11:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对新碟销量不乐观……好不容易小星星爬到2万以上
+
+
+另外就是民警的厨艺，做出来也是日本中华料理那几道“经典”菜，平时有学的话应该问题不大，就是红烧肉挺意外的
+
+
+可可主要还是时间没分配好，有很大进步空间<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dark_Zagi  
+##### 4052#       发表于 2021-9-6 11:18
+
+
+这么多人觉得观感不好是不是主要因为不磕千香？
+
+
+*****
+
+####  Jobtownb  
+##### 4053#       发表于 2021-9-6 11:20
+
+
+有个扭曲镜头：
+在海边香音和小千用手机拍月亮聊天
+香音发现小千不对劲想打电话
+可可还特意问了句怎么了，香音说没什么
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+再加上一集海边可香夜聊结果重点在小千
+可可内心醋坛子怕不是已经翻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 4054#       发表于 2021-9-6 11:23
+
+
+主要这香千塑造得不好啊，加上花田式青梅竹马都是这味，看完很难磕起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 4055#       发表于 2021-9-6 11:23
+
+
+烈日情热目前的问题是相当于出场的每一集可可都要强调一遍她们的live适合全人类观看然后放结束动作和bgm，到时候要是做的一般观众就会觉得，就这?
+
+
