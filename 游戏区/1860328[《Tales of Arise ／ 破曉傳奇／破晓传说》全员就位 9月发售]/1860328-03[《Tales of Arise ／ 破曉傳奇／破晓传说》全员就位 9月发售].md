@@ -998,3 +998,16 @@ xsx新西兰区商店我看是9月10号解锁，怎么还晚一天解锁的<img 
 兄弟，很久没逛3DM了吧？现在D加密是破不了的，几年前的D加密游戏还没破呢。D加密破解小组都解散了。基本上最近挂了D加密新版本的游戏，都破不了
 
 
+
+
+*****
+
+####  dddyghr  
+##### 3080#       发表于 2021-9-6 08:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633762&amp;ptid=1860328" target="_blank">elven119 发表于 2021-9-6 07:47</a>
+兄弟，很久没逛3DM了吧？现在D加密是破不了的，几年前的D加密游戏还没破呢。D加密破解小组都解散了。基本 ...</blockquote>
+但是这游戏并没有d加密
+
+
