@@ -8677,3 +8677,32 @@ bei
 今天什么联动<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2271#       发表于 2021-9-6 14:33
+
+
+今晚假如真要播的话肥婆最好还是开一下台，不然这个就真的只能听了，我是没办法脑补这人马车操作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 2272#       发表于 2021-9-6 14:34
+
+
+这人和绿熊联动宝可梦都不开台 就别想着马车能开台了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2273#       发表于 2021-9-6 14:36
+
+
+她自己想，反正不开我就当BGM了
+
+
