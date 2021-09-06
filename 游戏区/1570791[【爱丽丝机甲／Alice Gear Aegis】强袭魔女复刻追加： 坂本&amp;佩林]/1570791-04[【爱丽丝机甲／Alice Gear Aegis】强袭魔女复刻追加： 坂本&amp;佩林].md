@@ -18968,3 +18968,20 @@ PC版前射太爽不想放弃霰弹啊，不过没4星不关我的事<img src="h
 新人新活动估计得要到下旬<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 5972#       发表于 2021-9-6 20:04
+
+
+单抽sw池子出了个我龙.....
+
+这小妮子武器配置好屌啊
+
+实弹暗狙配大刀，近战还能防反，腿还能5秒无敌
+
+比薰子的3秒无敌都要屌
+
+
