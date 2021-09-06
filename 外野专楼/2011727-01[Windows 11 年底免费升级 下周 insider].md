@@ -6608,3 +6608,24 @@ win10就说要搞安卓模拟器了，怕不是要拖到win12
 到时候正式版升级是直接用易升吗？
 
 
+
+
+*****
+
+####  distrowatch  
+##### 547#       发表于 2021-9-6 15:18
+
+
+<img src="https://img.saraba1st.com/forum/202109/06/151548m00n7veed77g6rn6.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot 2021-09-06 14.50.36.png</strong> (30.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 15:15 上传
+
+
+感觉应该是wsl下运行安卓了，谷歌自己的也是差不多方案
+
+
