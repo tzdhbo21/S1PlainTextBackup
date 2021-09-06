@@ -869,3 +869,39 @@ M&amp;A的相关讨论，总有一种“我来组成头部！”之感
 可别，capcom可别成靠无意义麻烦来体现硬核
 
 
+
+
+*****
+
+####  Torino  
+##### 71#       发表于 2021-9-6 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52627719&amp;ptid=2024664" target="_blank">厄斯沃穆 发表于 2021-9-5 16:57</a>
+那你觉得from跟capcom哪家要死了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.4. ...</blockquote>
+哈哈哈哈哈哈哈合并了，fs就死了
+
+—— 来自 Xiaomi M2010J19SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  五元请收好  
+##### 72#       发表于 2021-9-6 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52627779&amp;ptid=2024664" target="_blank">Chia 发表于 2021-9-5 16:03</a>
+
+有一说一，魂的老年动作系统近年对业界的影响，比卡普空那些要大得多。
+
+婆罗门误事的
+
+ ...</blockquote>
+纯探讨，把鬼泣连招练到逆天的，和无伤过剑圣的，那个更婆罗门？<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+这两种我其实都挺佩服
+
+

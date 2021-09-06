@@ -13512,3 +13512,76 @@ lovelive的事不需要搞得那么清楚
 而且还要直接出国，我寻思这是打算绝交还是怎么的
 
 
+
+
+*****
+
+####  寒风夜  
+##### 4097#       发表于 2021-9-6 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52641339&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-6 17:16</a>
+
+而且还要直接出国，我寻思这是打算绝交还是怎么的</blockquote>
+整不明白
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 4098#       发表于 2021-9-6 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52639072&amp;ptid=1909972" target="_blank">AlfredXC 发表于 2021-9-6 14:26</a>
+
+恋也许懂了，我还是不懂。小千是不是有一点偏执啊？</blockquote>
+[https://bbs.nga.cn/read.php?tid=27370159&amp;_fp=2&amp;page=102](https://bbs.nga.cn/read.php?tid=27370159&amp;_fp=2&amp;page=102)
+
+
+隔壁讨论楼 102-103页一些分析感觉还蛮到位的，可以看看
+
+
+*****
+
+####  plazum  
+##### 4099#       发表于 2021-9-6 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52640332&amp;ptid=1909972" target="_blank">AlfredXC 发表于 2021-9-6 15:57</a>
+
+还有就是想吐个槽，虹的时候就有这种感觉了，这个世界观下是不是随便拉个人都能唱能跳啊？小千是音乐科，会 ...</blockquote>
+小千本来就是编舞啊
+
+
+*****
+
+####  JustW  
+##### 4100#       发表于 2021-9-6 17:42
+
+
+从最后live也能看出来，三个人和四个人完全不是一回事，站位也好配合也好，不是列队广播体操一样塞个人就行了的。不是不能瞬间搞定，但提一句都不提，让人看起来很赶很敷衍
+
+
+*****
+
+####  寒风夜  
+##### 4101#       发表于 2021-9-6 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52641678&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-6 17:42</a>
+
+从最后live也能看出来，三个人和四个人完全不是一回事，站位也好配合也好，不是列队广播体操一样塞个人就行 ...</blockquote>
+卡太死了..
+
+
+*****
+
+####  寒风夜  
+##### 4102#       发表于 2021-9-6 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52641678&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-6 17:42</a>
+
+从最后live也能看出来，三个人和四个人完全不是一回事，站位也好配合也好，不是列队广播体操一样塞个人就行 ...</blockquote>
+
+
