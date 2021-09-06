@@ -13869,3 +13869,68 @@ https://www.bilibili.com/video/BV1Hg411577x</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唬哈哈哈哈哈，真好活，笑疯我了，，
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 4128#       发表于 2021-9-6 19:53
+
+
+什么谜之笑点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 4129#       发表于 2021-9-6 19:53
+
+
+朋友巧克力不要，要朋友月饼，是哪位天才<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Troy_VoV  
+##### 4130#       发表于 2021-9-6 19:55
+
+
+谐音id不先检查一下就念，不怕重蹈海子姐覆辙吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Harlaus  
+##### 4131#       发表于 2021-9-6 19:58
+
+
+第一次直播反应慢会尴尬，多来几次就变成人设卖点了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 4132#       发表于 2021-9-6 19:59
+
+
+有时被弹幕逗笑上头，她就忘了检查了。另一方面弹幕和id.钓鱼确实多
+
+
+*****
+
+####  蔵女  
+##### 4133#       发表于 2021-9-6 20:09
+
+
+我已经习惯了
+
+
+*****
+
+####  chenflyyy  
+##### 4134#       发表于 2021-9-6 20:10
+
+
+坏了，**起来了
+
+

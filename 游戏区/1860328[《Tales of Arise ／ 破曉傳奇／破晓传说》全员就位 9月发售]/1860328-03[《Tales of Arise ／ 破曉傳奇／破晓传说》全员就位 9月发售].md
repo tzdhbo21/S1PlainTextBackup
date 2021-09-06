@@ -1338,3 +1338,17 @@ DLC真不要担心，除了某些绑定的，大部分都单卖，打包更实�
 TOB流程很长啊，都能竞争传说之最了
 
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3110#       发表于 2021-9-6 20:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52642962&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-9-6 19:34</a>
+
+TOB流程很长啊，都能竞争传说之最了</blockquote>
+我记得tov至少也要50个小时，tob我就35小时打通了怎么可能传说之最
+
+
