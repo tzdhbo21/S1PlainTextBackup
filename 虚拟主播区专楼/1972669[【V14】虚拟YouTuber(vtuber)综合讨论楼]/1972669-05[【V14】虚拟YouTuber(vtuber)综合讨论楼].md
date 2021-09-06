@@ -11523,3 +11523,21 @@ lain几个:回顾nijinoon时吐槽不破撒谎，不破早操时说“同期男�
 P丸200万粉达成
 
 
+
+
+*****
+
+####  free  
+##### 6862#       发表于 2021-9-6 17:22
+
+
+[https://www.anycolor.co.jp/news/b-rkqlkpi](https://www.anycolor.co.jp/news/b-rkqlkpi)
+
+「攻撃的行為及び誹謗中傷行為対策チーム」活動報告（2021年9月）
+
+
+直接划重点吧 <blockquote>対応件数
+
+2020年9月1日～2021年8月31日　12か月間で約90件</blockquote>
+
+

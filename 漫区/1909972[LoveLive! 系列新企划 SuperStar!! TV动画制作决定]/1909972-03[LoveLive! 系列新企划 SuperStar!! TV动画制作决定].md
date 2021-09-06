@@ -13469,3 +13469,46 @@ lovelive的事不需要搞得那么清楚
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">毕竟20场live得多吃点(
 
 
+
+
+*****
+
+####  1096beam  
+##### 4094#       发表于 2021-9-6 17:01
+
+
+我已经在期待恋女士转部的剧情会怎么放飞自我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+现在看来音乐部这设定根本就可有可无嘛
+
+
+*****
+
+####  cat1230  
+##### 4095#       发表于 2021-9-6 17:01
+
+
+<blockquote>引用第4092楼cybernetics31于2021-09-06 16:46发表的  :
+
+鲤鱼新照片即使是加滤镜也看的出脸胖了毕竟20场live得多吃点(</blockquote>
+@cybernetics31
+
+运动员在国外打职业要增重。很合理
+
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  JustW  
+##### 4096#       发表于 2021-9-6 17:16
+
+
+<blockquote>TTAA 发表于 2021-9-6 16:38
+还是有一些排练的细节的，只是没有前三集那么丰富。
+
+香音赶来小千入团退学动机确实很难理解，拿不到冠军就 ...</blockquote>
+而且还要直接出国，我寻思这是打算绝交还是怎么的
+
+

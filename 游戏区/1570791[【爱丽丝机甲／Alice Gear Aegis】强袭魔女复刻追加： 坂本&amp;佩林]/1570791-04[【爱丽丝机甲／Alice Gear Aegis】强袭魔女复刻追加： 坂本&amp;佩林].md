@@ -18954,3 +18954,17 @@ PC版前射太爽不想放弃霰弹啊，不过没4星不关我的事<img src="h
 话说这次首次提出二周目的概念
 
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 5971#       发表于 2021-9-6 17:04
+
+
+夜店啊不对，饮食店活动复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+新人新活动估计得要到下旬<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+

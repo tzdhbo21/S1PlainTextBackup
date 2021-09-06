@@ -1252,3 +1252,14 @@ DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗<
 还传xgp呢，过两天就发售了，真进早就宣传了
 
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3102#       发表于 2021-9-6 17:17
+
+
+听说游戏时长比tob还短一点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
