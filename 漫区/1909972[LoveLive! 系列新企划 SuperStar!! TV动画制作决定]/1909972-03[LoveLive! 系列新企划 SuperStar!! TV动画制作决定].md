@@ -13963,3 +13963,35 @@ https://www.bilibili.com/video/BV1Hg411577x</blockquote>
 这才是真实的偶像业么
 
 
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 4138#       发表于 2021-9-6 20:24
+
+
+居然喜欢看天麻，双厨狂喜
+
+
+*****
+
+####  chenflyyy  
+##### 4139#       发表于 2021-9-6 20:27
+
+
+弹幕都说瘦了，你楼却说胖了，我是看不太出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 4140#       发表于 2021-9-6 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52643479&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-6 20:27</a>
+
+弹幕都说瘦了，你楼却说胖了，我是看不太出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播开滤镜的啊。。。。。自带瘦脸
+
+
