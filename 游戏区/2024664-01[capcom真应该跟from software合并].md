@@ -979,3 +979,31 @@ M&amp;A的相关讨论，总有一种“我来组成头部！”之感
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  五元请收好  
+##### 78#       发表于 2021-9-7 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52643685&amp;ptid=2024664" target="_blank">Chia 发表于 2021-9-6 20:47</a>
+
+单个boss可以靠猛练，有些执行力强的人过几次就可以挑战无伤了。
+
+鬼泣有点像其他游戏的打分系统，上限肯 ...</blockquote>
+那只狼的掌声多不少吧？所以只狼更婆？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  五元请收好  
+##### 79#       发表于 2021-9-7 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52643815&amp;ptid=2024664" target="_blank">LucienLachance 发表于 2021-9-6 21:01</a>
+
+装甲核心什么时候续作</blockquote>
+扎心了老铁
+
+

@@ -1578,3 +1578,18 @@ tov我记得把很多主线强相关的内容都放支线了，支线很多还�
 ps可以预载了
 
 
+
+
+*****
+
+####  Rainwedell  
+##### 3130#       发表于 2021-9-7 00:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52644513&amp;ptid=1860328" target="_blank">bgmilk 发表于 2021-9-6 22:06</a>
+有说过tox要HD么？</blockquote>
+看有个舅舅党说的是宿命传说导演剪辑hd版，预计12月公布。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
