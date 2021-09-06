@@ -1374,3 +1374,95 @@ TOB流程很长啊，都能竞争传说之最了</blockquote>
 数字版直接买最贵那个就全了吧？已经买了，之前的狂战虽然有但是没玩，这次算是第一次入坑，有点小激动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  benhawk  
+##### 3113#       发表于 2021-9-6 20:52
+
+
+<blockquote>kiralzb 发表于 2021-9-6 20:41
+数字版直接买最贵那个就全了吧？已经买了，之前的狂战虽然有但是没玩，这次算是第一次入坑，有点小激动[f:0 ...</blockquote>
+不，还缺一个联动的服装套组，
+
+
+*****
+
+####  kiralzb  
+##### 3114#       发表于 2021-9-6 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52643733&amp;ptid=1860328" target="_blank">benhawk 发表于 2021-9-6 20:52</a>
+
+不，还缺一个联动的服装套组，</blockquote>
+这联动好像只有steam上有吧？也是神奇
+
+
+*****
+
+####  隔壁老黄  
+##### 3115#       发表于 2021-9-6 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52643283&amp;ptid=1860328" target="_blank">培根芝士蛋堡XD 发表于 2021-9-6 20:07</a>
+我记得tov至少也要50个小时，tob我就35小时打通了怎么可能传说之最</blockquote>
+TOV哪里长了……还有个6小时速通的奖杯
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3116#       发表于 2021-9-6 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52643935&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-9-6 21:16</a>
+
+TOV哪里长了……还有个6小时速通的奖杯</blockquote>
+tov我记得把很多主线强相关的内容都放支线了，支线很多还是限时的，这样导致实际游戏时长非常长吧
+
+
+*****
+
+####  qiyu1234  
+##### 3117#       发表于 2021-9-6 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52643935&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-9-6 21:16</a>
+
+TOV哪里长了……还有个6小时速通的奖杯</blockquote>
+6小时能速通那是多周目+剧情全跳（奖杯也是15小时内）
+
+剧情全跳过其他作品也很短
+
+
+*****
+
+####  qiyu1234  
+##### 3118#       发表于 2021-9-6 21:28
+
+
+TOV长，但是TOV的角色也多，9个呢（360版 7+0.5个NPC弗连）
+
+
+6个角色的话，30小时左右不注水主线算可以了
+
+
+*****
+
+####  Bani82  
+##### 3119#       发表于 2021-9-6 21:32
+
+
+TOX1+2算是我入坑作，但是TOX1+2不修改一下系统的话...
+
+
+*****
+
+####  hkguty  
+##### 3120#       发表于 2021-9-6 21:33
+
+
+其实这虚幻第一作早期刚公布的时候我还在想这次队员会不会缩到只有4个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到还是能保持6个，已经算是比预期要好了
+
+

@@ -6672,3 +6672,16 @@ chromeOS的安卓兼容方案有两种，一个是现在在使用的基于容器
 你们的wsa是咋进去的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我在hyper-v里装的11，打开那个wsa的图标显示的窗口一直白屏
 
 
+
+
+*****
+
+####  Litccc  
+##### 551#       发表于 2021-9-6 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52642755&amp;ptid=2011727" target="_blank">shabee001 发表于 2021-9-6 19:15</a>
+你们的wsa是咋进去的我在hyper-v里装的11，打开那个wsa的图标显示的窗口一直白屏 ...</blockquote>
+现在只有个壳，还处于新建文件夹的阶段
+
+

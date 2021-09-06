@@ -13995,3 +13995,135 @@ https://www.bilibili.com/video/BV1Hg411577x</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播开滤镜的啊。。。。。自带瘦脸
 
 
+
+
+*****
+
+####  蔵女  
+##### 4141#       发表于 2021-9-6 21:02
+
+
+今天直播怎么人这么多…
+
+
+*****
+
+####  lj205  
+##### 4142#       发表于 2021-9-6 21:11
+
+
+生放笑声不是罐子，也是被逼急说出来了～
+
+
+*****
+
+####  ads147147  
+##### 4143#       发表于 2021-9-6 21:22
+
+
+鲤鱼直播滤镜拉的很满，真要看情况看看最近她在广播的照片就知道了，胖了。
+
+说起来还要打工怎么回事？我去晚了没听到
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  优妮可  
+##### 4144#       发表于 2021-9-6 21:23
+
+
+<blockquote>蔵女 发表于 2021-9-6 21:02
+今天直播怎么人这么多…</blockquote>
+粉丝多了啊，都快二十万粉了。
+
+
+*****
+
+####  cat1230  
+##### 4145#       发表于 2021-9-6 21:23
+
+
+鲤鱼也可以穿搭——指 打折买GU联名款口水巾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，700日元。
+
+一下子就感受到业界艰辛了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 4146#       发表于 2021-9-6 21:28
+
+
+钓鱼弹幕太多了 有几条看得我心惊胆战的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+感觉鲤鱼姐这方面还要锻炼一下 不然我挺怕的草
+
+
+*****
+
+####  chenflyyy  
+##### 4147#       发表于 2021-9-6 21:29
+
+
+我是挂着当背景音乐用的，打工这事也没听到，来个人细说
+
+
+*****
+
+####  cybernetics31  
+##### 4148#       发表于 2021-9-6 21:30
+
+
+哪有什么打工啊………………
+
+
+*****
+
+####  lj205  
+##### 4149#       发表于 2021-9-6 21:32
+
+
+打工大概就是说很多人问她中秋放不放假，她说她没什么假放，大概是这个意思
+
+
+*****
+
+####  优妮可  
+##### 4150#       发表于 2021-9-6 21:32
+
+
+直播没以前人少的时候有意思了，先不说一堆问企划，问动画和其她同事前辈。还有sc和id各种钓鱼，连续两次直播扯到**那里去了。哈人
+
+
+*****
+
+####  cybernetics31  
+##### 4151#       发表于 2021-9-6 21:32
+
+
+胖了挺好的，表明在那边吃好喝好，要像隔壁邦邦那几位自己瞎节食减肥才不好啊
+
+
+*****
+
+####  lj205  
+##### 4152#       发表于 2021-9-6 21:37
+
+
+不过今天还是聊到些东西吧？比如月饼之类的？
+
+
+*****
+
+####  D麦林  
+##### 4153#       发表于 2021-9-6 21:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52644138&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-6 21:32</a>
+直播没以前人少的时候有意思了，先不说一堆问企划，问动画和其她同事前辈。还有sc和id各种钓鱼，连续两次直 ...</blockquote>
+那倒没有 感觉鲤鱼今天状态比前几次要好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+语速都感觉快了不少 挺精神的
+就是确实需要锻炼一下抗钓鱼的能力
+
+
