@@ -12659,3 +12659,34 @@ A岛名作：超合金螃蟹
 这个小笼包是上一集里一盒现成包好的那个吧，如果自己包的那就超出平均水平了
 
 
+
+
+*****
+
+####  凡人  
+##### 4031#       发表于 2021-9-6 09:48
+
+
+堇一话觉得赶，千两话还是赶，现在就看剩下的可恋有没有人能和香音一样分到三话了。
+
+
+*****
+
+####  damian-wade  
+##### 4032#       发表于 2021-9-6 09:54
+
+
+最后来个对SP占3话就很欢乐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  优妮可  
+##### 4033#       发表于 2021-9-6 09:54
+
+
+那果然只有雪菜的才算黑暗料理么<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
