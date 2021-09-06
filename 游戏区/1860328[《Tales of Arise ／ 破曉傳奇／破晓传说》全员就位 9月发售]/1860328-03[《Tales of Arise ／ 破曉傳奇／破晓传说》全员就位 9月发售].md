@@ -1521,3 +1521,49 @@ TOX1+2算是我入坑作，但是TOX1+2不修改一下系统的话...
 草 年龄不明可还行
 
 
+
+
+*****
+
+####  heseran  
+##### 3125#       发表于 2021-9-6 23:17
+
+
+艹，琳薇尔竟然只有14岁，我还以为应该是16到18岁呢<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，原来不是长得矮啊
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  塔奇克马  
+##### 3126#       发表于 2021-9-6 23:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">奥尔芬的身世嘻嘻嘻
+
+
+*****
+
+####  隔壁老黄  
+##### 3127#       发表于 2021-9-6 23:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52644062&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-6 21:27</a>
+6小时能速通那是多周目+剧情全跳（奖杯也是15小时内）
+
+剧情全跳过其他作品也很短 ...</blockquote>
+对啊，这评测的能静下心来看剧情吗？哪怕不跳也是快进
+
+
+*****
+
+####  隔壁老黄  
+##### 3128#       发表于 2021-9-6 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52643971&amp;ptid=1860328" target="_blank">培根芝士蛋堡XD 发表于 2021-9-6 21:18</a>
+tov我记得把很多主线强相关的内容都放支线了，支线很多还是限时的，这样导致实际游戏时长非常长吧 ...</blockquote>
+实际就是节奏慢，放支线的比较重要的剧情也就丽塔和朱迪斯的关系吧，其他没啥印象了
+
+

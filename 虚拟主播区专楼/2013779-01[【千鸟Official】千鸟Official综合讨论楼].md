@@ -3672,3 +3672,17 @@ P1020004.JPG
 文静不是说是帐号自动发的吗
 
 
+
+
+*****
+
+####  rgauss  
+##### 325#       发表于 2021-9-6 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52640242&amp;ptid=2013779" target="_blank">tn_teana 发表于 2021-9-6 15:51</a>
+
+文静不是说是帐号自动发的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">删了那条评论的
+
+
