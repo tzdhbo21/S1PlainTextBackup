@@ -975,3 +975,26 @@ xsx新西兰区商店我看是9月10号解锁，怎么还晚一天解锁的<img 
 一点随意整理
 
 
+
+
+*****
+
+####  godless2020  
+##### 3078#       发表于 2021-9-6 07:27
+
+
+有隐藏迷宫<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">................
+
+
+*****
+
+####  elven119  
+##### 3079#       发表于 2021-9-6 07:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52624177&amp;ptid=1860328" target="_blank">Yeaha123 发表于 2021-9-5 08:55</a>
+
+竟然首发有steam版，不怕海盗版猖獗吗</blockquote>
+兄弟，很久没逛3DM了吧？现在D加密是破不了的，几年前的D加密游戏还没破呢。D加密破解小组都解散了。基本上最近挂了D加密新版本的游戏，都破不了
+
+
