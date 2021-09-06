@@ -2938,3 +2938,16 @@ https://share.dmhy.o ...</blockquote>
 看完了，最大感觉就是真嗣这种男主能有妹子喜欢，果然是因为妹子出厂设定里面就有好感设置啊。<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sobelisk  
+##### 1687#       发表于 2021-9-6 22:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52552806&amp;ptid=2013091" target="_blank">缘去皆空 发表于 2021-8-30 10:06</a>
+看完了，最大感觉就是真嗣这种男主能有妹子喜欢，果然是因为妹子出厂设定里面就有好感设置啊。 ...</blockquote>
+捋一捋，司令爸爸，高级研究员妈妈,能力卓绝(指驾驶eva)，会乐器，又能下厨，只是容易崩溃的巨婴。这能不吃香吗？
+
+
