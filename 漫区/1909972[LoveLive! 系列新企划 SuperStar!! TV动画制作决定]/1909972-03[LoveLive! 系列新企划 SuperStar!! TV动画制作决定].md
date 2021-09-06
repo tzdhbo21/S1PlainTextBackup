@@ -12951,3 +12951,60 @@ mari那纯属有钱任性 把所有高级食材加调料一锅炖 就这样子�
 烈日情热目前的问题是相当于出场的每一集可可都要强调一遍她们的live适合全人类观看然后放结束动作和bgm，到时候要是做的一般观众就会觉得，就这?
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 4056#       发表于 2021-9-6 11:25
+
+
+[https://twitter.com/KISAYU_/status/1434533806950674439](https://twitter.com/KISAYU_/status/1434533806950674439)
+
+【お知らせ】
+
+「ラブライブ！スーパースター！！」6話に登場した「常夏☆サンシャイン」の衣装デザインをさせて頂きました。トロピカルで元気がはじけるイメージです。
+<img src="https://p.sda1.dev/2/cd471a0dc62df25e30ba343e25f8e70d/20210906_112440.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4057#       发表于 2021-9-6 11:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就这有点想一出是一出
+
+
+*****
+
+####  JustW  
+##### 4058#       发表于 2021-9-6 11:28
+
+
+<blockquote>Dark_Zagi 发表于 2021-9-6 11:18
+这么多人觉得观感不好是不是主要因为不磕千香？</blockquote>
+有一些人觉得观感好是不是主要因为磕千香（）
+
+
+*****
+
+####  没有爱就看不见  
+##### 4059#       发表于 2021-9-6 11:33
+
+
+设定上的吹逼看看就好，可可就是很典型的追星心态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 4060#       发表于 2021-9-6 11:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52636405&amp;ptid=1909972" target="_blank">凡人 发表于 2021-9-6 11:23</a>
+
+烈日情热目前的问题是相当于出场的每一集可可都要强调一遍她们的live适合全人类观看然后放结束动作和bgm， ...</blockquote>
+贴标签塑造法，花田老三板斧了，而且本来就不可能给sp过多的投入。某种意义上，b站一些浅层观众都惊呼就是这个味。
+
+

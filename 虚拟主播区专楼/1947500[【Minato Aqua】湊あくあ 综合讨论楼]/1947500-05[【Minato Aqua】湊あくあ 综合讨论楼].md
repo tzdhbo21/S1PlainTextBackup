@@ -11244,3 +11244,20 @@ syl好了，但是掉的同接怕是涨不回来了<img src="https://static.sara
 油管最近一直炸啊。虹棒也这样
 
 
+
+
+*****
+
+####  离魂仙  
+##### 6912#       发表于 2021-9-6 11:39
+
+
+<img src="http://tva2.sinaimg.cn/large/622734bdgy1gu6r7lullig20a00c04qq.gif" referrerpolicy="no-referrer">
+<img src="http://tvax1.sinaimg.cn/large/622734bdgy1gu6r72dx5xg20bt0ddb2a.gif" referrerpolicy="no-referrer">
+
+
+感想1：洋葱机体自带傻冒加成
+
+感想2：洋葱机体限制了夸宝的蹦跳性能
+
+
