@@ -13226,3 +13226,43 @@ mari那纯属有钱任性 把所有高级食材加调料一锅炖 就这样子�
 可可六艺
 
 
+
+
+*****
+
+####  plazum  
+##### 4073#       发表于 2021-9-6 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52638840&amp;ptid=1909972" target="_blank">太二EricGuo 发表于 2021-9-6 14:06</a>
+
+可可六艺</blockquote>
+最后这个数居然刚好是最切题的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plazum  
+##### 4074#       发表于 2021-9-6 14:11
+
+
+ 本帖最后由 plazum 于 2021-9-6 14:12 编辑 
+
+小千的声音我不太喜欢啊……太硬汉（？）了
+
+穿着练功服的恋恋hso<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+可可这也太熊孩子了吧，怎么感觉跟前三集的判若两人啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AlfredXC  
+##### 4075#       发表于 2021-9-6 14:26
+
+
+恋也许懂了，我还是不懂。小千是不是有一点偏执啊？
+<img src="http://wx1.sinaimg.cn/large/88705131ly1gu6vuxsy75j21z113v18n.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/88705131ly1gu6vuym6e1j21z113vtop.jpg" referrerpolicy="no-referrer">
+
+

@@ -1166,3 +1166,17 @@ xsx新西兰区商店我看是9月10号解锁，怎么还晚一天解锁的<img 
 tox1+2hd在路上了
 
 
+
+
+*****
+
+####  ricarto  
+##### 3095#       发表于 2021-9-6 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52618771&amp;ptid=1860328" target="_blank">Rinne70 发表于 2021-9-4 16:29</a>
+
+DEMO数毛说是XSX版比较好，那我可能就盒子版了，阿区便宜吗</blockquote>
+传消息首发进xgp，不如等一下
+
+
