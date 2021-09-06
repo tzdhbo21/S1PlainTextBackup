@@ -799,3 +799,17 @@ M&amp;A的相关讨论，总有一种“我来组成头部！”之感
 —— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  galm2pixy  
+##### 65#       发表于 2021-9-6 13:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52636658&amp;ptid=2024664" target="_blank">高龙 发表于 2021-9-6 11:38</a>
+
+要给游戏加体力条的策划，已让卡普空手下的拳豪锤成肉泥了。</blockquote>
+虽然但是，mh旧时代双刀不吃强走就是很考验体力控制的啊……
+
+
