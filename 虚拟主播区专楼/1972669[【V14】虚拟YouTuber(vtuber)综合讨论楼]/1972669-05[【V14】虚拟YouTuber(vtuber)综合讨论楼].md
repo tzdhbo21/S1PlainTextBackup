@@ -11443,3 +11443,54 @@ holo观众里傻逼也有，魔怔人也有。但是这么恶心的阴湿风气�
 不过现在论地位确实是虹男大于虹女了，虹男的粉丝火力确实比虹女粉丝足
 
 
+
+
+*****
+
+####  FCCHua  
+##### 6856#       发表于 2021-9-6 13:05
+
+
+在虹里女管人肯定是实惨的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OldGlory  
+##### 6857#       发表于 2021-9-6 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52018097&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-7-19 12:23</a>
+
+出男人就全出男人好了，何必非要带一个女人呢？
+
+我建议这个鲨鱼妹一出道就不要理同期了，免得被炎上 ...</blockquote>
+两个月前就懂得都懂了，太阳底下没有新鲜事<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  缺陷电气杨永信  
+##### 6858#       发表于 2021-9-6 13:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52633275&amp;ptid=1972669" target="_blank">余情自取 发表于 2021-9-6 01:50</a>
+
+为什么拉60就不能是50吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">因为我看到q群里已经有人出+86了 所以我才过去拉这么高的
+
+但是光驱好像并没有在意到现在都没抽楼
+
+
+*****
+
+####  winda  
+##### 6859#       发表于 2021-9-6 13:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52637987&amp;ptid=1972669" target="_blank">winda 发表于 2021-9-6 12:59</a>
+新人烧烧都是常态了，土人/绿色/hero都这么烧过来了，lain和劳伦也都烧过了，现在教授也要折腾这么 ...</blockquote>
+绿色那几个:ark插手king帮mugi，ark乱入社长打boss，mc大会对前辈没用敬语（对黛灰来着?）
+lain几个:回顾nijinoon时吐槽不破撒谎，不破早操时说“同期男性4人”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虹女确实需要夹紧尾巴做人
+
+

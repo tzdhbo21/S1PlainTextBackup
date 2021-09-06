@@ -13133,3 +13133,75 @@ mari那纯属有钱任性 把所有高级食材加调料一锅炖 就这样子�
 可可的心思比平常表现的细腻在前三话大家都知道了，就是不知道56话这两集都有的“注意到香音异常”的画面是不是啥后续剧情的伏笔
 
 
+
+
+*****
+
+####  叛逆之双子星  
+##### 4070#       发表于 2021-9-6 13:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/06/131129sz9fjn59uxxxj9n8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[Nekomoe kissaten][Love Live! Superstar!!][06][720p][JPTC].mp4_20210906_131037.550.jpg</strong> (73.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 13:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/06/131130ajl18unzld186333.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[Nekomoe kissaten][Love Live! Superstar!!][06][720p][JPTC].mp4_20210906_131041.031.jpg</strong> (73.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 13:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/06/131131or1ha8p8aauxfupp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[Nekomoe kissaten][Love Live! Superstar!!][06][720p][JPTC].mp4_20210906_131053.009.jpg</strong> (72.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 13:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/06/131131vqyu4hu4js1yvfjv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[Nekomoe kissaten][Love Live! Superstar!!][06][720p][JPTC].mp4_20210906_131059.201.jpg</strong> (73.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 13:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/06/131131wtkuzyifc66sfn2u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[Nekomoe kissaten][Love Live! Superstar!!][06][720p][JPTC].mp4_20210906_131104.296.jpg</strong> (73.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-6 13:11 上传
+
+
+*****
+
+####  凡人  
+##### 4071#       发表于 2021-9-6 13:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52637298&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-6 12:16</a>
+
+还在纠结吗～去那我也提一点，这集细节缺少就是因为故事剧情太过平铺直叙。拿第三集举一个我很喜欢的细节， ...</blockquote>
+你这也太能扣了，目前看来可香党唯一的优势就是能抱着前三集溺死了。
+
+
