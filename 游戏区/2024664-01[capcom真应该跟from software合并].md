@@ -1025,3 +1025,19 @@ M&amp;A的相关讨论，总有一种“我来组成头部！”之感
 可“老年动作系统”就是怪物猎人开的先河吧……
 
 
+
+
+*****
+
+####  Chia  
+##### 81#       发表于 2021-9-7 01:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52646034&amp;ptid=2024664" target="_blank">violettor 发表于 2021-9-7 00:36</a>
+
+可“老年动作系统”就是怪物猎人开的先河吧……</blockquote>
+怪猎算丰俭由人吧
+
+高速动作游戏应该是接机带起来的，本来也没那么野
+
+
