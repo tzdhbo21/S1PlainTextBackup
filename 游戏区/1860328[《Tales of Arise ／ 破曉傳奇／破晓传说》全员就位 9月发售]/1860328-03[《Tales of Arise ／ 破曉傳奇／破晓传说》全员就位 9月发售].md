@@ -1024,3 +1024,50 @@ xsx新西兰区商店我看是9月10号解锁，怎么还晚一天解锁的<img 
 卧槽，富泽你想干什么？！
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 3082#       发表于 2021-9-6 09:23
+
+
+严重剧透警告
+
+破晓传说 奖杯信息，带图片
+[https://www.exophase.com/game/tales-of-arise-psn/trophies/jp/](https://www.exophase.com/game/tales-of-arise-psn/trophies/jp/)
+
+
+*****
+
+####  shamanda  
+##### 3083#       发表于 2021-9-6 09:31
+
+
+买不到ps5，买ps4版还是steam好？
+
+
+*****
+
+####  laoz  
+##### 3084#       发表于 2021-9-6 09:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52634575&amp;ptid=1860328" target="_blank">shamanda 发表于 2021-9-6 09:31</a>
+
+买不到ps5，买ps4版还是steam好？</blockquote>
+你电脑比ps4好就买steam
+
+
+*****
+
+####  Guildenstern  
+##### 3085#       发表于 2021-9-6 09:39
+
+
+看到钓鱼奖杯了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
