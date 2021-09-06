@@ -13585,3 +13585,65 @@ lovelive的事不需要搞得那么清楚
 从最后live也能看出来，三个人和四个人完全不是一回事，站位也好配合也好，不是列队广播体操一样塞个人就行 ...</blockquote>
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 4103#       发表于 2021-9-6 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52641651&amp;ptid=1909972" target="_blank">plazum 发表于 2021-9-6 17:40</a>
+
+小千本来就是编舞啊</blockquote>
+我也没质疑她跳舞的能力啊，我质疑的是即插即用
+
+
+*****
+
+####  lj205  
+##### 4104#       发表于 2021-9-6 17:49
+
+
+鲤鱼……这真是胖了一圈……但是让她减肥又舍不得…………
+
+
+*****
+
+####  plazum  
+##### 4105#       发表于 2021-9-6 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52641678&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-6 17:42</a>
+
+从最后live也能看出来，三个人和四个人完全不是一回事，站位也好配合也好，不是列队广播体操一样塞个人就行 ...</blockquote>
+确实，这集好几个地方感觉很赶
+
+
+*****
+
+####  cao1rui2  
+##### 4106#       发表于 2021-9-6 18:00
+
+
+这吊剧情没啥好讨论的，今晚鲤鱼直播唠嗑记得看
+
+
+*****
+
+####  cao1rui2  
+##### 4107#       发表于 2021-9-6 18:00
+
+
+还有一个小时
+
+
+*****
+
+####  megapikachu  
+##### 4108#       发表于 2021-9-6 18:01
+
+
+慢慢地，多出来的肉就变成肌肉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
