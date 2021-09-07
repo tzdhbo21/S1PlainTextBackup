@@ -15282,3 +15282,42 @@ b站这生放宣传圈圈圆圆是个啥</blockquote>
 广播熟肉都出来了～
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4247#       发表于 2021-9-8 00:19
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/001914f1rf3bm7i114i67b.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (19.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 00:19 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果好评率就比第三话低一点
+
+
+*****
+
+####  优妮可  
+##### 4248#       发表于 2021-9-8 00:21
+
+
+是这边严格了？
+
+
+*****
+
+####  笋狐  
+##### 4249#       发表于 2021-9-8 00:26
+
+
+live回要是还能低那这企划...
+
+

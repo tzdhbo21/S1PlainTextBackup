@@ -2230,3 +2230,47 @@ You gave me anything？
 八海、七海和010这一串虚实交错，属实是非常奇妙的节目效果了
 
 
+
+
+*****
+
+####  电磁炮233  
+##### 189#       发表于 2021-9-8 00:27
+
+
+神回，可惜不能切<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  逸yi  
+##### 190#       发表于 2021-9-8 00:38
+
+
+【如果直播中被叫出〇〇了就只能原地毕业了吧-哔哩哔哩】https://b23.tv/2ac4yj  预感待会宁宁归来又要创造历史了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rosefinch  
+##### 191#       发表于 2021-9-8 00:42
+
+
+二进制1点半才回来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电磁炮233  
+##### 192#       发表于 2021-9-8 00:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52659131&amp;ptid=2021175" target="_blank">逸yi 发表于 2021-9-8 00:38</a>
+【如果直播中被叫出〇〇了就只能原地毕业了吧-哔哩哔哩】https://b23.tv/2ac4yj  预感待会宁宁归来又要创造 ...</blockquote>
+这切片评论区也太搞了，纯良脆鲨，我的超人！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
