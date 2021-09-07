@@ -2039,3 +2039,14 @@ xbox还没开始预载
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想起上次三房也是期待到发售，结果也不咋地
 
 
+
+
+*****
+
+####  恋妖壶  
+##### 3168#       发表于 2021-9-8 03:11
+
+
+临发售了还在纠结到底玩PC版还是PS5版，PC主要帧率肯定可以全程60，还便宜；不过JRPG还是倾向主机玩并且早解锁，太纠结了
+
+
