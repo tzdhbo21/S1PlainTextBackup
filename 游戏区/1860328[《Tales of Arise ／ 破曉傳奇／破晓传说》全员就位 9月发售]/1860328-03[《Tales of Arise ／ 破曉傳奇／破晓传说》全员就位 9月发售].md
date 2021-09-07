@@ -2028,3 +2028,14 @@ xbox还没开始预载
 这作是不是全区中文啊？是的话我就在美服买了不折腾了
 
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3167#       发表于 2021-9-8 02:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想起上次三房也是期待到发售，结果也不咋地
+
+

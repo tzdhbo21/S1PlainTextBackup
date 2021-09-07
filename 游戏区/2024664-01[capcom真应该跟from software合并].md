@@ -1147,3 +1147,29 @@ capcom铁粉表示，魂系的都基本玩不来，正面反馈差，打的郁�
 而且MHR也不止500w，明年上PC加起来也能单作1000w了
 
 
+
+
+*****
+
+####  maitsuki  
+##### 90#       发表于 2021-9-8 02:23
+
+
+龙之信条真的哭死在厕所了
+
+
+
+
+*****
+
+####  火的意志  
+##### 91#       发表于 2021-9-8 02:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52656926&amp;ptid=2024664" target="_blank">升职加薪 发表于 2021-9-7 21:15</a>
+三部卖了1000w和单作500w，感觉后者强点吧
+
+而且MHR也不止500w，明年上PC加起来也能单作1000w了 ...</blockquote>
+魂是三部曲每部1000w
+
+
