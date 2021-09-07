@@ -14411,3 +14411,54 @@ https://www.bilibili.com/video/BV1Hg411577x</blockquote>
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  stevenzero  
+##### 4172#       发表于 2021-9-7 09:12
+
+
+观感真微妙，加农跑小千比赛场地就怪怪的了，本来觉得千香、可堇两边比赛、live双线进行也行，结果比赛一笔带过，加农还把小千带岛上参加live。就算路程时间来得及，这排练合练时间完全不需要的吗？
+前3话的美好印象可撑不了太久<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AlfredXC  
+##### 4173#       发表于 2021-9-7 09:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52646974&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-7 08:06</a>
+
+讲不定跟偶活一样，上一集飞回去下一集飞回来</blockquote>
+大胆点，说不定开头飞回去结尾就飞回来了
+
+
+*****
+
+####  Goisdust  
+##### 4174#       发表于 2021-9-7 09:24
+
+
+可可回到上海老家时发现香音两手抱胸倚着墙在等她
+
+
+*****
+
+####  凡人  
+##### 4175#       发表于 2021-9-7 09:24
+
+
+目前算三白三黑看第七集的表现吧，这集是不是拉拉动画第一次出现欺凌表现来着，恋的母亲到底是不是过世了下集应该能知道了吧。
+
+
+*****
+
+####  凡人  
+##### 4176#       发表于 2021-9-7 09:33
+
+
+可可回国后香音发现自己又唱不出来了，然后飞去上海对可可父母说请把女儿交给我。
+
+

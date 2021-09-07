@@ -18985,3 +18985,27 @@ PC版前射太爽不想放弃霰弹啊，不过没4星不关我的事<img src="h
 比薰子的3秒无敌都要屌
 
 
+
+
+*****
+
+####  unsh  
+##### 5973#       发表于 2021-9-7 09:24
+
+
+我龙甚至还有被动回血<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+话说记者的an手技能刷了都一个多月了，一次3级sp侵攻都不出，这合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  unsh  
+##### 5974#       发表于 2021-9-7 09:26
+
+
+说错了，是近战
+
+
