@@ -1628,3 +1628,25 @@ tot 1+2 HD好，正好想重温一遍PS3光驱又坏了
 得不偿失
 
 
+
+
+*****
+
+####  ranapocket  
+##### 3134#       发表于 2021-9-7 07:52
+
+
+男主身世看起来有点问题啊。
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  司马千晶  
+##### 3135#       发表于 2021-9-7 08:04
+
+
+不知道本作会多周目商店会解禁点什么，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当时TOB的商店拉胯的很，就传统那些继承项目。
+
+
