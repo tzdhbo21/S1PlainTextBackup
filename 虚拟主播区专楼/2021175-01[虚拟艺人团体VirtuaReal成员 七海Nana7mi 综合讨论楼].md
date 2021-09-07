@@ -2171,3 +2171,62 @@ You gave me anything？
 所以海子姐彻底从喜欢鲨鱼的女高中生变成化身女高中生的大鲨鱼了是吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Poopybutthole  
+##### 184#       发表于 2021-9-8 00:11
+
+
+七海Nana7mi和八海大黄鱼同时毕业，节目效果又自动降临到了海子姐身上，这就是女主角待遇吗？！
+
+
+*****
+
+####  StarBlazers  
+##### 185#       发表于 2021-9-8 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52658854&amp;ptid=2021175" target="_blank">Poopybutthole 发表于 2021-9-8 00:11</a>
+七海Nana7mi和八海大黄鱼同时毕业，节目效果又自动降临到了海子姐身上，这就是女主角待遇吗？！ ...</blockquote>
+问下今天之前海子姐Siri发生了啥啊 也把中之人暴露了吗
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  逸yi  
+##### 186#       发表于 2021-9-8 00:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52658884&amp;ptid=2021175" target="_blank">StarBlazers 发表于 2021-9-8 00:13</a>
+问下今天之前海子姐Siri发生了啥啊 也把中之人暴露了吗
+
+—— 来自 samsung SM-G9750, Android 11上的 S1 ...</blockquote>
+上海普陀区 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  EnbuRiAs  
+##### 187#       发表于 2021-9-8 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52658884&amp;ptid=2021175" target="_blank">StarBlazers 发表于 2021-9-8 00:13</a>
+问下今天之前海子姐Siri发生了啥啊 也把中之人暴露了吗
+
+—— 来自 samsung SM-G9750, Android 11上的 S1 ...</blockquote>
+海子姐直播：去KTV唱歌了  siri:已为您搜索xx附近KTV
+
+
+*****
+
+####  stlover  
+##### 188#       发表于 2021-9-8 00:20
+
+
+八海、七海和010这一串虚实交错，属实是非常奇妙的节目效果了
+
+

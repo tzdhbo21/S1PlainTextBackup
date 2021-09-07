@@ -1979,3 +1979,41 @@ TOX给了10分
 emmm
 
 
+
+
+*****
+
+####  zero12  
+##### 3163#       发表于 2021-9-7 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52658137&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-7 23:05</a>
+
+看了下这个媒体过往对TO系列的评分记录
+
+TOV DE
+
+TOB</blockquote>
+不靠谱
+
+
+*****
+
+####  AngraRabbitP  
+##### 3164#       发表于 2021-9-7 23:21
+
+
+xbox还没开始预载
+
+—— 来自 vivo V2072A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  reficul  
+##### 3165#       发表于 2021-9-7 23:28
+
+
+开始了，37G，自动下载PS5版。
+
+
