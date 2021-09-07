@@ -9910,3 +9910,104 @@ bls咋了，不会赤绯艾利欧的bls演唱会也到现在都还没兑现吧</
 买来第一天就要被撑死了
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2384#       发表于 2021-9-7 22:10
+
+
+<img src="https://img.saraba1st.com/forum/202109/07/221027iit84qsqd4qu6bf9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (16.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-7 22:10 上传
+
+
+肥婆如果买了仓鼠的话，名字叫啥捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甘栗No.007  
+##### 2385#       发表于 2021-9-7 22:10
+
+
+直接为这个可怜的仓鼠祈祷<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2386#       发表于 2021-9-7 22:12
+
+
+ 本帖最后由 时间在我手中 于 2021-9-7 22:15 编辑 
+
+**，第一个本身大概是しゃぶしゃぶ（刷刷锅）单独取一个出来的意思吧，但是怎么还有兴奋剂隐喻的意思的，难怪评论说有点危险<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外两个就是蔷薇和玫瑰的意思
+
+
+*****
+
+####  2014720  
+##### 2387#       发表于 2021-9-7 22:13
+
+
+希望仓鼠没事🙏
+
+起名哈姆太郎得了，你麻也要小动物营业了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2388#       发表于 2021-9-7 22:14
+
+
+ 本帖最后由 T_Hb 于 2021-9-7 22:15 编辑 
+
+照片是别想了，撑死口头repo一下，怎么不养只龟啊
+
+
+*****
+
+####  时间在我手中  
+##### 2389#       发表于 2021-9-7 22:15
+
+
+养猫被否决了，还是仓鼠好。jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甘栗No.007  
+##### 2390#       发表于 2021-9-7 22:15
+
+
+小动物营业没照片可不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过连自己都不愿意洗的人还养动物，我怀疑仓鼠能不能活过半个月<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 2391#       发表于 2021-9-7 22:16
+
+
+她养仙人球能养活吗，怎么就直接挑战养活仓鼠了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+真是个可怜的仓鼠啊<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2392#       发表于 2021-9-7 22:16
+
+
+没事，你麻说了，以前养死过了，虽然挺伤心的但是感觉也还好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
