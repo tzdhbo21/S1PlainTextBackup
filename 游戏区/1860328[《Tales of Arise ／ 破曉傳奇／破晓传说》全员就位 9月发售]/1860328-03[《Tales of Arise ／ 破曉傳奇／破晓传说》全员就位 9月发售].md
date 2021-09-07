@@ -1691,3 +1691,14 @@ xsx版的预载才200多M可还行
 你可以理解为预载了个启动器, 数据还没预载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ky怪  
+##### 3139#       发表于 2021-9-7 12:14
+
+
+红秋裤能单买吗，不能的话只能预购数字豪华了
+
+

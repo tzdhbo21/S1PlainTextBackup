@@ -11734,3 +11734,16 @@ http://twitter.com/tokino_sora/status/1434909382228074498
 阿裁又在批站发片说梅露那事了，杏什么时候把阿裁干掉啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  真飞鸟i  
+##### 6875#       发表于 2021-9-7 12:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是来晚了点，早来个半年也是个山田赫敏或者水龙敬了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
