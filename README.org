@@ -1,4 +1,4 @@
-# 简介 
+* 简介 
 
 本仓库用来存放S1部分高楼的纯文本备份，以50楼为一份文件，请善用搜索功能。
 
@@ -12,23 +12,23 @@
 
 S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextGeneral
 
-## 全文搜索方式：
+** 全文搜索方式：
 按下英文句号键，即可进入GitHub官方提供的https://github.dev/TomoeMami/S1PlainTextBackup界面。
 
-## 2021-01-08 增加GithubAction支持
+** 2021-01-08 增加GithubAction支持
 
-#### 触发方式
+**** 触发方式
 
 - 每隔20分钟定时执行
 
 - 自定义：.github/workflows/S1.yaml 编辑
 
-#### 使用用法
+**** 使用用法
 - 点击右上角 `Fork` 项目
 - `Settings` -> `Secrets` 中添加s1的账号Cookie
     - `S1_COOKIE`：账号Cookie
 
-### 目前支持的特殊效果
+*** 目前支持的特殊效果
 
 - 粗体
 - 链接
@@ -41,7 +41,7 @@ S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextG
     - webp
 - 评分
 
- ## 脚本使用须知
+ ** 脚本使用须知
 
 - 2021-08-16 每次更新帖子内容之前自动爬取前两页序号大于某固定值的帖子（防止单次挖坟），实现了部分的自动添加帖子自动更新。
     - 还会自动删除掉状态为False且时间大于一个月的帖子。
