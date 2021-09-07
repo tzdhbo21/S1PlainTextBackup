@@ -14593,3 +14593,15 @@ YouTubeでも公開いたしました📺
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">敌团才是正统ll（确信），为了家乡为了学校而成为偶像，可可干脆润去sunnypa得了
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4186#       发表于 2021-9-7 14:23
+
+
+虽然是喜闻乐见的王道展开
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但那个行动力爆棚的可可要是动摇退团怕不是要被今届观众大呼OOC
+
+
