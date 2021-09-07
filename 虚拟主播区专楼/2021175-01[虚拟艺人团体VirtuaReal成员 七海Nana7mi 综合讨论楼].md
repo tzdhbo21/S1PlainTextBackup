@@ -2287,3 +2287,18 @@ You gave me anything？
 —— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
+
+
+*****
+
+####  胧楼  
+##### 194#       发表于 2021-9-8 02:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52659491&amp;ptid=2021175" target="_blank">宇宙驼鹿 发表于 2021-9-8 01:37</a>
+没赶上神回，八海小黄鱼是什么
+
+—— 来自 realme RMX3350, Android 11上的 S1Next-鹅版 v2.0.4-pla ...</blockquote>
+vtb模拟器里的id
+
+
