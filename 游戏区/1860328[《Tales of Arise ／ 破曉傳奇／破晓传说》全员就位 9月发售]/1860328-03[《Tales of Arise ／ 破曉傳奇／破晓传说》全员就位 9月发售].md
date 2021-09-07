@@ -1749,3 +1749,39 @@ xsx版的预载才200多M可还行
 法米通本周没有这游戏的打分
 
 
+
+
+*****
+
+####  被击坠王  
+##### 3144#       发表于 2021-9-7 16:18
+
+
+ 本帖最后由 被击坠王 于 2021-9-7 16:29 编辑 
+
+已经能预想到后面会出现类似“只是用虚幻让表面好看了点，内里没多大精进，延期延了个毛”   “拍发霉通马屁只是为了不让打分”这种感想
+
+
+*****
+
+####  hypnossz86  
+##### 3145#       发表于 2021-9-7 16:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52653081&amp;ptid=1860328" target="_blank">zero33333 发表于 2021-9-7 16:08</a>
+这是什么垃圾技术。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">毕竟pc环境很开放，要锁住就得压缩加密的
+
+
+*****
+
+####  iqbsh38  
+##### 3146#       发表于 2021-9-7 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52653235&amp;ptid=1860328" target="_blank">被击坠王 发表于 2021-9-7 16:18</a>
+
+已经能预想到后面会出现类似“只是用虚幻让表面好看了点，内里没多大精进，延期延了个毛”   “拍发霉通马 ...</blockquote>
+第一个PV出的时候我就是这感觉了 目测演出还是那样 平时角色也都是两手左右一摆对话 我只希望在新引擎加持下战斗能做的有深度点
+
+

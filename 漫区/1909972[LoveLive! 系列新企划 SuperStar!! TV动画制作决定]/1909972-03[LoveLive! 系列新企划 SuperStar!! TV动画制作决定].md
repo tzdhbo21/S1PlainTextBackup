@@ -14760,3 +14760,36 @@ YouTubeでも公開いたしました📺
 我真的怀疑有些人的闲的程度啊
 
 
+
+
+*****
+
+####  优妮可  
+##### 4199#       发表于 2021-9-7 16:35
+
+
+通过警务通挖出了证件照这些，有没有挖出其他个人信息暂时不清楚。
+
+
+*****
+
+####  cybernetics31  
+##### 4200#       发表于 2021-9-7 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52653237&amp;ptid=1909972" target="_blank">大哀之君 发表于 2021-9-7 16:18</a>
+看贴吧说鲤鱼被人肉了</blockquote>
+周日粉丝群就有这个消息了，但一直没相关实锤，只知道信息泄漏了…………这次直接放推上就等着烂铁发律师函吧
+
+
+
+
+*****
+
+####  笋狐  
+##### 4201#       发表于 2021-9-7 16:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">别多提，知道的有条件去t点个举报就行了，这种蛆喷他都嫌浪费键盘耐久
+
+
