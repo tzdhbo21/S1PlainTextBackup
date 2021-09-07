@@ -11879,3 +11879,48 @@ http://twitter.com/tokino_sora/status/1434909382228074498
 看到二代目第一个翻唱投稿时就隐隐期待的这一天，居然真的到来了……
 
 
+
+
+*****
+
+####  free  
+##### 6884#       发表于 2021-9-7 21:10
+
+
+ 本帖最后由 free 于 2021-9-7 21:30 编辑 
+
+这个烂货圆脸唱这么难听，怎么还有脸出专辑？烂货一个，就应该用钳子拔掉她的舌头
+
+好么还是翻唱专辑，烂货一个，真该给吊死
+
+
+<img src="https://img.saraba1st.com/forum/202109/07/211011h566999gpzqp9j89.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (73.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-7 21:10 上传
+
+
+*****
+
+####  雪风utopia  
+##### 6885#       发表于 2021-9-7 21:21
+
+
+感谢免费哥的repo，不愧是模范粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真飞鸟i  
+##### 6886#       发表于 2021-9-7 21:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一二代目的声音还是能听出些差别的，二代目年纪大些，初代更有活力，相对来说歌里更突出二代目点，还有这蓝风衣侧面真丑……
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+

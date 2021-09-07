@@ -1131,3 +1131,19 @@ capcom铁粉表示，魂系的都基本玩不来，正面反馈差，打的郁�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  升职加薪  
+##### 89#       发表于 2021-9-7 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52642673&amp;ptid=2024664" target="_blank">火的意志 发表于 2021-9-6 19:07</a>
+
+500w不到确实不能算大热呀，魂三部曲可是卖了1000w的，这种才能算大热</blockquote>
+三部卖了1000w和单作500w，感觉后者强点吧
+
+而且MHR也不止500w，明年上PC加起来也能单作1000w了
+
+

@@ -9547,3 +9547,116 @@ syl，不能19号播吗？18号tm还得调休一天<img src="https://static.sara
 能有啥任务<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔还有任务需要她吗
 
 
+
+
+*****
+
+####  2014720  
+##### 2348#       发表于 2021-9-7 20:54
+
+
+又是经典任务<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 2349#       发表于 2021-9-7 20:55
+
+
+你麻什么都做不到
+
+
+*****
+
+####  2014720  
+##### 2350#       发表于 2021-9-7 20:58
+
+
+说来今年bls好像又…
+
+叔叔才是那个最大的乐子人啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zc1996zc  
+##### 2351#       发表于 2021-9-7 20:59
+
+
+ 本帖最后由 zc1996zc 于 2021-9-7 21:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52656663&amp;ptid=2018830" target="_blank">T_Hb 发表于 2021-9-7 20:50</a>
+
+能有啥任务叔叔还有任务需要她吗，帮今年bls卖票？</blockquote>
+我错了，编辑
+
+
+*****
+
+####  T_Hb  
+##### 2352#       发表于 2021-9-7 20:59
+
+
+ 本帖最后由 T_Hb 于 2021-9-7 21:01 编辑 
+
+我又没回你阿，你是不是把中间那一楼塞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zc1996zc  
+##### 2353#       发表于 2021-9-7 21:01
+
+
+<blockquote>T_Hb 发表于 2021-9-7 20:59
+我又没回你阿</blockquote>
+我理解错了，抱歉
+
+
+*****
+
+####  时间在我手中  
+##### 2354#       发表于 2021-9-7 21:10
+
+
+暴躁肥婆
+
+
+*****
+
+####  T_Hb  
+##### 2355#       发表于 2021-9-7 21:10
+
+
+感觉今天又是干架回，这状态唱不了几首
+
+
+*****
+
+####  2014720  
+##### 2356#       发表于 2021-9-7 21:19
+
+
+我操 cr叔叔主题曲
+
+
+*****
+
+####  T_Hb  
+##### 2357#       发表于 2021-9-7 21:20
+
+
+ 本帖最后由 T_Hb 于 2021-9-7 21:21 编辑 
+
+我的评价是，拉中拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如聊天
+
+
+*****
+
+####  yywzjsw  
+##### 2358#       发表于 2021-9-7 21:21
+
+
+嗓子好哑
+
+
