@@ -14700,3 +14700,31 @@ YouTubeでも公開いたしました📺
 就个乱啊
 
 
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 4194#       发表于 2021-9-7 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52647489&amp;ptid=1909972" target="_blank">stevenzero 发表于 2021-9-7 09:12</a>
+
+观感真微妙，加农跑小千比赛场地就怪怪的了，本来觉得千香、可堇两边比赛、live双线进行也行，结果比赛一笔 ...</blockquote>
+时间线其实还是蛮明确的[https://bbs.nga.cn/read.php?pid=547572241&amp;opt=128](https://bbs.nga.cn/read.php?pid=547572241&amp;opt=128) ，
+
+另外说排练的问题，别忘记了新歌的舞在接到sp的邀请前是小千带着她们练的，以小千舞蹈能力，要稍微改动到变成四人舞我觉得不难
+
+
+*****
+
+####  iuhehc  
+##### 4195#       发表于 2021-9-7 16:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52652490&amp;ptid=1909972" target="_blank">凡人 发表于 2021-9-7 15:28</a>
+
+可香的时候还知道来个撕日历，结果4-6集这种演出就完全消失了，观众第一眼根本把握不了时间过去了多久。 ...</blockquote>
+确实，这几集看起来就好像几天发生的一样实际应该过去两个季节了，春夏，下集可能就到秋了
+
+
