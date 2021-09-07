@@ -1827,3 +1827,46 @@ xsx版的预载才200多M可还行
 <img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">家里电脑出问题送修了，只好让我的ps4继续服役了
 
 
+
+
+*****
+
+####  蓝雉  
+##### 3151#       发表于 2021-9-7 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52653538&amp;ptid=1860328" target="_blank">iqbsh38 发表于 2021-9-7 16:36</a>
+
+第一个PV出的时候我就是这感觉了 目测演出还是那样 平时角色也都是两手左右一摆对话 我只希望在新引擎加 ...</blockquote>
+不至于,至少目前的演示和pv里的演出比tob强一大截了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  supersssbc  
+##### 3152#       发表于 2021-9-7 18:04
+
+
+哎，真希望游戏运输能回到5年前，那现在这会都能在淘宝闲鱼找偷跑吃现了
+
+
+*****
+
+####  hkguty  
+##### 3153#       发表于 2021-9-7 18:04
+
+
+傻卵PS5又自动给我下载的PS4版
+
+
+*****
+
+####  superlink  
+##### 3154#       发表于 2021-9-7 18:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">传说的演出主要是配合不好，说着说着变默片了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

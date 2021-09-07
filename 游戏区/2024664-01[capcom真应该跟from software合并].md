@@ -1112,3 +1112,22 @@ capcom铁粉表示，魂系的都基本玩不来，正面反馈差，打的郁�
 怎么有股钓鱼味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  路西恩  
+##### 88#       发表于 2021-9-7 18:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52627937&amp;ptid=2024664" target="_blank">咸鱼高达 发表于 2021-9-5 16:18</a>
+你干脆说让宫崎爸爸统一日本游戏界得了
+
+不管你们腻不腻，反正这个所谓的魂味我是有点腻了 ...</blockquote>
+一开始还没感觉
+现在已经受不了那个来来回回就几下的动作游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

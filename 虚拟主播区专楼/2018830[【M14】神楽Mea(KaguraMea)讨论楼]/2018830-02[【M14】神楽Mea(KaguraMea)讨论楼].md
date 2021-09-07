@@ -9332,3 +9332,64 @@ https://t.co/mfRDywAd91 https://t.co/1115boRh6t
 吃鸡类游戏算了吧 以这人的技术 不是在送快递就是在送快递的路上 她播什么竞技类游戏都没有观赏性的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  2014720  
+##### 2329#       发表于 2021-9-7 18:09
+
+
+呃呃，不打算看她打游戏啊，你爱看猪逼打游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看到主播我沉迷过气网游我感到十分痛心罢了
+
+
+*****
+
+####  时间在我手中  
+##### 2330#       发表于 2021-9-7 18:13
+
+
+有什么好痛心的，LOL不就是普通游戏而已····哦，难不成按你说法我最近摸鱼专心打刺客信条和伊苏看小说你也要痛心一下我怎么还不去赚钱了是吧
+
+
+你寄吧谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|我是她爹|
+
+
+查看全部评分
+
+
+*****
+
+####  Klience  
+##### 2331#       发表于 2021-9-7 18:36
+
+
+反正嘛 游戏 玩的开心就好 就算过不过气 做人最紧要就系开心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 2332#       发表于 2021-9-7 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52654851&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2021-9-7 18:13</a>
+
+有什么好痛心的，LOL不就是普通游戏而已····哦，难不成按你说法我最近摸鱼专心打刺客信条和伊苏看小说 ...</blockquote>
+阿萨辛你玩的哪作
+
+
