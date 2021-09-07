@@ -1901,3 +1901,53 @@ xsx版的预载才200多M可还行
 我看a9说原装和皇冠是同一个老板，进橘子了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 3158#       发表于 2021-9-7 22:19
+
+
+发售前PV
+
+[https://www.youtube.com/watch?v=FCSeLhCXhgQ](https://www.youtube.com/watch?v=FCSeLhCXhgQ)
+
+
+*****
+
+####  SergeGlenn  
+##### 3159#       发表于 2021-9-7 22:34
+
+
+媒体漏了个分9/10
+
+<img src="https://img.saraba1st.com/forum/202109/07/223318fstieeatitzdrie4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210907_223233.jpg</strong> (93.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-9-7 22:33 上传
+
+
+*****
+
+####  天使的赤瞳  
+##### 3160#       发表于 2021-9-7 22:50
+
+
+PS4还不能预加载吗？
+
+
+*****
+
+####  天使的赤瞳  
+##### 3161#       发表于 2021-9-7 22:50
+
+
+PS4还不能预加载吗？
+
+
