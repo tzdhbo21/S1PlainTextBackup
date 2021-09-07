@@ -1724,3 +1724,28 @@ xsx版的预载才200多M可还行
 <img src="https://wx4.sinaimg.cn/mw690/002e9ffVgy1gu7z70tbgcj609j0fijs802.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zero33333  
+##### 3142#       发表于 2021-9-7 16:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52646833&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-7 07:32</a>
+
+后排提醒一下steam最好不要预载
+
+预载了到时候解锁后解压缩的时间肯定远远大于你解锁后再下载所需的 ...</blockquote>
+这是什么垃圾技术。。。
+
+
+*****
+
+####  ff2077  
+##### 3143#       发表于 2021-9-7 16:09
+
+
+法米通本周没有这游戏的打分
+
+
