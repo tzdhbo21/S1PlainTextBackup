@@ -14493,3 +14493,47 @@ https://www.bilibili.com/video/BV1Hg411577x</blockquote>
 2021-9-7 10:07 上传
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 4179#       发表于 2021-9-7 12:22
+
+
+【💫限定公開💫】
+
+現在放送中のTVアニメ『ラブライブ！スーパースター!!』より
+
+第6話挿入歌『常夏☆サンシャイン』のダンスシーン映像を公開🎊🎊
+
+
+YouTubeでも公開いたしました📺
+[https://youtu.be/XR3h_agJgXQ](https://youtu.be/XR3h_agJgXQ)
+
+
+本楽曲が収録される挿入歌シングル第2弾は9/29発売予定です✨
+
+
+*****
+
+####  Piano-Forest  
+##### 4180#       发表于 2021-9-7 12:22
+
+
+[https://twitter.com/gyouza_makoto2/status/1434833797195841542](https://twitter.com/gyouza_makoto2/status/1434833797195841542)
+<img src="https://p.sda1.dev/2/7927c84e59ef2f7c5bda39a1cf55b6f8/20210907_121949.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/nekoneko_nyako/status/1434562463349936130](https://twitter.com/nekoneko_nyako/status/1434562463349936130)
+<img src="https://p.sda1.dev/2/3b4638e8cd88cc7bbbd9ec4a418061b2/20210907_122005.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/sukur_zwin/status/1434762834521432064](https://twitter.com/sukur_zwin/status/1434762834521432064)
+<img src="https://p.sda1.dev/2/a4f3be8be4fd242f718e7c716d0eef0c/20210907_122110.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/y1206yusei/status/1434889060581994500](https://twitter.com/y1206yusei/status/1434889060581994500)
+<img src="https://p.sda1.dev/2/5b70327819d880a83baa7a2daec72d77/20210907_122114.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/Deadnooodles/status/1434494031388561415](https://twitter.com/Deadnooodles/status/1434494031388561415)
+<img src="https://p.sda1.dev/2/ad9fad9a8668501541d4aedc337d326c/20210907_122201.jpg" referrerpolicy="no-referrer">
+
+
