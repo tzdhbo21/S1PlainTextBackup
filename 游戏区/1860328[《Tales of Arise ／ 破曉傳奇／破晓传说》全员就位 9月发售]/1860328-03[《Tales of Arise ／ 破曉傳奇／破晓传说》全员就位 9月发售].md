@@ -1674,3 +1674,20 @@ xsx版的预载才200多M可还行<img src="https://static.saraba1st.com/image/s
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  Lisylfn  
+##### 3138#       发表于 2021-9-7 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52649025&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-9-7 11:06</a>
+
+xsx版的预载才200多M可还行
+
+
+—— 来自 S1Fun</blockquote>
+你可以理解为预载了个启动器, 数据还没预载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
