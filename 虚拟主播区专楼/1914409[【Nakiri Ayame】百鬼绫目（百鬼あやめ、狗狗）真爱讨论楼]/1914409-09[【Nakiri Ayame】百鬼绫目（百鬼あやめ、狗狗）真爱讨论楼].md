@@ -12818,3 +12818,16 @@ T恤人气排名
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">烤肉组成人上人么
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13097#       发表于 2021-9-7 23:12
+
+
+台湾烤肉组的民度已经比当时B站还低了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不只人上人 有敛财的 有开小号去同行底下刷负评的
+
+

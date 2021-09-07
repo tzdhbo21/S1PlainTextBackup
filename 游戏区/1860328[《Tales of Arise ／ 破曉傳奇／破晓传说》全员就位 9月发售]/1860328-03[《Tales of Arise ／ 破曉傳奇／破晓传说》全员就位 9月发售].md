@@ -1951,3 +1951,31 @@ PS4还不能预加载吗？
 PS4还不能预加载吗？
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 3162#       发表于 2021-9-7 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52657796&amp;ptid=1860328" target="_blank">SergeGlenn 发表于 2021-9-7 22:34</a>
+
+媒体漏了个分9/10</blockquote>
+看了下这个媒体过往对TO系列的评分记录
+
+TOV DE
+
+TOB
+
+TOZ
+
+TOX2 都给了8分
+
+
+TOX给了10分
+
+
+emmm
+
+
