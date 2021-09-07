@@ -1713,3 +1713,14 @@ xsx版的预载才200多M可还行
 绯红我反而觉得太长了，从荒霸吐开始关卡就老长，人物招式深度也不足导致一周目后期玩起来已经开始无聊了……
 
 
+
+
+*****
+
+####  ac130-2020  
+##### 3141#       发表于 2021-9-7 13:50
+
+
+<img src="https://wx4.sinaimg.cn/mw690/002e9ffVgy1gu7z70tbgcj609j0fijs802.jpg" referrerpolicy="no-referrer">
+
+

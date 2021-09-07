@@ -14579,3 +14579,17 @@ YouTubeでも公開いたしました📺
 要是有耳光八成落在可可或恋恋身上
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4185#       发表于 2021-9-7 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52650737&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-7 13:08</a>
+
+现在加入的四人，堇为了名气，小千为了香音，香音为了报恩（为了可可的学院偶像。），只有可可一个人是为了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">敌团才是正统ll（确信），为了家乡为了学校而成为偶像，可可干脆润去sunnypa得了
+
+
