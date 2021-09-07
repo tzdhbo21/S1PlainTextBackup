@@ -1538,3 +1538,19 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 不是很多人猜测卡普老婆可能也是天龙人，不然那天那么巧就卡普在
 
 
+
+
+*****
+
+####  武男  
+##### 55613#       发表于 2021-9-7 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52626788&amp;ptid=98922" target="_blank">届得到 发表于 2021-9-5 14:11</a>
+
+海贼御田舞王就是火影鼬鼠一个类型了，想要毁掉哪个角色只要把这个角色和傻逼舞王联系起来就行
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">火影起码有一大堆鼬粉吧，你这垫了个什么啊，可能也就是知乎有点人喜欢
+
+

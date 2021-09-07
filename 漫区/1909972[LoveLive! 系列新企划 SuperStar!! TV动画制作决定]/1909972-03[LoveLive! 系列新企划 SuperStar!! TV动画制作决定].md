@@ -14605,3 +14605,18 @@ YouTubeでも公開いたしました📺
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但那个行动力爆棚的可可要是动摇退团怕不是要被今届观众大呼OOC
 
 
+
+
+*****
+
+####  iuhehc  
+##### 4187#       发表于 2021-9-7 14:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52647489&amp;ptid=1909972" target="_blank">stevenzero 发表于 2021-9-7 09:12</a>
+观感真微妙，加农跑小千比赛场地就怪怪的了，本来觉得千香、可堇两边比赛、live双线进行也行，结果比赛一笔 ...</blockquote>
+我觉得比赛live根本就不是一天，中间有个理事长拿着转科届的镜头，这里应该就是给观众交代的时间转折但是同时就有音乐响起来了而且很突兀，很容易让人觉得是同一天
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
