@@ -14548,3 +14548,34 @@ YouTubeでも公開いたしました📺
 现在加入的四人，堇为了名气，小千为了香音，香音为了报恩（为了可可的学院偶像。），只有可可一个人是为了学院偶像的，这回明白了pv可可熊猫睡衣露出那种表情的含义了。好家伙明明人招到了，结果没有一个是因为学院偶像的还行，搁谁谁都愁
 
 
+
+
+*****
+
+####  lanslort  
+##### 4182#       发表于 2021-9-7 13:08
+
+
+追飞机没意思，我就等着看星星会不会有耳光戏 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jobtownb  
+##### 4183#       发表于 2021-9-7 13:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52650749&amp;ptid=1909972" target="_blank">lanslort 发表于 2021-9-7 13:08</a>
+追飞机没意思，我就等着看星星会不会有耳光戏</blockquote>
+我想看比夹脚更刺激的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 4184#       发表于 2021-9-7 13:20
+
+
+要是有耳光八成落在可可或恋恋身上
+
+
