@@ -8985,3 +8985,70 @@ QQ图片20210906211451.jpg
 麻：都是你们阿宅的错
 
 
+
+
+*****
+
+####  往世雷书  
+##### 2298#       发表于 2021-9-7 10:47
+
+
+压力大的人暴食缓解压力也很正常
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 2299#       发表于 2021-9-7 10:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她现在能有啥压力
+
+
+*****
+
+####  路人庚  
+##### 2300#       发表于 2021-9-7 10:58
+
+
+疫情的压力（每天进出门一套标准消杀流程其实挺麻烦的，但如果在这偷懒那就是提升感染风险然后被迫在家“疗养”
+
+
+*****
+
+####  草牛  
+##### 2301#       发表于 2021-9-7 10:59
+
+
+打了一天游戏，好累哦
+
+
+*****
+
+####  雪风utopia  
+##### 2302#       发表于 2021-9-7 11:00
+
+
+那当然是游戏打输的压力了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2303#       发表于 2021-9-7 11:01
+
+
+可以当终极懒狗，不出门
+
+
+*****
+
+####  Klience  
+##### 2304#       发表于 2021-9-7 11:05
+
+
+在家打一整天101 打了一整天游戏，好累哦.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
