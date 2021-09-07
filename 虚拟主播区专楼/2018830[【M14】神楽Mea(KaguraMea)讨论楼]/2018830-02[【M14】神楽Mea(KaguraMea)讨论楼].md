@@ -9660,3 +9660,253 @@ syl，不能19号播吗？18号tm还得调休一天<img src="https://static.sara
 嗓子好哑
 
 
+
+
+*****
+
+####  シルフィエット  
+##### 2359#       发表于 2021-9-7 21:38
+
+
+PONPONPON好耶，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2360#       发表于 2021-9-7 21:38
+
+
+我超，ponponpon<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起了当年看神的鬼畜了
+
+
+*****
+
+####  雪风utopia  
+##### 2361#       发表于 2021-9-7 21:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 2362#       发表于 2021-9-7 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52656766&amp;ptid=2018830" target="_blank">2014720 发表于 2021-9-7 20:58</a>
+说来今年bls好像又…
+
+叔叔才是那个最大的乐子人啊</blockquote>
+bls咋了，不会赤绯艾利欧的bls演唱会也到现在都还没兑现吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2363#       发表于 2021-9-7 21:43
+
+Catch You Catch Me
+
+
+快唱小樱主题曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">]
+
+
+*****
+
+####  2014720  
+##### 2364#       发表于 2021-9-7 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52657197&amp;ptid=2018830" target="_blank">makourisu-2 发表于 2021-9-7 21:41</a>
+bls咋了，不会赤绯艾利欧的bls演唱会也到现在都还没兑现吧</blockquote>
+去看那个虚拟区高级运营的公告吧，直播期间就不多聊了
+
+感觉你麻老了10岁
+
+
+*****
+
+####  yywzjsw  
+##### 2365#       发表于 2021-9-7 21:45
+
+
+口胡了，明明之前那么甜
+
+
+*****
+
+####  Rem-清曲  
+##### 2366#       发表于 2021-9-7 21:47
+
+
+今天是那个来了么？感觉中气不足    <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2367#       发表于 2021-9-7 21:47
+
+
+暴躁的很，野男人声音漏出来了
+
+
+*****
+
+####  时间在我手中  
+##### 2368#       发表于 2021-9-7 21:48
+
+
+昨天就说肚子痛了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+呜呜，有野男人的声音，很不安
+
+
+*****
+
+####  草牛  
+##### 2369#       发表于 2021-9-7 21:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">野男人我鲨了你
+
+
+*****
+
+####  梦魂落叶  
+##### 2370#       发表于 2021-9-7 21:49
+
+
+终于有野男人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  时间在我手中  
+##### 2371#       发表于 2021-9-7 21:49
+
+
+今晚歌单有点不太一样，虽然拉的要死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪风utopia  
+##### 2372#       发表于 2021-9-7 21:50
+
+
+是野男人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rem-清曲  
+##### 2373#       发表于 2021-9-7 21:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">屁股下面是野男人
+
+
+*****
+
+####  T_Hb  
+##### 2374#       发表于 2021-9-7 21:52
+
+
+怎么又回到人间椅子了
+
+
+*****
+
+####  yywzjsw  
+##### 2375#       发表于 2021-9-7 21:56
+
+
+啥野男人？我就听到男子高中生
+
+
+*****
+
+####  时间在我手中  
+##### 2376#       发表于 2021-9-7 21:59
+
+
+没，这人自动播放播到好像debi那边的直播去了而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 2377#       发表于 2021-9-7 22:00
+
+
+直播中出现野男人是声音，这不是我幻想了无数遍的剧情吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  时间在我手中  
+##### 2378#       发表于 2021-9-7 22:01
+
+
+ 本帖最后由 时间在我手中 于 2021-9-7 22:04 编辑 
+
+阿这，明天这人是要回家了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐突明日いないので
+
+哦  工作有事出门（お出かけ）
+
+
+*****
+
+####  yywzjsw  
+##### 2379#       发表于 2021-9-7 22:02
+
+
+这臭女人，又直播的时候干其他事情
+
+
+*****
+
+####  2014720  
+##### 2380#       发表于 2021-9-7 22:05
+
+
+不拉夸就不会唱歌！
+
+
+*****
+
+####  雪风utopia  
+##### 2381#       发表于 2021-9-7 22:06
+
+
+就好拉跨这口<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2382#       发表于 2021-9-7 22:08
+
+
+肥婆要养仓鼠了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马上投胎（bushi）
+
+
+*****
+
+####  T_Hb  
+##### 2383#       发表于 2021-9-7 22:08
+
+
+ 本帖最后由 T_Hb 于 2021-9-7 22:10 编辑 
+
+买来第一天就要被撑死了
+
+
