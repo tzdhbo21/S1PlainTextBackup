@@ -11711,3 +11711,15 @@ http://twitter.com/tokino_sora/status/1434909382228074498
 只说数量不说百分比还是不太行，解决的数量还是远远不够，不然七姨太也不会毕业了
 
 
+
+
+*****
+
+####  winda  
+##### 6873#       发表于 2021-9-7 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52642335&amp;ptid=1972669" target="_blank">winda 发表于 2021-9-6 18:37</a></blockquote>
+一个是把各种杂七杂八的处理笼统的全算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">另一个是把两起法的措置，搞索赔的例子给举出来，要说凶其实还是cover更凶点
+
+
