@@ -21,10 +21,20 @@ def getdate(beforeOfDay):
 
 if __name__ == '__main__':
     p = Path(rootpath)
-    threaddict = {}
-    replydict = {}
+    # replydict = {
+    #     '外野':{},
+    #     '漫区':{},
+    #     '游戏区':{},
+    #     '手游区':{},
+    #     '管人区':{},
+    # }
+    replydict = {
+        '外野':{},
+        '游戏区':{},
+        '漫区':{}
+    }
     for file in p.rglob('*.md'):
-        if(('虚拟主播区专楼' not in str(file) ) and ('游戏区专楼' not in str(file))):
+        if(('虚拟主播区专楼' not in str(file) ) and ('手游专楼' not in str(file))):
             print(str(file))
             with open (file, 'r',encoding='UTF-8') as f:
                 lines = f.readlines() 
@@ -56,51 +66,57 @@ if __name__ == '__main__':
                     else:
                         temptimedict[i['time']][i['id']] = 1
                 today = str(getdate(1))
+                if('外野' in str(file)):
+                    board = '外野'
+                elif('漫区' in str(file)):
+                    board = '漫区'
+                elif('游戏区' in str(file)):
+                    board = '游戏区'
+                # elif('手游' in str(file)):
+                #     board = '手游区'
+                # elif('虚拟主播区' in str(file)):
+                #     board = '管人区'
                 if today in temptimedict.keys():
-                    # if today not in threaddict.keys():
-                    #     threaddict[today] = {}
-                    # if threadid not in threaddict[today].keys():
-                    #     threaddict[today][threadid] = 0
-                    # threaddict[today][threadid] = threaddict[today][threadid] + temptimedict[today]['num']
-                    if today not in replydict.keys():
-                        replydict[today] = {}
+                    if today not in replydict[board].keys():
+                        replydict[board][today] = {}
                     for k in temptimedict[today].keys():
-                        if k not in replydict[today].keys():
-                            replydict[today][k] = {}
-                            replydict[today][k]['num'] = 0
-                        if threadid not in replydict[today][k].keys():
-                            replydict[today][k][threadid] = 0
-                        replydict[today][k]['num'] = replydict[today][k]['num'] + temptimedict[today][k]
-                        replydict[today][k][threadid] = replydict[today][k][threadid] + temptimedict[today][k]
-            # for k in list(threaddict.keys()):
-            #     if not threaddict[k]:
-            #         del threaddict[k]
+                        if k not in replydict[board][today].keys():
+                            replydict[board][today][k] = {}
+                            replydict[board][today][k]['num'] = 0
+                        if threadid not in replydict[board][today][k].keys():
+                            replydict[board][today][k][threadid] = 0
+                        replydict[board][today][k]['num'] = replydict[board][today][k]['num'] + temptimedict[today][k]
+                        replydict[board][today][k][threadid] = replydict[board][today][k][threadid] + temptimedict[today][k]
+
+
     rstr = '[b]统计日期：[/b]'
-    rstr = rstr + (datetime.datetime.today()+datetime.timedelta(days=-1)).strftime('%Y年%-m月%-d日')+'\n'
-    rstr = rstr + '[b]该日统计回帖数：[/b]'+str(replydict[today]['num']['num'])+'\n\n'
-    rstr = rstr + '[b]回帖数量前20的帖子：[/b]\n'
-    thdict = replydict[today]['num']
-    thdict.pop('num')
-    threadorder=sorted(thdict.items(),key=lambda x:x[1],reverse=True)
-    namedict = {}
-    replydict1 = replydict
-    replydict1[today].pop('num')
-    for i in replydict1[today].keys():
-        namedict[i] = replydict1[today][i]['num']
-    # namedict.pop('num')
-    nameorder = sorted(namedict.items(),key=lambda x:x[1],reverse=True)
-    with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
-        thdata=json.load(f)
-    for i in range(20):
-        rstr = rstr +str(i+1)+'. [url=https://bbs.saraba1st.com/2b/thread-'+threadorder[i][0]+'-1-1.html]'+thdata[threadorder[i][0]]['title'] +'[/url]（[b]+'+str(threadorder[i][1])+'[/b]）\n'
-    rstr = rstr + '\n' + '[b]回帖数量前20的用户：[/b]\n'
-    for i in range(20):
-        nameth = replydict1[today][nameorder[i][0]]
-        nameth.pop('num')
-        norder = sorted(nameth.items(),key=lambda x:x[1],reverse=True)
-        rstr = rstr +str(i+1)+'. '+str(nameorder[i][0][0])+'****'+str(nameorder[i][0][-1])+'（[b]+'+str(nameorder[i][1]) +'[/b]）：'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['title'] +'[/url]（[b]+'+str(norder[0][1])+'[/b]）\n'
-    rstr = rstr + '\n[color=7c6f64]提示：\n1. 本统计仅包括外野、漫区、游戏区\n[/color]'
-    
+    rstr = rstr + (datetime.datetime.today()+datetime.timedelta(days=-1)).strftime('%Y年%-m月%-d日')+'\n\n'
+    for k in replydict.keys():
+        rstr = rstr + '[b]' + k + '（+'+str(replydict[k][today]['num']['num'])+'）[/b]\n'
+        thdict = replydict[k][today]['num']
+        thdict.pop('num')
+        threadorder=sorted(thdict.items(),key=lambda x:x[1],reverse=True)
+        threadnum = min(len(threadorder),20)
+        rstr = rstr + '[b]回帖数量前'+str(threadnum)+'的帖子：[/b]\n'
+        namedict = {}
+        replydict1 = replydict
+        replydict1[k][today].pop('num')
+        for i in replydict1[k][today].keys():
+            namedict[i] = replydict1[k][today][i]['num']
+        # namedict.pop('num')
+        nameorder = sorted(namedict.items(),key=lambda x:x[1],reverse=True)
+        with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
+            thdata=json.load(f)
+        for i in range(threadnum):
+            rstr = rstr +str(i+1)+'. [url=https://bbs.saraba1st.com/2b/thread-'+threadorder[i][0]+'-1-1.html]'+thdata[threadorder[i][0]]['title'] +'[/url]（[b]+'+str(threadorder[i][1])+'[/b]）\n'
+        rstr = rstr + '\n' + '[b]回帖数量前'+str(threadnum)+'的用户：[/b]\n'
+        for i in range(threadnum):
+            nameth = replydict1[k][today][nameorder[i][0]]
+            nameth.pop('num')
+            norder = sorted(nameth.items(),key=lambda x:x[1],reverse=True)
+            rstr = rstr +str(i+1)+'. '+str(nameorder[i][0][0])+'****'+str(nameorder[i][0][-1])+'（[b]+'+str(nameorder[i][1]) +'[/b]）：'+'[url=https://bbs.saraba1st.com/2b/thread-'+norder[0][0]+'-1-1.html]'+thdata[norder[0][0]]['title'] +'[/url]（[b]+'+str(norder[0][1])+'[/b]）\n'
+        rstr = rstr + '===========\n\n'
+    # print(rstr)
     cookie_str1 = os.getenv('S1_COOKIE')
     cookie_str = repr(cookie_str1)[1:-1]
     cookies = {}
