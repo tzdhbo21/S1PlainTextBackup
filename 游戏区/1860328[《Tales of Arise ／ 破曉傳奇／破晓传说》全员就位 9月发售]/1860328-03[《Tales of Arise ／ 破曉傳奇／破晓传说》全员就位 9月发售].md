@@ -1870,3 +1870,34 @@ xsx版的预载才200多M可还行
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 3155#       发表于 2021-9-7 18:32
+
+
+在皇冠订的，好像老板真进去了，客服一直没回
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ky怪  
+##### 3156#       发表于 2021-9-7 18:47
+
+
+原装和sirana老板进去了，这波只能说是越来越好
+
+
+*****
+
+####  Kojimaru  
+##### 3157#       发表于 2021-9-7 19:08
+
+
+我看a9说原装和皇冠是同一个老板，进橘子了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

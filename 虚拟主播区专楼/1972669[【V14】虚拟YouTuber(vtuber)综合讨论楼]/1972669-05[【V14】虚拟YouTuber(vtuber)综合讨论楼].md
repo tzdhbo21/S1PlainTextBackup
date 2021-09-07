@@ -11850,3 +11850,32 @@ http://twitter.com/tokino_sora/status/1434909382228074498
 火星:vspo要来新人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sgssk  
+##### 6882#       发表于 2021-9-7 20:15
+
+
+[https://www.youtube.com/watch?v=PrG7F_XDPT8](https://www.youtube.com/watch?v=PrG7F_XDPT8)
+
+逆光のフリューゲル (Gyakko no Flugel) - 風鳴翼 × 天羽奏 // covered by 道明寺ここあ
+
+
+道明寺可可亚翻唱的逆光
+<strong>一代目和二代目合唱</strong>
+
+
+*****
+
+####  sgssk  
+##### 6883#       发表于 2021-9-7 20:18
+
+
+我死了，我死了呜呜呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+看到二代目第一个翻唱投稿时就隐隐期待的这一天，居然真的到来了……
+
+

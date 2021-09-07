@@ -1554,3 +1554,27 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">火影起码有一大堆鼬粉吧，你这垫了个什么啊，可能也就是知乎有点人喜欢
 
 
+
+
+*****
+
+####  萝卜roto  
+##### 55614#       发表于 2021-9-7 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52650559&amp;ptid=98922" target="_blank">华丽の蝴蝶 发表于 2021-9-7 12:51</a>
+op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了，却还是怕炸弹或者子弹这类武器 ...</blockquote>
+用行动向偶像致敬啊。看看龙珠超<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hkguty  
+##### 55615#       发表于 2021-9-7 19:14
+
+
+感觉大和上船是不是真的妥了
+
+

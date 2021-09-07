@@ -12768,3 +12768,42 @@ k里版自己也经常吐槽这群人
 nt币的比例高到吓人，最多的时候都到四分之一了
 
 
+
+
+*****
+
+####  stedckk  
+##### 13093#       发表于 2021-9-7 18:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">肚子疼这个人不行。
+
+
+*****
+
+####  stedckk  
+##### 13094#       发表于 2021-9-7 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52644277&amp;ptid=1914409" target="_blank">nian1538 发表于 2021-9-6 21:46</a>
+
+T恤人气排名
+
+实在太虚无了，挂后台了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">昨晚挂后台听老是听到抽鼻子，可又不是在说什么煽情的话，感觉过敏问题变严重了，以前没那么频繁的。
+
+
+*****
+
+####  cctvyt1  
+##### 13095#       发表于 2021-9-7 19:36
+
+
+肚痛那家伙也快精分成乐子人了
+
+最近还拉烤肉圈的朋友出道
+
+
+要是楼友有兴趣可以讲几件ww百鬼群的破事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

@@ -9393,3 +9393,117 @@ https://t.co/mfRDywAd91 https://t.co/1115boRh6t
 阿萨辛你玩的哪作
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2333#       发表于 2021-9-7 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52655165&amp;ptid=2018830" target="_blank">Klience 发表于 2021-9-7 18:39</a>
+
+阿萨辛你玩的哪作</blockquote>
+3，问就是当年没打完，打算打完美同步
+
+
+*****
+
+####  Klience  
+##### 2334#       发表于 2021-9-7 19:25
+
+
+大学玩巫师3 主线通关了 dlc至今还没打完 时间都安排手游 lol 没啥兴致玩单机了  康师傅买了之后动都没动过 三部曲倒是打完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GRMeA104  
+##### 2335#       发表于 2021-9-7 20:12
+
+
+谁奶的睿限<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 2336#       发表于 2021-9-7 20:13
+
+
+前几天谁奶的，是不是最近玩lol就是为了b限
+
+
+*****
+
+####  Klience  
+##### 2337#       发表于 2021-9-7 20:14
+
+
+lol想多了 都快中秋了 八成是歌会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 2338#       发表于 2021-9-7 20:14
+
+
+那就月兔来首
+
+
+*****
+
+####  Ky·Kiske  
+##### 2339#       发表于 2021-9-7 20:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">睿限欢迎，别lol了，我现在看这游戏不爽……
+
+
+*****
+
+####  Cushaw  
+##### 2340#       发表于 2021-9-7 20:15
+
+
+ 本帖最后由 Cushaw 于 2021-9-7 20:16 编辑 
+
+那有没有利好肉体厨的消息<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+syl，不能19号播吗？18号tm还得调休一天<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+*****
+
+####  T_Hb  
+##### 2341#       发表于 2021-9-7 20:20
+
+
+ 本帖最后由 T_Hb 于 2021-9-7 20:22 编辑 
+
+什么，竟然有睿限，是不是家里没米了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 2342#       发表于 2021-9-7 20:24
+
+
+看到暗黑事业民怒批事业民就想笑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  草牛  
+##### 2343#       发表于 2021-9-7 20:26
+
+
+敌我同源是吧
+
+
