@@ -9072,3 +9072,34 @@ QQ图片20210906211451.jpg
 有一说一，最近怕不是被疫苗这事搞的心烦，加上昨天那个来了，这人你要说没点压力不至于，大的爆表那我只能说还能找渠道发泄说明也还凑合，不上不下吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 2307#       发表于 2021-9-7 11:26
+
+
+压力大不如家里挂个沙袋，又锻炼身体又解压
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Klience  
+##### 2308#       发表于 2021-9-7 11:27
+
+
+反正昨晚看她这几手英雄打得 她心烦不烦不知道 我血压倒是起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2309#       发表于 2021-9-7 11:30
+
+
+压力大不如直播倒黑泥，就爱这个
+
+
