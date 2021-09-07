@@ -1650,3 +1650,14 @@ tot 1+2 HD好，正好想重温一遍PS3光驱又坏了
 不知道本作会多周目商店会解禁点什么，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当时TOB的商店拉胯的很，就传统那些继承项目。
 
 
+
+
+*****
+
+####  TerryBlues  
+##### 3136#       发表于 2021-9-7 08:56
+
+
+当初慢悠悠打绯红的一条线都花了40+小时<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">目前看来这作刷刷刷要素还是很充足的，估计这个月的大部分游戏时长都交给万代了。
+
+

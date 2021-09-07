@@ -14398,3 +14398,16 @@ https://www.bilibili.com/video/BV1Hg411577x</blockquote>
 能不能星这就别追了
 
 
+
+
+*****
+
+####  cqc1021  
+##### 4171#       发表于 2021-9-7 08:59
+
+
+看到可可房间里的纸箱我突然有个疑问，真有人出国留学会带这么多行李吗？
+
+—— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
