@@ -1785,3 +1785,45 @@ xsx版的预载才200多M可还行
 第一个PV出的时候我就是这感觉了 目测演出还是那样 平时角色也都是两手左右一摆对话 我只希望在新引擎加持下战斗能做的有深度点
 
 
+
+
+*****
+
+####  4ckc  
+##### 3147#       发表于 2021-9-7 16:55
+
+
+还有四年，我特么没游戏玩了等的好急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  中泽君  
+##### 3148#       发表于 2021-9-7 17:03
+
+
+ 本帖最后由 中泽君 于 2021-9-7 17:06 编辑 
+
+传说的MC评分一直都很难看，万南别只顾着塞fami通，该与时俱进塞白皮了
+
+
+*****
+
+####  Yason  
+##### 3149#       发表于 2021-9-7 17:47
+
+
+怎么不是今晚解锁，刚好明晚开始三天有事<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheOccuria  
+##### 3150#       发表于 2021-9-7 17:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">家里电脑出问题送修了，只好让我的ps4继续服役了
+
+

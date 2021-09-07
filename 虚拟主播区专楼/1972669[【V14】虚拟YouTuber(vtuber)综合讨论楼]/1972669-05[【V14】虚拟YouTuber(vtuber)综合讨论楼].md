@@ -11809,3 +11809,24 @@ http://twitter.com/tokino_sora/status/1434909382228074498
 2021-9-7 16:53 上传
 
 
+
+
+*****
+
+####  qq845629713  
+##### 6879#       发表于 2021-9-7 16:58
+
+
+<img src="https://img.saraba1st.com/forum/202109/07/165737v0zpjxf056of30cx.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210907165643.png</strong> (95.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-7 16:57 上传
+
+
+这家手游公司就比较懂，虽然钱花的多，但人气这块必须拿下
+
+

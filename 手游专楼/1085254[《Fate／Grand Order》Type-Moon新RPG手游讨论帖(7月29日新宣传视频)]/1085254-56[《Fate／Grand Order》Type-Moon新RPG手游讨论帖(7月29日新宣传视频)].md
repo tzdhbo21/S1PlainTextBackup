@@ -9006,3 +9006,32 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 83254#       发表于 2021-9-7 17:28
+
+
+明儿个维护完以后，支援编成要多开一个格子
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  exiaexa  
+##### 83255#       发表于 2021-9-7 17:47
+
+
+支援格子+1
+
+支援总配置数量从2变成3
+
+
+希望最后能变成GBF那种，可以搜索到每个人的两组配置
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+

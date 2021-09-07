@@ -14793,3 +14793,266 @@ YouTubeでも公開いたしました📺
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">别多提，知道的有条件去t点个举报就行了，这种蛆喷他都嫌浪费键盘耐久
 
 
+
+
+*****
+
+####  优妮可  
+##### 4202#       发表于 2021-9-7 16:54
+
+
+发蓝鸟那个，把家人信息住址这些全爆出来了，看来挖得出不多了。这蓝鸟是国人发的，烂铁要在这边报警么。
+
+
+*****
+
+####  cybernetics31  
+##### 4203#       发表于 2021-9-7 16:58
+
+
+信息是国内小鬼搞的，甚至还有个黑鲤鱼专用群………………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蜜梨柑  
+##### 4204#       发表于 2021-9-7 17:00
+
+
+报警就完事了，小鬼们该接受铁拳教育了
+
+
+*****
+
+####  优妮可  
+##### 4205#       发表于 2021-9-7 17:03
+
+
+好家伙，小鬼来贴吧跳脸了。
+
+
+*****
+
+####  黑雪姫  
+##### 4206#       发表于 2021-9-7 17:07
+
+
+鲤鱼从一开始就这么招墙内墙外某些生物恶意信息泄露不是早晚，还不如说他们怎么得到的信息？警务通？不查查内鬼吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过看样鲤鱼也真没啥黑料，要不他们早开花了，也就只能爆爆个人信息和家庭地址了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+蓝鸟那个还拿烂铁招人年龄来说事的，不知道22岁的限制只限海选，鲤鱼属于公司推荐，根本没这限制。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Type0  
+##### 4207#       发表于 2021-9-7 17:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52653974&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-7 17:07</a>
+鲤鱼从一开始就这么招墙内墙外某些生物恶意信息泄露不是早晚，还不如说他们怎么得到的信息？警务通？不查查 ...</blockquote>
+开盒这种事情向来都是靠内鬼的吧......
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  优妮可  
+##### 4208#       发表于 2021-9-7 17:11
+
+
+父母老人辈的信息也有挖，唉明天还有生放，希望不要因此受到影响。
+
+
+*****
+
+####  cybernetics31  
+##### 4209#       发表于 2021-9-7 17:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">…………小鬼们自己组了个群，有400多人………………
+
+
+*****
+
+####  Norkey1  
+##### 4210#       发表于 2021-9-7 17:17
+
+
+不是，对本国人都这么不宽容吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+更何况人家还是去赚日本人的钱
+
+
+*****
+
+####  itsmyrailgun  
+##### 4211#       发表于 2021-9-7 17:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几页我就说过了，别理暗世纪，越理越跳。
+
+
+*****
+
+####  寒风夜  
+##### 4212#       发表于 2021-9-7 17:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。真可怕真可怕
+
+
+*****
+
+####  黑雪姫  
+##### 4213#       发表于 2021-9-7 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52654098&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-9-7 17:17</a>
+
+不是，对本国人都这么不宽容吗
+
+更何况人家还是去赚日本人的钱</blockquote>
+你对恨国蛆有什么幻想吗？ 他们是反鲤鱼还是反别的什么你自己心里不清楚吗？
+
+
+*****
+
+####  型月重工  
+##### 4214#       发表于 2021-9-7 17:26
+
+
+ 本帖最后由 型月重工 于 2021-9-7 17:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52654098&amp;ptid=1909972" target="_blank">Norkey1 发表于 2021-9-7 17:17</a>
+
+不是，对本国人都这么不宽容吗
+
+更何况人家还是去赚日本人的钱</blockquote>
+正是因为鲤鱼是中国人它们才黑的，你先搞明白它们在黑什么<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+不管是鲤鱼还是唐可可，换个国籍它们保证不黑啧啧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a92063256  
+##### 4215#       发表于 2021-9-7 17:32
+
+
+一看到这帮蛆出来跳我甚至都感觉有点反胃
+
+
+*****
+
+####  chenflyyy  
+##### 4216#       发表于 2021-9-7 17:36
+
+
+暗世纪的恶名算是早有耳闻了，怎么现在又出来跳，真恶心<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 4217#       发表于 2021-9-7 17:45
+
+
+不是 又是那个暗世纪？<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+艹 那可真是呕了
+
+
+*****
+
+####  ads147147  
+##### 4218#       发表于 2021-9-7 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52653974&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-7 17:07</a>
+鲤鱼从一开始就这么招墙内墙外某些生物恶意信息泄露不是早晚，还不如说他们怎么得到的信息？警务通？不查查 ...</blockquote>
+硬要说，基层这块基本就是漏斗，估计是找了那个傻逼内鬼用之前网易的泄露真名查的，只能看烂铁发律师函了。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  阿姆罗二世  
+##### 4219#       发表于 2021-9-7 18:00
+
+
+恨国蛆真的恶心
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  D麦林  
+##### 4220#       发表于 2021-9-7 18:03
+
+
+<img src="https://p.sda1.dev/2/1752019bafb6a0c5940ab180b9a4767b/IMG_CMP_257655999.jpeg" referrerpolicy="no-referrer">
+隔壁看到的
+所以那个400人anti群有信源吗
+这看起来有组织有预谋的
+
+
+*****
+
+####  lj205  
+##### 4221#       发表于 2021-9-7 18:04
+
+
+某种程度来说鲤鱼经得起黑，顶住，气死这帮蛆虫
+
+
+*****
+
+####  chenflyyy  
+##### 4222#       发表于 2021-9-7 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52654736&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-7 18:03</a>
+隔壁看到的
+所以那个400人anti群有信源吗
+这看起来有组织有预谋的</blockquote>
+那人在贴吧钓鱼就放着群号，看看能不能去举报这群
+
+
+*****
+
+####  D麦林  
+##### 4223#       发表于 2021-9-7 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52654784&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-7 18:07</a>
+那人在贴吧钓鱼就放着群号，看看能不能去举报这群</blockquote>
+那人在贴吧放的群才17个人
+我说400人群太恐怖了
+
+
+*****
+
+####  优妮可  
+##### 4224#       发表于 2021-9-7 18:09
+
+
+记得人肉早就是犯罪行为了吧，他们人均境外么，这么猖狂。
+
+
+*****
+
+####  chenflyyy  
+##### 4225#       发表于 2021-9-7 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52654790&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-7 18:08</a>
+那人在贴吧放的群才17个人
+我说400人群太恐怖了</blockquote>
+那群是有400多人，你看到的17是管理员人数
+
+

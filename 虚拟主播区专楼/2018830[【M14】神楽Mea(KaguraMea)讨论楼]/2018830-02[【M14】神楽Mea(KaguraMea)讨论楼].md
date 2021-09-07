@@ -9234,3 +9234,101 @@ https://t.co/mfRDywAd91 https://t.co/1115boRh6t
 真几把晦气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  yywzjsw  
+##### 2319#       发表于 2021-9-7 16:54
+
+
+油管要30w了？我都没关注
+
+
+*****
+
+####  Klience  
+##### 2320#       发表于 2021-9-7 16:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2321#       发表于 2021-9-7 16:58
+
+
+不玩待会儿睡过头了怎么办，多玩玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JY要塞  
+##### 2322#       发表于 2021-9-7 17:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么不是吃到上播
+
+
+*****
+
+####  Klience  
+##### 2323#       发表于 2021-9-7 17:11
+
+
+就不能边打边吃吗 玩猫直接挂在队友上挂机 然后车队带飞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2324#       发表于 2021-9-7 17:43
+
+
+30w还得16*8=128天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 2325#       发表于 2021-9-7 17:51
+
+
+长文困惑不安desu，我嘲讽下猪逼的猪逼操作没什么问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+网游废人抱着lol不放也是服了…全霓虹可能就你麻一个真打lol的立本人了
+
+
+*****
+
+####  T_Hb  
+##### 2326#       发表于 2021-9-7 17:52
+
+
+她的车队就不算日本人了吗
+
+
+*****
+
+####  时间在我手中  
+##### 2327#       发表于 2021-9-7 17:55
+
+
+不是，你是不是对端游大环境有什么误解
+
+这年头日本本土游戏市场大头是什么你再想想？
+
+你难不成指望吊人给你天天排apex？吃鸡类游戏直播，一半时间观众是被动坐牢看国宴这种事需要我详细解释吗？
+
+
+*****
+
+####  Klience  
+##### 2328#       发表于 2021-9-7 17:59
+
+
+吃鸡类游戏算了吧 以这人的技术 不是在送快递就是在送快递的路上 她播什么竞技类游戏都没有观赏性的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
