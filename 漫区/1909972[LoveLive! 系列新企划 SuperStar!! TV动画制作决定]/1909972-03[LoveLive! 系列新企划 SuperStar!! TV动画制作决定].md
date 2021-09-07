@@ -14635,3 +14635,46 @@ YouTubeでも公開いたしました📺
 大概这样
 
 
+
+
+*****
+
+####  JustW  
+##### 4189#       发表于 2021-9-7 14:51
+
+
+ 本帖最后由 JustW 于 2021-9-7 14:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52651898&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-7 14:48</a>
+
+我理一下时间线
+
+她们到岛上1天，当天晚上泡温泉；第2天锻炼，当天晚上看星星然后鲨鱼牙谈话；第3天卡农回东 ...</blockquote>
+我觉得在第三天比赛后到第四天live前补几个镜头（哪怕配着bgm闪几张PPT呢，出结果一张，千香喜极而泣一张，坐船回岛一张，可堇会心一笑一张，四人商议排练一张），就能提升不少观感，或许他们觉得这种一转live很cooooool吧（
+
+
+*****
+
+####  lj205  
+##### 4190#       发表于 2021-9-7 14:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52651934&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-7 14:51</a>
+
+我觉得在第三天比赛后到第四天live前补几个镜头，就能提升不少观感，或许他们觉得这种一转live很cooooool ...</blockquote>
+其实吧………………霸凌镜头少点补到4人互动镜头里，观感就好多
+
+说点欠扁的，我当时看直播的时候就感觉青梅竹马镜头太拖拉了
+
+
+*****
+
+####  stevenzero  
+##### 4191#       发表于 2021-9-7 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52651777&amp;ptid=1909972" target="_blank">iuhehc 发表于 2021-9-7 14:40</a>
+我觉得比赛live根本就不是一天，中间有个理事长拿着转科届的镜头，这里应该就是给观众交代的时间转折但是 ...</blockquote>
+嗯，想想确实是，隔了一天合理多了。
+中间真的不应该拿理事长做转场，用个夜景比如加农小千月下对谈或者四人一起看月亮的画面就能让人直观感觉又过去了一天。
+
+
