@@ -2274,3 +2274,16 @@ You gave me anything？
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  宇宙驼鹿  
+##### 193#       发表于 2021-9-8 01:37
+
+
+没赶上神回，八海小黄鱼是什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
