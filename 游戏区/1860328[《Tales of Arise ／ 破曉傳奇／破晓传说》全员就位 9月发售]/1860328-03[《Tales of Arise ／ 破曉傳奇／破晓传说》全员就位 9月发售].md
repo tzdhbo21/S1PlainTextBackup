@@ -3871,3 +3871,14 @@ ps5正式版帧数模式还是那么糊吗？
 xbox版为啥没有联动服装那个dlc，多了个典藏服装和道具同捆。。是不是临时工上错架啊，ps那边是正常的草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  喵喵叫的猫  
+##### 3328#       发表于 2021-9-9 02:53
+
+
+这dlc和豪华版送的都好强
+
+
