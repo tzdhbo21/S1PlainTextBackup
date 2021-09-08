@@ -15492,3 +15492,16 @@ miki是单人还是顶替吧，和团舞加人不一样
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">年轻人的第一次nico评分，90我甚至都觉得有点高，前面几个团的评分哪有这么高
 
 
+
+
+*****
+
+####  优妮可  
+##### 4266#       发表于 2021-9-8 12:07
+
+
+ 本帖最后由 优妮可 于 2021-9-8 12:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">就第一集七十多，后面几集都有八九十了。
+
+
