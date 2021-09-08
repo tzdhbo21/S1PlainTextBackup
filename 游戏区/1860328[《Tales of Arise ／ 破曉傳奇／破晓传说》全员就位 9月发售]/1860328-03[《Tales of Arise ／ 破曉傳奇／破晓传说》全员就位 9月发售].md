@@ -2806,3 +2806,658 @@ PS日服今晚11點(看倒數)
 解锁了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  heseran  
+##### 3233#       发表于 2021-9-8 22:03
+
+
+A9的测评出来了，说是50-60小时的流程
+
+
+*****
+
+####  DKD  
+##### 3234#       发表于 2021-9-8 22:04
+
+
+steam可以预载了 PC平台的兄弟们记得预载
+
+
+*****
+
+####  stoiorz  
+##### 3235#       发表于 2021-9-8 22:06
+
+
+请问ps5 有特殊按键适配吗
+
+
+----发送自 [Xiaomi M2012K11C,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3236#       发表于 2021-9-8 22:06
+
+
+有没有大佬解答下需不需要赶预购拿特典，我demo没玩明白还不是很放心质量
+
+
+*****
+
+####  laoz  
+##### 3237#       发表于 2021-9-8 22:10
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/221027g1dqwqj83b1z77e8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (76.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 22:10 上传
+
+
+*****
+
+####  qiyu1234  
+##### 3238#       发表于 2021-9-8 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672139&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-8 22:06</a>
+
+有没有大佬解答下需不需要赶预购拿特典，我demo没玩明白还不是很放心质量</blockquote>
+这个预购特典啊，官方下面有说明，未来可能会单卖
+
+倒不是一定要急于买，但是如果1个月内做决定的话 可能特典不会那么快上架
+
+
+*****
+
+####  Dashuaibi  
+##### 3239#       发表于 2021-9-8 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672192&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-8 22:10</a></blockquote>
+吹这么高有点不适应啊
+
+
+*****
+
+####  LMBS  
+##### 3240#       发表于 2021-9-8 22:12
+
+
+艹
+
+真敢塞
+
+
+
+
+*****
+
+####  ff2077  
+##### 3241#       发表于 2021-9-8 22:12
+
+
+ 本帖最后由 ff2077 于 2021-9-8 22:14 编辑 
+
+为啥我这mc里面分数没刷出来，出来了，起飞<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 3242#       发表于 2021-9-8 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672192&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-8 22:10</a></blockquote>
+不敢相信，难道万南钱给够了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  sad6504  
+##### 3243#       发表于 2021-9-8 22:13
+
+
+卧槽89<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SAKURAJIMA  
+##### 3244#       发表于 2021-9-8 22:14
+
+
+89？<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laoz  
+##### 3245#       发表于 2021-9-8 22:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/08/221448rhhe9y9wje8indx8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (35.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 22:14 上传
+
+
+*****
+
+####  fmban  
+##### 3246#       发表于 2021-9-8 22:15
+
+
+馋死了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rt7539515  
+##### 3247#       发表于 2021-9-8 22:16
+
+
+这么高啊
+
+
+*****
+
+####  rt7539515  
+##### 3248#       发表于 2021-9-8 22:16
+
+
+这么高啊
+
+
+*****
+
+####  八汰乌  
+##### 3249#       发表于 2021-9-8 22:17
+
+
+有人说说GS扣分点是什么吗？
+
+
+*****
+
+####  D-JoeII  
+##### 3250#       发表于 2021-9-8 22:17
+
+
+89這麽厲害
+
+
+*****
+
+####  ff2077  
+##### 3251#       发表于 2021-9-8 22:18
+
+
+gs说了叙事的节奏和dlc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还有貌似是战斗的平衡问题？
+
+
+*****
+
+####  rt7539515  
+##### 3252#       发表于 2021-9-8 22:19
+
+
+a9给了9分，a9的jrpg我还是比较信的
+
+
+*****
+
+####  无动于衷  
+##### 3253#       发表于 2021-9-8 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672305&amp;ptid=1860328" target="_blank">八汰乌 发表于 2021-9-8 22:17</a>
+
+有人说说GS扣分点是什么吗？</blockquote>
+缺点：战斗显得过于庞杂；剧情在某些节点似乎推进太快；DLC的存在让你质疑游戏的某些设计
+
+
+*****
+
+####  Lisylfn  
+##### 3254#       发表于 2021-9-8 22:19
+
+
+草，gs意思是DLC包算pay to win氪金内购？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hentianwuya  
+##### 3255#       发表于 2021-9-8 22:19
+
+
+已经被GS的分给拉低到87了。。。GS权重这么大？一己之力拉低2分我草。。
+
+
+*****
+
+####  zero12  
+##### 3256#       发表于 2021-9-8 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672328&amp;ptid=1860328" target="_blank">无动于衷 发表于 2021-9-8 22:19</a>
+
+缺点：战斗显得过于庞杂；剧情在某些节点似乎推进太快；DLC的存在让你质疑游戏的某些设计 ...</blockquote>
+gs的缺点不痛不痒啊，dlc什么鬼，不就是官方金手指吗，不想用不用啊。
+
+
+*****
+
+####  laoz  
+##### 3257#       发表于 2021-9-8 22:23
+
+
+GS还觉得boss战比杂兵难，这不是废话吗
+
+
+*****
+
+####  yufeng029  
+##### 3258#       发表于 2021-9-8 22:23
+
+
+二饼的评测和a9一对比，就知道谁是专业的了
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3259#       发表于 2021-9-8 22:23
+
+
+啊这么高，看来还是可以买的，只是只能在pro上玩有点可惜
+
+
+*****
+
+####  qiyu1234  
+##### 3260#       发表于 2021-9-8 22:25
+
+
+31媒体88分
+
+还往上拉回来1分
+
+
+不过IGN GI都还没给分
+
+
+*****
+
+####  齿轮轴君  
+##### 3261#       发表于 2021-9-8 22:25
+
+
+X盒子版有楼友解锁了吗？我这切到日区还是没到时间
+
+
+*****
+
+####  光与暗的转生  
+##### 3262#       发表于 2021-9-8 22:26
+
+
+gs嫌战斗太复杂给七分把我逗乐了
+
+
+*****
+
+####  415452356  
+##### 3263#       发表于 2021-9-8 22:27
+
+
+  好急，明天不用干活可以专心打一整天，今晚估计要打到天亮了。
+
+
+*****
+
+####  roxassix  
+##### 3264#       发表于 2021-9-8 22:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672425&amp;ptid=1860328" target="_blank">齿轮轴君 发表于 2021-9-8 22:25</a>
+X盒子版有楼友解锁了吗？我这切到日区还是没到时间</blockquote>
+没有 购买页面写的9号 
+
+
+*****
+
+####  Rainwedell  
+##### 3265#       发表于 2021-9-8 22:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672392&amp;ptid=1860328" target="_blank">yufeng029 发表于 2021-9-8 22:23</a>
+二饼的评测和a9一对比，就知道谁是专业的了</blockquote>
+二柄废话太多。。不过gs这理由二柄倒是提到了，洛那边剧本估计处理有问题，道具dlc也能喷我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qiyu1234  
+##### 3266#       发表于 2021-9-8 22:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672433&amp;ptid=1860328" target="_blank">光与暗的转生 发表于 2021-9-8 22:26</a>
+
+gs嫌战斗太复杂给七分把我逗乐了</blockquote>
+看我3171楼发的内容
+
+很显然GS没拿到钱啊
+
+
+而且那个视频下面还有预言家
+
+
+*****
+
+####  hypnossz86  
+##### 3267#       发表于 2021-9-8 22:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672107&amp;ptid=1860328" target="_blank">DKD 发表于 2021-9-8 22:04</a>
+
+steam可以预载了 PC平台的兄弟们记得预载</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">steam真的不推荐预载
+
+解压时间比解锁后下载时间长的多......
+
+
+*****
+
+####  LMBS  
+##### 3268#       发表于 2021-9-8 22:32
+
+
+现在MC里面就只有GS一个黄色
+
+
+*****
+
+####  wjbdasd  
+##### 3269#       发表于 2021-9-8 22:32
+
+
+ps4版拉走了两个低分
+
+
+*****
+
+####  whzfjk  
+##### 3270#       发表于 2021-9-8 22:32
+
+
+我觉得 GS 肯定是因为切场景和空气墙在内心划了一条线，只是不方便说出来，优点很突出但还没到改命的程度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  DKD  
+##### 3271#       发表于 2021-9-8 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672499&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-8 22:31</a>
+
+steam真的不推荐预载
+
+解压时间比解锁后下载时间长的多......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">已经下完了 晕
+
+
+*****
+
+####  桧山修之  
+##### 3272#       发表于 2021-9-8 22:33
+
+
+战斗系统复杂扣分？那当年xb2 gs打了多少分？
+
+
+*****
+
+####  oniwarud  
+##### 3273#       发表于 2021-9-8 22:34
+
+
+<blockquote>桧山修之 发表于 2021-9-8 22:33
+战斗系统复杂扣分？那当年xb2 gs打了多少分？</blockquote>
+一样的分，xbde是9
+
+
+*****
+
+####  laoz  
+##### 3274#       发表于 2021-9-8 22:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672523&amp;ptid=1860328" target="_blank">桧山修之 发表于 2021-9-8 22:33</a>
+
+战斗系统复杂扣分？那当年xb2 gs打了多少分？</blockquote>
+也是7分
+
+
+*****
+
+####  heseran  
+##### 3275#       发表于 2021-9-8 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672523&amp;ptid=1860328" target="_blank">桧山修之 发表于 2021-9-8 22:33</a>
+
+战斗系统复杂扣分？那当年xb2 gs打了多少分？</blockquote>
+好像也是7分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D-JoeII  
+##### 3276#       发表于 2021-9-8 22:36
+
+
+其實點MC的其他版本會發現還有幾個不到80分的只是被排到其他版本去了，有興趣可以去看看說了啥
+
+
+*****
+
+####  Chia  
+##### 3277#       发表于 2021-9-8 22:36
+
+
+端水大师了
+
+
+不过即时动作系统的复杂是很显著的，像仁王2玩起来就挺费神。
+
+
+*****
+
+####  桧山修之  
+##### 3278#       发表于 2021-9-8 22:38
+
+
+那还挺公平的呀，我就不相信破晓的战斗系统会比xb2复杂，最终章还能有战斗教学，我也是第一次见
+
+
+*****
+
+####  乔西  
+##### 3279#       发表于 2021-9-8 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672268&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-8 22:14</a>
+最低分是gs打的https://www.gamespot.com/reviews/tales-of-arise-review-wake-me-up-inside/1900-6 ...</blockquote>
+gs这差评原因相当于啥也没说啊
+
+
+*****
+
+####  Rainwedell  
+##### 3280#       发表于 2021-9-8 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672543&amp;ptid=1860328" target="_blank">heseran 发表于 2021-9-8 22:35</a>
+好像也是7分</blockquote>
+一碗水端平了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  光与暗的转生  
+##### 3281#       发表于 2021-9-8 22:39
+
+
+op那么水的答案原来是还有一个op2
+
+
+*****
+
+####  02031f84  
+##### 3282#       发表于 2021-9-8 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672532&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-8 22:34</a>
+
+一样的分，xbde是9</blockquote>
+xb1不比xb2复杂多了？怎么没扣
+
+
+*****
+
+####  乔西  
+##### 3283#       发表于 2021-9-8 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672425&amp;ptid=1860328" target="_blank">齿轮轴君 发表于 2021-9-8 22:25</a>
+X盒子版有楼友解锁了吗？我这切到日区还是没到时间</blockquote>
+日区是北京23点解锁
+
+
+*****
+
+####  oniwarud  
+##### 3284#       发表于 2021-9-8 22:41
+
+
+<blockquote>02031f84 发表于 2021-9-8 22:40
+xb1不比xb2复杂多了？怎么没扣</blockquote>
+xbde的ui和引导要舒服太多了，本来就是吸收了xb2评价不好的地方来改的
+
+
+*****
+
+####  whzfjk  
+##### 3285#       发表于 2021-9-8 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672523&amp;ptid=1860328" target="_blank">桧山修之 发表于 2021-9-8 22:33</a>
+
+战斗系统复杂扣分？那当年xb2 gs打了多少分？</blockquote>
+7
+
+
+The Good:
+
+- A deep combat system with a high ceiling for expert play
+
+
+toar 的 gs 扣分点看起来有点不着调，而 xb2 的则可以称得上惨烈了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 3286#       发表于 2021-9-8 22:44
+
+
+我觉得其实没必要太在意GS对这俩JRPG游戏的评分
+
+GS又不是只有一个编辑
+
+如果你觉得他是在扯淡，那么他就是在放屁
+
+
+*****
+
+####  齿轮轴君  
+##### 3287#       发表于 2021-9-8 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672629&amp;ptid=1860328" target="_blank">乔西 发表于 2021-9-8 22:41</a>
+
+日区是北京23点解锁</blockquote>
+多谢了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fateultraone  
+##### 3288#       发表于 2021-9-8 22:49
+
+
+稳了，jrpg欧美评分都还可以，pc版要明天
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3289#       发表于 2021-9-8 22:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我对剧情整体也没什么期望，绚香那歌响起的时候够动人能打动我就行
+
+
+*****
+
+####  Yason  
+##### 3290#       发表于 2021-9-8 22:57
+
+
+睡觉，明早六点起床战斗<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 3291#       发表于 2021-9-8 22:57
+
+
+支线没有时限是好文明
+
+
+*****
+
+####  NorLaTu  
+##### 3292#       发表于 2021-9-8 23:01
+
+
+解禁了，开摆！
+
+

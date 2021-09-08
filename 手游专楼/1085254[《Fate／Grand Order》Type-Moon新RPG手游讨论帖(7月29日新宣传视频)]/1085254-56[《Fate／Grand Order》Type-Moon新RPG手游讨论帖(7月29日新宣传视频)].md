@@ -11125,3 +11125,139 @@ md箱子开不了怎么推活动，dw还能再废物点吗<img src="https://stat
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜了 晚出了3年
 
 
+
+
+*****
+
+####  areklose  
+##### 83447#       发表于 2021-9-8 22:13
+
+
+阿清真是好看阿。比起原版强太多。越看越爱
+
+
+*****
+
+####  シャル  
+##### 83448#       发表于 2021-9-8 22:18
+
+
+ 本帖最后由 シャル 于 2021-9-8 22:20 编辑 
+
+这次出货很容易啊
+
+
+30连2安娜1总司，45礼装都有了
+
+
+石头根本用不掉
+
+
+微信图片_20210908221238.png
+(629.47 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-8 22:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/221839plc4h8z06hiqch00.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 83449#       发表于 2021-9-8 22:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼内非洲人已经顺着网线过去了
+
+
+*****
+
+####  khxooo  
+##### 83450#       发表于 2021-9-8 22:22
+
+
+DW是不是SB，怎么开不了箱子，开不了就算了，选了开箱那里又不能退出，只能重开<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83451#       发表于 2021-9-8 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672375&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-9-8 22:22</a>
+
+DW是不是SB，怎么开不了箱子，开不了就算了，选了开箱那里又不能退出，只能重开 ...</blockquote>
+我前面就说了 这么久了还没修复 怕不是回家睡大觉了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 83452#       发表于 2021-9-8 22:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672361&amp;ptid=1085254" target="_blank">zore 发表于 2021-9-8 22:21</a>
+
+楼内非洲人已经顺着网线过去了</blockquote>
+极大成功抽卡试试呗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83453#       发表于 2021-9-8 22:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然而我CBA已经15绊了，绿卡全部死刑（
+
+
+*****
+
+####  yangun22  
+##### 83454#       发表于 2021-9-8 22:44
+
+
+居然有bug不能开宝箱，剧情进行不下去了，这技术力我服了
+
+
+*****
+
+####  alucardcz  
+##### 83455#       发表于 2021-9-8 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672662&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-9-8 22:44</a>
+
+居然有bug不能开宝箱，剧情进行不下去了，这技术力我服了</blockquote>
+快调查了3个小时了。。盲猜一个明天上班后才能修复<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83456#       发表于 2021-9-8 22:57
+
+
+你游这热度怎么从周年后就越来越看不懂了，奥伯龙40w推，摩根复刻都10w推，现在一个泳装活动，剧情都没开多少，还能有37w推？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/2de7c2fc85459cb080faed618ef0d49a/IMG_20210908_225456.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83457#       发表于 2021-9-8 23:02
+
+
+ 本帖最后由 zakki 于 2021-9-8 23:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671942&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 21:54</a>
+魔总是按白字算的？</blockquote>
+其实也就那样，只看单卡强度这技能跟呆毛村正伊吹比都不行，更别说其他更泛用的红卡蓝卡，跟伯爵比是爆杀了，但有什么用呢。。。和妖兰的技能组对比看就会发现完全就是两个时代不像是同一年出来的卡。。
+
+
