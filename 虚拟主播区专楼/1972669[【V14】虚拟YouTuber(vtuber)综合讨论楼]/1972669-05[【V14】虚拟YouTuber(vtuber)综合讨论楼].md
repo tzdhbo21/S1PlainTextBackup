@@ -12329,3 +12329,28 @@ mashiro其实不意外的，不如说如果口了还在，以她们那个组的�
 说到kr组，我一直挺不明白彩虹的海外发展顺序。一般来说世界前三大市场英汉西，除此之外对V这种发源于日式二次元文化接受程度比较高的，主要也就东亚东南亚了，而东南亚这块也应该首选第四人口大国印尼，彩虹先搞了印度和韩国组是啥用意呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  noHentai  
+##### 6913#       发表于 2021-9-9 02:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52674392&amp;ptid=1972669" target="_blank">free 发表于 2021-9-9 02:14</a>
+说到kr组，我一直挺不明白彩虹的海外发展顺序。一般来说世界前三大市场英汉西，除此之外对V这种发源于日式 ...</blockquote>
+虽然但是，不算什么2434台北之类的，你虹第一个正式海外分部是印尼啊......
+
+
+*****
+
+####  free  
+##### 6914#       发表于 2021-9-9 02:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52674435&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-9-9 02:34</a>
+
+虽然但是，不算什么2434台北之类的，你虹第一个正式海外分部是印尼啊...... ...</blockquote>
+维阿要算的话应该是第一个，然后是id-in-kr-en的顺序，我就是想说为啥en出这么晚......in和kr有啥用，想法开发开发西语市场大概都比in和kr强
+
+
