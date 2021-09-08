@@ -15505,3 +15505,93 @@ miki是单人还是顶替吧，和团舞加人不一样
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">就第一集七十多，后面几集都有八九十了。
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4267#       发表于 2021-9-8 12:25
+
+
+无印一期
+
+<img src="https://img.saraba1st.com/forum/202109/08/122344w2al77tu2wc22dl5.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (66.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 12:23 上传
+
+
+无印二期
+
+<img src="https://img.saraba1st.com/forum/202109/08/122359bxounxdoxosmbdmi.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (63.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 12:23 上传
+
+
+水一期
+
+<img src="https://img.saraba1st.com/forum/202109/08/122414kjx2tsbggdmbgtxd.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (68.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 12:24 上传
+
+
+水二期
+
+<img src="https://img.saraba1st.com/forum/202109/08/122424ktektkhth537kata.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (66.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 12:24 上传
+
+
+虹一期
+
+<img src="https://img.saraba1st.com/forum/202109/08/122434wfccemcn1llvaj5c.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (67.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 12:24 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">上面大概是我记忆错乱了，其实除了水二期，评分都还是可以的
+
+
+*****
+
+####  Goisdust  
+##### 4268#       发表于 2021-9-8 12:28
+
+
+nico评分掉到8字头就是挺一般了。。
+
+
+*****
+
+####  Piano-Forest  
+##### 4269#       发表于 2021-9-8 12:47
+
+
+[https://twitter.com/ni_tamagoEX/status/1435445286504181767](https://twitter.com/ni_tamagoEX/status/1435445286504181767)
+<img src="https://p.sda1.dev/2/5e87cf4a796ff5f97a676f81a3d38d44/20210908_124706.jpg" referrerpolicy="no-referrer">
+
+

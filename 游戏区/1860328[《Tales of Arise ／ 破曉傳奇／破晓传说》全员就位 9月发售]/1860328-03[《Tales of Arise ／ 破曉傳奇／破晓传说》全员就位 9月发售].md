@@ -2341,3 +2341,35 @@ ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优�
 社畜时间危机<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  苇原雪道  
+##### 3194#       发表于 2021-9-8 12:40
+
+
+大家再见～打完前我就不进游戏区了～
+
+
+*****
+
+####  qiyu1234  
+##### 3195#       发表于 2021-9-8 12:44
+
+
+发售之前,4GAMER做了个从TOP到TOB的传说主要作品的战斗系统沿革回顾
+[https://www.4gamer.net/games/566/G056676/20210824075/](https://www.4gamer.net/games/566/G056676/20210824075/)
+
+
+*****
+
+####  BallanceHZ  
+##### 3196#       发表于 2021-9-8 12:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52661899&amp;ptid=1860328" target="_blank">swordofsoul1 发表于 2021-9-8 10:31</a>
+ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优化</blockquote>
+反正demo是会掉帧的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

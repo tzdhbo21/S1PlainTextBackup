@@ -12902,3 +12902,49 @@ ww还有这破事？好好的摇人去全熟不好？</blockquote>
 FAMH联动估计就这两天的事情了
 
 
+
+
+*****
+
+####  s32244153  
+##### 13103#       发表于 2021-9-8 12:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52663343&amp;ptid=1914409" target="_blank">stedckk 发表于 2021-9-8 12:05</a>
+
+那人干嘛了被冲？</blockquote>
+收钱、抢坑、当人上人、举报黑其他烤肉吧
+
+基本上就是复刻汉化组那套玩意 看多了都会背了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stedckk  
+##### 13104#       发表于 2021-9-8 13:08
+
+
+两岸一家亲捏
+
+
+*****
+
+####  cctvyt1  
+##### 13105#       发表于 2021-9-8 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52663343&amp;ptid=1914409" target="_blank">stedckk 发表于 2021-9-8 12:05</a>
+
+那人干嘛了被冲？</blockquote>
+被内鬼爆料在DC喷观众nt  别的频道烤得快就开小号攻击 开了收益组员还讨论怎么花
+
+
+*****
+
+####  Fami水  
+##### 13106#       发表于 2021-9-8 13:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牛逼，都是一种循环
+
+
