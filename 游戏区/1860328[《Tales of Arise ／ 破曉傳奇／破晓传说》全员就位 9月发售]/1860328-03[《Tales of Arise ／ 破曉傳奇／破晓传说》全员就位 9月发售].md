@@ -3910,3 +3910,17 @@ xbox版为啥没有联动服装那个dlc，多了个典藏服装和道具同捆�
 啥意思，这游戏还逼着买豪华版？
 
 
+
+
+*****
+
+####  BRRM  
+##### 3331#       发表于 2021-9-9 05:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52674581&amp;ptid=1860328" target="_blank">市松椿 发表于 2021-9-9 04:44</a>
+
+啥意思，这游戏还逼着买豪华版？</blockquote>
+不作弊就不会打游戏了么.
+
+
