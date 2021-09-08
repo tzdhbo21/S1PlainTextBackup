@@ -12842,3 +12842,21 @@ T恤人气排名
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ww还有这破事？好好的摇人去全熟不好？
 
 
+
+
+*****
+
+####  collasong  
+##### 13099#       发表于 2021-9-8 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52655377&amp;ptid=1914409" target="_blank">stedckk 发表于 2021-9-7 18:57</a>
+
+肚子疼这个人不行。</blockquote>
+当初holo出事就发了yygq的“声明”
+
+前段时间好像又有个yygq的“声明”
+
+怕是早橄榄了
+
+

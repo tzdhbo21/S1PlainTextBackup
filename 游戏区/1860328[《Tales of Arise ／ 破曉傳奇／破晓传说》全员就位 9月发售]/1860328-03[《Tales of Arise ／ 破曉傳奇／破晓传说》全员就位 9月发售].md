@@ -2171,3 +2171,66 @@ Xbox商店出了新的文物dlc
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  izayoi39  
+##### 3179#       发表于 2021-9-8 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52661706&amp;ptid=1860328" target="_blank">江少寒 发表于 2021-9-8 10:16</a>
+请问怎么确认自动下载的是ps5还是ps4版？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+看游戏大小，50+的是ps4版，37的是ps5版。或者在游戏开始的地方点更多会显示其他版本，其他里有ps4版下载的就是ps5版，其他里有ps5版下载的就是ps4版
+
+
+*****
+
+####  mashav  
+##### 3180#       发表于 2021-9-8 10:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52661706&amp;ptid=1860328" target="_blank">江少寒 发表于 2021-9-8 10:16</a>
+
+请问怎么确认自动下载的是ps5还是ps4版？
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+看文件大小，PS4版比PS5版大
+
+
+
+
+*****
+
+####  江少寒  
+##### 3181#       发表于 2021-9-8 10:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52661764&amp;ptid=1860328" target="_blank">izayoi39 发表于 2021-09-08 10:21:39</a>
+看游戏大小，50+的是ps4版，37的是ps5版。或者在游戏开始的地方点更多会显示其他版本，其他里有ps4版下载 ...</blockquote>感谢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  izayoi39  
+##### 3182#       发表于 2021-9-8 10:26
+
+
+还有一点忘说了，新版ps的app可以直接查看ps5上下载的什么版本游戏，具体位置在设置里的主机储存界面
+
+
+*****
+
+####  swordofsoul1  
+##### 3183#       发表于 2021-9-8 10:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52659736&amp;ptid=1860328" target="_blank"> 恋妖壶 发表于 2021-9-8 03:11</a> 临发售了还在纠结到底玩PC版还是PS5版，PC主要帧率肯定可以全程60，还便宜；不过JRPG还是倾向主机玩并且早解锁，太纠结了 </blockquote>
+ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优化来自: iPhone客户端
+
+
