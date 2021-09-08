@@ -2102,3 +2102,16 @@ Tales of Arise is Shaping Up to Be the Next Big Action RPG
 xbox版预载也开了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  金子一马  
+##### 3173#       发表于 2021-9-8 09:23
+
+
+Xbox商店出了新的文物dlc
+
+・文物 　戰鬥點數2倍 　戰鬥獲得戰鬥點數增為２倍。　 　獲得經驗值２倍 　戰鬥獲得經驗值增為２倍。 　 　獲得SP２倍 　戰鬥獲得SP增為２倍 ・增加ＳＰ１０００（３） 　前往DLC領取清單接收後，即可將隊伍全體成員ＳＰ提升１０００。
+
+
