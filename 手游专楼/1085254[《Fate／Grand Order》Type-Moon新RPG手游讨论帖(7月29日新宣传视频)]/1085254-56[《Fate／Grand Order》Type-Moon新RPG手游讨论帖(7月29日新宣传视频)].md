@@ -11487,3 +11487,14 @@ GBF古战场关门
 歪了个月神，十分浪费感情<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  承尘  
+##### 83478#       发表于 2021-9-9 04:48
+
+
+每日付费一石给魔总补到2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
