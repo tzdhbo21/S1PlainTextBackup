@@ -2148,3 +2148,26 @@ Xbox商店出了新的文物dlc
 等等看评价，决定是不是入二手。。。
 
 
+
+
+*****
+
+####  leystage  
+##### 3177#       发表于 2021-9-8 10:01
+
+
+话说不同服在今后的更新/bug修复/DLC上会有差异吗？
+
+
+*****
+
+####  江少寒  
+##### 3178#       发表于 2021-9-8 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52658386&amp;ptid=1860328" target="_blank">reficul 发表于 2021-09-07 23:28:14</a>
+开始了，37G，自动下载PS5版。</blockquote>请问怎么确认自动下载的是ps5还是ps4版？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
