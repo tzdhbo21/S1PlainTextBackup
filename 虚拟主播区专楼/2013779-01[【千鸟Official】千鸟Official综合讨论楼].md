@@ -3710,3 +3710,17 @@ P1020004.JPG
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  rgauss  
+##### 328#       发表于 2021-9-8 09:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52659087&amp;ptid=2013779" target="_blank">gawain039 发表于 2021-9-8 00:32</a>
+
+白白喜欢直播，但是总是不肯对直播内容上心，rp初见回没撑下去，游戏回也从来不喜欢提前查攻略，其实现场查 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">白白也不改，每次有人跟她提建议，她估计也没放心上。
+
+
