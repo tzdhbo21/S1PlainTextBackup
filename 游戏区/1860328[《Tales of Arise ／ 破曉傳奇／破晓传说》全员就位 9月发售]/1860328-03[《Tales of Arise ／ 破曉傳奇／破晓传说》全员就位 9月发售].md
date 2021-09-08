@@ -2750,3 +2750,59 @@ ps5啥时候解锁？
 画质模式不是全程掉帧吗（
 
 
+
+
+*****
+
+####  病態極端  
+##### 3229#       发表于 2021-9-8 21:47
+
+
+<blockquote>Someone on reddit beat the game. Here are his thoughts.
+
+&gt;Tales of Berseria is much better (story, characters, gameplay, even comedy and party synergy honestly)
+
+&gt;But still a very good game and easily one of the best in the series. Would give it like an 8-8.5/10
+
+以下略</blockquote>
+
+
+*****
+
+####  D-JoeII  
+##### 3230#       发表于 2021-9-8 21:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671139&amp;ptid=1860328" target="_blank">6847651 发表于 2021-9-8 21:02</a>
+
+怎么做到偷跑的 当新西兰人？</blockquote>
+Xbox日服好像今晚10點(日本時間11點)解鎖?總之最早10點最晚11點
+[https://www.microsoft.com/ja-jp/ ... b=pivot:overviewtab](https://www.microsoft.com/ja-jp/p/%E7%A0%B4%E6%9B%89%E5%82%B3%E5%A5%87-xbox-series-x-s-xbox-one/9n62ntmd3336?activetab=pivot:overviewtab)
+
+2021年9月8日 23:00 に利用可能
+
+
+PS日服今晚11點(看倒數)
+[https://store.playstation.com/ja ... 0-TOARISEPS5000001/](https://store.playstation.com/ja-jp/product/JP0700-PPSA02296_00-TOARISEPS5000001/)
+
+
+*****
+
+####  4ckc  
+##### 3231#       发表于 2021-9-8 22:01
+
+
+九点才开始下载，看来怕是不需要换区了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  faithlifer  
+##### 3232#       发表于 2021-9-8 22:01
+
+
+解锁了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+

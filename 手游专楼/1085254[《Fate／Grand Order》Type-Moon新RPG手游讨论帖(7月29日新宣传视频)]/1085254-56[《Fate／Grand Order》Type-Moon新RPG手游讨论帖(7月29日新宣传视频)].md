@@ -11051,3 +11051,77 @@ NMD我真是人民好兄弟
 md箱子开不了怎么推活动，dw还能再废物点吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  exiaexa  
+##### 83441#       发表于 2021-9-8 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671792&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 21:44</a>
+没仔细魔总色卡性能  就算绿拐回归他能和万能的伯爵和狂兰比吗</blockquote>
+性能非常好，但是已经啥没意义了
+三色都解决周回问题的现在，伯爵狂兰都不是必须的，也就是多你一个不多
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 83442#       发表于 2021-9-8 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671792&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 21:44</a>
+
+没仔细魔总色卡性能  就算绿拐回归他能和万能的伯爵和狂兰比吗</blockquote>
+伯爵如果没有宝具本就被魔总完爆，即使占了宝具本的便宜，也就三面伤害欺负一下魔总，一二面伤害和np回收都被碾压了，而且魔总宝具前置防御强化解除，有3t爆伤红放和1t集星，补刀能力远超伯爵。如果这卡绿卡时代出，基本上就没啥狂伯之争了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 83443#       发表于 2021-9-8 21:53
+
+
+0.67%8hit回个50还是没啥问题的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+问题是什么时候才有新绿拐,当年水武藏出来没有cab也是勉强能冲
+
+
+*****
+
+####  alucardcz  
+##### 83444#       发表于 2021-9-8 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671913&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-9-8 21:52</a>
+
+伯爵如果没有宝具本就被魔总完爆，即使占了宝具本的便宜，也就三面伤害欺负一下魔总，一二面伤害和np回收 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔总是按白字算的？
+
+
+*****
+
+####  xiongxingyu  
+##### 83445#       发表于 2021-9-8 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671942&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 21:54</a>
+
+魔总是按白字算的？</blockquote>
+对，白字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83446#       发表于 2021-9-8 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672040&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-9-8 22:00</a>
+
+对，白字魔总3连的话自buff是3t的30A、40B和30np率，宝具是0.68*8，伯爵前2t自buff只有50np率,3t ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜了 晚出了3年
+
+

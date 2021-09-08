@@ -16206,3 +16206,27 @@ liyuu的微博改成仅展示半年内的了
 或许是受了之前被人肉的事件的影响？
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 4322#       发表于 2021-9-8 21:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671765&amp;ptid=1909972" target="_blank">名津流 发表于 2021-9-8 21:42</a>
+liyuu的微博改成仅展示半年内的了
+
+或许是受了之前被人肉的事件的影响？</blockquote>
+很早就改成半年了
+
+
+*****
+
+####  cybernetics31  
+##### 4323#       发表于 2021-9-8 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说要打apex结果聊了一小时，小学为了方便就用了这个名字
+
+
