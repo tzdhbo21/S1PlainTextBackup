@@ -3882,3 +3882,17 @@ xbox版为啥没有联动服装那个dlc，多了个典藏服装和道具同捆�
 这dlc和豪华版送的都好强
 
 
+
+
+*****
+
+####  hallowilliam  
+##### 3329#       发表于 2021-9-9 03:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52674478&amp;ptid=1860328" target="_blank">喵喵叫的猫 发表于 2021-9-9 02:53</a>
+
+这dlc和豪华版送的都好强</blockquote>
+这不会破坏游戏体验吗，还是说上来就直接最高难度。。。
+
+
