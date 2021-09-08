@@ -15431,3 +15431,64 @@ miki是单人还是顶替吧，和团舞加人不一样
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 4260#       发表于 2021-9-8 10:39
+
+
+不过你们看看最高也就90，就很微妙了吧？
+
+
+
+
+*****
+
+####  寒风夜  
+##### 4261#       发表于 2021-9-8 10:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52662022&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-8 10:39</a>
+
+不过你们看看最高也就90，就很微妙了吧？</blockquote>
+这倒没什么
+
+
+*****
+
+####  baiducaonima  
+##### 4262#       发表于 2021-9-8 10:52
+
+
+这集节奏有点看富野高达的感觉
+
+
+*****
+
+####  笋狐  
+##### 4263#       发表于 2021-9-8 10:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有固定1-2%左右不知道是企划黑还是网右蛆的差评呢，评分看看就好了
+
+
+*****
+
+####  优妮可  
+##### 4264#       发表于 2021-9-8 10:57
+
+
+有人调侃第五个是会长选的
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4265#       发表于 2021-9-8 11:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">年轻人的第一次nico评分，90我甚至都觉得有点高，前面几个团的评分哪有这么高
+
+

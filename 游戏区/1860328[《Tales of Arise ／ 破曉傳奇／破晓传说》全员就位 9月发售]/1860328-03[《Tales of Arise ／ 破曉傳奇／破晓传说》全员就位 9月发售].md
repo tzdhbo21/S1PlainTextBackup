@@ -2234,3 +2234,97 @@ Xbox商店出了新的文物dlc
 ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优化来自: iPhone客户端
 
 
+
+
+*****
+
+####  reficul  
+##### 3184#       发表于 2021-9-8 10:35
+
+
+<blockquote>江少寒 发表于 2021-9-8 10:16
+请问怎么确认自动下载的是ps5还是ps4版？
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+下载时没留意，昨晚一眼看出来是因为新闻里看到PS4和PS5的大小不同所以知道。下载时试试按start键，最下面有版本信息，里面可以切换PS4/PS5版。
+
+
+*****
+
+####  heseran  
+##### 3185#       发表于 2021-9-8 10:37
+
+
+问了淘宝店客服说得11号才能到货<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  PureWaltz  
+##### 3186#       发表于 2021-9-8 10:37
+
+
+steam版也可以预载了
+
+
+*****
+
+####  angela5d30  
+##### 3187#       发表于 2021-9-8 10:40
+
+
+第二次在steam预购游戏，第一次是2077，上次预载压缩等了几小时都没好，这次不敢预载了，我看pc版是38.45gb，我干脆等解锁后才按下载<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  conanoysq  
+##### 3188#       发表于 2021-9-8 10:48
+
+
+原装一个月前订的，昨天看出事了就退了，还是数字走起<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恋妖壶  
+##### 3189#       发表于 2021-9-8 10:49
+
+
+<blockquote>swordofsoul1 发表于 2021-9-8 10:31
+ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优化</blockquote>
+玩到DEMO前我也是这么想的……
+
+
+*****
+
+####  zqqwe  
+##### 3190#       发表于 2021-9-8 11:03
+
+
+自从有了dlc，大部分grade选项都可以一周目直接买了，挺好
+
+
+*****
+
+####  Lamas  
+##### 3191#       发表于 2021-9-8 11:10
+
+
+等一手十一了 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 根本没时间玩
+
+
+*****
+
+####  Rainwedell  
+##### 3192#       发表于 2021-9-8 11:11
+
+
+同等十一，终极版早定了，最近实在太忙了。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

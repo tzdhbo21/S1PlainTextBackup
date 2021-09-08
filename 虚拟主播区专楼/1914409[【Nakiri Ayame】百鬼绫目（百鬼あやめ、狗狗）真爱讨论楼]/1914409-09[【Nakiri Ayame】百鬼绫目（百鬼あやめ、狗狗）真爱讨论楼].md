@@ -12860,3 +12860,24 @@ T恤人气排名
 怕是早橄榄了
 
 
+
+
+*****
+
+####  cctvyt1  
+##### 13100#       发表于 2021-9-8 11:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52661667&amp;ptid=1914409" target="_blank">collasong 发表于 2021-9-8 10:13</a>
+
+ww还有这破事？好好的摇人去全熟不好？</blockquote>
+划不来阿 辛辛苦苦翻了全篇不如2分钟骰子肉的流量
+
+ 反正观众也不爱看全熟 傻子才烤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+说来好笑 ww现在正在把当年管人粉丝的破事再上演一遍
+
+昨晚才有个烤紫宝的被冲烂了
+
+
