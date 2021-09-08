@@ -12306,3 +12306,26 @@ mashiro其实不意外的，不如说如果口了还在，以她们那个组的�
 应该是tc上说的一只眼睛要做的網膜剥離手术，时间上和unite大会冲突
 
 
+
+
+*****
+
+####  purdre  
+##### 6911#       发表于 2021-9-9 02:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671155&amp;ptid=1972669" target="_blank">空き地卯木 发表于 2021-9-8 21:03</a>
+
+冥府组的3D披露都是什么垃圾番组 一个比一个摆烂是吧</blockquote>
+芙莲的还可以，其余两个就真的无聊
+
+
+*****
+
+####  free  
+##### 6912#       发表于 2021-9-9 02:14
+
+
+说到kr组，我一直挺不明白彩虹的海外发展顺序。一般来说世界前三大市场英汉西，除此之外对V这种发源于日式二次元文化接受程度比较高的，主要也就东亚东南亚了，而东南亚这块也应该首选第四人口大国印尼，彩虹先搞了印度和韩国组是啥用意呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
