@@ -15849,3 +15849,47 @@ QQ群吗？没找到，</blockquote>
 官方真的直播生放送啦，
 
 
+
+
+*****
+
+####  TRIScRE  
+##### 4290#       发表于 2021-9-8 19:00
+
+
+<blockquote>宋西湖 发表于 2021-9-8 18:53
+官方真的直播生放送啦，</blockquote>
+星团生放一直都有官方直播
+
+
+
+
+*****
+
+####  chenflyyy  
+##### 4291#       发表于 2021-9-8 19:02
+
+
+bilibili秋叶原2这个官方号一直有转播ll生放的，就是不知道为什么起这个名字，也没什么宣传<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 4292#       发表于 2021-9-8 19:03
+
+
+<blockquote>chenflyyy 发表于 2021-9-8 19:02
+bilibili秋叶原2这个官方号一直有转播ll生放的，就是不知道为什么起这个名字，也没什么宣传 ...</blockquote>
+之前转播过其它的，后来就全是ll的了
+
+
+*****
+
+####  pliee  
+##### 4293#       发表于 2021-9-8 19:03
+
+
+赶上了，差点忘看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

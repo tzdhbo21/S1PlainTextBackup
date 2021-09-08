@@ -12129,3 +12129,23 @@ NIJI KR，韩国人都不看<img src="https://static.saraba1st.com/image/smiley/
 2021-9-8 17:21 上传
 
 
+
+
+*****
+
+####  FCCHua  
+##### 6898#       发表于 2021-9-8 19:04
+
+
+信息量有点多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rzrbtk  
+##### 6899#       发表于 2021-9-8 19:09
+
+
+没想到在管人世界也能看到金希澈<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，不要吖…
+
+
