@@ -12368,3 +12368,15 @@ mashiro其实不意外的，不如说如果口了还在，以她们那个组的�
 大概只是因为麓貴隆领英主页写着他会英/中/韓/印<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 6916#       发表于 2021-9-9 07:02
+
+
+恐怕日本人第一考虑的不是市场，而是自己有没有合适的途径进入市场。
+要是已经有人愿意搭伙不进白不进是吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

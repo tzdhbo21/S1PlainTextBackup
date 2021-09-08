@@ -16419,3 +16419,18 @@ nb真的算脏话吗
 大概是怕有人翻她之前的微博动态和发言之类的？
 
 
+
+
+*****
+
+####  D麦林  
+##### 4335#       发表于 2021-9-9 07:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673689&amp;ptid=1909972" target="_blank">cat1230 发表于 2021-9-9 00:06</a>
+啥时候官方整点菜宝和鲤鱼的联动吧，只在推特发发推不够味啊。直播没戏广播嘉宾行不行。 ...</blockquote>
+那这么说的话那个LL的ANNG广播有可能<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+但那玩意收听起来挺麻烦的 好像一定得在日（好像是真正的FM广播 在国内这边用技术手段也听不了）
+不知道会不会有
+
+
