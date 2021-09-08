@@ -12354,3 +12354,17 @@ mashiro其实不意外的，不如说如果口了还在，以她们那个组的�
 维阿要算的话应该是第一个，然后是id-in-kr-en的顺序，我就是想说为啥en出这么晚......in和kr有啥用，想法开发开发西语市场大概都比in和kr强
 
 
+
+
+*****
+
+####  alcoholic1000  
+##### 6915#       发表于 2021-9-9 03:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52674448&amp;ptid=1972669" target="_blank">free 发表于 2021-9-9 02:37</a>
+
+维阿要算的话应该是第一个，然后是id-in-kr-en的顺序，我就是想说为啥en出这么晚......in和kr有啥用，想 ...</blockquote>
+大概只是因为麓貴隆领英主页写着他会英/中/韓/印<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
