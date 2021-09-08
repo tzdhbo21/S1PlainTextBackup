@@ -2373,3 +2373,14 @@ ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优�
 反正demo是会掉帧的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  医生狼多  
+##### 3197#       发表于 2021-9-8 13:30
+
+
+今晚又是主播提前试玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

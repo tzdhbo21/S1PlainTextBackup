@@ -12948,3 +12948,30 @@ FAMH联动估计就这两天的事情了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牛逼，都是一种循环
 
 
+
+
+*****
+
+####  collasong  
+##### 13107#       发表于 2021-9-8 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52663828&amp;ptid=1914409" target="_blank">s32244153 发表于 2021-9-8 12:46</a>
+
+收钱、抢坑、当人上人、举报黑其他烤肉吧
+
+基本上就是复刻汉化组那套玩意 看多了都会背了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">都是纯的不够的假粉了，真狗粉直接摸爆。烤的那么积极肯定有问题
+
+
+*****
+
+####  我不是很好  
+##### 13108#       发表于 2021-9-8 13:43
+
+
+反正又控制不了官号。愿意怎么咬就怎么咬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
