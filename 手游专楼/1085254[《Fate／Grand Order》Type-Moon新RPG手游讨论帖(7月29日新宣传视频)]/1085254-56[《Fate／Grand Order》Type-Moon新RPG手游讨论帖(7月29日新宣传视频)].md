@@ -11261,3 +11261,218 @@ DW是不是SB，怎么开不了箱子，开不了就算了，选了开箱那里�
 其实也就那样，只看单卡强度这技能跟呆毛村正伊吹比都不行，更别说其他更泛用的红卡蓝卡，跟伯爵比是爆杀了，但有什么用呢。。。和妖兰的技能组对比看就会发现完全就是两个时代不像是同一年出来的卡。。
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83458#       发表于 2021-9-8 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672888&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-8 23:02</a>
+
+其实也就那样，只看单卡强度这技能跟呆毛村正伊吹比都不行，更别说其他更泛用的红卡蓝卡，跟伯爵比是爆杀 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去隔壁看了看 已经吹起来了 笑死 还什么活动礼装50np就可以换人6加成了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">换人？ 6加成? 还是阳间本  我看的满脸问号
+
+
+*****
+
+####  zakki  
+##### 83459#       发表于 2021-9-8 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673040&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 23:12</a>
+我去隔壁看了看 已经吹起来了 笑死 还什么活动礼装50np就可以换人6加成了
+
+
+换人？ 6加成?  ...</blockquote>
+都换人6加成了，那为什么不干脆直接妖兰啊，还无视对面配置，也不吃被动和礼装，伤害又比魔总高。nga前段时间天天挑妖兰，摩根，奥伯龙的毛病，怎么魔总反倒吹起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83460#       发表于 2021-9-8 23:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673140&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-8 23:20</a>
+
+都换人6加成了，那为什么不干脆直接妖兰啊，还无视对面配置，也不吃被动和礼装，伤害又比魔总高。nga前段 ...</blockquote>
+[https://bbs.nga.cn/read.php?tid=28426325](https://bbs.nga.cn/read.php?tid=28426325)
+
+
+又出了个新的吹贴 我只能说 呵呵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  zore  
+##### 83461#       发表于 2021-9-8 23:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你已经是成熟的御主了,少看点nga吧
+
+
+*****
+
+####  zore  
+##### 83462#       发表于 2021-9-8 23:26
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 83463#       发表于 2021-9-8 23:31
+
+
+翻页
+
+
+*****
+
+####  里村紅葉  
+##### 83464#       发表于 2021-9-8 23:41
+
+
+废狗活动出BUG卡进度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+GBF古战场关门<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+大家都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83465#       发表于 2021-9-8 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673405&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-9-8 23:41</a>
+
+废狗活动出BUG卡进度
+
+GBF古战场关门
+
+大家都有光明的未来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还有原神！
+
+
+*****
+
+####  zore  
+##### 83466#       发表于 2021-9-8 23:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">立本程序员行不行啊
+
+
+*****
+
+####  音無麻理亜  
+##### 83467#       发表于 2021-9-8 23:49
+
+
+硬币这真就没钱不要玩系列了吗，还想着也不需要太多，给20个就能120紫式部了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gary76  
+##### 83468#       发表于 2021-9-8 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670981&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-9-8 20:50</a>
+根据隔壁的解包，追梦的少年应该就是哥伦布了。</blockquote>
+草，少年哥倫布嗎！我想起來當年以他為主角的動畫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qb0079  
+##### 83469#       发表于 2021-9-8 23:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">宝箱bug修复了
+
+
+*****
+
+####  承尘  
+##### 83470#       发表于 2021-9-9 00:20
+
+
+这活动收益可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qb0079  
+##### 83471#       发表于 2021-9-9 00:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这宝箱给的素材都是又少又缺的玩意儿，这活动差不多可以当无限池来打？
+
+
+*****
+
+####  alucardcz  
+##### 83472#       发表于 2021-9-9 00:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673856&amp;ptid=1085254" target="_blank">qb0079 发表于 2021-9-9 00:25</a>
+
+这宝箱给的素材都是又少又缺的玩意儿，这活动差不多可以当无限池来打？ ...</blockquote>
+挖 这箱子居然能一口气开 这不是掉打无限池？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 83473#       发表于 2021-9-9 00:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">小心苹果陷阱
+
+
+*****
+
+####  qb0079  
+##### 83474#       发表于 2021-9-9 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673868&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-9 00:26</a>
+
+挖 这箱子居然能一口气开 这不是掉打无限池？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吊打，抽无限池还得注意邮箱会不会炸，这直接开箱，而且效率也不低，目前刷起来比free要舒服多了，至少每次都有箱子
+
+
+*****
+
+####  yangun22  
+##### 83475#       发表于 2021-9-9 00:36
+
+
+居然全是素材，我还以为会有技能石头混里面呢，带满礼装一盘能掉2-4，稳赚啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 83476#       发表于 2021-9-9 00:48
+
+
+ 本帖最后由 khxooo 于 2021-9-9 00:54 编辑 
+
+抽友情池，巴萨洛缪满破第二张了，双子那张还是没有满破<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+凶针、龙牙、凶骨，可惜没有灰，如果有就好了。
+
+

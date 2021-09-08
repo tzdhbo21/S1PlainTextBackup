@@ -16340,3 +16340,82 @@ liyuu的微博改成仅展示半年内的了
 2021-9-8 23:07 上传
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 4329#       发表于 2021-9-8 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672407&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-8 22:24</a>
+不要学坏哦菜宝，鲤鱼这语气真的好像我小学语文老师</blockquote>
+诶，这个是脏话小孩子不可以讲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 4330#       发表于 2021-9-8 23:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673250&amp;ptid=1909972" target="_blank">Jobtownb 发表于 2021-9-8 23:28</a>
+诶，这个是脏话小孩子不可以讲</blockquote>
+nb真的算脏话吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  名津流  
+##### 4331#       发表于 2021-9-8 23:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673265&amp;ptid=1909972" target="_blank">ads147147 发表于 2021-9-8 23:30</a>
+
+nb真的算脏话吗
+
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+都带bi字了，跟英语俚语里说到pussy这个词差不多吧
+
+
+*****
+
+####  D麦林  
+##### 4332#       发表于 2021-9-8 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671892&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-8 21:50</a>
+很早就改成半年了</blockquote>
+没有 前段时间取消仅半年可见了 好像是为了开什么功能
+结果现在又变成半年可见了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+（我还没来得及保存那些以前的cos呢！
+哎 闹心
+
+
+*****
+
+####  cat1230  
+##### 4333#       发表于 2021-9-9 00:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">啥时候官方整点菜宝和鲤鱼的联动吧，只在推特发发推不够味啊。直播没戏广播嘉宾行不行。
+
+
+*****
+
+####  优妮可  
+##### 4334#       发表于 2021-9-9 00:07
+
+
+<blockquote>D麦林 发表于 2021-9-8 23:43
+没有 前段时间取消仅半年可见了 好像是为了开什么功能
+
+结果现在又变成半年可见了
+
+（我还没来得及 ...</blockquote>
+大概是怕有人翻她之前的微博动态和发言之类的？
+
+

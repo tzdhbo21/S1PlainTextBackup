@@ -3461,3 +3461,340 @@ GS又不是只有一个编辑
 解禁了，开摆！
 
 
+
+
+*****
+
+####  Tehebe  
+##### 3293#       发表于 2021-9-8 23:02
+
+
+直接就op是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 3294#       发表于 2021-9-8 23:03
+
+
+意外的高分
+
+
+*****
+
+####  Ditfran  
+##### 3295#       发表于 2021-9-8 23:04
+
+
+想要全部服装dlc是不是买豪华版就行？
+
+
+*****
+
+####  曲林妖梦  
+##### 3296#       发表于 2021-9-8 23:06
+
+
+Xbox其他服买，现在调到日区能玩么
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  医生狼多  
+##### 3297#       发表于 2021-9-8 23:10
+
+
+steam要隔一天，先溜了
+
+
+*****
+
+####  NorLaTu  
+##### 3298#       发表于 2021-9-8 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672956&amp;ptid=1860328" target="_blank">曲林妖梦 发表于 2021-9-8 23:06</a>
+Xbox其他服买，现在调到日区能玩么
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+可以的
+
+
+*****
+
+####  entheos  
+##### 3299#       发表于 2021-9-8 23:11
+
+
+12点解锁 不敢看VG的直播心里好痒
+
+
+*****
+
+####  skyfaker305  
+##### 3300#       发表于 2021-9-8 23:12
+
+
+好像要在日服买才能现在玩到，气到了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  D-JoeII  
+##### 3301#       发表于 2021-9-8 23:14
+
+
+你睡啊
+<img src="https://i.imgur.com/H8d3vUf.jpg" referrerpolicy="no-referrer">
+
+
+66b78dffbf3b811ad77a3a8dd21dk335.jpeg
+(156.9 KB, 下载次数: 1)
+
+
+下载附件
+
+
+2021-9-8 23:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/231155lenem3ecc3mheb75.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+66b78dffbf3b811ad77a3a8dd21dk335.jpeg
+(156.9 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-8 23:12 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/231212gru0hshlzhxh1zly.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恋妖壶  
+##### 3302#       发表于 2021-9-8 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672815&amp;ptid=1860328" target="_blank">Yason 发表于 2021-9-8 22:57</a>
+
+睡觉，明早六点起床战斗</blockquote>
+如果你是Steam版的话，你可能看错了解锁时间
+
+
+*****
+
+####  shigurehare  
+##### 3303#       发表于 2021-9-8 23:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672922&amp;ptid=1860328" target="_blank">Ditfran 发表于 2021-9-8 23:04</a>
+
+想要全部服装dlc是不是买豪华版就行？</blockquote>
+有联动和特别套是究极里的，豪华版里的是他写的那3种
+
+
+*****
+
+####  Tehebe  
+##### 3304#       发表于 2021-9-8 23:52
+
+
+营地里竟然有卖dlc的广告<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 3305#       发表于 2021-9-8 23:54
+
+
+<img src="https://p.sda1.dev/2/8cac91f66ef9d3603f4811c65ee7ff3b/20210908_235351.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LT_Harry  
+##### 3306#         楼主| 发表于 2021-9-8 23:57
+
+
+睽违已久的发售日终于要到了（楼主比你们多等30小时），这两年三个月里，无论是自己身上还是世界总体，实在发生了太多事情，但是任何形容词都不能形容我现在内心的躁动——我们一周后见‼️
+
+
+*****
+
+####  qiyu1234  
+##### 3307#       发表于 2021-9-9 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673580&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-9-8 23:57</a>
+
+睽违已久的发售日终于要到了（楼主比你们多等30小时），这两年三个月里，无论是自己身上还是世界总体，实在 ...</blockquote>
+一周后见‼️
+
+
+*****
+
+####  解构  
+##### 3308#       发表于 2021-9-9 00:01
+
+
+开了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  SAKURAJIMA  
+##### 3309#       发表于 2021-9-9 00:01
+
+
+冲起来兄弟萌
+
+
+*****
+
+####  解构  
+##### 3310#       发表于 2021-9-9 00:03
+
+
+这op不大行，女主像是换了个人
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  解构  
+##### 3311#       发表于 2021-9-9 00:07
+
+
+看评测说是剧情还行？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  OVTVO  
+##### 3312#       发表于 2021-9-9 00:09
+
+
+这女主人设看起来好有ricotta社的风格，本ricotta铁粉有点忍不住了<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2003J15SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  CALPISSODA  
+##### 3313#       发表于 2021-9-9 00:12
+
+
+好奇一下这作PS5和PS4之间画面差距有多大？PS5还没入但是想尝鲜的用PS4会不会差很多啊？
+
+
+*****
+
+####  benhawk  
+##### 3314#       发表于 2021-9-9 00:12
+
+
+新的三个道具包里文物效果都好不错，感觉都挺值得买的，尤其是cp减少
+
+
+*****
+
+####  LMBS  
+##### 3315#       发表于 2021-9-9 00:15
+
+
+一组3件衣服才买39港币突然感觉还挺便宜的，特意看过tob要57
+
+
+*****
+
+####  4ckc  
+##### 3316#       发表于 2021-9-9 00:17
+
+
+绝了，xsx切哪个区都进不去
+难道是版本限定了解锁时间？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  roxassix  
+##### 3317#       发表于 2021-9-9 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673789&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-9-9 00:17</a>
+绝了，xsx切哪个区都进不去
+难道是版本限定了解锁时间？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">对。港服买的刚解锁了。欧美的等明天吧。。
+
+
+*****
+
+####  解构  
+##### 3318#       发表于 2021-9-9 00:19
+
+
+这过场演出可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  4ckc  
+##### 3319#       发表于 2021-9-9 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673805&amp;ptid=1860328" target="_blank">roxassix 发表于 2021-9-9 00:19</a>
+对。港服买的刚解锁了。欧美的等明天吧。。</blockquote>
+草啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">明天要陪孩子没空玩
+**万代南梦宫我**啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Fuero  
+##### 3320#       发表于 2021-9-9 00:27
+
+
+感觉ps5版买的还是值了，震动调的还蛮爽的
+
+
+*****
+
+####  laoz  
+##### 3321#       发表于 2021-9-9 00:27
+
+
+我还以为DLC的剑只是皮肤而已
+
+<img src="https://img.saraba1st.com/forum/202109/09/002714l8neeqofcorbqefo.png" referrerpolicy="no-referrer">
+
+
+<strong>破曉傳奇_20210909002629.png</strong> (292.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-9 00:27 上传
+
+
