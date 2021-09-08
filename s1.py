@@ -181,7 +181,7 @@ async def UpdateThread(threaddict,semaphore):
             filedir = rootdir+thdata[threaddict['id']]['category']+'/'
         #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
         try:
-            conn =aiohttp.TCPConnector(limit=10)
+            conn =aiohttp.TCPConnector(limit=5)
             contentdict = {}
             async with semaphore:
                 async with aiohttp.ClientSession(connector=conn,headers=headers,cookies=cookies) as session:
