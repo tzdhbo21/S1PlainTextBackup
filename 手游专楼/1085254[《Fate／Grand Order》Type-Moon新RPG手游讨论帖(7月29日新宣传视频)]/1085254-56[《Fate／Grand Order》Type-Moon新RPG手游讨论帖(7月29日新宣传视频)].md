@@ -9035,3 +9035,14 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83256#       发表于 2021-9-8 13:59
+
+
+草，现在才知道原来没抽到奥伯龙的人永远没法用奥伯龙的三破<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

@@ -2384,3 +2384,40 @@ ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优�
 今晚又是主播提前试玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  hummysiren  
+##### 3198#       发表于 2021-9-8 13:47
+
+
+还期待日亚能偷跑，今晚通宵开打<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  hummysiren  
+##### 3199#       发表于 2021-9-8 13:49
+
+
+不是，一查就在一个县，那你给我立马送过来啊！！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  allenz3  
+##### 3200#       发表于 2021-9-8 13:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52664413&amp;ptid=1860328" target="_blank">医生狼多 发表于 2021-9-8 13:30</a>
+今晚又是主播提前试玩</blockquote>
+这年头主播先玩也没啥奇怪的吧，其实对很多作品来说先扫扫雷挺好
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
