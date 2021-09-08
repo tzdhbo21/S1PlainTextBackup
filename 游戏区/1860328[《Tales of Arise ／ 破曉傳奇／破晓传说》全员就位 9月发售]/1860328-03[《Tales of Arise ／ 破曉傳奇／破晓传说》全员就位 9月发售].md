@@ -3946,3 +3946,27 @@ xbox版为啥没有联动服装那个dlc，多了个典藏服装和道具同捆�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  benhawk  
+##### 3334#       发表于 2021-9-9 06:38
+
+
+<blockquote>喵喵叫的猫 发表于 2021-9-9 02:53
+这dlc和豪华版送的都好强</blockquote>
+话说叠加吗？我怀疑后出的dkc是提前解锁，这个99叠加以前不都是二周目要素
+
+
+*****
+
+####  Yason  
+##### 3335#       发表于 2021-9-9 06:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52673082&amp;ptid=1860328" target="_blank">恋妖壶 发表于 2021-9-8 23:16</a>
+如果你是Steam版的话，你可能看错了解锁时间</blockquote>
+是ps5<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
