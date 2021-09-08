@@ -16124,3 +16124,85 @@ bilibili秋叶原2这个官方号一直有转播ll生放的，就是不知道为
 菜宝这么说话真的没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4315#       发表于 2021-9-8 20:25
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/202502kzu80hcetucsxt8h.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (36.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 20:25 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 4316#       发表于 2021-9-8 20:26
+
+
+加密通话
+
+
+*****
+
+####  JustW  
+##### 4317#       发表于 2021-9-8 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670410&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-8 20:05</a>
+
+菜宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草草草，笑死我了
+
+
+*****
+
+####  kata魂  
+##### 4318#       发表于 2021-9-8 20:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">什么时候鲤鱼跟pay，nako跟青山换位置啊，我想知道岬鱼的含金量有多高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 4319#       发表于 2021-9-8 21:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可香千铁三角是吧，你们这好歹是2.5次元性质的企划，什么时候带另外两个玩啊（
+
+
+*****
+
+####  lj205  
+##### 4320#       发表于 2021-9-8 21:37
+
+
+今天的青山受到成倍的伤害～
+
+
+
+
+*****
+
+####  名津流  
+##### 4321#       发表于 2021-9-8 21:42
+
+
+liyuu的微博改成仅展示半年内的了
+
+或许是受了之前被人肉的事件的影响？
+
+

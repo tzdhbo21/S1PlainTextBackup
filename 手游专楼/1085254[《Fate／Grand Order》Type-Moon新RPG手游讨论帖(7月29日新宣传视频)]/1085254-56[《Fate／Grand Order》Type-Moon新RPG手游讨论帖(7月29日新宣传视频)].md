@@ -10415,3 +10415,639 @@ AE魔总我抽到除了活动期间就没用过，更别说这次是个剑，还
 强烈建议抽一个收藏<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  eyeego  
+##### 83382#       发表于 2021-9-8 20:22
+
+
+在绿卡已经基本凉凉的今天
+这魔总的数值依然扣扣索索给得像两年前的卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 83383#       发表于 2021-9-8 20:22
+
+
+黑胡子灵衣卡面好怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 83384#       发表于 2021-9-8 20:22
+
+
+6个十连+10护符，1总司1夏绿蒂，没皇女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83385#       发表于 2021-9-8 20:22
+
+
+小碧池这技能组...是拐啊?
+
+
+*****
+
+####  areklose  
+##### 83386#       发表于 2021-9-8 20:24
+
+
+清少纳言的立绘不错。有点心动
+
+
+*****
+
+####  alucardcz  
+##### 83387#       发表于 2021-9-8 20:25
+
+
+夏洛特的小人。。很不错啊（
+
+
+*****
+
+####  eden_hazard  
+##### 83388#       发表于 2021-9-8 20:26
+
+
+16个11连终于出皇女了，2魔总1苍月1姑姑1大龙娘1皇女1马老师，出马老师的时候我以为可以收工了，结果<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83389#       发表于 2021-9-8 20:26
+
+
+满破卡莲挂了Caber和狐狸
+
+别问4和3星，问就是没满破
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 83390#       发表于 2021-9-8 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670692&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-8 20:26</a>
+
+满破卡莲挂了Caber和狐狸
+
+别问4和3星，问就是没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">欧，羡慕！
+
+
+*****
+
+####  zore  
+##### 83391#       发表于 2021-9-8 20:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给的试用狂单体清少纳言
+
+自充20人影秩序特攻
+
+
+*****
+
+####  rooarr  
+##### 83392#       发表于 2021-9-8 20:28
+
+
+这个新助战不行啊，人物不能重复有什么用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83393#       发表于 2021-9-8 20:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670702&amp;ptid=1085254" target="_blank">zore 发表于 2021-9-8 20:27</a>
+
+给的试用狂单体清少纳言
+
+自充20人影秩序特攻</blockquote>
+没有天特攻，信长继续在日常本加班
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83394#       发表于 2021-9-8 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670707&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-9-8 20:28</a>
+
+这个新助战不行啊，人物不能重复有什么用</blockquote>
+有用的，比如你可以在三队分别插Cba、Caber、狐狸，然后把满破礼装分给他们三个
+
+这样每个人都能借得到，礼装不受重复的限制
+
+
+*****
+
+####  白金口袋  
+##### 83395#       发表于 2021-9-8 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670690&amp;ptid=1085254" target="_blank">eden_hazard 发表于 2021-9-8 06:26</a>
+
+16个11连终于出皇女了，2魔总1苍月1姑姑1大龙娘1皇女1马老师，出马老师的时候我以为可以收工了，结果[f:152 ...</blockquote>
+你这整得我有点不敢强抽皇女了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83396#       发表于 2021-9-8 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670707&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-9-8 20:28</a>
+
+这个新助战不行啊，人物不能重复有什么用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人物重复有什么意义啊？  礼装能重复意义重大
+
+
+*****
+
+####  LOLITA  
+##### 83397#       发表于 2021-9-8 20:32
+
+
+不跑狗改跑达芬奇还行
+
+
+*****
+
+####  飞霞精灵  
+##### 83398#       发表于 2021-9-8 20:32
+
+
+苍月这真是。。。。祸害。。。
+
+
+*****
+
+####  zore  
+##### 83399#       发表于 2021-9-8 20:35
+
+
+皇女的魔放自充怎么是10级7cd,小黑的才6cd
+
+技能组还可以<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83400#       发表于 2021-9-8 20:36
+
+
+15个11连，魔总2，苍月2，皇女1……………………拉二1（
+
+
+
+
+*****
+
+####  angelooo  
+##### 83401#       发表于 2021-9-8 20:37
+
+
+科黛前两张造型太垃圾了，你好歹第二张背景换个色，也就满破能看看，三破一般，我个人觉得整体还不如一星本体，皇女水番茄稳得可怕，魔总中规中矩吧，小朋友挺可爱的，满破莫名有种礼装的感觉
+
+
+*****
+
+####  exiaexa  
+##### 83402#       发表于 2021-9-8 20:39
+
+
+ 本帖最后由 exiaexa 于 2021-9-8 20:41 编辑 
+
+皇女那技能组哪里是可以，是相当可以了
+
+3t30魔放+20宝威+50充
+
+某些五星看了都要流泪
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83403#       发表于 2021-9-8 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670812&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-9-8 20:36</a>
+
+15个11连，魔总2，苍月2，皇女1……………………拉二1（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 这次就不羡慕了
+
+
+*****
+
+####  khxooo  
+##### 83404#       发表于 2021-9-8 20:39
+
+
+青少纳言是狂阶啊，不知道是不是光炮。
+
+
+*****
+
+####  白金口袋  
+##### 83405#       发表于 2021-9-8 20:40
+
+
+怎么感觉大家都是皇女难出<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  当光停止  
+##### 83406#       发表于 2021-9-8 20:40
+
+
+米奇王，我的超人。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  LOLITA  
+##### 83407#       发表于 2021-9-8 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670851&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-9-8 20:40</a>
+
+怎么感觉大家都是皇女难出</blockquote>
+每年泳装不都是这样，四星比五星难抽
+
+
+*****
+
+####  areklose  
+##### 83408#       发表于 2021-9-8 20:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">阿清立绘好看。到时候会夹馍一起抽单UP
+
+
+*****
+
+####  alucardcz  
+##### 83409#       发表于 2021-9-8 20:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我进商店界面开宝箱直接卡死了 。。。。
+
+
+*****
+
+####  qb0079  
+##### 83410#       发表于 2021-9-8 20:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">小碧池这技能组，陈宫炮弹+1
+
+
+*****
+
+####  angelooo  
+##### 83411#       发表于 2021-9-8 20:44
+
+
+<blockquote>khxooo 发表于 2021-9-8 20:39
+青少纳言是狂阶啊，不知道是不是光炮。</blockquote>
+绿单体
+
+
+*****
+
+####  eden_hazard  
+##### 83412#       发表于 2021-9-8 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670871&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-9-8 20:41</a>
+
+每年泳装不都是这样，四星比五星难抽</blockquote>
+尤其是每次抽完了才想起来应该等单up<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿提拉  
+##### 83413#       发表于 2021-9-8 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670842&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-9-8 20:39</a>
+
+青少纳言是狂阶啊，不知道是不是光炮。</blockquote>
+绿卡单体
+
+
+*****
+
+####  霧谷藤乃  
+##### 83414#       发表于 2021-9-8 20:47
+
+
+5发11连抽到皇女就溜了…别的不敢多奢求……
+
+
+*****
+
+####  rooarr  
+##### 83415#       发表于 2021-9-8 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670736&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-8 20:29</a>
+
+有用的，比如你可以在三队分别插Cba、Caber、狐狸，然后把满破礼装分给他们三个
+
+这样每个人都能借得到， ...</blockquote>
+现在做不到狐狸分别带3种礼装啊，都没法换，只服务3种队伍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 83416#       发表于 2021-9-8 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670760&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 20:30</a>
+
+人物重复有什么意义啊？  礼装能重复意义重大</blockquote>
+两个都重复才行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红卡队都不能随意挑礼装了
+
+
+*****
+
+####  khxooo  
+##### 83417#       发表于 2021-9-8 20:50
+
+
+根据隔壁的解包，追梦的少年应该就是哥伦布了。
+
+
+*****
+
+####  1a不解释  
+##### 83418#       发表于 2021-9-8 20:50
+
+
+艹，五发护肤两宝魔总，最近是时来运转了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  exiaexa  
+##### 83419#       发表于 2021-9-8 20:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670961&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-9-8 20:48</a>
+
+两个都重复才行红卡队都不能随意挑礼装了</blockquote>
+你还有无敌的奥伯龙可以带啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 83420#       发表于 2021-9-8 20:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671007&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-8 20:51</a>
+
+你还有无敌的奥伯龙可以带啊</blockquote>
+没用，只有一个队伍可以出，怎么都不能覆盖全礼装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jaicka  
+##### 83421#       发表于 2021-9-8 20:54
+
+
+TM的,3单只有一只皇女<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83422#       发表于 2021-9-8 20:56
+
+
+草 开不了箱子拿不到点数啊。
+
+你们都没问题吗？
+
+
+*****
+
+####  LOLITA  
+##### 83423#       发表于 2021-9-8 20:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670924&amp;ptid=1085254" target="_blank">eden_hazard 发表于 2021-9-8 20:45</a>
+
+尤其是每次抽完了才想起来应该等单up</blockquote>
+也不一定。。。想当初我抽恐龙7单一宝。。。所以说四星真的随缘了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83424#       发表于 2021-9-8 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670871&amp;ptid=1085254" target="_blank">LOLITA 发表于 2021-9-8 20:41</a>
+
+每年泳装不都是这样，四星比五星难抽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">胡说，我当年7个莉莉丝才出1个兔子王
+
+
+*****
+
+####  白金口袋  
+##### 83425#       发表于 2021-9-8 21:11
+
+
+我是真心不想为了这dead game氪金啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LOLITA  
+##### 83426#       发表于 2021-9-8 21:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671225&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-9-8 21:08</a>
+
+胡说，我当年7个莉莉丝才出1个兔子王</blockquote>
+那是你黑<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  クー子  
+##### 83427#       发表于 2021-9-8 21:15
+
+
+十个护符，三个十连出了四张五星泳装礼装，一个欧罗巴，一个魔总，一个夏律<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">。
+追了十个单抽，两个泳装皇女<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">。
+一期卡池再见了，剩200个石头等加摩。
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  exiaexa  
+##### 83428#       发表于 2021-9-8 21:20
+
+
+NMD我真是人民好兄弟
+
+补了一单终于把3星4星满破了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 83429#       发表于 2021-9-8 21:25
+
+
+完蛋，水刑噩梦再来，25发11连魔总4、科黛5、皇女1<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yzj134100  
+##### 83430#       发表于 2021-9-8 21:28
+
+
+苍月这次给我的感觉是：这是他妈是个大妈吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  zore  
+##### 83431#       发表于 2021-9-8 21:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这活动商店没硬币兑换啊
+
+
+*****
+
+####  xiongxingyu  
+##### 83432#       发表于 2021-9-8 21:32
+
+
+剑魔总这性能，放到2年之前绝对是版本一线光炮，只可惜咕哒咕哒本能寺迷路了2年，回来之后已经是2个版本之后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83433#       发表于 2021-9-8 21:33
+
+
+翻页
+
+
+*****
+
+####  exiaexa  
+##### 83434#       发表于 2021-9-8 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671603&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-9-8 21:32</a>
+
+剑魔总这性能，放到2年之前绝对是版本一线光炮，只可惜咕哒咕哒本能寺迷路了2年，回来之后已经是2个版本之 ...</blockquote>
+在所有剑光炮集体拉垮的时候你不来
+
+全员崛起的时候冒出来了，你不死谁死
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 83435#       发表于 2021-9-8 21:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  الطائر  
+##### 83436#       发表于 2021-9-8 21:43
+
+
+笑了，夏绿蒂的双手双腿是马赛克
+
+
+*****
+
+####  khxooo  
+##### 83437#       发表于 2021-9-8 21:43
+
+
+等绿拐2.0出来将你们全杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83438#       发表于 2021-9-8 21:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没仔细魔总色卡性能  就算绿拐回归他能和万能的伯爵和狂兰比吗
+
+
+*****
+
+####  zore  
+##### 83439#       发表于 2021-9-8 21:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671786&amp;ptid=1085254" target="_blank">الطائر 发表于 2021-9-8 21:43</a>
+
+笑了，夏绿蒂的双手双腿是马赛克</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满破那个伸过来的手看的太他妈痛苦了
+
+
+*****
+
+####  承尘  
+##### 83440#       发表于 2021-9-8 21:46
+
+
+md箱子开不了怎么推活动，dw还能再废物点吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

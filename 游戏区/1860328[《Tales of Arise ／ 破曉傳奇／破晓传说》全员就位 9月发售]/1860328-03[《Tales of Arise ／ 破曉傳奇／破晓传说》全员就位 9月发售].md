@@ -2695,3 +2695,58 @@ steam支持21：9么</blockquote>
 ps5啥时候解锁？
 
 
+
+
+*****
+
+####  crosz  
+##### 3224#       发表于 2021-9-8 20:26
+
+
+实体好像有发货的了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Yason  
+##### 3225#       发表于 2021-9-8 20:29
+
+
+我预载的ps5版37g，为什么ps4版比ps5版大十几g？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D-JoeII  
+##### 3226#       发表于 2021-9-8 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670726&amp;ptid=1860328" target="_blank">Yason 发表于 2021-9-8 20:29</a>
+
+我预载的ps5版37g，为什么ps4版比ps5版大十几g？</blockquote>
+不知道,反正Xbox版兩代都是40GB,可能PS4塞了多餘文件
+
+
+*****
+
+####  6847651  
+##### 3227#       发表于 2021-9-8 21:02
+
+
+怎么做到偷跑的 当新西兰人？
+
+
+*****
+
+####  BallanceHZ  
+##### 3228#       发表于 2021-9-8 21:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52668846&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-8 18:25</a>
+帧数模式不掉吧</blockquote>
+说的就是帧数模式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+画质模式不是全程掉帧吗（
+
+
