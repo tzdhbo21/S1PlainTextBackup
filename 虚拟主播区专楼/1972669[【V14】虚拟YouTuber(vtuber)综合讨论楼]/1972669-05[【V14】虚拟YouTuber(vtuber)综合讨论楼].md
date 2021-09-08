@@ -12193,3 +12193,23 @@ NIJI KR，韩国人都不看<img src="https://static.saraba1st.com/image/smiley/
 为什么是橡果呢，因为我是栗鼠
 
 
+
+
+*****
+
+####  OldGlory  
+##### 6902#       发表于 2021-9-8 20:13
+
+
+看上去好壮
+
+
+*****
+
+####  winda  
+##### 6903#       发表于 2021-9-8 20:14
+
+
+有了物理碰撞的袖子像根橡皮管<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

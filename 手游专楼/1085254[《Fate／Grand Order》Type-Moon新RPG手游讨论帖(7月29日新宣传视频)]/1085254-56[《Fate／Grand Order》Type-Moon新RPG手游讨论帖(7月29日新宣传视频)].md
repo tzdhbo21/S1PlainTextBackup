@@ -10228,3 +10228,190 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么全是大头娃娃，溜了溜了
 
 
+
+
+*****
+
+####  khxooo  
+##### 83364#       发表于 2021-9-8 20:09
+
+
+苍月真的是，无语了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yzj134100  
+##### 83365#       发表于 2021-9-8 20:09
+
+
+好久没试过护肤出货了，留着石头等二期了
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  areklose  
+##### 83366#       发表于 2021-9-8 20:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽到了 魔总抽出来后一开始大人版，然后分身。的确是绿卡。一南丁一魔总一夏绿蒂 等皇女单UP
+
+
+*****
+
+####  smdzh2  
+##### 83367#       发表于 2021-9-8 20:10
+
+
+看了下解包，我不是针对在座的各位，我只想说苍月你是真的逊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 83368#       发表于 2021-9-8 20:10
+
+
+唉，沉了沉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龙娘777  
+##### 83369#       发表于 2021-9-8 20:10
+
+
+没有一个想要的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 83370#       发表于 2021-9-8 20:11
+
+
+卧槽5发11连3宝魔总，第五发还双黄了，然而还没抽到皇女和5星礼装，为啥每年抽泳装都欧得这么奇葩啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  LOLITA  
+##### 83371#       发表于 2021-9-8 20:12
+
+
+礼貌性的十连了一发，皇女，蓝单体。。。好吧至少一池这个算最想要的了。FGO关闭<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83372#       发表于 2021-9-8 20:12
+
+
+魔总这技能组，溜了溜了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+魔总0夏洛特2皇女2卡莲6
+
+顺利跑路，你们加油
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83373#       发表于 2021-9-8 20:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔总没强度 我不抽了.等第2期.夏绿蒂真的吓到我了
+
+
+*****
+
+####  alucardcz  
+##### 83374#       发表于 2021-9-8 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670518&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-8 20:12</a>
+
+魔总这技能组，溜了溜了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">图鉴收一个啊
+
+
+*****
+
+####  exiaexa  
+##### 83375#       发表于 2021-9-8 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670530&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 20:13</a>
+
+图鉴收一个啊</blockquote>
+不要，社长的黑皮画的真的太拉了
+
+AE魔总我抽到除了活动期间就没用过，更别说这次是个剑，还是个绿剑
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 83376#       发表于 2021-9-8 20:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关系户真的是tm毫无长进
+
+
+*****
+
+####  白金口袋  
+##### 83377#       发表于 2021-9-8 20:16
+
+
+清少纳言原来那么大的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83378#       发表于 2021-9-8 20:17
+
+
+艹，我发现我居然只有2张3星礼装
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 83379#       发表于 2021-9-8 20:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这泳装是一年不如一年啊.....上半期看下来一个想抽的欲望都没....等下半期再看了
+
+
+*****
+
+####  枪聆弹语  
+##### 83380#       发表于 2021-9-8 20:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破案了，是武内硬拉苍月来，这样你就不能骂他画的是最丑的了
+
+
+*****
+
+####  LOLITA  
+##### 83381#       发表于 2021-9-8 20:18
+
+
+妈呀，皇女这最终再临立绘太美了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+强烈建议抽一个收藏<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+

@@ -2326,3 +2326,18 @@ vtb模拟器里的id
 <img src="https://img.saraba1st.com/forum/202109/08/195021q7ytoj7vow1katzj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  电磁炮233  
+##### 196#       发表于 2021-9-8 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670217&amp;ptid=2021175" target="_blank">qwe123098 发表于 2021-9-8 19:52</a>
+真成b站顶流了</blockquote>
+文静这sc也收麻了啊<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

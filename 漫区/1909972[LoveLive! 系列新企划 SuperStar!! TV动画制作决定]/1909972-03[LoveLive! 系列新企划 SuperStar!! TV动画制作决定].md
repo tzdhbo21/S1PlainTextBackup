@@ -16049,3 +16049,78 @@ bilibili秋叶原2这个官方号一直有转播ll生放的，就是不知道为
 感觉表情管理又回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 4309#       发表于 2021-9-8 20:05
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/200521wbazcefpgahmwhvc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210908_195414.jpg</strong> (25.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 20:05 上传
+
+
+菜宝
+
+
+*****
+
+####  蔵女  
+##### 4310#       发表于 2021-9-8 20:12
+
+
+上次你们提到后我这次留意了一下，鲤鱼你怎么真的一直看nako啊~<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenflyyy  
+##### 4311#       发表于 2021-9-8 20:12
+
+
+这次生放鲤鱼终于是完全绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TTAA  
+##### 4312#       发表于 2021-9-8 20:14
+
+
+看到牛逼实在绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 4313#       发表于 2021-9-8 20:16
+
+
+下周又有生放，字幕组忙不过来了
+
+<img src="https://img.saraba1st.com/forum/202109/08/201623oy8f8yfffyyzy8y9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-27856006a20a4bb7.jpg</strong> (149.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 20:16 上传
+
+
+*****
+
+####  a92063256  
+##### 4314#       发表于 2021-9-8 20:19
+
+
+菜宝这么说话真的没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
