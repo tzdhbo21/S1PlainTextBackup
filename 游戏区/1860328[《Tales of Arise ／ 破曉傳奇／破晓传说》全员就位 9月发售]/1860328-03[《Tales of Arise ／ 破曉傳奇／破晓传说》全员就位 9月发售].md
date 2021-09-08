@@ -2637,3 +2637,36 @@ steam支持21：9么</blockquote>
 今天刚玩demo，请问这游戏对话字幕就是这么小的？大地图还是按x跳跃...正式版有可能改进吗
 
 
+
+
+*****
+
+####  tstx2005  
+##### 3219#       发表于 2021-9-8 17:48
+
+
+[https://www.bilibili.com/video/B ... id_from=333.337.0.0](https://www.bilibili.com/video/BV1AA411F7Fm?from=search&amp;seid=5235211435402983935&amp;spm_id_from=333.337.0.0)已经有人偷跑了……
+
+
+*****
+
+####  Rainwedell  
+##### 3220#       发表于 2021-9-8 17:52
+
+
+刚去贴吧发现有人去广州店里拿到盘了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  reficul  
+##### 3221#       发表于 2021-9-8 18:25
+
+
+<blockquote>BallanceHZ 发表于 2021-9-8 12:45
+反正demo是会掉帧的</blockquote>
+帧数模式不掉吧
+
+
