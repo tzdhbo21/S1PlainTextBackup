@@ -2421,3 +2421,23 @@ ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  菲星  
+##### 3201#       发表于 2021-9-8 14:03
+
+
+所以问一下欧版美版有中文吗？
+
+
+*****
+
+####  skyfaker305  
+##### 3202#       发表于 2021-9-8 14:12
+
+
+新西兰人可以提前玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
