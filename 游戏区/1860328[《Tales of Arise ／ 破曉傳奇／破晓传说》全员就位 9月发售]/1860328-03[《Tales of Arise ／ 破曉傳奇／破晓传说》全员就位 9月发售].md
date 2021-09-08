@@ -2441,3 +2441,17 @@ ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优�
 新西兰人可以提前玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  fateultraone  
+##### 3203#       发表于 2021-9-8 14:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52661899&amp;ptid=1860328" target="_blank">swordofsoul1 发表于 2021-9-8 10:31</a>
+
+ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优化</blockquote>
+玩pc版60帧是最基础的东西，这用虚幻4玩pc版就是为了配高刷跑个144帧
+
+
