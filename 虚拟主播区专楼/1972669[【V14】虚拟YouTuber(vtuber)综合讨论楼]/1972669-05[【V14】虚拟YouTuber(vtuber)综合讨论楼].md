@@ -12061,3 +12061,71 @@ azki又要把以前开过的几次live免费大放送了，这次能留档一周
 2021-9-8 15:21 上传
 
 
+
+
+*****
+
+####  Porsche  
+##### 6896#       发表于 2021-9-8 15:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52665875&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2021-9-8 15:10</a>
+明天。
+
+https://youtu.be/gPJ_bBAmDEg</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">终于回来了
+上次生存报告之后推都没更新过
+
+
+*****
+
+####  alcoholic1000  
+##### 6897#       发表于 2021-9-8 17:22
+
+
+NIJI KR，韩国人都不看<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+韩国偶像金希澈김희철的LOL昵称是타카미야 리온（鹰宫RION）
+
+<img src="https://img.saraba1st.com/forum/202109/08/171509tihk3k3h3czkhckt.png" referrerpolicy="no-referrer">
+
+
+<strong>SUPER JUNIOR キム・ヒチョル(ヒチョル)LOLニックネームが타카미야 리온(鷹宮リオン)..png</strong> (63.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 17:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/171421rlpgfcfxcxlc3mwl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>타카미야 리온.jpeg</strong> (383.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 17:14 上传
+
+
+这位哥WOW的昵称是獅白ぼたん
+
+<img src="https://img.saraba1st.com/forum/202109/08/172142wtj1juoot6ej4zar.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>시시로보단.jpeg</strong> (81.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 17:21 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/172142q6vttbv9fcrqft4r.png" referrerpolicy="no-referrer">
+
+
+<strong>시시로보단-2.png</strong> (41.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 17:21 上传
+
+

@@ -3736,3 +3736,19 @@ P1020004.JPG
 只在最后的时候沉默了一段时间。
 
 
+
+
+*****
+
+####  tn_teana  
+##### 330#       发表于 2021-9-8 15:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52661462&amp;ptid=2013779" target="_blank">夜潇箫 发表于 2021-9-8 09:57</a>
+
+看了一下录播，可惜没有直播哭出来
+
+只在最后的时候沉默了一段时间。 ...</blockquote>
+琳中午直播说下播以后去看白白，扎个发带露出两只通红的眼睛，哭了半个多小时
+
+

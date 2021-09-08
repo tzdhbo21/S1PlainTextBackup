@@ -2455,3 +2455,185 @@ ps5肯定也能全程60帧，触觉反馈，还不用担心日厂在pc的负优�
 玩pc版60帧是最基础的东西，这用虚幻4玩pc版就是为了配高刷跑个144帧
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 3204#       发表于 2021-9-8 15:29
+
+
+这以后官方简中中文译名也统一成 传奇系列(或 时空幻境系列） 了？
+
+虽然游戏本体目前还只有繁中，但是看到 STEAM版的简中名也叫这个而不是沿用英文名称
+
+
+*****
+
+####  LMBS  
+##### 3205#       发表于 2021-9-8 15:30
+
+
+还有几个小时就能玩到破晓，打算上班循环系列主题曲。打开企鹅猪场音乐，两边都有几首灰的
+
+
+*****
+
+####  剑布衣  
+##### 3206#       发表于 2021-9-8 15:33
+
+
+完了，垃圾アニメイト发邮件来了，大变申了没发货，这下明天估计玩不到了，就图它家的挂报这下人傻了
+
+
+*****
+
+####  zzzeven  
+##### 3207#       发表于 2021-9-8 15:50
+
+
+XSX还不能预载吗？？
+
+
+*****
+
+####  skyfaker305  
+##### 3208#       发表于 2021-9-8 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52666480&amp;ptid=1860328" target="_blank">zzzeven 发表于 2021-9-8 15:50</a>
+
+XSX还不能预载吗？？</blockquote>
+中午就可以预载了
+
+syl 有好兄弟知道每个区具体解锁时间吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GMJ  
+##### 3209#       发表于 2021-9-8 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52661995&amp;ptid=1860328" target="_blank">PureWaltz 发表于 2021-9-8 10:37</a>
+
+steam版也可以预载了</blockquote>
+steam支持21：9么
+
+
+*****
+
+####  恋妖壶  
+##### 3210#       发表于 2021-9-8 16:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52666667&amp;ptid=1860328" target="_blank">skyfaker305 发表于 2021-9-8 16:00</a>
+
+中午就可以预载了
+
+syl 有好兄弟知道每个区具体解锁时间吗</blockquote>
+一般来说是10号中午左右了
+
+
+这是现在最让我想买PS版的原因，整整晚一天半了
+
+
+
+
+*****
+
+####  新世界的派蒙  
+##### 3211#       发表于 2021-9-8 16:11
+
+
+评分呢评分呢，几点评分解禁阿，PS那几个终极版贵得一批，没看见评分之前预购的手，微微颤抖
+
+
+*****
+
+####  skyfaker305  
+##### 3212#       发表于 2021-9-8 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52666826&amp;ptid=1860328" target="_blank">恋妖壶 发表于 2021-9-8 16:09</a>
+
+一般来说是10号中午左右了
+
+
+这是现在最让我想买PS版的原因，整整晚一天半了 ...</blockquote>
+10号是steam把，我其实想问xsx的解锁时间
+
+
+*****
+
+####  4ckc  
+##### 3213#       发表于 2021-9-8 16:21
+
+
+xsx如果当基里巴斯人能提前玩上吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qiyu1234  
+##### 3214#       发表于 2021-9-8 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667040&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-9-8 16:21</a>
+
+xsx如果当基里巴斯人能提前玩上吗
+
+
+—— 来自 S1Fun</blockquote>
+欧美发售日是10号，直接规避掉换区的可能性
+
+可以换成日区早1小时
+
+
+*****
+
+####  4ckc  
+##### 3215#       发表于 2021-9-8 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667199&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-8 16:30</a>
+欧美发售日是10号，直接规避掉换区的可能性
+
+可以换成日区早1小时</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  PureWaltz  
+##### 3216#       发表于 2021-9-8 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52666668&amp;ptid=1860328" target="_blank">GMJ 发表于 2021-9-8 16:00</a>
+
+steam支持21：9么</blockquote>
+不支持，不过以后应该会有第三方提供mod实现
+
+
+*****
+
+####  那由  
+##### 3217#       发表于 2021-9-8 16:44
+
+
+蒸汽显示1天13小时后解锁，也就是凌晨四点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KET  
+##### 3218#       发表于 2021-9-8 16:47
+
+
+今天刚玩demo，请问这游戏对话字幕就是这么小的？大地图还是按x跳跃...正式版有可能改进吗
+
+

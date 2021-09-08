@@ -9046,3 +9046,313 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 草，现在才知道原来没抽到奥伯龙的人永远没法用奥伯龙的三破<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  vacuumsword  
+##### 83257#       发表于 2021-9-8 16:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52664852&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-8 13:59</a>
+
+草，现在才知道原来没抽到奥伯龙的人永远没法用奥伯龙的三破</blockquote>
+锁立绘还是连技能也锁？
+
+
+*****
+
+####  zakki  
+##### 83258#       发表于 2021-9-8 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52666814&amp;ptid=1085254" target="_blank">vacuumsword 发表于 2021-9-8 16:08</a>
+
+锁立绘还是连技能也锁？</blockquote>
+就是不让用第二套模组宝具，技能肯定没影响
+
+
+*****
+
+####  香蜂草  
+##### 83259#       发表于 2021-9-8 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52664852&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-8 13:59</a>
+草，现在才知道原来没抽到奥伯龙的人永远没法用奥伯龙的三破</blockquote>
+只抽到也不让用的，得打完幕间<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83260#       发表于 2021-9-8 17:05
+
+
+啧，我还想着能先开个强化本啥的，一切转生放
+
+
+顺便这只有支援配置数增加有屁用啊艹
+
+你倒是多搜索几个配置啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83261#       发表于 2021-9-8 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667738&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-8 17:05</a>
+
+啧，我还想着能先开个强化本啥的，一切转生放
+
+
+顺便这只有支援配置数增加有屁用啊艹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是对dw有什么错误的期待（
+
+
+*****
+
+####  alucardcz  
+##### 83262#       发表于 2021-9-8 17:11
+
+
+ 本帖最后由 alucardcz 于 2021-9-8 17:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52654259&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-9-7 17:28</a>
+
+明儿个维护完以后，支援编成要多开一个格子
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果等于直接加了18个格子
+
+
+*****
+
+####  仰望神的括约肌  
+##### 83263#       发表于 2021-9-8 17:11
+
+
+有点没看懂 是通常和活动各有三排助战可以设置还是咋样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83264#       发表于 2021-9-8 17:12
+
+
+不对，我试了一下，每个set人物不能重复，礼装可以重复
+
+我设了两组，你们有我好友的谁试一下是不是能搜索到两组配置
+
+常规本的支援
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83265#       发表于 2021-9-8 17:14
+
+
+ 本帖最后由 alucardcz 于 2021-9-8 17:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667872&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-8 17:12</a>
+
+不对，我试了一下，每个set人物不能重复，礼装可以重复
+
+我设了两组，你们有我好友的谁试一下是不是能搜索到 ...</blockquote>
+我试了 可以直接显示3组人了。。。 dw这次居然干了人事（
+
+
+*****
+
+####  alucardcz  
+##### 83266#       发表于 2021-9-8 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667844&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-9-8 17:11</a>
+
+有点没看懂 是通常和活动各有三排助战可以设置还是咋样</blockquote>
+进选主战界面可以直接看到你设置的3组人
+
+例如通常all你设置了孔 梅 狐  我这里选的时候可以直接看到你的孔 梅 狐3个人
+
+
+*****
+
+####  alucardcz  
+##### 83267#       发表于 2021-9-8 17:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667872&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-8 17:12</a>
+
+不对，我试了一下，每个set人物不能重复，礼装可以重复
+
+我设了两组，你们有我好友的谁试一下是不是能搜索到 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/08/171654vkroefzeljx3canp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>111.jpg</strong> (496.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 17:16 上传
+
+
+你id我忘了这是不是你
+
+现在成这样了 好评一下
+
+
+*****
+
+####  exiaexa  
+##### 83268#       发表于 2021-9-8 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667949&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 17:17</a>
+
+你id我忘了这是不是你
+
+现在成这样了 好评一下</blockquote>
+虽然不是我，但是确实解决各种难题了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 83269#       发表于 2021-9-8 17:18
+
+
+这不错，刷盒子的时候不用纠结满破礼装放哪里了
+
+
+*****
+
+####  仰望神的括约肌  
+##### 83270#       发表于 2021-9-8 17:20
+
+
+看到了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这倒是方便了不少
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/172023u6aeq4zjnnhecqln.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-09-08-17-17-58-21_13e7a6b10873871.jpg</strong> (461.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 17:20 上传
+
+
+*****
+
+####  alucardcz  
+##### 83271#       发表于 2021-9-8 17:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667965&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-8 17:18</a>
+
+虽然不是我，但是确实解决各种难题了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">礼装还可以重复 dw居然干了人事 没想到啊
+
+
+*****
+
+####  承尘  
+##### 83272#       发表于 2021-9-8 17:20
+
+
+这改动不错啊
+
+
+*****
+
+####  zakki  
+##### 83273#       发表于 2021-9-8 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667644&amp;ptid=1085254" target="_blank">香蜂草 发表于 2021-9-8 16:59</a>
+只抽到也不让用的，得打完幕间</blockquote>
+我知道啊，但你抽到了只要打了幕间就能用，没抽到就永远别想用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 83274#       发表于 2021-9-8 17:22
+
+
+不是今天开活动啊？
+
+
+*****
+
+####  1a不解释  
+##### 83275#       发表于 2021-9-8 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52668031&amp;ptid=1085254" target="_blank">v22325 发表于 2021-9-8 17:22</a>
+不是今天开活动啊？</blockquote>
+开完生放送再开吧
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 83276#       发表于 2021-9-8 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52668031&amp;ptid=1085254" target="_blank">v22325 发表于 2021-9-8 17:22</a>
+
+不是今天开活动啊？</blockquote>
+老规矩晚上生放送完开吧
+
+
+*****
+
+####  exiaexa  
+##### 83277#       发表于 2021-9-8 17:44
+
+
+虽然整体来说是好消息
+
+但是我自己编了三组支援以后
+
+
+我对以后群魔乱舞的支援表示超（有）期（乐）待（子）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83278#       发表于 2021-9-8 17:45
+
+
+<blockquote>引用第83273楼v22325于2021-09-08 17:22发表的  :
+
+不是今天开活动啊？</blockquote>
+8点啊，敢不敢去看公告
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  yangun22  
+##### 83279#       发表于 2021-9-8 17:46
+
+
+我赌5块钱会有很多人没有点下面的通常活动设定栏，结果到了活动助战变成空的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+

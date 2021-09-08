@@ -10189,3 +10189,52 @@ ponponpon总感觉哼过不少次，这次居然是第一次完整唱啊🤔
 可惜了，永远不会有的联名款试穿repo
 
 
+
+
+*****
+
+####  makourisu-2  
+##### 2410#       发表于 2021-9-8 17:15
+
+
+上午发完推就又不动了，今天会播嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2411#       发表于 2021-9-8 17:17
+
+
+昨晚就说今天不播了啊，安心睡觉去吧，估计顶天就是也许或者有可能的TC小突击就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  llconforever  
+##### 2412#       发表于 2021-9-8 17:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">联名款有特大肥佬款吗
+
+
+*****
+
+####  T_Hb  
+##### 2413#       发表于 2021-9-8 17:20
+
+
+ 本帖最后由 T_Hb 于 2021-9-8 17:33 编辑 
+
+就是特大号 肩宽55  什么样的肥肥穿不下
+
+
+*****
+
+####  时间在我手中  
+##### 2414#       发表于 2021-9-8 17:22
+
+
+放心，肥肥直接买最大号的就行了，看看和小麻比谁的够撑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

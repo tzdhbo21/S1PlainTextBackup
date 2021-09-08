@@ -15627,3 +15627,132 @@ BV15L4y1h7AZ
 什么神龙<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  dozen  
+##### 4273#       发表于 2021-9-8 15:28
+
+
+刚看最新话，这表记也没横田啊，属实捧杀了
+
+
+*****
+
+####  itsmyrailgun  
+##### 4274#       发表于 2021-9-8 15:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 借楼问一下有没有讨论lovelive全企划或者super star的QQ群，看了一眼似乎没有S1群是以lovelive为主的。。。。
+
+
+*****
+
+####  星降る森  
+##### 4275#       发表于 2021-9-8 15:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水二期最终话是一群CP厨被二年级大和谐整破防了吗
+
+
+*****
+
+####  左梓喵右受兔  
+##### 4276#       发表于 2021-9-8 16:30
+
+
+你们对花田好点啊 逼急了人家可是有大招 沉个如月 下一集继续喝茶的
+
+
+*****
+
+####  kimibsb  
+##### 4277#       发表于 2021-9-8 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52666358&amp;ptid=1909972" target="_blank">itsmyrailgun 发表于 2021-9-8 15:42</a>
+借楼问一下有没有讨论lovelive全企划或者super star的QQ群，看了一眼似乎没有S1群是以lovelive为主 ...</blockquote>
+295410922
+从缪时期就开始的泥潭LL群
+虽然多次群主管理变更 当然也有不少隔壁加进来的
+群内什么都聊 当然黑屁严重 心理承受能力差慎入
+
+
+*****
+
+####  名津流  
+##### 4278#       发表于 2021-9-8 17:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52666358&amp;ptid=1909972" target="_blank">itsmyrailgun 发表于 2021-9-8 15:42</a>
+
+借楼问一下有没有讨论lovelive全企划或者super star的QQ群，看了一眼似乎没有S1群是以lovelive为主 ...</blockquote>
+1018861243
+
+N10字幕组的Q群，我观察了好多天，几乎90%以上的时间都在聊LL，纯度极高
+
+
+*****
+
+####  宋西湖  
+##### 4279#       发表于 2021-9-8 17:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667381&amp;ptid=1909972" target="_blank">kimibsb 发表于 2021-9-8 16:43</a>
+
+295410922
+
+从缪时期就开始的泥潭LL群
+
+虽然多次群主管理变更 当然也有不少隔壁加进来的</blockquote>
+QQ群吗？没找到，
+
+
+*****
+
+####  宋西湖  
+##### 4280#       发表于 2021-9-8 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667742&amp;ptid=1909972" target="_blank">名津流 发表于 2021-9-8 17:05</a>
+
+1018861243
+
+N10字幕组的Q群，我观察了好多天，几乎90%以上的时间都在聊LL，纯度极高 ...</blockquote>
+加群有要求吗？我属于潜水的，而且很少（不会）说话，
+
+
+*****
+
+####  名津流  
+##### 4281#       发表于 2021-9-8 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52667961&amp;ptid=1909972" target="_blank">宋西湖 发表于 2021-9-8 17:18</a>
+
+加群有要求吗？我属于潜水的，而且很少（不会）说话，</blockquote>
+既然是公开挂在B站No_10字幕组简介里的Q群，人家简介里没写要求那就是没要求了吧
+
+
+*****
+
+####  宋西湖  
+##### 4282#       发表于 2021-9-8 17:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">进群了，
+
+
+*****
+
+####  宋西湖  
+##### 4283#       发表于 2021-9-8 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52668023&amp;ptid=1909972" target="_blank">名津流 发表于 2021-9-8 17:22</a>
+
+既然是公开挂在B站No_10字幕组简介里的Q群，人家简介里没写要求那就是没要求了吧 ...</blockquote>
+好的，谢谢，<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
