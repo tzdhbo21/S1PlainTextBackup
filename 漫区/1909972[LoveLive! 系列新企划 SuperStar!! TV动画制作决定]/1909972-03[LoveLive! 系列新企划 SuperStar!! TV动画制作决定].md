@@ -15826,3 +15826,26 @@ QQ群吗？没找到，</blockquote>
 星团色图是吧
 
 
+
+
+*****
+
+####  宋西湖  
+##### 4288#       发表于 2021-9-8 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52668511&amp;ptid=1909972" target="_blank">kimibsb 发表于 2021-9-8 17:59</a>
+
+好像之前把查找关了 现在开了应该找得到了</blockquote>
+好的，申请加入了，等审，
+
+
+*****
+
+####  宋西湖  
+##### 4289#       发表于 2021-9-8 18:53
+
+
+官方真的直播生放送啦，
+
+

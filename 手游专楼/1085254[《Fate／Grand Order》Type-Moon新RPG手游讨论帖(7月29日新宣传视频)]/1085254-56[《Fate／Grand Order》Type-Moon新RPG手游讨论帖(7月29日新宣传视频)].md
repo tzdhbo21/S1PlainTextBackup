@@ -9367,3 +9367,51 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始了？
 
 
+
+
+*****
+
+####  الطائر  
+##### 83281#       发表于 2021-9-8 18:33
+
+
+终于可以把礼装图鉴蹭满了。
+
+
+*****
+
+####  千叶铁矢  
+##### 83282#       发表于 2021-9-8 18:34
+
+
+花了五分钟弄懂了新助战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 83283#       发表于 2021-9-8 18:52
+
+
+没有月姬联动，在这里有什么好宣传的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 83284#       发表于 2021-9-8 18:52
+
+
+看到了泄露的cm截图，魔总，伽摩，清少纳言，沸羊羊，皇女还有个看着像是夏洛特
+
+
+*****
+
+####  exiaexa  
+##### 83285#       发表于 2021-9-8 18:54
+
+
+这个嘉年华PV太草
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
