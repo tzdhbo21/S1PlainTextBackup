@@ -2072,3 +2072,22 @@ xbox还没开始预载
 疫情后，尸体周日玩到都是快的，慢点周日的才发货.....
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 3171#       发表于 2021-9-8 08:59
+
+
+gamespot几小时前上传了一个视频
+
+
+Tales of Arise is Shaping Up to Be the Next Big Action RPG
+
+[https://www.youtube.com/watch?v=FaLGVnfO5Vc](https://www.youtube.com/watch?v=FaLGVnfO5Vc)
+
+
+横竖只看出两个词，万南，打钱
+
+
