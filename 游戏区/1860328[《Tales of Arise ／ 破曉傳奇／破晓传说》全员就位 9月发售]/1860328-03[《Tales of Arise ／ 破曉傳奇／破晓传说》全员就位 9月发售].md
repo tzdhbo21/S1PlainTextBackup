@@ -2091,3 +2091,14 @@ Tales of Arise is Shaping Up to Be the Next Big Action RPG
 横竖只看出两个词，万南，打钱
 
 
+
+
+*****
+
+####  roxassix  
+##### 3172#       发表于 2021-9-8 09:14
+
+
+xbox版预载也开了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+

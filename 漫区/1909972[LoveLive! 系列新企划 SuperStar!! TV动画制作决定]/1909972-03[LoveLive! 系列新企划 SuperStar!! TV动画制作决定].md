@@ -15376,3 +15376,18 @@ live回要是还能低那这企划...
 幼驯染、霸凌很戳大部分日本人吧？
 
 
+
+
+*****
+
+####  江口夕  
+##### 4255#       发表于 2021-9-8 09:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52641768&amp;ptid=1909972" target="_blank">AlfredXC 发表于 2021-9-6 17:49</a>
+我也没质疑她跳舞的能力啊，我质疑的是即插即用</blockquote>
+偶像大师miki了解一下？
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
