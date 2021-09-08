@@ -9606,3 +9606,625 @@ emm，刷推看到本能寺恒常，疑惑到又上游戏找了一圈也没看�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83304#       发表于 2021-9-8 19:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有没有人记得之前舅舅暴的啥料吗  审判之刻马上就要到了
+
+
+*****
+
+####  areklose  
+##### 83305#       发表于 2021-9-8 19:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669521&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 19:11</a>
+
+还有没有人记得之前舅舅暴的啥料吗  审判之刻马上就要到了</blockquote>
+隔壁已经有PV图
+
+
+*****
+
+####  alucardcz  
+##### 83306#       发表于 2021-9-8 19:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669536&amp;ptid=1085254" target="_blank">areklose 发表于 2021-9-8 19:11</a>
+
+隔壁已经有PV图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以舅舅是亡了还是中了？
+
+
+*****
+
+####  areklose  
+##### 83307#       发表于 2021-9-8 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669540&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 19:12</a>
+
+所以舅舅是亡了还是中了？</blockquote>
+好像是大部分中了
+
+
+*****
+
+####  khxooo  
+##### 83308#       发表于 2021-9-8 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669540&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 19:12</a>
+
+所以舅舅是亡了还是中了？</blockquote>
+当然是亡了，舅舅全部都死了。
+
+
+*****
+
+####  alucardcz  
+##### 83309#       发表于 2021-9-8 19:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们2个打一架？怎么说的完全相反啊
+
+
+*****
+
+####  smdzh2  
+##### 83310#       发表于 2021-9-8 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669237&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-9-8 19:55</a>
+噢？我想看皇女ml党和卡多克党的大战</blockquote>
+一人一个老婆，有什么好撕逼的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  exiaexa  
+##### 83311#       发表于 2021-9-8 19:14
+
+
+沸羊羊和清少纳言杀死所有舅舅
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿提拉  
+##### 83312#       发表于 2021-9-8 19:15
+
+
+光PV里有个夏绿蒂就足够惊吓了，苍月来画泳装这简直灾难
+
+
+夹膜 魔总 清少纳言 皇女 凯尼斯 夏绿蒂，就这6个了
+
+
+*****
+
+####  areklose  
+##### 83313#       发表于 2021-9-8 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669577&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 19:14</a>
+
+你们2个打一架？怎么说的完全相反啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看隔壁[V图阿 魔总皇女夹馍都中，另外那个好像不是布迪卡是夏蒂
+
+
+*****
+
+####  alucardcz  
+##### 83314#       发表于 2021-9-8 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669610&amp;ptid=1085254" target="_blank">areklose 发表于 2021-9-8 19:15</a>
+
+你看隔壁[V图阿 魔总皇女夹馍都中，另外那个好像不是布迪卡是侠蒂</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">图我看了　但是我不记得舅舅说过什么了
+
+
+*****
+
+####  exiaexa  
+##### 83315#       发表于 2021-9-8 19:17
+
+
+艹，蓝卡空骑现在才来
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 83316#       发表于 2021-9-8 19:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669619&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-8 19:16</a>
+
+图我看了　但是我不记得舅舅说过什么了</blockquote>
+夹馍 魔总 帝皇花 布狄卡 皇女 还有一个忘记。哦 塔喵
+
+
+*****
+
+####  alucardcz  
+##### 83317#       发表于 2021-9-8 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669645&amp;ptid=1085254" target="_blank">areklose 发表于 2021-9-8 19:17</a>
+
+夹馍 魔总 帝皇花 布狄卡 皇女 还有一个忘记。哦 塔喵</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是凉凉了吗　舅舅这种错一个就该死刑了
+
+
+*****
+
+####  真红眼教授  
+##### 83318#       发表于 2021-9-8 19:23
+
+
+舅舅中的就是迦摩、魔总、皇女
+
+
+*****
+
+####  zore  
+##### 83319#       发表于 2021-9-8 19:24
+
+
+黑胡子终于不是驼背了
+
+
+*****
+
+####  exiaexa  
+##### 83320#       发表于 2021-9-8 19:25
+
+
+男性池的礼装没有卵用真是太好了
+
+省钱+1
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83321#       发表于 2021-9-8 19:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">４星皇女
+
+
+*****
+
+####  exiaexa  
+##### 83322#       发表于 2021-9-8 19:27
+
+
+皇女那个转圈做的太糙了
+
+顺便这白丝整得跟裤袜一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真红眼教授  
+##### 83323#       发表于 2021-9-8 19:27
+
+
+宝具是做刨冰<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 83324#       发表于 2021-9-8 19:28
+
+
+夏绿蒂这个立绘烂的一批，但是宝具动画很有趣
+
+
+*****
+
+####  alucardcz  
+##### 83325#       发表于 2021-9-8 19:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">夏绿蒂这立绘怎么感觉有点怪
+
+
+*****
+
+####  eden_hazard  
+##### 83326#       发表于 2021-9-8 19:29
+
+
+苍月这脸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 83327#       发表于 2021-9-8 19:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹苍月这脸是真的拉
+
+
+*****
+
+####  黑上シグマ  
+##### 83328#       发表于 2021-9-8 19:29
+
+
+妈耶…………苍月啊…………………………
+
+
+*****
+
+####  exiaexa  
+##### 83329#       发表于 2021-9-8 19:29
+
+
+说出来你们可能不信，我觉得这个夏洛特居然，挺好的
+
+超出预期了(指对苍月
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rooarr  
+##### 83330#       发表于 2021-9-8 19:29
+
+
+夏绿蒂的风格是不是变了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 83331#       发表于 2021-9-8 19:30
+
+
+皇女降星
+
+
+夏绿蒂升星
+
+
+魔总没变
+
+
+几家欢乐几家愁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 83332#       发表于 2021-9-8 19:30
+
+
+剑阶光炮，看看宝具颜色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83333#       发表于 2021-9-8 19:30
+
+
+怎么又是Saber啊.JPG
+
+本体又要没呼吸了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83334#       发表于 2021-9-8 19:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然１２石也不想丢了
+
+
+*****
+
+####  清风朗月  
+##### 83335#       发表于 2021-9-8 19:31
+
+
+花钱抽苍月的卡，犯罪啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  khxooo  
+##### 83336#       发表于 2021-9-8 19:32
+
+
+4星礼装牛肉丸社保啊<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 83337#       发表于 2021-9-8 19:33
+
+
+达芬奇和她的新恐龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 83338#       发表于 2021-9-8 19:34
+
+
+这个泳装活动，我幻视了七龙珠，海贼王，口袋妖怪，哆啦A梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蓮華  
+##### 83339#       发表于 2021-9-8 19:34
+
+
+舅舅是不是把夏洛特看成布狄卡了，比如原画没上色的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 83340#       发表于 2021-9-8 19:34
+
+
+泳装我一向是活动一开直接丢石头随缘抽抽看 但这次看到苍月一瞬间我决定等单up<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  atomicink  
+##### 83341#       发表于 2021-9-8 19:34
+
+
+夏绿蒂，丑哭。
+
+
+*****
+
+####  exiaexa  
+##### 83342#       发表于 2021-9-8 19:35
+
+
+这次唯一的惊喜，清少纳言捂得这么严实PV里意外的有料
+
+剩下的一般
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zore  
+##### 83343#       发表于 2021-9-8 19:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等二期了
+
+谢谢你 苍月
+
+
+*****
+
+####  清风朗月  
+##### 83344#       发表于 2021-9-8 19:35
+
+
+今年Wada没新卡啊，我还想泳装船长呢，结果黑胡子先有了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  LOLITA  
+##### 83345#       发表于 2021-9-8 19:36
+
+
+没一个想要的，幸亏在王姐家把石头都抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83346#       发表于 2021-9-8 19:37
+
+
+这次只用抽4个，苍月和NS精再见
+
+
+*****
+
+####  eden_hazard  
+##### 83347#       发表于 2021-9-8 19:38
+
+
+从另一方面看，艾蕾是备战2022年泳装最早的从者……
+
+
+*****
+
+####  khxooo  
+##### 83348#       发表于 2021-9-8 19:38
+
+
+希望抽到4星礼装，其他的就不想了。
+
+
+*****
+
+####  xiongxingyu  
+##### 83349#       发表于 2021-9-8 19:39
+
+
+二期夹馍、阿清和沸羊羊，9月份钱包要爆破了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83350#       发表于 2021-9-8 19:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说魔总这宝具是不是有点光刃闪的感觉
+
+
+*****
+
+####  LOLITA  
+##### 83351#       发表于 2021-9-8 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670010&amp;ptid=1085254" target="_blank">eden_hazard 发表于 2021-9-8 19:38</a>
+
+从另一方面看，艾蕾是备战2022年泳装最早的从者……</blockquote>
+不愧是FGO中国队<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 83352#       发表于 2021-9-8 19:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一期皇女魔总，二期夹馍。大概瞄准3个
+
+
+*****
+
+####  白夜羽  
+##### 83353#       发表于 2021-9-8 19:47
+
+
+草，除了卡莲以外一张卡都没记住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 83354#       发表于 2021-9-8 19:47
+
+
+五星看技能，四星看缘分
+
+目前一个从性癖意义上想要的都没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 83355#       发表于 2021-9-8 19:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">卡莲那张礼装光看那模糊的预览图都感觉美爆了，这么说明年卡莲泳装也有戏了？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  LOLITA  
+##### 83356#       发表于 2021-9-8 19:58
+
+
+这次氪金泳装从者立绘水平最高的居然可能是武内的魔总。。。其他几个要么配色有问题要么水平一般。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83357#       发表于 2021-9-8 20:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52670155&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-8 19:47</a>
+
+五星看技能，四星看缘分
+
+目前一个从性癖意义上想要的都没有</blockquote>
+魔总据说是绿卡 然后 大概也没有然后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 83358#       发表于 2021-9-8 20:02
+
+
+骂完记得抽.jpg
+
+我就看楼里几个说难看结果到时候满宝的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83359#       发表于 2021-9-8 20:06
+
+
+草  夏绿蒂这解包卡面也太过分了吧..拉成这样也能通过的?
+
+
+*****
+
+####  cckuku  
+##### 83360#       发表于 2021-9-8 20:08
+
+
+天啊，苍月真的是…拉跨到一定地步了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 83361#       发表于 2021-9-8 20:08
+
+
+抽出魔总有特殊演出，那个小的是里面是炼狱（魔总的刀），登场对话超长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 83362#       发表于 2021-9-8 20:08
+
+
+2发11连出魔总了，果然我抽泳装还是满欧的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枪聆弹语  
+##### 83363#       发表于 2021-9-8 20:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么全是大头娃娃，溜了溜了
+
+

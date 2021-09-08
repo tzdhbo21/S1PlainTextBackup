@@ -15893,3 +15893,159 @@ bilibili秋叶原2这个官方号一直有转播ll生放的，就是不知道为
 赶上了，差点忘看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 4294#       发表于 2021-9-8 19:04
+
+
+鲤鱼跟B站各位打招呼了，好起来了
+
+
+*****
+
+####  cybernetics31  
+##### 4295#       发表于 2021-9-8 19:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲤鱼说要学菜宝打招呼 可以可以
+
+
+*****
+
+####  Norkey1  
+##### 4296#       发表于 2021-9-8 19:05
+
+
+怕不是看了菜宝的那次生放，都开始问候b站了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4297#       发表于 2021-9-8 19:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来鲤鱼平时叫菜宝homo桑的吗
+
+
+*****
+
+####  优妮可  
+##### 4298#       发表于 2021-9-8 19:06
+
+
+晚上好哈哈，下次想听鲤鱼说我想死你们了
+
+
+*****
+
+####  宋西湖  
+##### 4299#       发表于 2021-9-8 19:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669321&amp;ptid=1909972" target="_blank">TRIScRE 发表于 2021-9-8 19:00</a>
+
+星团生放一直都有官方直播</blockquote>
+我竟然一直不知道，
+
+
+*****
+
+####  lj205  
+##### 4300#       发表于 2021-9-8 19:26
+
+
+今天这座位某种程度上好微妙～
+
+
+*****
+
+####  TRIScRE  
+##### 4301#       发表于 2021-9-8 19:26
+
+
+本人下场扭曲了
+
+
+*****
+
+####  cybernetics31  
+##### 4302#       发表于 2021-9-8 19:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可香gg 鲤鱼本人都扭了
+
+
+*****
+
+####  pliee  
+##### 4303#       发表于 2021-9-8 19:32
+
+
+退学哪里帅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Norkey1  
+##### 4304#       发表于 2021-9-8 19:32
+
+
+臣等欲战死，陛下何故先降<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  优妮可  
+##### 4305#       发表于 2021-9-8 19:34
+
+
+<img src="https://img.saraba1st.com/forum/202109/08/193420t77k7r7w373a5ity.jpg" referrerpolicy="no-referrer">
+
+
+<strong>182279b755504eaf.jpg</strong> (54.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-8 19:34 上传
+
+
+群友的截图
+
+
+*****
+
+####  iuhehc  
+##### 4306#       发表于 2021-9-8 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52669934&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-8 19:34</a>
+
+群友的截图</blockquote>
+在吃饭笑的我差点噎住了
+
+
+*****
+
+####  cao1rui2  
+##### 4307#       发表于 2021-9-8 19:53
+
+
+鲤鱼今天好丑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Norkey1  
+##### 4308#       发表于 2021-9-8 19:55
+
+
+在绷不住和绷得住之间反复横跳
+感觉表情管理又回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
