@@ -12,6 +12,8 @@
 
 S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextGeneral
 
+* 2021年9月9日更新：发现S1对国外IP访问限速导致Action成功率大大下降，已转为国内服务器更新。
+
 ** 全文搜索方式：
 按下英文句号键，即可进入GitHub官方提供的https://github.dev/TomoeMami/S1PlainTextBackup界面。
 

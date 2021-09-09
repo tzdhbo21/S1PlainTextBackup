@@ -11669,3 +11669,58 @@ GBF古战场关门
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  eyeego  
+##### 83494#       发表于 2021-9-9 10:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676401&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-9-9 10:11</a>
+震惊！箱子竟然能一口气全部打开，dw那帮铁废物竟然还能做到这种高难操作了？ ...</blockquote>
+昨天晚上已经丢人过了啊 直接开不了箱 后来热更修正的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 83495#       发表于 2021-9-9 10:34
+
+
+只对铜材料有兴趣，希望掉率可以好一点。后期估计都是找活动礼装了。
+
+
+*****
+
+####  LOLITA  
+##### 83496#       发表于 2021-9-9 10:39
+
+
+没狗粮没饼干，不太想刷啊
+
+
+*****
+
+####  UNISONIA  
+##### 83497#       发表于 2021-9-9 10:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52672823&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-8 22:57</a>
+
+你游这热度怎么从周年后就越来越看不懂了，奥伯龙40w推，摩根复刻都10w推，现在一个泳装活动，剧情都没开多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实前段时间有DW离职员工扒过金沢现在的营销套路了（说人话就是买热搜
+
+
+*****
+
+####  zakki  
+##### 83498#       发表于 2021-9-9 10:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676860&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-9-9 10:43</a>
+
+其实前段时间有DW离职员工扒过金沢现在的营销套路了（说人话就是买热搜 ...</blockquote>
+这还用买？去推特看实时不就知道了
+
+

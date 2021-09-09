@@ -4307,3 +4307,77 @@ to这些dlc都好几代了，你要是真爱的话就买，要是只是想少肝
 昨晚玩了一点点，汉化还行啊，奴隶不要摸鱼都来了
 
 
+
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 3366#       发表于 2021-9-9 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676515&amp;ptid=1860328" target="_blank">出言不迅 发表于 2021-9-9 10:20</a>
+
+昨晚玩了一点点，汉化还行啊，奴隶不要摸鱼都来了</blockquote>
+出现这种用词已经不行了
+
+
+*****
+
+####  ashitaka1979  
+##### 3367#       发表于 2021-9-9 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676256&amp;ptid=1860328" target="_blank">虚无连斩 发表于 2021-9-9 10:03</a>
+
+dlc武器不影响流程？那就不退普通版了
+
+朋友也有吐槽汉化不大行，说是切了日文玩....
+
+感情今年几个jrpg都得 ...</blockquote>
+昨天自己打了1小时（第一个宿营），然后看直播，觉得翻译还行啊？当然主要只看了剧情和小剧场部分，系统说明没注意。
+
+
+*****
+
+####  jbjack1215  
+##### 3368#       发表于 2021-9-9 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676563&amp;ptid=1860328" target="_blank">Suzutsuki.Mk.II 发表于 2021-9-9 10:24</a>
+出现这种用词已经不行了</blockquote>
+摸鱼不是网路用语……
+
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 3369#       发表于 2021-9-9 10:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676644&amp;ptid=1860328" target="_blank">jbjack1215 发表于 2021-9-9 10:28</a>
+
+摸鱼不是网路用语……</blockquote>
+确实不是网络用语，但现在滥用的情况下已经变成了，而且丢给tw那边翻译一般情况下都不会用摸鱼，结合一下系列传统跟bn在翻译上的传统再看这个问题
+
+
+简单说就是怀疑bn翻译换了一拨人负责了
+
+
+*****
+
+####  红夜殇雨  
+##### 3370#       发表于 2021-9-9 10:37
+
+
+steam还没解锁，好着急啊
+
+
+*****
+
+####  oniwarud  
+##### 3371#       发表于 2021-9-9 10:45
+
+
+steam这解锁时间也太阴间了，那只有明晚才能开始玩了
+
+
