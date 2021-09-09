@@ -16797,3 +16797,19 @@ https://www.tiktok.com/@aoyama_nagisa_official
 oped mini live 开头没唱应该不是鲤鱼的问题，因为nako也没唱，只是nako嘴被麦克风挡死了不仔细看意识不到。应该是两人耳麦的接收信号有延迟
 
 
+
+
+*****
+
+####  名津流  
+##### 4363#       发表于 2021-9-10 02:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687953&amp;ptid=1909972" target="_blank">cat1230 发表于 2021-9-10 02:00</a>
+
+日本阿宅还考虑鲤鱼结束裂啦活动只会会不会回国，想的可真远……
+
+还有个说乱马重置让可可来配珊瑚，我去， ...</blockquote>
+乱马重制没谱，但可以预见的未来会有的电锯人动画后半部分肯定会出场的光熙和她后宫妹子，是有纯正中国话名台词的：“尸体在说话”，我觉得mappa可以考虑一下找liyuu这样的纯正汉话CV来配<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+

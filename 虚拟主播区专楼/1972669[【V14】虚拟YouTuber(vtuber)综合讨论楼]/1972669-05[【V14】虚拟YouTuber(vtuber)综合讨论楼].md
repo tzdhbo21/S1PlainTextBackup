@@ -12762,3 +12762,21 @@ hnn最近播彩虹六号后同接直接腰斩啊，什么debuff，真实<img src
 一看就是没床位了，而且还是关西，更加混乱
 
 
+
+
+*****
+
+####  Ketestrait  
+##### 6949#       发表于 2021-9-10 02:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687832&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-9-10 01:35</a>
+
+一看就是没床位了，而且还是关西，更加混乱</blockquote><blockquote>都　コロナ病床使用率「４割未満」の病院も
+
+
+新型コロナの感染急拡大で、医療体制がひっ迫する中、東京都内で、コロナ患者を受け入れている１７２の医療機関のうち、病床の使用率が４割未満の病院が２７あることが分かりました。</blockquote>
+
+也不都是没床位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
