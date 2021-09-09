@@ -5297,3 +5297,30 @@ xbox转新西兰服可以玩了</blockquote>
 Xbox版买不了联动服装吗，盾妹的衣服都好好看啊
 
 
+
+
+*****
+
+####  改名了的  
+##### 3441#       发表于 2021-9-9 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52684834&amp;ptid=1860328" target="_blank">RushMove 发表于 2021-09-09 21:24:46</a>
+难度中途可以改吗？作为系列新玩家我想试试困难，又怕太费劲
+
+顺便问一下，传说系列的难度和其他jrpg比算什 ...</blockquote>最高难度同等级没抗性受伤一两下秒的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以自行对比下。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  roxassix  
+##### 3442#       发表于 2021-9-9 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52684950&amp;ptid=1860328" target="_blank">TerryBlues 发表于 2021-9-9 21:32</a>
+Xbox版买不了联动服装吗，盾妹的衣服都好好看啊</blockquote>
+现象好像还买不了就很奇怪。估计是要等美国那边上架？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（xbox在亚洲就是逊啦！根本都没人管！）
+
+
