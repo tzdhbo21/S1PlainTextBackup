@@ -5000,3 +5000,74 @@ Xsx起码中午的时候还没，现在我就不知道了<img src="https://stati
 steam究极版带联动服装
 
 
+
+
+*****
+
+####  中泽君  
+##### 3417#       发表于 2021-9-9 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52682417&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-9 18:27</a>
+
+刮痧，打不过火焰大只佬，新玩家是不是不该碰困难难度</blockquote>
+装火属性减半的饰品，注意下大怪的扔垃圾应该不难吧
+
+反正原地重打，死多几次总会过。
+
+
+*****
+
+####  D-JoeII  
+##### 3418#       发表于 2021-9-9 19:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52681221&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-9-9 16:55</a>
+
+Xsx起码中午的时候还没，现在我就不知道了
+
+
+—— 来自 S1Fun</blockquote>
+美區估計用美西時間(多數下午3點)
+
+
+*****
+
+####  中泽君  
+##### 3419#       发表于 2021-9-9 19:31
+
+
+这次应该没有讨厌果冻这种称号吧
+
+
+*****
+
+####  司马千晶  
+##### 3420#       发表于 2021-9-9 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52682417&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-9 18:27</a>
+
+刮痧，打不过火焰大只佬，新玩家是不是不该碰困难难度</blockquote>
+[https://www.bilibili.com/video/BV1uP4y1Y76b/](https://www.bilibili.com/video/BV1uP4y1Y76b/)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我刚好录了一个，你看看能不能用到
+
+
+
+
+*****
+
+####  BK10  
+##### 3421#       发表于 2021-9-9 19:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52681221&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-9-9 16:55</a>
+
+Xsx起码中午的时候还没，现在我就不知道了
+
+
+—— 来自 S1Fun</blockquote>
+我美服买的昨天晚上11点就切到日服游玩了。。。记得游戏从港服或者台服下
+
+

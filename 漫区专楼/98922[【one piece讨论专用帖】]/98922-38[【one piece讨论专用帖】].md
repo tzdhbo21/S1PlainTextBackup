@@ -1842,3 +1842,25 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 应该被扫进历史垃圾堆里的东西硬是被尾田捡起来往死里吹，真是绝了
 
 
+
+
+*****
+
+####  klzxs  
+##### 55635#       发表于 2021-9-9 19:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">如果能无视御田的话我还是很喜欢和之国的
+
+
+*****
+
+####  memo2  
+##### 55636#       发表于 2021-9-9 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52677937&amp;ptid=98922" target="_blank">dnaa1991 发表于 2021-9-9 11:54</a>
+ 大和就好像刚认识了一个女生各方面都很好，结果深入了解发现是肖战粉丝</blockquote>
+喷了，要不要这么贴切……大和啊白发小姐姐大和<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+

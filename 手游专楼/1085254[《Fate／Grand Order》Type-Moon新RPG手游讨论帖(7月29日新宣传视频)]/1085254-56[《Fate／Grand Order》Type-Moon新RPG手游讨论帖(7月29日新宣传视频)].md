@@ -12052,3 +12052,26 @@ GBF古战场关门
 讲真今年泳装卡面都挺一言难尽的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看后面几破能不能救回来吧
 
 
+
+
+*****
+
+####  白金口袋  
+##### 83528#       发表于 2021-9-9 19:22
+
+
+其实我觉得清少纳言挺好的，虽然不涩，但是好玩，主要是贡献表情包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 83529#       发表于 2021-9-9 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52683166&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-9-9 19:22</a>
+
+其实我觉得清少纳言挺好的，虽然不涩，但是好玩，主要是贡献表情包</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这货是你游我最讨厌的角色TOP5里的，有多远多远
+
+
