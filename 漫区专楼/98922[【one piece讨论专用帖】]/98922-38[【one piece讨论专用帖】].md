@@ -1720,3 +1720,25 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 幻兽种动物系的，血条当然长，像不死鸟这种特化类型的甚至能让四皇大将不拿海楼石都只能慢慢跟他耗。
 
 
+
+
+*****
+
+####  klzxs  
+##### 55625#       发表于 2021-9-9 16:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">桃之助还挺强的 这整个鬼岛都要被他撞穿了
+
+他一点事没有
+
+
+*****
+
+####  hkguty  
+##### 55626#       发表于 2021-9-9 16:35
+
+
+贴吧太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在已经快进到大和粉跟索隆粉吵战力了
+
+

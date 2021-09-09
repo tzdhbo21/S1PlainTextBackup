@@ -4687,3 +4687,80 @@ CP系统就是用来调整游戏平衡的设计，限制了恢复系统的同时
 steam还要14个小时解锁，差不多看完阿索发布会后可以开搞<img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  苇原雪道  
+##### 3395#       发表于 2021-9-9 16:21
+
+
+steam国区还有13h，怎么是明天凌晨5点左右解禁的？搞了个这么阴间的时间？！
+
+
+*****
+
+####  结夜野棠.  
+##### 3396#       发表于 2021-9-9 16:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52680765&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-9-9 16:21</a>
+steam国区还有13h，怎么是明天凌晨5点左右解禁的？搞了个这么阴间的时间？！ ...</blockquote>
+怕你熬夜 很贴心了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  轨迹老实人  
+##### 3397#       发表于 2021-9-9 16:24
+
+
+1500买了港版实体豪华版 我是傻逼
+
+
+*****
+
+####  4ckc  
+##### 3398#       发表于 2021-9-9 16:24
+
+
+Xbox欧美版的解锁时间跟steam一样吗
+妈的巨硬商店上没有发售日期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zero12  
+##### 3399#       发表于 2021-9-9 16:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52680808&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-9-9 16:24</a>
+
+Xbox欧美版的解锁时间跟steam一样吗
+
+妈的巨硬商店上没有发售日期</blockquote>
+主机版都已经发售了吧
+
+
+*****
+
+####  crosz  
+##### 3400#       发表于 2021-9-9 16:36
+
+
+这次实体到货很快啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  chris1987  
+##### 3401#       发表于 2021-9-9 16:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
