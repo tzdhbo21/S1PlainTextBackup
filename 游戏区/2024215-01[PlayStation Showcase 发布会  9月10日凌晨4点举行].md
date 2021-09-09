@@ -3501,3 +3501,149 @@ Radiohead 最新音乐合辑《KID A MNESIA》正式发布  这次应该是和
 360时代投软的坟上的草长了又生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  空集  
+##### 362#       发表于 2021-9-10 05:06
+
+
+这战神片子太不行了 你哪怕展示一点新鲜东西呢 虽然我非常喜欢一代但是二代这个片摆大烂了
+
+
+*****
+
+####  PureWaltz  
+##### 363#       发表于 2021-9-10 05:07
+
+
+全场看下来最感兴趣的竟然是韩国贝姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jockeyjoestar  
+##### 364#       发表于 2021-9-10 05:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688495&amp;ptid=2024215" target="_blank">医生狼多 发表于 2021-9-10 04:49</a>
+
+那个红光阴间过场最后是啥意思，就纯过场吗</blockquote>
+大概是电台司令虚拟演唱会。 包含kid a和amnesia两张专辑的合集。
+
+
+*****
+
+####  D-JoeII  
+##### 365#       发表于 2021-9-10 05:12
+
+
+<blockquote>真实之影 发表于 2021-9-10 04:55
+喷了，旧共和国重制最后商标没EA和bioware，但是有PS和移植专业户Aspyr
+
+而原版是个Xbox和PC游戏…… ...</blockquote>
+塞了錢，PS5主機限時獨佔(PC同步)
+
+https://www.resetera.com/threads/star-wars-knights-of-the-old-republic-remake-announced-for-ps5-pc-as-console-launch-exclusive-developed-by-aspyr-published-by-sie.484237/
+
+
+*****
+
+####  crosz  
+##### 366#       发表于 2021-9-10 05:13
+
+
+真是看了个寂寞
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  jockeyjoestar  
+##### 367#       发表于 2021-9-10 05:17
+
+
+旧共和国武士在推特意外很火  美国佬是真喜欢星战啊
+
+
+*****
+
+####  hotsmile  
+##### 368#       发表于 2021-9-10 05:19
+
+
+蜘蛛侠2还是受欢迎啊，油管的点播量和其他不是一个量级的
+
+
+*****
+
+####  2014720  
+##### 369#       发表于 2021-9-10 05:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688547&amp;ptid=2024215" target="_blank">空集 发表于 2021-9-10 05:06</a>
+这战神片子太不行了 你哪怕展示一点新鲜东西呢 虽然我非常喜欢一代但是二代这个片摆大烂了 ...</blockquote>
+父亲和儿子都是有新招的，还有敌人种类确实更多了（看着像高级换皮）
+
+别的估计得等下次预告片了
+
+
+*****
+
+####  hotsmile  
+##### 370#       发表于 2021-9-10 05:26
+
+
+战神还是多了不少新动作的，无论震链还是扯链都明显不同
+
+
+*****
+
+####  真实之影  
+##### 371#       发表于 2021-9-10 05:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688563&amp;ptid=2024215" target="_blank">jockeyjoestar 发表于 2021-9-10 05:17</a>
+旧共和国武士在推特意外很火  美国佬是真喜欢星战啊</blockquote>
+不仅是星战原因，kotor1代是真正意义上第一个成功登陆主机同时，没有丧失特色的美式rpg
+同时引入了现在常见的电影化镜头视角，开创性很强
+
+
+*****
+
+####  415452356  
+##### 372#       发表于 2021-9-10 05:27
+
+
+  只能说没啥惊喜，都是能猜到的东西，新战神2这些动作和链刃的质感都很像战神升天，估计是一个制作人？
+
+
+*****
+
+####  银鍠吞佛  
+##### 373#       发表于 2021-9-10 05:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688580&amp;ptid=2024215" target="_blank">真实之影 发表于 2021-09-10 05:27:00</a>
+不仅是星战原因，kotor1代是真正意义上第一个成功登陆主机同时，没有丧失特色的美式rpg
+同时引入了现在常 ...</blockquote>就好奇旧共和国时期怎么会有开罗人
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  415452356  
+##### 374#       发表于 2021-9-10 05:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688580&amp;ptid=2024215" target="_blank">真实之影 发表于 2021-9-10 05:27</a>
+
+不仅是星战原因，kotor1代是真正意义上第一个成功登陆主机同时，没有丧失特色的美式rpg
+
+同时引入了现在常 ...</blockquote>
+  旧共和国武士是曾经让我对欧美现代rpg改观的游戏，然后就没然后了
+
+
