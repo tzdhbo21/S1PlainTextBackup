@@ -3753,3 +3753,36 @@ https://www.resetera.com/threads/star-wars-knights-of-the-old-republic-remake-an
 发布会逻辑应该越遥远的饼放越后面吧。很难想象用新ip画一个24年的
 
 
+
+
+*****
+
+####  黑修士  
+##### 383#       发表于 2021-9-10 05:59
+
+
+可能是调低了预期，早起来看还是有惊喜。
+
+
+*****
+
+####  SergeGlenn  
+##### 384#       发表于 2021-9-10 05:59
+
+
+<blockquote>luoyianwu 发表于 2021-9-10 05:47
+发布会逻辑应该越遥远的饼放越后面吧。很难想象用新ip画一个24年的</blockquote>
+显然不是这个逻辑，发布会最后三个金刚狼 蜘蛛侠2 战神，发售时间明显是从远到近
+
+
+*****
+
+####  陈玉礼  
+##### 385#       发表于 2021-9-10 06:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688602&amp;ptid=2024215" target="_blank">空集 发表于 2021-9-10 05:39</a>
+我想要我这种只是打过一遍的玩家也能看出来的 比如我也不记得儿子那个放鹿一代有无了 但是我记得 ...</blockquote>
+一代可以放鹿但二儿子是骑上去撞人可以说完全是不同的招式
+
+
