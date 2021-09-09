@@ -11724,3 +11724,26 @@ GBF古战场关门
 这还用买？去推特看实时不就知道了
 
 
+
+
+*****
+
+####  areklose  
+##### 83499#       发表于 2021-9-9 11:03
+
+
+本来想刷到出现率礼装就摸了。但是那个点数奖励涨得也太慢了。停手看后面箱子会不会掉的更多
+
+
+*****
+
+####  holyblood  
+##### 83500#       发表于 2021-9-9 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52675327&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-9-9 08:56</a>
+
+摆明了是告诉你接下来要嗝屁了尽全力好好玩留下一点点回忆</blockquote>
+说不定芙芙cd转好了呢<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
