@@ -12075,3 +12075,14 @@ GBF古战场关门
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这货是你游我最讨厌的角色TOP5里的，有多远多远
 
 
+
+
+*****
+
+####  khxooo  
+##### 83530#       发表于 2021-9-9 19:47
+
+
+嗯，清少纳言真的不错。
+
+
