@@ -16698,3 +16698,45 @@ https://www.tiktok.com/@aoyama_nagisa_official
 查了一下，还要拔电话卡改地区之类的，太麻烦了，放弃<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  shudushimo  
+##### 4355#       发表于 2021-9-10 00:54
+
+
+ 本帖最后由 shudushimo 于 2021-9-10 00:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52686352&amp;ptid=1909972" target="_blank">Skyline_R 发表于 2021-9-9 23:12</a>
+
+知足罢，去年虹团13集播完一个星期播放量都只有340w虽然现在靠着夹脚和口碑让播放量翻倍了，然 ...</blockquote>
+所以出圈程度相比缪斯要差很远啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真的离谱，b站随便一部轻改厕纸都有几千万播放量，爱马仕、拉拉、邦邦除了缪斯和水第一季之外居然一部播放量破千万的都没有
+
+
+*****
+
+####  千千千千鸟  
+##### 4356#       发表于 2021-9-10 01:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687544&amp;ptid=1909972" target="_blank">Karin11974 发表于 2021-9-10 00:46</a>
+
+查了一下，还要拔电话卡改地区之类的，太麻烦了，放弃</blockquote>
+直接用PC看，现在有网页版了，搭个梯子就行
+
+
+*****
+
+####  cybernetics31  
+##### 4357#       发表于 2021-9-10 01:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687590&amp;ptid=1909972" target="_blank">shudushimo 发表于 2021-9-10 00:54</a>
+所以出圈程度相比缪斯要差很远啊
+
+真的离谱，b站随便一部轻改厕纸都有几千万播放量，爱马仕、拉拉、 ...</blockquote>
+初代那环境比不了的………………至于别的题材，比不过才是常态
+
+

@@ -5671,3 +5671,44 @@ pc今天早上5点
 我倒是怕错过小剧场。。。不管走哪都要时不时按按r1
 
 
+
+
+*****
+
+####  reficul  
+##### 3473#       发表于 2021-9-10 00:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687437&amp;ptid=1860328" target="_blank">喵喵叫的猫 发表于 2021-9-10 00:34</a>
+
+放心猫头鹰整个游戏会错过的只有一个
+
+
+我倒是怕错过小剧场。。。不管走哪都要时不时按按r1 ...</blockquote>
+整个游戏，这是都通关啦？小剧场好像可以在露营时一口气看完
+
+
+*****
+
+####  laosai13  
+##### 3474#       发表于 2021-9-10 00:47
+
+
+主机板体验不错准备买服装dlc，推荐买经验翻倍的dlc吗
+
+
+*****
+
+####  喵喵叫的猫  
+##### 3475#       发表于 2021-9-10 00:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687517&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-10 00:44</a>
+
+整个游戏，这是都通关啦？小剧场好像可以在露营时一口气看完</blockquote>
+没呢 因为猫头鹰涉及到奖杯 powerpyx的白金攻略里说的
+
+
+我自己是因为小剧场的关系进度很慢 不过好像是有说法错过的小剧场露营可以补
+
+
