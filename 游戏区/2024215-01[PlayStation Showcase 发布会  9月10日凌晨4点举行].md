@@ -3647,3 +3647,109 @@ https://www.resetera.com/threads/star-wars-knights-of-the-old-republic-remake-an
   旧共和国武士是曾经让我对欧美现代rpg改观的游戏，然后就没然后了
 
 
+
+
+*****
+
+####  makar0601  
+##### 375#       发表于 2021-9-10 05:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688586&amp;ptid=2024215" target="_blank">银鍠吞佛 发表于 2021-9-10 05:29</a>
+
+就好奇旧共和国时期怎么会有开罗人
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+那是瑞文
+
+
+*****
+
+####  菲星  
+##### 376#       发表于 2021-9-10 05:34
+
+
+旧共和国武士算是历届星战游戏最佳了… 能重制真是意外惊喜
+
+
+*****
+
+####  真实之影  
+##### 377#       发表于 2021-9-10 05:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688586&amp;ptid=2024215" target="_blank">银鍠吞佛 发表于 2021-9-10 05:29</a>
+就好奇旧共和国时期怎么会有开罗人
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+那个造型面具是游戏主角瑞文的
+
+
+*****
+
+####  空集  
+##### 378#       发表于 2021-9-10 05:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688571&amp;ptid=2024215" target="_blank">2014720 发表于 2021-9-10 05:21</a>
+
+父亲和儿子都是有新招的，还有敌人种类确实更多了（看着像高级换皮）
+
+
+别的估计得等下次预告片了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我想要我这种只是打过一遍的玩家也能看出来的 比如我也不记得儿子那个放鹿一代有无了 但是我记得一代儿子能放很多蓝色动物 所以我对预告的期望就算能有个完全新体系的招式 这种程度
+
+
+*****
+
+####  luoyianwu  
+##### 379#       发表于 2021-9-10 05:42
+
+
+猪猪侠2要是两个人两套系统和装置能分开用，也太流弊了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+金刚狼有说哪年吗
+
+
+*****
+
+####  SergeGlenn  
+##### 380#       发表于 2021-9-10 05:42
+
+
+开始的广告里有点FF16的彩蛋，不知道数字有什么意思没
+
+<img src="https://img.saraba1st.com/forum/202109/10/054031xz3xvt66z3dx6nl6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210910_053847.jpg</strong> (109.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 05:40 上传
+
+
+*****
+
+####  SergeGlenn  
+##### 381#       发表于 2021-9-10 05:44
+
+
+<blockquote>luoyianwu 发表于 2021-9-10 05:42
+猪猪侠2要是两个人两套系统和装置能分开用，也太流弊了
+
+金刚狼有说哪年吗 ...</blockquote>
+金刚狼是小黑猪的两个导演带的，你可以脑补一下档期，24 25比较可能吧
+
+
+*****
+
+####  luoyianwu  
+##### 382#       发表于 2021-9-10 05:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688611&amp;ptid=2024215" target="_blank">SergeGlenn 发表于 2021-9-10 05:44</a>
+金刚狼是小黑猪的两个导演带的，你可以脑补一下档期，24 25比较可能吧</blockquote>
+发布会逻辑应该越遥远的饼放越后面吧。很难想象用新ip画一个24年的
+
+

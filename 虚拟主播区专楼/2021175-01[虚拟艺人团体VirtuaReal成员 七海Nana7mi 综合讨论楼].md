@@ -2363,3 +2363,30 @@ vtb模拟器里的id
 海子姐老是深夜播应该已经完全不是010的形状了吧
 
 
+
+
+*****
+
+####  lostanother  
+##### 199#       发表于 2021-9-10 05:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52680667&amp;ptid=2021175" target="_blank">lucifer0607 发表于 2021-9-9 16:14</a>
+
+最近直播时间都这么正常，我反而看不上了</blockquote>
+原来是你把海子姐刺激到八小时通宵直播的
+
+
+*****
+
+####  lucifer0607  
+##### 200#       发表于 2021-9-10 05:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688609&amp;ptid=2021175" target="_blank">lostanother 发表于 2021-9-10 05:43</a>
+原来是你把海子姐刺激到八小时通宵直播的</blockquote>
+今天老爽了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9160, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
