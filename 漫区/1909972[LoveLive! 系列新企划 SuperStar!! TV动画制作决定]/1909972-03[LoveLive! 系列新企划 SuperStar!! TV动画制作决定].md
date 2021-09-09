@@ -16627,3 +16627,43 @@ nb真的算脏话吗
 青山的tiktok是哪个啊，名字后面带offical 7000多粉那个吗，怎么我点进去啥内容都没有
 
 
+
+
+*****
+
+####  名津流  
+##### 4351#       发表于 2021-9-10 00:15
+
+
+【渣翻】来看日本阿宅如何吹liyuu的配音
+[https://tieba.baidu.com/p/7532978679](https://tieba.baidu.com/p/7532978679) 
+
+
+*****
+
+####  名津流  
+##### 4352#       发表于 2021-9-10 00:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52686911&amp;ptid=1909972" target="_blank">Karin11974 发表于 2021-9-9 23:50</a>
+
+青山的tiktok是哪个啊，名字后面带offical 7000多粉那个吗，怎么我点进去啥内容都没有 ...</blockquote>
+[https://www.tiktok.com/@aoyama_nagisa_official](https://www.tiktok.com/@aoyama_nagisa_official)
+
+就是7200多粉那个
+
+我这看是正常的啊
+
+<img src="https://img.saraba1st.com/forum/202109/10/002103q0lv2qmcmilvwicc.png" referrerpolicy="no-referrer">
+
+
+<strong>snap_screen_20210910001930.png</strong> (104.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 00:21 上传
+
+
+可能你需要换个IP？貌似现在香港的IP打不开Tik Tok，我也不知道为什么
+
+

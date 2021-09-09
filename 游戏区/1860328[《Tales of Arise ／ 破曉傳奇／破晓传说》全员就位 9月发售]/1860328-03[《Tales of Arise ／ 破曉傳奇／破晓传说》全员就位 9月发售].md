@@ -5613,3 +5613,17 @@ https://twitter.com/_SWAV_/status/1435946092818956288
 pc今天早上5点
 
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 3468#       发表于 2021-9-10 00:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52686417&amp;ptid=1860328" target="_blank">无动于衷 发表于 2021-09-09 23:16:42</a>
+现在哪里可以找到比较完整的日语声优表</blockquote>游戏完结时，但是标注是罗马音
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
