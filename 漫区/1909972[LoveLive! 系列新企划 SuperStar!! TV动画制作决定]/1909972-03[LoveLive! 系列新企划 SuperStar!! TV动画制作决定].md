@@ -16590,3 +16590,18 @@ nb真的算脏话吗
 光是小星星单独的都有140w播放了，想看的早看腻了，再加上更新又慢
 
 
+
+
+*****
+
+####  Skyline_R  
+##### 4348#       发表于 2021-9-9 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52682391&amp;ptid=1909972" target="_blank">shudushimo 发表于 2021-9-9 18:24</a>
+本来以为拉拉这次有唐可可要破圈了，结果上b站一看播放量只有400万</blockquote>
+知足罢，去年虹团13集播完一个星期播放量都只有340w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后就是偶像番的出圈，出的圈大多也只是核心向爱好者的讨论群体，比如当年《佐贺偶像》也差不多。就哪怕他B站按时播了，全集播放量我估计最多也就2000w左右（当然了，横向对比，2000万能把99％的偶像番干掉了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

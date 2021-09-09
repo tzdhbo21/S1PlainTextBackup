@@ -12688,3 +12688,14 @@ hnn最近播彩虹六号后同接直接腰斩啊，什么debuff，真实<img src
 照顾孕吐的女性朋友…郡郡有够苦情女同的<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Ketestrait  
+##### 6942#       发表于 2021-9-9 23:16
+
+
+阿葵这烧到41℃不得不打类固醇退烧，然后现在味觉嗅觉也没完全恢复，走200米就要喘气，怕是还要担心后遗症
+
+

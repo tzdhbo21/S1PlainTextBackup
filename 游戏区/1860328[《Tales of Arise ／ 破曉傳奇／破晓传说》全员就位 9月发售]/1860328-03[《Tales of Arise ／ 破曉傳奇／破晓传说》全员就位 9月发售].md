@@ -5468,3 +5468,100 @@ https://twitter.com/_SWAV_/status/1435946092818956288
 这套我觉得最好看
 
 
+
+
+*****
+
+####  布里兰特  
+##### 3455#       发表于 2021-9-9 23:02
+
+
+Pc怎么还不解锁啊，馋了
+
+
+*****
+
+####  千年的旅人  
+##### 3456#       发表于 2021-9-9 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52685890&amp;ptid=1860328" target="_blank">Piano-Forest 发表于 2021-9-9 22:45</a>
+
+DLC服装设计
+
+https://twitter.com/_SWAV_/status/1435946092818956288
+
+「テイルズオブアライズ」にてDLCの ...</blockquote>
+原画的裙摆这么好看，实物是真的一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  The_Fool_  
+##### 3457#       发表于 2021-9-9 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52685890&amp;ptid=1860328" target="_blank">Piano-Forest 发表于 2021-9-9 22:45</a>
+
+DLC服装设计
+
+https://twitter.com/_SWAV_/status/1435946092818956288
+
+「テイルズオブアライズ」にてDLCの ...</blockquote>
+露趾鞋=老鼠屎<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 3458#       发表于 2021-9-9 23:04
+
+
+吐了，这狗币店家几天前就骗我说已经在路上了结果到现在还在路上，本来就只有周末能摸到主机这下看来只能中秋才能玩到了
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 3459#       发表于 2021-9-9 23:04
+
+
+吐了，这狗币店家几天前就骗我说已经在路上了结果到现在还在路上，本来就只有周末能摸到主机这下看来只能中秋才能玩到了
+
+
+*****
+
+####  benhawk  
+##### 3460#       发表于 2021-9-9 23:06
+
+
+笑死，第一个首领死的也太憋屈了吧。我一开始还想着打一半他跑了，等下次一起杀，结果直接被榨干了
+
+
+*****
+
+####  reficul  
+##### 3461#       发表于 2021-9-9 23:12
+
+
+希侬的衣服粉配黑觉得不好看，新世界那套可以
+
+
+*****
+
+####  无动于衷  
+##### 3462#       发表于 2021-9-9 23:16
+
+
+现在哪里可以找到比较完整的日语声优表
+
+
+*****
+
+####  天乃冥  
+##### 3463#       发表于 2021-9-9 23:18
+
+
+想买PS4版，不知能不能玩，体验是否会像2077那样...<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
