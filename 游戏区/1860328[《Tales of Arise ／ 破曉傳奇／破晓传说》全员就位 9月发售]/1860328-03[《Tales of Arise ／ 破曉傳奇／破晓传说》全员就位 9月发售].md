@@ -5762,3 +5762,20 @@ pc今天早上5点
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  解构  
+##### 3480#       发表于 2021-9-10 02:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687981&amp;ptid=1860328" target="_blank">久井路路 发表于 2021-9-10 02:09</a>
+只有男女主的吗，还是多配对的？
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+3对cp安排得明明白白，过场也刻意有让各自cp同框出镜，钦定浓度爆表<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
