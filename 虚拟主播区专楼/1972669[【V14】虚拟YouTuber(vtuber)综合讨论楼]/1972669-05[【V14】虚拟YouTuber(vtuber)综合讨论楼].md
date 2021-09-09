@@ -12639,3 +12639,14 @@ Nyantako转了新人那条，不会真去了吧...我的呕吐诗人<img src="ht
 总听人说（虹的一些）女粉特别kimo，到底什么样子，谁能贴一段看看吗让我有点实感......<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 6938#       发表于 2021-9-9 20:55
+
+
+hnn最近播彩虹六号后同接直接腰斩啊，什么debuff，真实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

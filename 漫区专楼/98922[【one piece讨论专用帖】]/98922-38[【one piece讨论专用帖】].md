@@ -1918,3 +1918,23 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 桐生桃之助，乡田凯多
 
 
+
+
+*****
+
+####  天使的日曜日  
+##### 55642#       发表于 2021-9-9 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52681020&amp;ptid=98922" target="_blank">银枪子龙 发表于 2021-9-9 16:41</a>
+
+传说中的左右手山治呢</blockquote>
+你以为是索吹山吹的战争，其实是索吹跟某吹的战争
+
+索吹认为路索一档至少路索差距比索山小
+
+而某吹必须要求某人独一档才要假装山吹把索隆拖下水
+
+毕竟和之国篇前吹上天的一拳一个超新星却被同样是超新星的普皇炸白眼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

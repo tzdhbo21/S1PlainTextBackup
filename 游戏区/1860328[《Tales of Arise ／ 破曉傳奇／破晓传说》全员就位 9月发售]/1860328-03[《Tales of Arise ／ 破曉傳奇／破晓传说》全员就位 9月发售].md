@@ -5227,3 +5227,37 @@ xbox转新西兰服可以玩了<img src="https://static.saraba1st.com/image/smil
 可能是我看错了，这女主看到铁面人面具碎了立马就脸红<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  超赛锡纸烫  
+##### 3435#       发表于 2021-9-9 20:45
+
+
+把多周目G值兑换的东西拿到dlc里提前解锁都是从ps3开始就有的系列传统了，这一惊一乍的阅历得有多浅，跟着这种没玩过几个游戏的编辑的评分上窜下跳的也太没意思了吧
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  正直的黄瓜  
+##### 3436#       发表于 2021-9-9 20:52
+
+
+XSX预购了，冲！
+
+
+*****
+
+####  七氷  
+##### 3437#       发表于 2021-9-9 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52683814&amp;ptid=1860328" target="_blank">rak1 发表于 2021-9-9 20:04</a>
+xbox转新西兰服可以玩了</blockquote>
+还真是<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
