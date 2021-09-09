@@ -910,3 +910,162 @@ x战警！
 为什么岛哥哥要提前一天展死亡搁浅，答案已经出来了！
 
 
+
+
+*****
+
+####  jockeyjoestar  
+##### 86#       发表于 2021-9-10 03:53
+
+
+战歌起
+
+
+*****
+
+####  liyingdao  
+##### 87#       发表于 2021-9-10 03:57
+
+
+来个blue box压轴
+
+
+*****
+
+####  SergeGlenn  
+##### 88#       发表于 2021-9-10 03:58
+
+
+会是战神开场吗
+
+
+*****
+
+####  新庄運切  
+##### 89#       发表于 2021-9-10 04:01
+
+
+鸽了？还不开
+
+
+*****
+
+####  stackoverflow  
+##### 90#       发表于 2021-9-10 04:01
+
+
+来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  彩虹肥宅  
+##### 91#       发表于 2021-9-10 04:02
+
+
+直接郑确<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  新庄運切  
+##### 92#       发表于 2021-9-10 04:02
+
+
+没毛病，黑人king
+
+
+*****
+
+####  医生狼多  
+##### 93#       发表于 2021-9-10 04:03
+
+
+是啥玩意
+
+
+*****
+
+####  新庄運切  
+##### 94#       发表于 2021-9-10 04:03
+
+
+奇怪的导入，没看懂
+
+
+*****
+
+####  2014720  
+##### 95#       发表于 2021-9-10 04:03
+
+
+正确度致死量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  戏言学者  
+##### 96#       发表于 2021-9-10 04:04
+
+
+索尼：看老子棋多不多？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新庄運切  
+##### 97#       发表于 2021-9-10 04:04
+
+
+吐了，白人直接没了
+
+
+*****
+
+####  liyingdao  
+##### 98#       发表于 2021-9-10 04:04
+
+
+这片子也太UBI审美了
+
+
+*****
+
+####  -SLSL-  
+##### 99#       发表于 2021-9-10 04:04
+
+
+sabi锁尼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  セト  
+##### 100#       发表于 2021-9-10 04:05
+
+
+断气预感
+
+
+*****
+
+####  andychen  
+##### 101#       发表于 2021-9-10 04:05
+
+
+这也太政确了
+
+
+*****
+
+####  jockeyjoestar  
+##### 102#       发表于 2021-9-10 04:05
+
+
+开头的宣传片很炫。。但是没啥内容
+
+
