@@ -5189,3 +5189,41 @@ xbox转新西兰服可以玩了<img src="https://static.saraba1st.com/image/smil
 这次skit不怕漏了，都可以回看。
 
 
+
+
+*****
+
+####  kiralzb  
+##### 3432#       发表于 2021-9-9 20:23
+
+
+默默玩游戏，还是忍不住想吐槽，这泳装反而显得模型拉垮是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大腿一漏出来，那光影就显得一块似得，仿佛大腿都起棱角了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+轨迹建模虽然拉垮，但泳装啥的反而比这更到位<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还有女主这长发真的要死了，换泳装改成短马尾才舒服一点，就不能做顺滑一点吗……
+
+
+*****
+
+####  Piano-Forest  
+##### 3433#       发表于 2021-9-9 20:34
+
+
+[https://twitter.com/_SWAV_/status/1435905969754554375](https://twitter.com/_SWAV_/status/1435905969754554375)
+<img src="https://p.sda1.dev/2/0f33db88b6d7f3923f7a3849c2b8ae00/20210909_203416.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ky怪  
+##### 3434#       发表于 2021-9-9 20:35
+
+
+ 本帖最后由 ky怪 于 2021-9-9 20:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52683918&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-9 20:12</a>
+
+看了二十个skit之后我觉得她就是披着美少女皮的泥潭巨魔，嘴臭和阴阳怪气都拉满 ...</blockquote>
+
+可能是我看错了，这女主看到铁面人面具碎了立马就脸红<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+

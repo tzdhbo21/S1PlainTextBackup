@@ -13025,3 +13025,14 @@ FAMH联动估计就这两天的事情了
 下月初有3d live，那这个月肯定要努力训练了，直播是不可能多直播的。
 
 
+
+
+*****
+
+####  Fami水  
+##### 13113#       发表于 2021-9-9 20:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">至少明天有联动
+
+

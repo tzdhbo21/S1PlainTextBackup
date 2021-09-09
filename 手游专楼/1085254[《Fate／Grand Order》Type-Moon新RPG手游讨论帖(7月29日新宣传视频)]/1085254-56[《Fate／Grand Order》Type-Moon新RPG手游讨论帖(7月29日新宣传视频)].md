@@ -12115,3 +12115,26 @@ Azusa这个磨皮过度导致沸羊羊这皮肤看着跟石膏似的，B叔画�
 加一，清少纳言那个立绘太清爽了。
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83533#       发表于 2021-9-9 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52683977&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-9 20:15</a>
+
+就现在出的几个来说，我投清少纳言</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">夹馍 最后的希望！
+
+
+*****
+
+####  里村紅葉  
+##### 83534#       发表于 2021-9-9 20:34
+
+
+实话讲，我觉得荚膜原来的立绘其实挺一言难尽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

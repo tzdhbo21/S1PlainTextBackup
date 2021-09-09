@@ -1895,3 +1895,26 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 我觉得某种意义上，尾田比藤本自由多了
 
 
+
+
+*****
+
+####  武男  
+##### 55640#       发表于 2021-9-9 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52683035&amp;ptid=98922" target="_blank">梦·花火 发表于 2021-9-9 19:13</a>
+
+应该被扫进历史垃圾堆里的东西硬是被尾田捡起来往死里吹，真是绝了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">写得好也不是不行，传次郎这个人物不比御田好得多嘛，根本没怎么多刻画反而给人的印象比御田好太多
+
+
+*****
+
+####  hagaren  
+##### 55641#       发表于 2021-9-9 20:29
+
+
+桐生桃之助，乡田凯多
+
+
