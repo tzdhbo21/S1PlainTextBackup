@@ -198,8 +198,8 @@ async def UpdateThread(threaddict,semaphore):
                         contentdict[str(lastreply)]['content'] = ThreadContent
                         contentdict[str(lastreply)]['page'] = thread  
             if (contentdict.keys()):
-                print(threaddict['id']+'-'+str(contentdict.keys()))
                 if(min(list(map(int,contentdict.keys()))) > threaddict['totalreply']):
+                    print(threaddict['id']+'-'+str(contentdict.keys()))
                     for replynum in sorted(list(map(int,contentdict.keys()))):
                         #lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()+28800))#把GithubAction服务器用的UTC时间转换为北京时间
                         #增量更新不再创建时间戳
