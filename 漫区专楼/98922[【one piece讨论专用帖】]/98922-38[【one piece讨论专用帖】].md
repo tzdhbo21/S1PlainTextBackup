@@ -1801,3 +1801,17 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 55632#       发表于 2021-9-9 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52681298&amp;ptid=98922" target="_blank">hkguty 发表于 2021-9-9 17:00</a>
+
+已经没人care山治了</blockquote>
+瞎说，我们厨子粉都是安静理性地讨论剧情结构和人物形象，战力这种根本不屑一顾
+
+

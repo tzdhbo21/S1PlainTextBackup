@@ -11882,3 +11882,56 @@ GBF古战场关门
 风怒
 
 
+
+
+*****
+
+####  承尘  
+##### 83512#       发表于 2021-9-9 17:22
+
+
+沸羊羊怕是要成为本期泳装唯一没有充能的选手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  承尘  
+##### 83513#       发表于 2021-9-9 17:30
+
+
+顺便四星全是单体，魔总五星绿光炮，夹馍五星蓝/红光炮稳了？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83514#       发表于 2021-9-9 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52681421&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-9 17:09</a>
+
+妈呀。吓到我了。。。。。。。</blockquote>
+好。。。好胖。。
+
+
+*****
+
+####  quanlix  
+##### 83515#       发表于 2021-9-9 17:33
+
+
+迦勒底伙食太好了
+
+
+*****
+
+####  黑上シグマ  
+##### 83516#       发表于 2021-9-9 17:34
+
+
+第一反应就是哦艹肥婆（
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
