@@ -16740,3 +16740,26 @@ https://www.tiktok.com/@aoyama_nagisa_official
 初代那环境比不了的………………至于别的题材，比不过才是常态
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4358#       发表于 2021-9-10 01:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">继续努力吧，我在等最后一天的live会整什么活了
+
+
+*****
+
+####  名津流  
+##### 4359#       发表于 2021-9-10 01:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687848&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-10 01:37</a>
+
+别的不说，不管是我们还是日本人，一开始都以为鲤鱼会拉胯拖后腿（顺着那贴楼主发的串看到了刚公布 ...</blockquote>
+那个我也大概看了，有人发在这个新帖底下的老贴链接，也算是一种挖坟打脸吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
