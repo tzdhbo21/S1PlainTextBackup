@@ -159,6 +159,7 @@ async def UpdateThread(threaddict,semaphore):
                     result = await response.content.read()
         except Exception as e:
             print(e)
+            print('error:id='+threaddict['id'])
             pass
     namelist, replylist,totalpage,newtitles= parse_html(result)
     titles = threaddict['title']
@@ -181,7 +182,7 @@ async def UpdateThread(threaddict,semaphore):
             filedir = rootdir+thdata[threaddict['id']]['category']+'/'
         #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
         try:
-            conn =aiohttp.TCPConnector(limit=5)
+            conn =aiohttp.TCPConnector(limit=3)
             contentdict = {}
             async with semaphore:
                 async with aiohttp.ClientSession(connector=conn,headers=headers,cookies=cookies) as session:
@@ -213,7 +214,7 @@ async def UpdateThread(threaddict,semaphore):
                         f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
         except Exception as e:
             print(e)
-            
+            print('error:id='+threaddict['id'])
             
             pass
 
@@ -223,7 +224,7 @@ async def main():
 
     tasks = []
     threaddicts = {}
-    semaphore = asyncio.Semaphore(7)
+    semaphore = asyncio.Semaphore(10)
     for tid in thdata.keys():
         if(thdata[tid]['active']):
             threaddicts[tid] = {}
