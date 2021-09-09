@@ -11802,3 +11802,32 @@ GBF古战场关门
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 83506#       发表于 2021-9-9 14:57
+
+
+无聊看了眼水清技能组和宝具，怎么就把本体那股子微妙味道给继承了呢
+
+
+也许有机会靠25出星和一回合130爆伤三红配卡30加攻打一面吧，凑合
+
+
+胸部倒是蛮大的
+
+
+*****
+
+####  holyblood  
+##### 83507#       发表于 2021-9-9 15:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52678334&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-9-9 12:47</a>
+
+芙芙那是马修专用，而且就算没有牺牲，她的身体也差不多到极限了。 ...</blockquote>
+我相信奇迹和魔法都是存在的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+

@@ -10467,3 +10467,53 @@ yysy，这女人不像月球人，可能点错了吧<img src="https://static.sar
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mv又没人看
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2435#       发表于 2021-9-9 14:36
+
+
+yysy，生日第一首我还挺喜欢的，虽然mv本身我不会特意去循环，毕竟要翻墙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Klience  
+##### 2436#       发表于 2021-9-9 14:57
+
+
+翻墙这倒没什么 主要平时在油管找点有趣视频看 那些广告烦死了 时不时等个几秒<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 2437#       发表于 2021-9-9 15:03
+
+
+[https://b23.tv/tLcplj](https://b23.tv/tLcplj)
+
+
+<img src="https://img.saraba1st.com/forum/202109/09/150346gr9oy4monnqhixuy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>A9C282F0-9B1D-4780-9F97-3F8884F0EB21.jpeg</strong> (214.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-9 15:03 上传
+
+
+*****
+
+####  时间在我手中  
+##### 2438#       发表于 2021-9-9 15:11
+
+
+复读机把那个yukiaki的每个月top5翻了可还行
+
+可我没啥劲整翻译，累<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
