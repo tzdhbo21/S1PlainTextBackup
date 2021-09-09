@@ -12507,3 +12507,47 @@ nyantako不套皮也一樣跟這群人一起玩，套皮的理由是什麼
 单纯因为和vspo运营互相转发了推特猜的
 
 
+
+
+*****
+
+####  poipanchao  
+##### 6926#       发表于 2021-9-9 18:21
+
+
+虹楼怎么突出就冒出几个新男人的粉丝
+女粉这么容易就入脑的吗
+
+
+*****
+
+####  dybang  
+##### 6927#       发表于 2021-9-9 18:36
+
+
+声音到位呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">女粉本来就擅长脑补YY
+
+
+*****
+
+####  FCCHua  
+##### 6928#       发表于 2021-9-9 18:37
+
+
+ 本帖最后由 FCCHua 于 2021-9-9 18:38 编辑 
+
+大概因为也有一对男男组合吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poipanchao  
+##### 6929#       发表于 2021-9-9 18:40
+
+
+那对男男组合在虹楼都快三天打一次了
+阴湿程度男粉拍马都赶不上啊
+
+我想了想，只能说较为独立稳定的男男麦麸组合是财富密码
+
+

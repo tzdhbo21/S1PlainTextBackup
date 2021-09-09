@@ -4903,3 +4903,86 @@ Xsx起码中午的时候还没，现在我就不知道了<img src="https://stati
 有懂哥说说顺丰被税的概率是多少么，和卖家讨论下来说直接给我充香港发，不过税和运费自己付。
 
 
+
+
+*****
+
+####  剑布衣  
+##### 3412#       发表于 2021-9-9 18:21
+
+
+来了来了。等死我了，好耶
+
+<img src="https://img.saraba1st.com/forum/202109/09/181759f41w58sv7w8vnwz1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>6A4AF1FF-3540-4790-A222-66B5A9531D50.jpeg</strong> (567.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-9 18:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/09/181703t7p7dlr6jbgbbmjm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E2AF54F9-31ED-4D82-924A-6243DE9B1150.jpeg</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2021-9-9 18:17 上传
+
+
+84D47986-8202-473B-A12F-BD1A63EBCB2C.jpeg
+(742.43 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-9 18:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/09/181655vf21efgrf0rggg1r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+57EC6248-A146-4C9D-85E7-6EF24716DCDC.jpeg
+(1.93 MB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-9 18:14 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/09/181418eakeq3ha7eh86ige.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3413#       发表于 2021-9-9 18:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">刮痧，打不过火焰大只佬，新玩家是不是不该碰困难难度
+
+
+*****
+
+####  benhawk  
+##### 3414#       发表于 2021-9-9 18:31
+
+
+有没有哪位兄弟告诉我，开头就开了sp增加后入队的能享受到嘛
+
+
+*****
+
+####  静静在想我  
+##### 3415#       发表于 2021-9-9 18:32
+
+
+实体虽然明天就到了，但是后天又要加班，都没时间玩了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+

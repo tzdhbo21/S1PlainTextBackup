@@ -11980,3 +11980,35 @@ GBF古战场关门
 感觉这一次卡面是这么多泳装以来最拉的一次<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 83521#       发表于 2021-9-9 18:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔总真有希望竞争本届最佳卡面
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  alucardcz  
+##### 83522#       发表于 2021-9-9 18:25
+
+
+翻页
+
+
+*****
+
+####  alucardcz  
+##### 83523#       发表于 2021-9-9 18:34
+
+
+再翻
+
+

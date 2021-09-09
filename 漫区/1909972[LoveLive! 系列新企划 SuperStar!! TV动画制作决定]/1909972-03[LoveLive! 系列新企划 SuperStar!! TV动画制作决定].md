@@ -16534,3 +16534,37 @@ nb真的算脏话吗
 本来以为拉拉这次有唐可可要破圈了，结果上b站一看播放量只有400万<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  优妮可  
+##### 4343#       发表于 2021-9-9 18:31
+
+
+<blockquote>shudushimo 发表于 2021-9-9 18:24
+本来以为拉拉这次有唐可可要破圈了，结果上b站一看播放量只有400万</blockquote>
+小破圈啊，没可可播放可能就百万左右。不过也有b站上架晚，停播这些原因。
+
+
+*****
+
+####  chenflyyy  
+##### 4344#       发表于 2021-9-9 18:33
+
+
+上季虹团夹脚小出圈也才800万，星团这算不错了，没有同步播放加偶像番自带debuff
+
+
+*****
+
+####  cybernetics31  
+##### 4345#       发表于 2021-9-9 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52682391&amp;ptid=1909972" target="_blank">shudushimo 发表于 2021-9-9 18:24</a>
+
+本来以为拉拉这次有唐可可要破圈了，结果上b站一看播放量只有400万</blockquote>
+你去看看虹。。。。这才3集就有400万 不错了
+
+
