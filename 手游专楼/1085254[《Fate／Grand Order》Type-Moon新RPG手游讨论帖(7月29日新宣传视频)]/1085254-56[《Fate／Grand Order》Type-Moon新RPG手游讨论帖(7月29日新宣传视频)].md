@@ -11747,3 +11747,58 @@ GBF古战场关门
 说不定芙芙cd转好了呢<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83501#       发表于 2021-9-9 11:35
+
+
+小芬奇最近旗子插得这么多又这么早，我怀疑都活不到2.7，可能2.65就没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 83502#       发表于 2021-9-9 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52677497&amp;ptid=1085254" target="_blank">holyblood 发表于 2021-9-9 11:23</a>
+说不定芙芙cd转好了呢</blockquote>
+芙芙那是马修专用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且就算没有牺牲，她的身体也差不多到极限了。
+
+
+*****
+
+####  rooarr  
+##### 83503#       发表于 2021-9-9 12:50
+
+
+普通活动用C狗这套太方便了，mix随便挑一个满破礼装就可以进本，不用刷新来刷新去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83504#       发表于 2021-9-9 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52678369&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-9-9 12:50</a>
+
+普通活动用C狗这套太方便了，mix随便挑一个满破礼装就可以进本，不用刷新来刷新去的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">你怎么能用c狗呢！
+
+
+*****
+
+####  exiaexa  
+##### 83505#       发表于 2021-9-9 13:35
+
+
+你们好怪哦.jpg
+
+这血量有时间按技能，前排3个剑滚玻璃都滚过去了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
