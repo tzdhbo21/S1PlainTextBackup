@@ -12650,3 +12650,14 @@ Nyantako转了新人那条，不会真去了吧...我的呕吐诗人<img src="ht
 hnn最近播彩虹六号后同接直接腰斩啊，什么debuff，真实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 6939#       发表于 2021-9-9 21:15
+
+
+当时那个“最喜欢大家了。”，果然是当遗言发的啊。
+
+

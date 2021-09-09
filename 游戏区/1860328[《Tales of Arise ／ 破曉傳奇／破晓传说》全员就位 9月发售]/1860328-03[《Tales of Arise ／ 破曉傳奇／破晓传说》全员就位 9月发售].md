@@ -5261,3 +5261,17 @@ xbox转新西兰服可以玩了</blockquote>
 还真是<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  reficul  
+##### 3438#       发表于 2021-9-9 21:02
+
+
+买了双倍经验，买了典藏服装，拿着攻击很高的武器打着双倍SP，爽啊
+
+
+在法干遗迹外面的平原，地图左下角有个猫头鹰送的是猫耳，强烈建议去拿，希侬现在头上顶着小希侬戴着猫耳，在过场里超好笑
+
+
