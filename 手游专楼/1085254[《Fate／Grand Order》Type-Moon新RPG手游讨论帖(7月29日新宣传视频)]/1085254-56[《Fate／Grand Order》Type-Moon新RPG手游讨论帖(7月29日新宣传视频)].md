@@ -12162,3 +12162,18 @@ Azusa这个磨皮过度导致沸羊羊这皮肤看着跟石膏似的，B叔画�
 支线剧情有清少纳言的二破（三破？）立绘，走洋基风，个人蛮喜欢的。话说原来去年从者宇宙没有乱入才是特例吗，今年的space从者担当居然是清少纳言，真是没想到啊，支线剧情笑到我腹筋崩坏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  khxooo  
+##### 83537#       发表于 2021-9-9 22:48
+
+
+ 本帖最后由 khxooo 于 2021-9-9 22:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52685306&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-9-9 21:58</a>
+
+支线剧情有清少纳言的二破（三破？）立绘，走洋基风，个人蛮喜欢的。话说原来去年从者宇宙没有乱入才是特例 ...</blockquote>
+都是自己的错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，还有这剧情是不是和SW的漫画联系上了？最后的宇宙飞船会不会是宇宙哥伦布那条？
+
+

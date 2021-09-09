@@ -5419,3 +5419,52 @@ STEAM版是12点解锁吗？</blockquote>
 打完第一章，感觉这一作真的好玩，连起来简单轻松，而且玩起来操作性更接近动作游戏了
 
 
+
+
+*****
+
+####  CALPISSODA  
+##### 3451#       发表于 2021-9-9 22:41
+
+
+刚开玩，感觉这次菜单界面的任务2D背景图好棒啊，还是随着剧情推进改变服装姿势和构图的，其实去掉UI全都能当壁纸了，不知有没人会弄出来
+
+
+*****
+
+####  Piano-Forest  
+##### 3452#       发表于 2021-9-9 22:45
+
+
+DLC服装设计
+[https://twitter.com/_SWAV_/status/1435946092818956288](https://twitter.com/_SWAV_/status/1435946092818956288)
+
+「テイルズオブアライズ」にてDLCの衣装デザインを担当しました 
+<img src="https://p.sda1.dev/2/a34445c91d5dbd9a8a963ea4d887af52/20210909_224342.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/628e05c57e3e1dcb70439c7a381e8ebe/20210909_224343.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  人如其名  
+##### 3453#       发表于 2021-9-9 22:59
+
+
+steam版能明天了，洗洗睡
+
+
+*****
+
+####  七氷  
+##### 3454#       发表于 2021-9-9 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52685890&amp;ptid=1860328" target="_blank">Piano-Forest 发表于 2021-9-9 22:45</a>
+DLC服装设计
+
+https://twitter.com/_SWAV_/status/1435946092818956288
+
+「テイルズオブアライズ」にてDLCの ...</blockquote>
+这套我觉得最好看
+
+
