@@ -800,3 +800,52 @@ atlus自己宣的可能性更大
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  SergeGlenn  
+##### 76#       发表于 2021-9-10 03:08
+
+
+今天要来真的了
+
+<img src="https://img.saraba1st.com/forum/202109/10/030802nmc5c1qsz515o0h8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210910_030654.jpg</strong> (205.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 03:08 上传
+
+
+*****
+
+####  戏言学者  
+##### 77#       发表于 2021-9-10 03:11
+
+
+大的要来啦.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  2014720  
+##### 78#       发表于 2021-9-10 03:11
+
+
+你们都在哪看
+
+
+*****
+
+####  luoyianwu  
+##### 79#       发表于 2021-9-10 03:13
+
+
+ 本帖最后由 luoyianwu 于 2021-9-10 03:22 编辑 
+
+拒绝回答今天是否参展的Hasaaaaaaaan是屑
+
+
