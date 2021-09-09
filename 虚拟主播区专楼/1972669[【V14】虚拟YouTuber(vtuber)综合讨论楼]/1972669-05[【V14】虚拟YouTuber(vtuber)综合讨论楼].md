@@ -12461,3 +12461,14 @@ vspo靠着这么点运营走到现在的位子，也算有能了
 vspo战略挺清晰的，目标就是能提供和虹杏不一样的东西，事实上也是小箱唯一的出路了。
 
 
+
+
+*****
+
+####  FCCHua  
+##### 6922#       发表于 2021-9-9 17:47
+
+
+新人真的不是にゃんたこ吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

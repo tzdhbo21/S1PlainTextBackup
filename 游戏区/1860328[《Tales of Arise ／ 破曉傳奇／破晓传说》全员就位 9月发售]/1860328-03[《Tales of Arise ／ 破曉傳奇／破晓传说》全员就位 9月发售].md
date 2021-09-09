@@ -4845,3 +4845,20 @@ Xsx起码中午的时候还没，现在我就不知道了<img src="https://stati
 有没有坛友需要的，原价转，懒得跟日亚客服撕逼了
 
 
+
+
+*****
+
+####  hkguty  
+##### 3409#       发表于 2021-9-9 17:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52681527&amp;ptid=1860328" target="_blank">heseran 发表于 2021-9-9 17:17</a>
+
+艹，这么会玩吗？
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后现在都炒到1K6、1K7了，我现在害怕他闲鱼都要砍单了
+
+

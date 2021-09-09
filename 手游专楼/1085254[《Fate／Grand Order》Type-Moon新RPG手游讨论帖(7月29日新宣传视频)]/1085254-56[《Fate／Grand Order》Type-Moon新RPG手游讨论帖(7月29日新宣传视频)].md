@@ -11935,3 +11935,37 @@ GBF古战场关门
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 83517#       发表于 2021-9-9 17:41
+
+
+凯尼斯技能组啥buff都有，就是没充能也是一绝，伤害这块只能说拉二开宝具本不是没道理的。
+
+伽摩商店看板差分还挺可爱，其他不评价
+
+
+*****
+
+####  ggyy88478  
+##### 83518#       发表于 2021-9-9 17:46
+
+
+沸羊羊这腰到底是个什么结构啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83519#       发表于 2021-9-9 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52681910&amp;ptid=1085254" target="_blank">ggyy88478 发表于 2021-9-9 17:46</a>
+
+沸羊羊这腰到底是个什么结构啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这叫壮！
+
+

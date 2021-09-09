@@ -1815,3 +1815,17 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 瞎说，我们厨子粉都是安静理性地讨论剧情结构和人物形象，战力这种根本不屑一顾
 
 
+
+
+*****
+
+####  武男  
+##### 55633#       发表于 2021-9-9 17:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52681353&amp;ptid=98922" target="_blank">klzxs 发表于 2021-9-9 17:04</a>
+
+大和是真的强 和凯多单挑至少三七开 几棒子锤下去晕都不晕一下 说不定比路飞还肉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以凯多多心疼啊，好好一个现在就有皇副实力，未来稳当皇团一把手的女儿就这么被，劳资和之国都给你拿下来了，未来害得帮你找古代兵器去争霸天下。可以体谅下当初他要在桃子面前嘴臭御田的心态了。
+
+
