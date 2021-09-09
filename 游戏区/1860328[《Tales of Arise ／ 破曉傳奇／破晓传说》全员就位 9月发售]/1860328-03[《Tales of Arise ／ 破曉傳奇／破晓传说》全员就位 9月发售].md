@@ -6015,3 +6015,116 @@ steam可以在手柄配置里面分别把跑路和战斗模式下的跳跃都改
 按你这个设置也不行
 
 
+
+
+*****
+
+####  恋妖壶  
+##### 3500#       发表于 2021-9-10 07:02
+
+
+说一下我的设置吧，看看几个不能用的有没有什么共性
+
+
+Win10最新版，精英，官方无线适配器，Steam手柄设置里面XBOX适配点上/点掉 都试过，进入有载入手柄配置提示。
+
+
+*****
+
+####  恋妖壶  
+##### 3501#       发表于 2021-9-10 07:08
+
+
+解决了
+
+
+爬了下steam社区，如果你steam beta是打开的，把steam beta关掉重启客户端再进游戏就能用了，我解决了，大部分人有效
+
+
+对日厂无语
+
+
+*****
+
+####  市松椿  
+##### 3502#       发表于 2021-9-10 07:09
+
+
+在STEAM的讨论社区找到的解决方法。大家可以试一下。
+
+I can verify it's not working because of Steam Beta.
+
+
+Go to Steam &gt; Settings &gt; Account &gt; Beta Participation
+
+
+Make sure you opt out of the beta updates
+
+
+When I did that, Steam prompted to restart, installed the current stable release and the input worked again!
+
+
+Happy gaming!
+
+我可以验证它不工作，因为蒸汽测试。
+
+
+进入Steam&gt;设置&gt;帐户&gt;测试版参与
+
+
+确保您选择退出测试版更新
+
+
+当我这样做时，Steam提示重新启动，安装了当前的稳定版本，输入再次工作！
+
+
+游戏快乐！
+
+
+*****
+
+####  不应  
+##### 3503#       发表于 2021-9-10 07:10
+
+
+ 本帖最后由 不应 于 2021-9-10 07:19 编辑 
+
+pc大概要什么配置才流畅，我1060走路都卡成ppt了。30帧我也能忍了啊。
+你们说的手柄我倒是没遇到，但是卡成ppt+人物瞬移<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DraQin  
+##### 3504#       发表于 2021-9-10 07:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688761&amp;ptid=1860328" target="_blank">市松椿 发表于 2021-9-10 07:09</a>
+在STEAM的讨论社区找到的解决方法。大家可以试一下。
+
+I can verify it's not working because of Steam Bet ...</blockquote>
+试了表示没用，该咋样咋样，即便这是本作开发者也标注认同的办法
+我已经无语了
+
+— from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  Kojimaru  
+##### 3505#       发表于 2021-9-10 07:16
+
+
+<img src="https://img.saraba1st.com/forum/202109/10/071547emlq60syc6fmypxe.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (21.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 07:15 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要不这里穷举一下
+
+
