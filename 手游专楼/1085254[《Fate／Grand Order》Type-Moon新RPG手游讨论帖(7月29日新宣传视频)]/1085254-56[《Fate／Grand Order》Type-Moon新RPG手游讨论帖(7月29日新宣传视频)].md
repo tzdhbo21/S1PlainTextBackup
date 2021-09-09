@@ -11831,3 +11831,14 @@ GBF古战场关门
 我相信奇迹和魔法都是存在的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  quanlix  
+##### 83508#       发表于 2021-9-9 15:59
+
+
+清少纳言这绿宝具+3红配卡就蛋疼
+
+

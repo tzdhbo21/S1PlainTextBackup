@@ -19035,3 +19035,25 @@ PC版前射太爽不想放弃霰弹啊，不过没4星不关我的事<img src="h
 我龙的手的突击技能在高难就是自杀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 就因为手的配置不行没有成为我的主力
 
 
+
+
+*****
+
+####  unsh  
+##### 5977#       发表于 2021-9-9 16:08
+
+
+YoYo这派生枪炮伤害还挺足的，就是目押要多练。手派生倒是单纯把下滑大陀螺变成终结技附赠降火耐了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  心灵的乳头  
+##### 5978#       发表于 2021-9-9 16:09
+
+
+这活动机体名字怎么辣么怪，有性型，无性型，全型，扶他专用么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

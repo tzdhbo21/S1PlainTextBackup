@@ -1706,3 +1706,17 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看下来就感觉凯多是真的血厚
 
 
+
+
+*****
+
+####  武男  
+##### 55624#       发表于 2021-9-9 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52680180&amp;ptid=98922" target="_blank">游戏 发表于 2021-9-9 15:35</a>
+
+看下来就感觉凯多是真的血厚</blockquote>
+幻兽种动物系的，血条当然长，像不死鸟这种特化类型的甚至能让四皇大将不拿海楼石都只能慢慢跟他耗。
+
+
