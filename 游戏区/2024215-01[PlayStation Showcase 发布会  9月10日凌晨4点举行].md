@@ -849,3 +849,64 @@ atlus自己宣的可能性更大
 拒绝回答今天是否参展的Hasaaaaaaaan是屑
 
 
+
+
+*****
+
+####  liyingdao  
+##### 80#       发表于 2021-9-10 03:27
+
+
+别superheroes啊，啥都想看就是不想看superheroes
+
+
+*****
+
+####  jockeyjoestar  
+##### 81#       发表于 2021-9-10 03:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688132&amp;ptid=2024215" target="_blank">luoyianwu 发表于 2021-9-10 03:13</a>
+
+拒绝回答今天是否参展的Hasaaaaaaaan是屑</blockquote>
+ 我觉得是真耍猴。
+
+
+*****
+
+####  新庄運切  
+##### 82#       发表于 2021-9-10 03:31
+
+
+妇联！   妇联！   妇联！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  针刺骑士  
+##### 83#       发表于 2021-9-10 03:32
+
+
+x战警！
+
+
+*****
+
+####  LamdaHT  
+##### 84#       发表于 2021-9-10 03:32
+
+
+看这实时聊天，看来老外也被阿索的政确恶心到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  luoyianwu  
+##### 85#       发表于 2021-9-10 03:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688159&amp;ptid=2024215" target="_blank">jockeyjoestar 发表于 2021-9-10 03:30</a>
+我觉得是真耍猴。</blockquote>
+为什么岛哥哥要提前一天展死亡搁浅，答案已经出来了！
+
+
