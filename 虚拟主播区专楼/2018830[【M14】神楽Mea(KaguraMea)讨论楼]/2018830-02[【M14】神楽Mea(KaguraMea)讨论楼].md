@@ -10537,3 +10537,27 @@ yysy，生日第一首我还挺喜欢的，虽然mv本身我不会特意去循�
 今晚你给我播一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  往世雷书  
+##### 2441#       发表于 2021-9-9 17:05
+
+
+ 本帖最后由 往世雷书 于 2021-9-9 17:10 编辑 
+
+还没习惯吗，庄司的一年就是年初回老家休养生息，上半年整点重大爆点（个人live，3d，新皮），6.7.8月连续过周年和生日，下半年完全沉寂，年底来一次大事件（收益化，bls夺冠，被炎上）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  2014720  
+##### 2442#       发表于 2021-9-9 17:15
+
+
+这跟我看不到麻麻有什么关系？麻麻你给我出来<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+

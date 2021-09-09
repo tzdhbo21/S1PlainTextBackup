@@ -1768,3 +1768,36 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少年漫如果不讨论战斗力的话，有个反例，就是某学院。
 
 
+
+
+*****
+
+####  hkguty  
+##### 55629#       发表于 2021-9-9 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52681020&amp;ptid=98922" target="_blank">银枪子龙 发表于 2021-9-9 16:41</a>
+传说中的左右手山治呢</blockquote>
+已经没人care山治了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  klzxs  
+##### 55630#       发表于 2021-9-9 17:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">大和是真的强 和凯多单挑至少三七开 几棒子锤下去晕都不晕一下 说不定比路飞还肉
+
+
+*****
+
+####  瓦米里奥  
+##### 55631#       发表于 2021-9-9 17:08
+
+
+对手人均自带复活甲加便携泉水，心疼凯多<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

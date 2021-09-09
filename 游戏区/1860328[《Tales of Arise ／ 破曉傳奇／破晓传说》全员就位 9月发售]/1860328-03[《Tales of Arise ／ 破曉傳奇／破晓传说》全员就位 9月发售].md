@@ -4820,3 +4820,28 @@ Xsx起码中午的时候还没，现在我就不知道了<img src="https://stati
 我在新世纪游戏电玩那边1k2定了个限定，然后店家跟我说可能拿不到货，然后我又在他家的闲鱼号1k5定了一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为他闲鱼号说保单保价肯定有货
 
 
+
+
+*****
+
+####  heseran  
+##### 3407#       发表于 2021-9-9 17:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52681281&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-09-09 16:59:48</a>
+我在新世纪游戏电玩那边1k2定了个限定，然后店家跟我说可能拿不到货，然后我又在他家的闲鱼号1k5定了一个因 ...</blockquote>艹，这么会玩吗？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  那由  
+##### 3408#       发表于 2021-9-9 17:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草，忘记取消日亚的豪华版了，扣款才知道
+
+有没有坛友需要的，原价转，懒得跟日亚客服撕逼了
+
+
