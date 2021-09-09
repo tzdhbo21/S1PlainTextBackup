@@ -775,3 +775,28 @@ atlus自己宣的可能性更大
 40分钟有点短啊，每一个都只能浮光掠影
 
 
+
+
+*****
+
+####  日日日日日野  
+##### 74#       发表于 2021-9-9 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52680062&amp;ptid=2024215" target="_blank">青水杂鱼 发表于 2021-9-9 15:26</a>
+
+40分钟太短了，假如一个重量级的给5分钟也就8个游戏，再加上还有串烧。估计干货不多 ...</blockquote>
+一个直面会也就这么个时长，只要会剪片子，可以剪得很紧凑。当然大部分时候，索尼的这种发布会紧凑程度不如任天堂
+
+
+*****
+
+####  allenz3  
+##### 75#       发表于 2021-9-9 16:21
+
+
+估计就一个未公布大作播片5分钟，已公布作品再播个10分钟，剩下轮番介绍4399
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

@@ -2341,3 +2341,14 @@ vtb模拟器里的id
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  lucifer0607  
+##### 197#       发表于 2021-9-9 16:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">最近直播时间都这么正常，我反而看不上了
+
+
