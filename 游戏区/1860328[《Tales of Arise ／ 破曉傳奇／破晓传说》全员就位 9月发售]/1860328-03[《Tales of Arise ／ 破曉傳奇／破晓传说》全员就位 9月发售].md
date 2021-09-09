@@ -5861,3 +5861,157 @@ Steam版X1S手柄怎么按了没反应的
 PS5手柄也没反应，明明有手柄的控制器选项的
 
 
+
+
+*****
+
+####  Kojimaru  
+##### 3489#       发表于 2021-9-10 06:41
+
+
+ 本帖最后由 Kojimaru 于 2021-9-10 06:44 编辑 
+
+试了下，不错<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">画质帧数啥的都在线
+
+还能改确定键立刻换成⭕，更好了
+
+记得要在steam设置里把PlayStation配置支持给关了就能玩了（绯红结系也是这个问题
+
+
+<img src="https://img.saraba1st.com/forum/202109/10/064443s46vba4opte50cg9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (62.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 06:44 上传
+
+
+*****
+
+####  恋妖壶  
+##### 3490#       发表于 2021-9-10 06:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688669&amp;ptid=1860328" target="_blank">DraQin 发表于 2021-9-10 06:24</a>
+
+Steam版X1S手柄怎么按了没反应的
+
+看了一圈反馈貌似手柄全部无法控制，太弱智了，果然是日厂PC优化水平 ...</blockquote>
+果然不是我自己的问题，我就想来问这个的，太傻了也
+
+
+*****
+
+####  angela5d30  
+##### 3491#       发表于 2021-9-10 06:42
+
+
+steam版开始下载了，两小时内能下完<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+— from Xiaomi MI 8 Lite, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  LT_Harry  
+##### 3492#         楼主| 发表于 2021-9-10 06:42
+
+
+共享使用游戏用户的 DLC 里没有包含预购奖励 DLC（拥有者的账户里🈶预购奖励），这下开局少东西了😅
+
+
+*****
+
+####  恋妖壶  
+##### 3493#       发表于 2021-9-10 06:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688693&amp;ptid=1860328" target="_blank">Kojimaru 发表于 2021-9-10 06:41</a>
+
+试了下，不错画质帧数啥的都在线
+
+还能改确定键立刻换成⭕，更好了
+
+记得要在steam设置里把PlayStatio ...</blockquote>
+我都没开过，用不了
+
+
+*****
+
+####  LT_Harry  
+##### 3494#         楼主| 发表于 2021-9-10 06:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688669&amp;ptid=1860328" target="_blank">DraQin 发表于 2021-9-10 06:24</a>
+Steam版X1S手柄怎么按了没反应的
+看了一圈反馈貌似手柄全部无法控制，太弱智了，果然是日厂PC优化水平 ...</blockquote>
+我玩了一会儿，用的旧 Xbox One 控制器，操作完全正常，建议检查一下 Steam 全局的控制器设置
+
+
+*****
+
+####  Chia  
+##### 3495#       发表于 2021-9-10 06:49
+
+
+我就是x1s，没问题的
+
+
+*****
+
+####  恋妖壶  
+##### 3496#       发表于 2021-9-10 06:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688713&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-9-10 06:47</a>
+
+我玩了一会儿，用的旧 Xbox One 控制器，操作完全正常，建议检查一下 Steam 全局的控制器设置 ...</blockquote>
+神奇了，press any key界面点一下是认的能进主菜单，进到主菜单就按什么都没用了
+
+
+XBOX手柄支持点上点掉，PS手柄支持点上点掉都试过了
+
+
+*****
+
+####  hypnossz86  
+##### 3497#       发表于 2021-9-10 06:52
+
+
+steam可以在手柄配置里面分别把跑路和战斗模式下的跳跃都改到x上了
+
+
+*****
+
+####  DraQin  
+##### 3498#       发表于 2021-9-10 06:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688713&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-9-10 06:47</a>
+我玩了一会儿，用的旧 Xbox One 控制器，操作完全正常，建议检查一下 Steam 全局的控制器设置 ...</blockquote>
+怎么调都不行，和楼下说的一样，只能按的动press any key那里
+神奇的是我随便按一个键鼠标指针都会消失，表示游戏应该是认出了手柄的，但是就是不管怎么按都没反应
+
+— from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  市松椿  
+##### 3499#       发表于 2021-9-10 06:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688693&amp;ptid=1860328" target="_blank">Kojimaru 发表于 2021-9-10 06:41</a>
+
+试了下，不错画质帧数啥的都在线
+
+还能改确定键立刻换成⭕，更好了
+
+记得要在steam设置里把PlayStatio ...</blockquote>
+别的游戏包括绯红结系都是正常的，就破晓用不了。
+
+按你这个设置也不行
+
+
