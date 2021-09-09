@@ -4616,3 +4616,17 @@ CP系统就是用来调整游戏平衡的设计，限制了恢复系统的同时
 这游戏限定版价格什么情况，当时预购某宝价格998元，今天发售了客服说发不了，成本就要1400块的样子。
 
 
+
+
+*****
+
+####  elven119  
+##### 3389#       发表于 2021-9-9 14:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52678437&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-9 12:59</a>
+
+普通版就行，其他版本送的那些东西在风大师和mod面前都可以不用买</blockquote>
+风大师是什么东西哦？
+
+
