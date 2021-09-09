@@ -10605,3 +10605,41 @@ yysy，生日第一首我还挺喜欢的，虽然mv本身我不会特意去循�
 烦
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2447#       发表于 2021-9-9 18:02
+
+
+怎么才两天就都犯病了，好歹三年之痒吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mikumiku831  
+##### 2448#       发表于 2021-9-9 18:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 2449#       发表于 2021-9-9 18:05
+
+
+这伪中文沙雕推不是挺有趣的吗
+
+
+*****
+
+####  Klience  
+##### 2450#       发表于 2021-9-9 18:15
+
+
+这推特的评论区看下来像在看文言文一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

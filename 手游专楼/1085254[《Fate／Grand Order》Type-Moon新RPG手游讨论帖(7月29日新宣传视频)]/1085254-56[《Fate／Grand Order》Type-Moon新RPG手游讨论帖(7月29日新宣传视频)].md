@@ -11969,3 +11969,14 @@ GBF古战场关门
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这叫壮！
 
 
+
+
+*****
+
+####  khxooo  
+##### 83520#       发表于 2021-9-9 18:16
+
+
+感觉这一次卡面是这么多泳装以来最拉的一次<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+

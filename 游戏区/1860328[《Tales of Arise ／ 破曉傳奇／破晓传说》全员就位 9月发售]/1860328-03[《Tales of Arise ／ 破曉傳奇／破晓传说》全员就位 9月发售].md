@@ -4862,3 +4862,44 @@ Xsx起码中午的时候还没，现在我就不知道了<img src="https://stati
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后现在都炒到1K6、1K7了，我现在害怕他闲鱼都要砍单了
 
 
+
+
+*****
+
+####  木木の林  
+##### 3410#       发表于 2021-9-9 18:07
+
+
+ 本帖最后由 木木の林 于 2021-9-9 18:08 编辑 
+
+有PS5商店里购买破晓传说标准版时，报错的嘛。。
+
+
+虽然要到国庆才有时间好好玩TOAR 但看了直播后，今天打开商店还是想先买了。
+
+
+结果竟然报错。。谁知道怎么解决<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+其他版本都能添加购物车，就标准版报错。。。也试了PS APP 也不行。。
+
+
+<img src="https://img.saraba1st.com/forum/202109/09/180756vvwz2uqhvnvwmvph.jpg" referrerpolicy="no-referrer">
+
+
+<strong>error.jpg</strong> (29.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-9 18:07 上传
+
+
+*****
+
+####  zzzzpapa  
+##### 3411#       发表于 2021-9-9 18:10
+
+
+有懂哥说说顺丰被税的概率是多少么，和卖家讨论下来说直接给我充香港发，不过税和运费自己付。
+
+
