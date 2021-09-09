@@ -5565,3 +5565,51 @@ https://twitter.com/_SWAV_/status/1435946092818956288
 想买PS4版，不知能不能玩，体验是否会像2077那样...<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  32767  
+##### 3464#       发表于 2021-9-9 23:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52686455&amp;ptid=1860328" target="_blank">天乃冥 发表于 2021-9-9 23:18</a>
+想买PS4版，不知能不能玩，体验是否会像2077那样...</blockquote>
+我PS4 PRO玩的，游戏体验本身还行，可能是我对帧数和画质本身就不敏感
+但是PS4全程和电吹风一样的声音，感觉有点害怕像是随时会烧了一样
+
+
+*****
+
+####  天乃冥  
+##### 3465#       发表于 2021-9-9 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52686779&amp;ptid=1860328" target="_blank">32767 发表于 2021-9-9 23:42</a>
+
+我PS4 PRO玩的，游戏体验本身还行，可能是我对帧数和画质本身就不敏感
+
+但是PS4全程和电吹风一样的声音， ...</blockquote>
+可我的是老版PS4<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天堂蜘蛛  
+##### 3466#       发表于 2021-9-10 00:02
+
+
+咋还没解锁
+
+
+*****
+
+####  Narrative  
+##### 3467#       发表于 2021-9-10 00:03
+
+
+ 本帖最后由 Narrative 于 2021-9-10 00:05 编辑 
+
+pc今天早上5点
+
+
