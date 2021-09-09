@@ -1742,3 +1742,29 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 贴吧太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在已经快进到大和粉跟索隆粉吵战力了
 
 
+
+
+*****
+
+####  银枪子龙  
+##### 55627#       发表于 2021-9-9 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52680948&amp;ptid=98922" target="_blank">hkguty 发表于 2021-9-9 16:35</a>
+
+贴吧太搞笑了现在已经快进到大和粉跟索隆粉吵战力了</blockquote>
+传说中的左右手山治呢
+
+
+*****
+
+####  武男  
+##### 55628#       发表于 2021-9-9 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52680948&amp;ptid=98922" target="_blank">hkguty 发表于 2021-9-9 16:35</a>
+
+贴吧太搞笑了现在已经快进到大和粉跟索隆粉吵战力了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少年漫如果不讨论战斗力的话，有个反例，就是某学院。
+
+

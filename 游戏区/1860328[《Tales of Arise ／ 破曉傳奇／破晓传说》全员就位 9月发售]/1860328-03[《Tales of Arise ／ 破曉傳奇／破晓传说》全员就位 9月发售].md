@@ -4764,3 +4764,59 @@ Xbox欧美版的解锁时间跟steam一样吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 3402#       发表于 2021-9-9 16:42
+
+
+发货了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  supersssbc  
+##### 3403#       发表于 2021-9-9 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52678567&amp;ptid=1860328" target="_blank">6847651 发表于 2021-9-9 13:11</a>
+
+我PS4买了那么多年进入游戏就没见到风扇这么响过 比拖拉机还猛</blockquote>
+我上个月打试玩版的时候就发觉这游戏ps4pro风扇响的离谱，比我打大表哥或者战神响了块一倍，赶紧换了ps5<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  4ckc  
+##### 3404#       发表于 2021-9-9 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52680943&amp;ptid=1860328" target="_blank">zero12 发表于 2021-9-9 16:35</a>
+主机版都已经发售了吧</blockquote>
+Xsx起码中午的时候还没，现在我就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  heseran  
+##### 3405#       发表于 2021-9-9 16:58
+
+
+老板说今天发ps5版，ps4版还没到货<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  hkguty  
+##### 3406#       发表于 2021-9-9 16:59
+
+
+我在新世纪游戏电玩那边1k2定了个限定，然后店家跟我说可能拿不到货，然后我又在他家的闲鱼号1k5定了一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为他闲鱼号说保单保价肯定有货
+
+
