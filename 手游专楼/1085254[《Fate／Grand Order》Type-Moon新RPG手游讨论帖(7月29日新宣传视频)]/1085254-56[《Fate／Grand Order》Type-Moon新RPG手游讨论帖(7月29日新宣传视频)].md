@@ -12086,3 +12086,32 @@ GBF古战场关门
 嗯，清少纳言真的不错。
 
 
+
+
+*****
+
+####  exiaexa  
+##### 83531#       发表于 2021-9-9 20:15
+
+
+就现在出的几个来说，我投清少纳言
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+社长迷之审美和苍月的丢人画功先扔出去，皇女前三破头太怪了
+
+Azusa这个磨皮过度导致沸羊羊这皮肤看着跟石膏似的，B叔画多了没缓过来吧
+
+沸羊羊本体都没这么过分
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 83532#       发表于 2021-9-9 20:19
+
+
+加一，清少纳言那个立绘太清爽了。
+
+

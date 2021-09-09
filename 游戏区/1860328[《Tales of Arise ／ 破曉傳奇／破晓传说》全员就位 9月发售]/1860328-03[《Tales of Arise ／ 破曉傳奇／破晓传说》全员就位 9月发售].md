@@ -5118,3 +5118,74 @@ Xsx起码中午的时候还没，现在我就不知道了
 云了一下感觉本作动作系统比噬血代码强不少啊
 
 
+
+
+*****
+
+####  ky怪  
+##### 3426#       发表于 2021-9-9 20:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52682035&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-9-9 17:57</a>
+然后现在都炒到1K6、1K7了，我现在害怕他闲鱼都要砍单了</blockquote>
+我1k1订的，店家今天说还没到货，不知道能不能发出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rak1  
+##### 3427#       发表于 2021-9-9 20:04
+
+
+xbox转新西兰服可以玩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蓝雉  
+##### 3428#       发表于 2021-9-9 20:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52683700&amp;ptid=1860328" target="_blank">andychen 发表于 2021-9-9 19:57</a>
+我记得说本作是噬魂者组做完噬血代码以后做的，原传说组去做绯红结系了？
+
+云了一下感觉本作动作系统比噬血 ...</blockquote>
+两边都是传说组的人，和shift组没关系
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3429#       发表于 2021-9-9 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52683553&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-9 19:46</a>
+
+预购送的这个黑白翅膀，真的好中二，爱了爱了
+
+
+希侬说话时手指喜欢不耐烦地敲手臂，可爱 ...</blockquote>
+看了二十个skit之后我觉得她就是披着美少女皮的泥潭巨魔，嘴臭和阴阳怪气都拉满
+
+
+*****
+
+####  reficul  
+##### 3430#       发表于 2021-9-9 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52683918&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-9 20:12</a>
+
+看了二十个skit之后我觉得她就是披着美少女皮的泥潭巨魔，嘴臭和阴阳怪气都拉满 ...</blockquote>
+那可就太好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凛雪鸦  
+##### 3431#       发表于 2021-9-9 20:14
+
+
+这次skit不怕漏了，都可以回看。
+
+
