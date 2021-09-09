@@ -1829,3 +1829,16 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以凯多多心疼啊，好好一个现在就有皇副实力，未来稳当皇团一把手的女儿就这么被，劳资和之国都给你拿下来了，未来害得帮你找古代兵器去争霸天下。可以体谅下当初他要在桃子面前嘴臭御田的心态了。
 
 
+
+
+*****
+
+####  梦·花火  
+##### 55634#       发表于 2021-9-9 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52679542&amp;ptid=98922" target="_blank">火星飞船 发表于 2021-9-9 14:46</a>
+感觉尾田在和之国这力图用他自己理解的“武士道”来引领剧情矛盾，本身就半瓶醋的理解硬把老旧东西塞到现代 ...</blockquote>
+应该被扫进历史垃圾堆里的东西硬是被尾田捡起来往死里吹，真是绝了
+
+

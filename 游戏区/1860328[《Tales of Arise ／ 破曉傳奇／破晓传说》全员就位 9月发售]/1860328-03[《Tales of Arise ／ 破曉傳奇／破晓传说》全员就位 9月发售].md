@@ -4986,3 +4986,17 @@ Xsx起码中午的时候还没，现在我就不知道了<img src="https://stati
 实体虽然明天就到了，但是后天又要加班，都没时间玩了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  PureWaltz  
+##### 3416#       发表于 2021-9-9 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52679647&amp;ptid=1860328" target="_blank">shigurehare 发表于 2021-9-9 14:56</a>
+
+联动衣服居然是单独售卖的吗，究极版都没有</blockquote>
+steam究极版带联动服装
+
+
