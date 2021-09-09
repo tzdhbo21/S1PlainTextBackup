@@ -4227,3 +4227,83 @@ dlc武器大概能用到第二章，其他的还行吧，你要觉得简单，�
 dlc都可以单买的
 
 
+
+
+*****
+
+####  虚无连斩  
+##### 3361#       发表于 2021-9-9 10:03
+
+
+dlc武器不影响流程？那就不退普通版了
+朋友也有吐槽汉化不大行，说是切了日文玩....
+感情今年几个jrpg都得玩日文，先是勇气默示录2，翻译的什么鬼....美妙世界2，你玩中文的机会都不给...现在又是传说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  zero33333  
+##### 3362#       发表于 2021-9-9 10:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676256&amp;ptid=1860328" target="_blank">虚无连斩 发表于 2021-9-9 10:03</a>
+
+dlc武器不影响流程？那就不退普通版了
+
+朋友也有吐槽汉化不大行，说是切了日文玩....
+
+感情今年几个jrpg都得 ...</blockquote>
+难道是机翻影响了大环境？网上很多所谓的精翻，实际就是机翻，传着传着影响了高质量汉化？
+
+
+*****
+
+####  TheOccuria  
+##### 3363#       发表于 2021-9-9 10:06
+
+
+ 本帖最后由 TheOccuria 于 2021-9-9 10:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代新玩家这么多吗，真是好事
+
+to这些dlc都好几代了，你要是真爱的话就买，要是只是想少肝点不如去买个修改器
+
+反正我一代都没买过，通关毫无问题
+
+
+*****
+
+####  Piano-Forest  
+##### 3364#       发表于 2021-9-9 10:09
+
+
+整理一下已发布的视觉图（大图）
+<img src="https://p.sda1.dev/2/5926ebaca1974d52b449755e9b845fe8/20210909_094746.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/13c76aac38f5391ef116c92627db9176/Tales.of.Arise.full.2990647.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/cd410a775966c550f753a0d6be0730f4/20210909_094722.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/55681838bf9bc5cb9f4a5d927ec0c988/20210909_095002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/8b18260877c8144bd3f3c2dee5c41d24/20210909_094949.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/f55457e5214b65ae937c4b6ef4fcb0b6/Tales.of.Arise.full.2591268.jpg" referrerpolicy="no-referrer">
+
+
+【『破晓传说』主题歌完整版配信 / 絢香、感覚ピエロ-】
+[https://m.bilibili.com/video/BV15v411w7pA](https://m.bilibili.com/video/BV15v411w7pA)
+<img src="https://p.sda1.dev/2/4e581618fcf5acc7074e19a3a25829f8/20210909_093217.jpg" referrerpolicy="no-referrer"> <blockquote>01.        Blue Moon -Tales of ARISE ver. 5:41
+
+02.        Hello,Again～昔からある場所～ -Tales of ARISE ver. 2:07</blockquote>
+
+<img src="https://p.sda1.dev/2/9f61ee0aa117e7a18535ab45877363ba/20210909_095825.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/ff0bd8f9ff4f0e634348ce29a10f708d/20210909_100212.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  出言不迅  
+##### 3365#       发表于 2021-9-9 10:20
+
+
+昨晚玩了一点点，汉化还行啊，奴隶不要摸鱼都来了
+
+

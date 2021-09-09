@@ -11597,3 +11597,75 @@ GBF古战场关门
 你竟然不缺2.6那个球？
 
 
+
+
+*****
+
+####  zakki  
+##### 83488#       发表于 2021-9-9 10:08
+
+
+ 本帖最后由 zakki 于 2021-9-9 10:11 编辑 
+
+草，上线领了生放12个石头扔进去竟然出了魔总，本来都没看屏幕一直速点，突然噔一声吓我一跳。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白夜羽  
+##### 83489#       发表于 2021-9-9 10:11
+
+
+震惊！箱子竟然能一口气全部打开，dw那帮铁废物竟然还能做到这种高难操作了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 83490#       发表于 2021-9-9 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676401&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-9-9 10:11</a>
+
+震惊！箱子竟然能一口气全部打开，dw那帮铁废物竟然还能做到这种高难操作了？ ...</blockquote>
+可能是新写的代码，无限池那个已经是旧屎山了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  yzj134100  
+##### 83491#       发表于 2021-9-9 10:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">开箱子爽到了  这本来是基本操作的东西硬是让dw弄成G点
+
+
+*****
+
+####  黑上シグマ  
+##### 83492#       发表于 2021-9-9 10:16
+
+
+<blockquote>引用第83486楼areklose于2021-09-09 08:56发表的  :
+
+引用:黑上シグマ 发表于 2021-9-9 08:27宝箱给的素材我没一样是缺的，可以咸了----发......</blockquote>
+2.6哪来球，2.5那个我早就刷了几百了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  黑上シグマ  
+##### 83493#       发表于 2021-9-9 10:20
+
+
+翻页
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
