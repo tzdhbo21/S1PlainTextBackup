@@ -16667,3 +16667,34 @@ nb真的算脏话吗
 可能你需要换个IP？貌似现在香港的IP打不开Tik Tok，我也不知道为什么
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 4353#       发表于 2021-9-10 00:33
+
+
+ 本帖最后由 黑雪姫 于 2021-9-10 00:34 编辑 
+
+鲤鱼目前的日语流畅度先不说，但说话的确没什么口音，这很难得了。
+
+有些人即使在日本生活很多年但一开口马上就暴露自己是外国人...
+
+
+*****
+
+####  Karin11974  
+##### 4354#       发表于 2021-9-10 00:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687308&amp;ptid=1909972" target="_blank">名津流 发表于 2021-9-10 00:21</a>
+
+https://www.tiktok.com/@aoyama_nagisa_official
+
+就是7200多粉那个
+
+我这看是正常的啊</blockquote>
+查了一下，还要拔电话卡改地区之类的，太麻烦了，放弃<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
