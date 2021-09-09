@@ -5324,3 +5324,50 @@ Xbox版买不了联动服装吗，盾妹的衣服都好好看啊</blockquote>
 现象好像还买不了就很奇怪。估计是要等美国那边上架？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（xbox在亚洲就是逊啦！根本都没人管！）
 
 
+
+
+*****
+
+####  rak1  
+##### 3443#       发表于 2021-9-9 22:02
+
+
+终极版不是自带联动服装DLC吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  roxassix  
+##### 3444#       发表于 2021-9-9 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52685361&amp;ptid=1860328" target="_blank">rak1 发表于 2021-9-9 22:02</a>
+终极版不是自带联动服装DLC吗
+
+—— 来自 S1Fun</blockquote>
+主机版欧美服的带联动服装，亚洲服（含日本）的都没有（但是有bgm包），steam版跟主机欧美服内容一致<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laoz  
+##### 3445#       发表于 2021-9-9 22:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">火剑还来个蓄力加强耗血
+
+
+*****
+
+####  stoiorz  
+##### 3446#       发表于 2021-9-9 22:14
+
+
+请问先到的坛友对话文字配音全了吗？
+
+
+----发送自 [Xiaomi M2012K11C,Android 11](http://stage1.5j4m.com/?1.37)
+
+
