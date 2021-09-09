@@ -4381,3 +4381,60 @@ steam还没解锁，好着急啊
 steam这解锁时间也太阴间了，那只有明晚才能开始玩了
 
 
+
+
+*****
+
+####  奈奈未喵  
+##### 3372#       发表于 2021-9-9 10:53
+
+
+昨晚玩了一小时 心疼自带烤猪蹄的男主
+
+
+*****
+
+####  oniwarud  
+##### 3373#       发表于 2021-9-9 10:53
+
+
+那堆官方挂dlc在pc版都能通过风大师直接解决吧，外观这一块也有mod。就像mhw的那堆时装在pc上就没见过几个人买的，主机上见到买的倒是不少；mhr也是，身边一大堆买dlc包的，但是上了pc买的估计就要少多了
+
+
+*****
+
+####  ashitaka1979  
+##### 3374#       发表于 2021-9-9 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676761&amp;ptid=1860328" target="_blank">Suzutsuki.Mk.II 发表于 2021-9-9 10:36</a>
+
+确实不是网络用语，但现在滥用的情况下已经变成了，而且丢给tw那边翻译一般情况下都不会用摸鱼，结合一下 ...</blockquote>
+这就好像 小姐  因为现在的意思就不能用了吗？
+
+结合时事，伞兵  如果不是上面发话，也不能用了吗？
+
+
+*****
+
+####  ashitaka1979  
+##### 3375#       发表于 2021-9-9 10:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676761&amp;ptid=1860328" target="_blank">Suzutsuki.Mk.II 发表于 2021-9-9 10:36</a>
+
+确实不是网络用语，但现在滥用的情况下已经变成了，而且丢给tw那边翻译一般情况下都不会用摸鱼，结合一下 ...</blockquote>
+不过虽然一些用词比如透过还是繁体说法，但从句子整体看没有繁体那种啰嗦的感觉，有那么点简体文本修改的意思。
+
+
+*****
+
+####  heseran  
+##### 3376#       发表于 2021-9-9 11:01
+
+
+有人实体版发货的吗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+

@@ -1589,3 +1589,39 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 抛开大和满口御田这点，我还挺喜欢大和的。真上船也没什么意见。
 
 
+
+
+*****
+
+####  Supermangunv3  
+##### 55617#       发表于 2021-9-9 11:00
+
+
+<img src="https://img.saraba1st.com/forum/202109/09/105929dv9e99d1d4k4dkd4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5rzye78ck3e1pikjmsrio2hx.jpg</strong> (52.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-9-9 10:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/09/105936iigs3w9gs6zy3sl0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6mb1jibc9snlysiwk3k0az1we.jpg</strong> (24.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-9 10:59 上传
+
+
+[
+
+战部渡声优：田中真弓
+
+龙神号:玄田哲章（同凯多声优） ​​​
+
+
