@@ -16763,3 +16763,37 @@ https://www.tiktok.com/@aoyama_nagisa_official
 那个我也大概看了，有人发在这个新帖底下的老贴链接，也算是一种挖坟打脸吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 4360#       发表于 2021-9-10 01:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧蚕都要成黑眼圈了，作为黑转粉，只能希望她压力不要太大。
+
+
+*****
+
+####  cat1230  
+##### 4361#       发表于 2021-9-10 02:00
+
+
+日本阿宅还考虑鲤鱼结束裂啦活动只会会不会回国，想的可真远……
+
+还有个说乱马重置让可可来配珊瑚，我去，这个点子我看可以<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑雪姫  
+##### 4362#       发表于 2021-9-10 02:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687945&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-10 01:58</a>
+
+不至于不至于，她其实很多细节都没做好的，比如一单活动的mc，比如oped mini live开头没唱， ...</blockquote>
+oped mini live 开头没唱应该不是鲤鱼的问题，因为nako也没唱，只是nako嘴被麦克风挡死了不仔细看意识不到。应该是两人耳麦的接收信号有延迟
+
+
