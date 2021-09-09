@@ -8092,3 +8092,17 @@ image.png
 ？为啥是盖塔？
 
 
+
+
+*****
+
+####  hgcg-ix  
+##### 2085#       发表于 2021-9-9 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676317&amp;ptid=1963832" target="_blank">leleq 发表于 2021-9-9 10:06</a>
+
+？为啥是盖塔？</blockquote>
+这个官方原画师从来都是这样画些没关系的东西摸鱼
+
+
