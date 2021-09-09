@@ -5371,3 +5371,51 @@ Xbox版买不了联动服装吗，盾妹的衣服都好好看啊</blockquote>
 ----发送自 [Xiaomi M2012K11C,Android 11](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  JC_AR  
+##### 3447#       发表于 2021-9-9 22:25
+
+
+STEAM版是12点解锁吗？
+
+
+*****
+
+####  KuonjiClara  
+##### 3448#       发表于 2021-9-9 22:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52685629&amp;ptid=1860328" target="_blank">JC_AR 发表于 2021-9-9 22:25</a>
+
+STEAM版是12点解锁吗？</blockquote>
+凌晨五点
+
+
+*****
+
+####  电风扇  
+##### 3449#       发表于 2021-9-9 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52684834&amp;ptid=1860328" target="_blank">RushMove 发表于 2021-9-9 21:24</a>
+
+难度中途可以改吗？作为系列新玩家我想试试困难，又怕太费劲
+
+顺便问一下，传说系列的难度和其他jrpg比算什 ...</blockquote>
+新作还没玩到
+
+按惯例难度是随时可以改的，高难度回报也多一些
+
+
+*****
+
+####  hkguty  
+##### 3450#       发表于 2021-9-9 22:40
+
+
+打完第一章，感觉这一作真的好玩，连起来简单轻松，而且玩起来操作性更接近动作游戏了
+
+

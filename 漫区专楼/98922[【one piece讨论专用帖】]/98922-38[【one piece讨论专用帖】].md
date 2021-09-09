@@ -1938,3 +1938,18 @@ op世界观杀伤力就很迷，明明战斗时的各种表现已经很夸张了
 毕竟和之国篇前吹上天的一拳一个超新星却被同样是超新星的普皇炸白眼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  论讨爱  
+##### 55643#       发表于 2021-9-9 22:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52683810&amp;ptid=98922" target="_blank">cdfjg 发表于 2021-9-9 20:04</a>
+尾田可以说是神经病，故意不画美型的。前几年刀剑拟人挺火，sbs里也有粉丝希望他可以画出来，但他画的刀剑 ...</blockquote>
+但是妹子🐻是一个比一个大
+
+欧派党还是很好
+
+
