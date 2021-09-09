@@ -16813,3 +16813,16 @@ oped mini live 开头没唱应该不是鲤鱼的问题，因为nako也没唱，�
 乱马重制没谱，但可以预见的未来会有的电锯人动画后半部分肯定会出场的光熙和她后宫妹子，是有纯正中国话名台词的：“尸体在说话”，我觉得mappa可以考虑一下找liyuu这样的纯正汉话CV来配<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lj205  
+##### 4364#       发表于 2021-9-10 07:38
+
+
+<blockquote>Karin11974 发表于 2021-9-10 00:46
+查了一下，还要拔电话卡改地区之类的，太麻烦了，放弃</blockquote>
+b站和微博都有搬运号，搜 青山渚的情报搬运
+
+

@@ -6128,3 +6128,56 @@ I can verify it's not working because of Steam Bet ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要不这里穷举一下
 
 
+
+
+*****
+
+####  DraQin  
+##### 3506#       发表于 2021-9-10 07:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688783&amp;ptid=1860328" target="_blank">Kojimaru 发表于 2021-9-10 07:16</a>
+要不这里穷举一下</blockquote>
+把所有组合都试过一遍了全都不行，决定放弃治疗，捏着鼻子用笔记本键盘玩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+— from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kojimaru| + 1|等个补丁|
+
+
+查看全部评分
+
+
+*****
+
+####  CALPISSODA  
+##### 3507#       发表于 2021-9-10 07:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687027&amp;ptid=1860328" target="_blank">天乃冥 发表于 2021-9-9 23:58</a>
+
+可我的是老版PS4</blockquote>
+我也是老版，其实还行，就是刚进入一个大地区的时候可能因为加载问题，走动和转动视角的时候明显有点帧数低点，过一小会儿就好很多了，转动视角的时候可能是默认有动态模糊，看起来反而有点不习惯，但主机版貌似不能设置关闭。目前为止剧情过场都是很顺的，战斗流畅切入和切出都很快。本身最初就是给PS4开发的游戏，肯定是能玩的，2077那种是极个别的例子罢了。
+
+
+*****
+
+####  Synchrolees  
+##### 3508#       发表于 2021-9-10 07:37
+
+
+传说系列历代战斗曲包竟然单卖，终极版拉了呀
+
+—— 来自 OnePlus HD1917, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

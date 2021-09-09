@@ -3797,3 +3797,25 @@ https://www.resetera.com/threads/star-wars-knights-of-the-old-republic-remake-an
 拉穿地心，之前爆料的那个mgs重制和寂静岭重制还有恶魔城重制一个都没有，惊喜也没有，亏索尼鸽了这么久的发布会，结果就这点货？
 
 
+
+
+*****
+
+####  芷雅居  
+##### 387#       发表于 2021-9-10 07:36
+
+
+比去年还拉垮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leafS  
+##### 388#       发表于 2021-9-10 07:43
+
+
+早起看了下回放，还好没熬夜看，保住了自己的睡眠
+
+—— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
