@@ -11498,3 +11498,102 @@ GBF古战场关门
 每日付费一石给魔总补到2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  areklose  
+##### 83479#       发表于 2021-9-9 07:35
+
+
+这出现率礼装还是4等一吗
+
+
+*****
+
+####  holyblood  
+##### 83480#       发表于 2021-9-9 08:07
+
+
+小达芬奇终于不用为恐龙化石跳河了，这就是编剧的温柔么<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 83481#       发表于 2021-9-9 08:09
+
+
+<blockquote>areklose 发表于 2021-9-9 07:35
+这出现率礼装还是4等一吗</blockquote>
+点数奖励还有一张应该
+
+
+*****
+
+####  eyeego  
+##### 83482#       发表于 2021-9-9 08:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52674949&amp;ptid=1085254" target="_blank">holyblood 发表于 2021-9-9 08:07</a>
+小达芬奇终于不用为恐龙化石跳河了，这就是编剧的温柔么</blockquote>
+不是临终关怀么<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莉莉橙  
+##### 83483#       发表于 2021-9-9 08:23
+
+
+哥伦布？傻逼活动咸了咸了
+
+
+*****
+
+####  黑上シグマ  
+##### 83484#       发表于 2021-9-9 08:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝箱给的素材我没一样是缺的，可以咸了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  白金口袋  
+##### 83485#       发表于 2021-9-9 08:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52674949&amp;ptid=1085254" target="_blank">holyblood 发表于 2021-9-8 18:07</a>
+
+小达芬奇终于不用为恐龙化石跳河了，这就是编剧的温柔么</blockquote>
+摆明了是告诉你接下来要嗝屁了尽全力好好玩留下一点点回忆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 83486#       发表于 2021-9-9 08:56
+
+
+目前的40ap金素材本掉的是倍卡礼装，昨天清体力出了一张，感觉亏了一个亿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 83487#       发表于 2021-9-9 08:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52675066&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-9-9 08:27</a>
+
+宝箱给的素材我没一样是缺的，可以咸了
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+你竟然不缺2.6那个球？
+
+

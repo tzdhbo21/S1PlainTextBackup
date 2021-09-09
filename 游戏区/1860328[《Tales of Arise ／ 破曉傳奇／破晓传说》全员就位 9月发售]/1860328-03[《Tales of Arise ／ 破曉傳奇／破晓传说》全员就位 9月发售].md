@@ -3970,3 +3970,260 @@ xbox版为啥没有联动服装那个dlc，多了个典藏服装和道具同捆�
 是ps5<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  火红之眼  
+##### 3336#       发表于 2021-9-9 07:24
+
+
+ 本帖最后由 火红之眼 于 2021-9-9 07:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没爆发性输出手段打断大招阶段还真有点难.....第二章最后硬是被boss放了三次神雷，愣是啃了我10个复活药Orz
+
+
+*****
+
+####  soranoguiji  
+##### 3337#       发表于 2021-9-9 07:33
+
+
+欧美佬打分是真的高，jrpg正统在欧美，本传说路人粉也买一份支持下顺便看看是不是真有那么神<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  elven119  
+##### 3338#       发表于 2021-9-9 07:35
+
+
+pc还要等一天，要死了
+
+
+*****
+
+####  elven119  
+##### 3339#       发表于 2021-9-9 07:36
+
+
+问下，都在说dlc，dlc是不是有点影响平衡什么的？我看dlc武器加了很多属性。谁来说说。只想正常游玩，如果dlc导致游戏难度下降什么的，就先不买了。
+
+
+*****
+
+####  The_Fool_  
+##### 3340#       发表于 2021-9-9 07:56
+
+
+你们怎么都这么介意DLC附带金手指的，担心游戏流程以“玩家购买了究极版的完全状态”来设计导致难度失衡？没必要吧
+
+
+*****
+
+####  415452356  
+##### 3341#       发表于 2021-9-9 07:56
+
+
+  菜单插图会随着剧情一直在变我挺喜欢，就是一开始技能啥的都没有打起来不像demo上来给你强化过那么爽
+
+
+*****
+
+####  夜_乌鸦  
+##### 3342#       发表于 2021-9-9 07:58
+
+
+小剧场的提示好小啊
+
+
+*****
+
+####  02031f84  
+##### 3343#       发表于 2021-9-9 08:10
+
+
+b站云了下感觉有点刮痧啊，绯红结系也是这节奏吗？有点想去买绯红结系
+
+
+*****
+
+####  kangkangsama  
+##### 3344#       发表于 2021-9-9 08:19
+
+
+官方金手指究极版带的吗，还是要额外买。
+
+
+*****
+
+####  wyy123  
+##### 3345#       发表于 2021-9-9 08:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52674581&amp;ptid=1860328" target="_blank">市松椿 发表于 2021-9-9 04:44</a>
+
+啥意思，这游戏还逼着买豪华版？</blockquote>
+豪华版只送里面3个，杂货店9折什么的，其他的需要单独购买。
+
+
+*****
+
+####  zero33333  
+##### 3346#       发表于 2021-9-9 08:31
+
+
+两个月前就预购了究极版，坐等解锁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 3347#       发表于 2021-9-9 08:34
+
+
+<blockquote>izayoi39 发表于 2021-9-9 06:05
+艹，万南真有你的，dlc服装带称号，意思是完全体人物要把衣服dlc给买了</blockquote>
+这个套路圣恩就玩过了
+
+
+*****
+
+####  jbjack1215  
+##### 3348#       发表于 2021-9-9 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52674967&amp;ptid=1860328" target="_blank">02031f84 发表于 2021-9-9 08:10</a>
+b站云了下感觉有点刮痧啊，绯红结系也是这节奏吗？有点想去买绯红结系</blockquote>
+没有，绯红会玩的话打怪跟喝水似的都是秒
+
+
+*****
+
+####  瑕在瑾中  
+##### 3349#       发表于 2021-9-9 08:40
+
+
+预购了毛区终极版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，带上面这些作弊dlc吗？
+
+
+*****
+
+####  02031f84  
+##### 3350#       发表于 2021-9-9 08:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52675169&amp;ptid=1860328" target="_blank">jbjack1215 发表于 2021-9-9 08:39</a>
+
+没有，绯红会玩的话打怪跟喝水似的都是秒</blockquote>
+感谢，准备买绯红结系了
+
+
+*****
+
+####  02031f84  
+##### 3351#       发表于 2021-9-9 08:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52675169&amp;ptid=1860328" target="_blank">jbjack1215 发表于 2021-9-9 08:39</a>
+
+没有，绯红会玩的话打怪跟喝水似的都是秒</blockquote>
+感谢，准备买绯红结系了
+
+
+*****
+
+####  benhawk  
+##### 3352#       发表于 2021-9-9 09:26
+
+
+话说我的男主为啥上来有个八岐大蛇，一个紫电，一个苍破？
+
+
+*****
+
+####  laoz  
+##### 3353#       发表于 2021-9-9 09:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52675702&amp;ptid=1860328" target="_blank">benhawk 发表于 2021-9-9 09:26</a>
+
+话说我的男主为啥上来有个八岐大蛇，一个紫电，一个苍破？</blockquote>
+DLC服装称号
+
+
+*****
+
+####  rgauss  
+##### 3354#       发表于 2021-9-9 09:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52675216&amp;ptid=1860328" target="_blank">02031f84 发表于 2021-9-9 08:43</a>
+感谢，准备买绯红结系了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">绯红前期也有点刮痧 要到男女主汇合后就是脚打了
+
+
+*****
+
+####  focus  
+##### 3355#       发表于 2021-9-9 09:33
+
+
+女主的转圈攻击好强啊，杂兵战1-2发就清场了
+
+
+*****
+
+####  KuonjiClara  
+##### 3356#       发表于 2021-9-9 09:45
+
+
+要说dlc影响强度，鬼泣45不也一样，这么干的游戏多的是不算啥大事。
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Rinne70  
+##### 3357#       发表于 2021-9-9 09:47
+
+
+坐不住了，好想赶紧下班回家爽玩
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 3358#       发表于 2021-9-9 09:51
+
+
+有无实体版到货了的老哥看看能不能补到终极版啊
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  benhawk  
+##### 3359#       发表于 2021-9-9 09:54
+
+
+<blockquote>elven119 发表于 2021-9-9 07:36
+问下，都在说dlc，dlc是不是有点影响平衡什么的？我看dlc武器加了很多属性。谁来说说。只想正常游玩，如果d ...</blockquote>
+dlc武器大概能用到第二章，其他的还行吧，你要觉得简单，改成
+
+
+*****
+
+####  ky怪  
+##### 3360#       发表于 2021-9-9 09:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52676075&amp;ptid=1860328" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2021-9-9 09:51</a>
+有无实体版到货了的老哥看看能不能补到终极版啊
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1Next-鹅版  ...</blockquote>
+dlc都可以单买的
+
+
