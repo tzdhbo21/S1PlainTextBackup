@@ -6433,3 +6433,23 @@ I can verify it's not working because of Steam Bet ...</blockquote>
 在推特被骂翻了，幸好我6点过后才能玩不用被伞兵日厂恶心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ac130-2020  
+##### 3530#       发表于 2021-9-10 09:22
+
+
+艹 1070估计2K没戏了
+
+
+*****
+
+####  奈奈未喵  
+##### 3531#       发表于 2021-9-10 09:41
+
+
+我怀疑2倍经验dlc才是困难的正常数值设计 昨天打到别祖 他15级我8级 秒的我头晕脑胀 刮了一小时痧才打过去 期间我无数次想氪金 
+
+

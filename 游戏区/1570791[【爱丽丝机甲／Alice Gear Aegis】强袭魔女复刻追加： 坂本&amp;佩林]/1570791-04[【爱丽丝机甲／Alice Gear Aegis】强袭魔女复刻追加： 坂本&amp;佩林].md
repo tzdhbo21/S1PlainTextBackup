@@ -19148,3 +19148,27 @@ rapper史诗级强化，但据说由美的肥姑妈品控非常差缺胳膊少�
 群里说同手同脚很大一个原因是BBA左右脚区别很小，大概设计师是有点锅的没做什么措施作区分。不过涂装中奖就……哎。之前小鸟的质量是真的无敌啊
 
 
+
+
+*****
+
+####  MOOMBA  
+##### 5986#       发表于 2021-9-10 09:29
+
+
+前前后后砸了快100张票 捞到了寡妇 其他的歪的一塌糊涂
+
+一起UP的那个妮娜简直和没实装一样 连2星都没见到<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+还漏了一个桑蒂 这种常规人物UP之后想补只能以后随缘靠歪了么。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cyau  
+##### 5987#       发表于 2021-9-10 09:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">寡妇那神情体态不说身经百战那也和处搭不上，不过我就爱小孤孀这口，还是调教好的，赞
+
+

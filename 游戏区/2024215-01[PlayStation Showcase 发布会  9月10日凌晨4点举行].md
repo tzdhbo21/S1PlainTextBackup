@@ -4148,3 +4148,113 @@ GT7不就是SIE血统最纯正的日系扛把子么，这代各种要素回归�
 不是，你们把gt7都开出日系了嘛
 
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 419#       发表于 2021-9-10 09:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689175&amp;ptid=2024215" target="_blank">红魔馆的糖 发表于 2021-09-10 08:26:34</a>
+有没有课代表讲讲凌晨的拨片有没有日系</blockquote>《Forspoken》和《幽灵线 东京》
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  丹德里恩  
+##### 420#       发表于 2021-9-10 09:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">kotor有PC？期待一下官中
+
+别的我只能说，不买ps5立省100%
+
+
+
+
+*****
+
+####  陈玉礼  
+##### 421#       发表于 2021-9-10 09:32
+
+
+休杰克曼的狼叔过于深入人心 不知道游戏版怎么处理
+
+
+*****
+
+####  JudgmentEye  
+##### 422#       发表于 2021-9-10 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689948&amp;ptid=2024215" target="_blank">clover293 发表于 2021-9-10 09:22</a>
+
+不是，你们把gt7都开出日系了嘛</blockquote>
+gt是欧系
+
+
+*****
+
+####  名字已被吃  
+##### 423#       发表于 2021-9-10 09:35
+
+
+蜘蛛侠2都要2023了，我还以为2022圣诞前后就能玩到<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  clover293  
+##### 424#       发表于 2021-9-10 09:37
+
+
+<blockquote>JudgmentEye 发表于 2021-9-10 09:35
+gt是欧系</blockquote>
+?强行欧系，欧洲卖的好就是欧系么？
+
+那最终幻想是美系游戏?
+
+
+*****
+
+####  peh  
+##### 425#       发表于 2021-9-10 09:39
+
+
+问下小缇娜是独立作品还是无主3的dlc？
+
+
+*****
+
+####  JudgmentEye  
+##### 426#       发表于 2021-9-10 09:39
+
+
+汽车文化不是欧系是啥
+
+
+*****
+
+####  Onelooker  
+##### 427#       发表于 2021-9-10 09:45
+
+
+夏娃计划怎么看起来像是有r18g要素
+
+
+*****
+
+####  马僧虔  
+##### 428#       发表于 2021-9-10 09:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690230&amp;ptid=2024215" target="_blank">peh 发表于 2021-9-10 09:39</a>
+问下小缇娜是独立作品还是无主3的dlc？</blockquote>
+我记得是个模拟跑团的游戏？
+
+

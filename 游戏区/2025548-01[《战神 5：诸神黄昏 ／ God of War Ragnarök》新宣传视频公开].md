@@ -744,3 +744,23 @@ origin_202109100500345348.jpg
 又看了一遍预告片，目前表现出来的新内容除了敌人种类增多外基本没有，确实有点失望。讲真上一代在我心里是满分作品，即使这一代真做成大型dlc我也是能接受的，只要故事讲好就行，但果然还是希望制作组能给一些影响到整个系统，改变玩法的新东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  萨妃螺丝  
+##### 70#       发表于 2021-9-10 09:32
+
+
+密米尔是打算一直挂裤腰带上了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  vvNemo  
+##### 71#       发表于 2021-9-10 09:34
+
+
+不舔黑命贵就不舒服
+
+
