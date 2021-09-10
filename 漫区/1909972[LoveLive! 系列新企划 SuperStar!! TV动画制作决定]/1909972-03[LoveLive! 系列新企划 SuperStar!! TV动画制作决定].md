@@ -17434,3 +17434,79 @@ B站更新了新番时间表 9月17日（下周5）更新4-6话
 那要分四批上了
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 4401#       发表于 2021-9-11 01:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52695099&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-10 14:14</a>
+话说回来最近5ch上的LoveLive SS铺天盖地的都是小千主角
+
+感觉日本拉拉人好像真的有幼驯染信仰 历代这些二创 ...</blockquote>
+其实我觉得日本人对青梅竹马的执念有些变态，青梅竹马这次说起来浪漫，其实不也就是住的比较近，小时候经常玩而已吗，谁说就能定终身了？
+NTR本子好多都是发生在青梅竹马关系之中，虽然可能苦主从来没有和女主确认过关系
+
+
+*****
+
+####  JustW  
+##### 4402#       发表于 2021-9-11 01:58
+
+
+ 本帖最后由 JustW 于 2021-9-11 01:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52705007&amp;ptid=1909972" target="_blank">Jobtownb 发表于 2021-9-11 01:56</a>
+
+其实我觉得日本人对青梅竹马的执念有些变态，青梅竹马这次说起来浪漫，其实不也就是住的比较近，小时候经 ...</blockquote>
+可能是日本人确实都有青梅竹马吧（）就好像鬼灭反复出现的兄弟姐妹情，对国内独生子女一代人的感染力就弱一些
+
+
+*****
+
+####  Jobtownb  
+##### 4403#       发表于 2021-9-11 01:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52705017&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-11 01:58</a>
+可能是日本人确实都有青梅竹马吧（）就好像鬼灭反复出现的兄弟姐妹情，对国内独生子女一代人的感染力就弱 ...</blockquote>
+中国小孩小时候也没少和异性玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 4404#       发表于 2021-9-11 02:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52704183&amp;ptid=1909972" target="_blank">离心 发表于 2021-9-11 00:19</a>
+
+叔叔家下周4到6话，看来走一口气放三话的节奏了……</blockquote>
+一代版本一代神（×）
+
+
+*****
+
+####  JustW  
+##### 4405#       发表于 2021-9-11 02:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52705030&amp;ptid=1909972" target="_blank">Jobtownb 发表于 2021-9-11 01:59</a>
+
+中国小孩小时候也没少和异性玩吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我只有小学同学初中同学的印象，小区单元住房哪里有一起长大的异性朋友啊……同龄人都没几个，也互相不熟
+
+
+*****
+
+####  Jobtownb  
+##### 4406#       发表于 2021-9-11 02:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52705049&amp;ptid=1909972" target="_blank">JustW 发表于 2021-9-11 02:01</a>
+我只有小学同学初中同学的印象，小区单元住房哪里有一起长大的异性朋友啊……同龄人都没几个，也互 ...</blockquote>
+嘛……可能大一些的童年，有父母都是同单位职工这层关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+容易发展成大院文学<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
