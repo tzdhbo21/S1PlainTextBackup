@@ -8544,3 +8544,125 @@ https://bbs.3dmgame.com/thread-6205660-1-1.html
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  leafS  
+##### 3714#       发表于 2021-9-10 22:42
+
+
+剧情我真的看麻了，太君不会写解放革命可以不写，日厂这体量做这种题材就十几个人在那砍，连个战场都没有，一骨子过家家的感觉，真的完全无法共情，看得快ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  LrGsite  
+##### 3715#       发表于 2021-9-10 22:42
+
+
+试了一晚上楼里和社区的方法还是不能用手柄,放弃了,等一个补丁
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3716#       发表于 2021-9-10 22:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52702990&amp;ptid=1860328" target="_blank">rak1 发表于 2021-9-10 22:40</a>
+
+儿子又没大碍，本来就是敌军了，就算要跑也该都跑，留下来有点强行了。反正这段剧情无法说服我。
+
+
+——  ...</blockquote>
+虽然这段讲得不太好，但是大概是为了保护儿子的意思，小报告之国嘛
+
+
+*****
+
+####  lelouchwang  
+##### 3717#       发表于 2021-9-10 22:45
+
+
+大叔真是一脸便当样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  tafice  
+##### 3718#       发表于 2021-9-10 22:47
+
+
+PC版 GTX1050在1080p 阴影中 其他都打开下45帧以上，优化还行（只是画面也就那样）
+最搞笑的是简中Steam成就没翻译
+
+
+*****
+
+####  苇原雪道  
+##### 3719#       发表于 2021-9-10 22:49
+
+
+问下能战斗中换人么？怎么换？
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3720#       发表于 2021-9-10 22:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52702990&amp;ptid=1860328" target="_blank">rak1 发表于 2021-9-10 22:40</a>
+儿子又没大碍，本来就是敌军了，就算要跑也该都跑，留下来有点强行了。反正这段剧情无法说服我。
+
+——  ...</blockquote>
+这个大叔这里应该是想赎罪自我牺牲的意思，因为自己没管好儿子，就是想让儿子把自己抓了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，怕自己跑了儿子过不好，也想顺便看看儿子现在到底怎么样，玩多了jrpg这个脑回路还是挺好理解的
+
+
+
+
+*****
+
+####  supersssbc  
+##### 3721#       发表于 2021-9-10 22:50
+
+
+不错了，大叔我以为火国就得死，好歹还多活了一章
+
+
+*****
+
+####  DasLebewohl  
+##### 3722#       发表于 2021-9-10 22:50
+
+
+PC版用PS5手柄有HD震动吗？ 还是说压根没做PS5手柄震动适配？ 如果没有我就用xbox手柄了
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3723#       发表于 2021-9-10 22:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一大叔金句挺多的，深度经常会让我小吃一惊
+
+但是金句越多死旗就插得越高
+
+
+*****
+
+####  rak1  
+##### 3724#       发表于 2021-9-10 22:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52703103&amp;ptid=1860328" target="_blank">培根芝士蛋堡XD 发表于 2021-9-10 22:50</a>
+这个大叔这里应该是想赎罪自我牺牲的意思，因为自己没管好儿子，就是想让儿子把自己抓了，怕自己 ...</blockquote>
+勉强说得通，但大叔身为反抗军头子也太不理性了。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
