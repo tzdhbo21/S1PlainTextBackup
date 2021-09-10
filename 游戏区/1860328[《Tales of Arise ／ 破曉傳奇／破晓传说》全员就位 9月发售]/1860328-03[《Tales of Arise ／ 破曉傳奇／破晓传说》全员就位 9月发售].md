@@ -7686,3 +7686,51 @@ pc嘛？pc不建议，好像已经出一键全dlc解锁补丁了，主机板本�
 DLC还是厉害，昨天看直播普通难度在第一个boss那里受苦刮痧，自己打困难的时候在dlc武器和1000血上限的加持下无脑换血就打过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  DraQin  
+##### 3640#       发表于 2021-9-10 17:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690370&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-9-10 09:49</a>
+其实有的，我初步怀疑是 Steam 的控制器方案和游戏自己的控制器映射方案有冲突造成的。有些支持 Steam Co ...</blockquote>
+最终在退Beta——把游戏移到Steam安装盘——首先套用Steam手柄设置——再进游戏改成本作官方上传的按键配置——重启游戏之后我的X1S手柄终于起来干活了
+官方在社区里说这个是临时方案，怎么彻底解决还在研究
+然后再一看你说的这个事，我也不好说是谁的锅了，大概还是得各打五十大板
+不过还是夸一句，这回优化还挺好的
+
+— from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  elven119  
+##### 3641#       发表于 2021-9-10 17:46
+
+
+搞定了。但是进去看了下dlc带的东西，默默退出游戏删除了。。这简直太变态了。那些东西领完是不是就变成游戏不用玩了。。估计一刀一个boss吧。领完人物好像能直接满级吧。我看有几个升级礼包，太吓人了。不敢用了。这次质量真的好，至少一周目不想这么乱搞了
+
+
+*****
+
+####  fateultraone  
+##### 3642#       发表于 2021-9-10 17:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52698016&amp;ptid=1860328" target="_blank">DraQin 发表于 2021-9-10 17:41</a>
+
+最终在退Beta——把游戏移到Steam安装盘——首先套用Steam手柄设置——再进游戏改成本作官方上传的按键配 ...</blockquote>
+每次手柄功能全用steam自己的api而不是游戏内置的手柄功能问题就多，但手柄用steam api好处也不少，御三家手柄键位显示，按键都能随便调随便切换，手柄设置很灵活
+
+
+*****
+
+####  LT_Harry  
+##### 3643#         楼主| 发表于 2021-9-10 17:55
+
+
+我稍微留意了一下，游戏各种环境的加载速度，感觉上除了战斗切换稍微慢一点（但也比 PS4 快很多），大部分时候加载耗时不比 PS5 长多少——我用的是五六年前的镁光 SATA3 MLC 固态硬盘，其他的硬件参数也是比推荐要求稍好或刚好。
+
+

@@ -13065,3 +13065,25 @@ syl
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">后面复健会更辛苦，只能说加油吧
 
 
+
+
+*****
+
+####  OldGlory  
+##### 6967#       发表于 2021-9-10 17:46
+
+
+后遗症很多的，还会永久掉智商
+
+自求多福吧
+
+<img src="https://img.saraba1st.com/forum/202109/10/174613vcwjjvj5bjrc7baa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>v2-31e967be466514f28b342f61b81c3a8a_720w.jpg</strong> (43.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 17:46 上传
+
+
