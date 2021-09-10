@@ -8117,3 +8117,17 @@ B财团这次没上D加密真的是血亏<img src="https://static.saraba1st.com/
 我也是，初始默认的无边框字体糊的一匹，开全屏瞬间清晰了
 
 
+
+
+*****
+
+####  司马千晶  
+##### 3677#       发表于 2021-9-10 20:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52699589&amp;ptid=1860328" target="_blank">entheos 发表于 2021-9-10 19:18</a>
+
+没开DLC打到麻婆老二,属实恶心到我了,半血开分身自己无敌读全屏大还则罢了,濒死连开两个秘奥义,纯纯的攻击 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打桩叫分身那段锁视角的时间，可以提前站好位置或者盲操去压分身血量的，普通难度我看了血量随便打断，并且切阶段之前对BOSS0伤害那段几秒，足够俩法师提前捏魔法，男主捏火剑，可操作空间还是有的
+
+

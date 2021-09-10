@@ -13113,3 +13113,39 @@ syl
 看来手术成功了
 
 
+
+
+*****
+
+####  winda  
+##### 6970#       发表于 2021-9-10 20:01
+
+
+えにからが本気出してきた
+[https://youtu.be/tgMuFninyqQ](https://youtu.be/tgMuFninyqQ)
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">阿裁这个对自己被诉讼缠身的流言回应结合佛陀之前的视频看着好巨魔
+
+相关视频：
+
+【悲報】鳴神裁、金魚坂を先に逮捕してくれとむせび泣く
+
+2021年9月9日、鳴神裁容疑者は水曜日の定例放送にて「逮捕するなら金魚坂を先に逮捕してくれ」などと意味不明の供述をしており動機は不明・・・
+[https://nico.ms/sm39308647](https://nico.ms/sm39308647)
+
+にじさんじ運営、鳴神裁を名誉棄損で立件、これから刑事裁判と発表
+
+2021年9月6日、にじさんじ、ユメノグラフィアを運営するANYCOLOR株式会社より、悪質な動画投稿者に名誉棄損罪で立件済であり、これから刑事裁判をするという旨の発表がありました。
+[https://nico.ms/sm39297047](https://nico.ms/sm39297047)
+
+
+*****
+
+####  free  
+##### 6971#       发表于 2021-9-10 20:16
+
+
+[https://www.youtube.com/watch?v=GIM2d8-g0T0](https://www.youtube.com/watch?v=GIM2d8-g0T0)
+
+Note: - Vsinger - のライブ配信
+
+
