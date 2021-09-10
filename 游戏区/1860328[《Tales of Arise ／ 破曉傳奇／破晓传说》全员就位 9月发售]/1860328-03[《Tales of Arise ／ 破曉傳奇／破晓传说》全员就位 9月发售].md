@@ -7275,3 +7275,34 @@ ps4pro和1066哪个效果会好一点买的ps4碟还没到好急啊</blockquote>
 pc体验完爆ps系了，1066跑1080p60帧随便跑，ps4pro才40多帧，ps5不能改键，得强制吃屎索尼的欧美键位，pc版随便改，圈确认x跳跃舒服多了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  节艾司  
+##### 3606#       发表于 2021-9-10 15:21
+
+
+这代还有连携换人吗，我打了6个小时还没看见
+
+
+*****
+
+####  zqqwe  
+##### 3607#       发表于 2021-9-10 15:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696136&amp;ptid=1860328" target="_blank">节艾司 发表于 2021-9-10 15:21</a>
+这代还有连携换人吗，我打了6个小时还没看见</blockquote>
+BA发动同时切人就是了
+
+
+*****
+
+####  liva  
+##### 3608#       发表于 2021-9-10 15:40
+
+
+有没试过对PRO手柄支持能力如何。。只有这个手柄了
+
+
