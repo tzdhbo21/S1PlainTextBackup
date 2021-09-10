@@ -8396,3 +8396,69 @@ https://bbs.3dmgame.com/thread-6205660-1-1.html
 —— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  origen  
+##### 3701#       发表于 2021-9-10 22:01
+
+
+战斗中不能直接切角色嘛？只能靠菜单切？还是我没仔细看说明
+
+
+*****
+
+####  leafS  
+##### 3702#       发表于 2021-9-10 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52702394&amp;ptid=1860328" target="_blank">origen 发表于 2021-9-10 22:01</a>
+战斗中不能直接切角色嘛？只能靠菜单切？还是我没仔细看说明</blockquote>
+按住L1+上下左右
+
+—— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  supersssbc  
+##### 3703#       发表于 2021-9-10 22:11
+
+
+ 本帖最后由 supersssbc 于 2021-9-10 22:12 编辑 
+
+这秘奥义怎么放啊，我按照教程ovl以后术技按方块三角X任二，然后就放了设定的技能了，秘奥义放不出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+草会了，原来要长按<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  露·露卡  
+##### 3704#       发表于 2021-9-10 22:18
+
+
+铁子们 那个炎之刃的教学怎么过？为啥我按炎之刃不算数
+
+
+*****
+
+####  rak1  
+##### 3705#       发表于 2021-9-10 22:18
+
+
+雪地这个剧情太搞了，我方4个人看到敌军普通士兵（4人）过来竟然强行选择逃跑还要反叛军头子大叔留下来阻挡垫后。。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  粉色猛男  
+##### 3706#       发表于 2021-9-10 22:20
+
+
+这游戏的PC优化咋样？1050ti能跑中画质60的话就买了
+
+
