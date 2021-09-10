@@ -1179,3 +1179,44 @@ Herman在后面的采访里说的，不知道有没有歧义
 还有看到原神话里，诸神黄昏结束后，巴德尔就会复活，这样芙蕾雅报复的理由可能不复存在？说不定这次会大团圆结局也说不定。
 
 
+
+
+*****
+
+####  asika  
+##### 105#       发表于 2021-9-10 11:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼哥造型是真的正确
+
+
+*****
+
+####  wswad436710  
+##### 106#       发表于 2021-9-10 11:55
+
+
+看这架势，妙尔尼尔作为主武器应该是稳了吧。不知道会不会向战神2看齐再藏一把主武器。能用冈枪或是莱瓦汀就好了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JudgmentEye  
+##### 107#       发表于 2021-9-10 11:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52692318&amp;ptid=2025548" target="_blank">Marsoy 发表于 2021-9-10 11:27</a>
+
+跟我预想的差不多，新战神1明显就是把开发重心放在战斗系统上，把底子做好，第二部增加怪物种类，开放剩余 ...</blockquote>
+4里有段剧情暗示了全世界都有不同的神仙啊，奎爷6奎爷7可以打埃及神，奎爷8打玉皇大帝也不是不可能
+
+
+*****
+
+####  SergeGlenn  
+##### 108#       发表于 2021-9-10 12:08
+
+
+不知道你们看过noclip那个战神访谈没，里面Cory不小心说了一些提尔毁灭巨魔文明的黑历史。。。
+
+
