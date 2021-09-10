@@ -9253,3 +9253,16 @@ syl 找到了，我sb了每次都进战斗再切，原来在外面也能切
 刚开始玩，这剧情对话的BGM怎么这么不搭，好吵啊
 
 
+
+
+*****
+
+####  hummysiren  
+##### 3776#       发表于 2021-9-11 06:11
+
+
+刚打到碰见法师妹，大叔你一脸死相啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有非ppt的有些对话是不是沉默时间太长了，感觉比其他游戏长一倍了有
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
