@@ -8324,3 +8324,38 @@ steam版刚进游戏, 设置了手柄按键和画面, 不得不夸一下这次�
 —— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  leystage  
+##### 3695#       发表于 2021-9-10 21:28
+
+
+XSX 版读盘挺快，进入战斗一秒左右，节奏不错。不过女主的小臂比想象中要粗壮得多啊 XD
+
+
+*****
+
+####  华安9527  
+##### 3696#       发表于 2021-9-10 21:29
+
+
+好吧关闭参与STEAM就好了……<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  汝者  
+##### 3697#       发表于 2021-9-10 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52701544&amp;ptid=1860328" target="_blank">华安9527 发表于 2021-9-10 21:13</a>
+
+有人知道steam版怎么设置手柄么，我XBOX手柄，进游戏没有反应……</blockquote>
+[https://bbs.3dmgame.com/thread-6205660-1-1.html](https://bbs.3dmgame.com/thread-6205660-1-1.html)
+
+
+学习版的问题要去对的地方学习
+
+
