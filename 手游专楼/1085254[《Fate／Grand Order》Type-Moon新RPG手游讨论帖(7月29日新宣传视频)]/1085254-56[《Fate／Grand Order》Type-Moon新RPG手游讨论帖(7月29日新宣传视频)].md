@@ -12705,3 +12705,30 @@ nga玩国服的才是大多数，所以大多数都是国服思维，红卡在�
 我跟你正好相反，还没用过杀狐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  areklose  
+##### 83578#       发表于 2021-9-10 22:23
+
+
+ 本帖最后由 areklose 于 2021-9-10 22:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都是嫖C呆，1个蓝卡自充打手带个宝石打3T。剩下老板位置，或者3位置塞个能提供魔放黄金律的工具人。
+
+
+*****
+
+####  eyeego  
+##### 83579#       发表于 2021-9-10 22:28
+
+
+ 本帖最后由 eyeego 于 2021-9-10 22:33 编辑 
+
+今天骑本上不了c狗 大腿还要挑着选 肥肠痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+血量不多重新试了下 蓝字照杀 舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+

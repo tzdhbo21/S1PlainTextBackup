@@ -8462,3 +8462,85 @@ https://bbs.3dmgame.com/thread-6205660-1-1.html
 这游戏的PC优化咋样？1050ti能跑中画质60的话就买了
 
 
+
+
+*****
+
+####  电风扇  
+##### 3707#       发表于 2021-9-10 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52701625&amp;ptid=1860328" target="_blank">克里斯蒂娜 发表于 2021-9-10 21:17</a>
+
+我pro手柄也不行，不用steam却可以，之前玩绯红都没问题
+
+
+—— 来自 vivo V1981A, Android 11上的 S1Next- ...</blockquote>
+同pro手柄，进游戏自动生效，如果你是无线的话试试有线
+
+
+*****
+
+####  不得小于三字  
+##### 3708#       发表于 2021-9-10 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52702644&amp;ptid=1860328" target="_blank">rak1 发表于 2021-9-10 22:18</a>
+
+雪地这个剧情太搞了，我方4个人看到敌军普通士兵（4人）过来竟然强行选择逃跑还要反叛军头子大叔留下来阻挡 ...</blockquote>
+不是说敌人来增援太多，要真打起来怕波及平民才逃走的。
+
+
+*****
+
+####  fuochai  
+##### 3709#       发表于 2021-9-10 22:30
+
+
+队友完全不躲技能是吗 这个分身boss太恶心了 队友躲不了招我也没办法啊 人家地雷社都知道战术弄个注重闪避<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+刷级效率也不行 只能嗑药过了
+
+
+*****
+
+####  RUANHYC  
+##### 3710#       发表于 2021-9-10 22:32
+
+
+这游戏闪避是不是不能取消平A后摇？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新玩家不太适应
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3711#       发表于 2021-9-10 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52702644&amp;ptid=1860328" target="_blank">rak1 发表于 2021-9-10 22:18</a>
+
+雪地这个剧情太搞了，我方4个人看到敌军普通士兵（4人）过来竟然强行选择逃跑还要反叛军头子大叔留下来阻挡 ...</blockquote>
+不是打不过啊，怕波及平民而已，反叛军头子是因为看到儿子才留下的，不是殿后
+
+
+*****
+
+####  正直的黄瓜  
+##### 3712#       发表于 2021-9-10 22:33
+
+
+怎么设定默认的战斗操作角色，我每次进去要手动切。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rak1  
+##### 3713#       发表于 2021-9-10 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52702889&amp;ptid=1860328" target="_blank">培根芝士蛋堡XD 发表于 2021-9-10 22:33</a>
+不是打不过啊，怕波及平民而已，反叛军头子是因为看到儿子才留下的，不是殿后 ...</blockquote>
+儿子又没大碍，本来就是敌军了，就算要跑也该都跑，留下来有点强行了。反正这段剧情无法说服我。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
