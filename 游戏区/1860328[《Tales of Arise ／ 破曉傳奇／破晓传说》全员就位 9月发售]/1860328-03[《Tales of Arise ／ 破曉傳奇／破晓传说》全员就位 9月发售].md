@@ -8104,3 +8104,16 @@ B财团这次没上D加密真的是血亏<img src="https://static.saraba1st.com/
 —— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  oniwarud  
+##### 3676#       发表于 2021-9-10 19:59
+
+
+<blockquote>chan 发表于 2021-9-10 19:35
+优化很好。3070 4k 60帧稳稳的。但是发现个问题，不知道是不是只有我这样:如果用无边框模式，菜单字体看起 ...</blockquote>
+我也是，初始默认的无边框字体糊的一匹，开全屏瞬间清晰了
+
+

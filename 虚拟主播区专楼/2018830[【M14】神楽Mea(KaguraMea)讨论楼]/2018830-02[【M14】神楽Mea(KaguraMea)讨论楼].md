@@ -11133,3 +11133,37 @@ yysy，生日第一首我还挺喜欢的，虽然mv本身我不会特意去循�
 12号这个傻卵扑克一股子廉价二次元赌场味,搞不懂yhm的想法<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  路人庚  
+##### 2496#       发表于 2021-9-10 19:46
+
+
+跟yhm没关系，主要是因为是新游戏刚开服所以有人玩
+
+
+我这也跟沙雕群友打了差不多一周（然后就直接弃了，毕竟线上德州扑克的游戏性还是比日麻差了几个数量级
+
+
+*****
+
+####  pei23333  
+##### 2497#       发表于 2021-9-10 20:01
+
+
+怎么还有告知的，点的活动？<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  汇聚群光  
+##### 2498#       发表于 2021-9-10 20:02
+
+
+Mea和如月都是10的开播，这是时隔多久的神乐组直播撞车事件了？
+
+
