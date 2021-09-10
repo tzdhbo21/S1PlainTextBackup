@@ -1440,3 +1440,44 @@ Herman在后面的采访里说的，不知道有没有歧义
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  kg21xhunter  
+##### 128#       发表于 2021-9-10 14:15
+
+
+预告一堆大招加几个老招，白皮做act是不行，这次还是女武神套攒起来
+
+
+*****
+
+####  五元请收好  
+##### 129#       发表于 2021-9-10 14:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688756&amp;ptid=2025548" target="_blank">无动于衷 发表于 2021-9-10 07:08</a>
+
+漫威表示女武神都可以是黑妹</blockquote>
+至少这个女武神很美
+
+
+friend with benfit我不知道流了多少口水
+
+
+*****
+
+####  五元请收好  
+##### 130#       发表于 2021-9-10 14:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688836&amp;ptid=2025548" target="_blank">木架穷奇 发表于 2021-9-10 07:31</a>
+
+老战神2相比一代变化也不大啊，怎么就好评了呢</blockquote>
+ps2后期，当时大家普遍大场面还见的不多，战神2相比鬼泣鬼武者还在气势上还是大了不少的
+
+
+不像现在，创意枯竭，成本上天，玩家群体审美疲劳，新鲜血液不往主机上走
+
+
