@@ -8359,3 +8359,40 @@ XSX 版读盘挺快，进入战斗一秒左右，节奏不错。不过女主的�
 学习版的问题要去对的地方学习
 
 
+
+
+*****
+
+####  妄想中毒  
+##### 3698#       发表于 2021-9-10 21:51
+
+
+女主默认服装怎么是安全裤啊，明明试玩版的那套服装都能看到内裤<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  华安9527  
+##### 3699#       发表于 2021-9-10 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52701856&amp;ptid=1860328" target="_blank">汝者 发表于 2021-9-10 21:30</a>
+
+https://bbs.3dmgame.com/thread-6205660-1-1.html
+
+
+学习版的问题要去对的地方学习</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你这人好奇怪啊，问个手柄怎么就学习版了……
+
+
+*****
+
+####  leafS  
+##### 3700#       发表于 2021-9-10 21:58
+
+
+打到雪城这章了，日了这剧情我看着真难受，感觉还不如绯红呢，都是什么傻逼npc，看下来女主反而才是最正常的一个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

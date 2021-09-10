@@ -17132,3 +17132,72 @@ cv有没关系 偶像不能有....
 说来鬼头明理不也是虹团的吗，被文春给爆了不也没啥影响
 
 
+
+
+*****
+
+####  名津流  
+##### 4387#       发表于 2021-9-10 21:53
+
+
+<img src="https://img.saraba1st.com/forum/202109/10/215218elheye699lk6c6k6.png" referrerpolicy="no-referrer">
+
+
+<strong>snap_screen_20210910214411.png</strong> (80.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 21:52 上传
+
+
+TV电视
+
+镭射激光
+
+生放送直播
+
+CPU处理器
+
+
+还有什么常见的看起来正常实际重复的词组？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 4388#       发表于 2021-9-10 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52702273&amp;ptid=1909972" target="_blank">名津流 发表于 2021-9-10 21:53</a>
+TV电视
+
+镭射激光
+
+生放送直播</blockquote>
+西红柿炒番茄
+马铃薯炖土豆
+红薯烤地瓜
+
+
+*****
+
+####  kata魂  
+##### 4389#       发表于 2021-9-10 22:01
+
+
+[
+
+
+<img src="https://img.saraba1st.com/forum/202109/10/220118vd65duh5c6ufdih1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>img-1631282448830e6645b5e3f998325665976794810ed5e.jpg</strong> (218.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 22:01 上传
+
+
+鲤鱼你牌子呢，突出一个不专业<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+

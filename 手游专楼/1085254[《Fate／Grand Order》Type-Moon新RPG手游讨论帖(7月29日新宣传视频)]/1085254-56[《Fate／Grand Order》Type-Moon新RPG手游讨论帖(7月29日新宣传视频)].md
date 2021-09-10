@@ -12691,3 +12691,17 @@ nga玩国服的才是大多数，所以大多数都是国服思维，红卡在�
 泳装打到现在我还没用过c呆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  里村紅葉  
+##### 83577#       发表于 2021-9-10 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52701687&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-10 21:20</a>
+
+泳装打到现在我还没用过c呆</blockquote>
+我跟你正好相反，还没用过杀狐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
