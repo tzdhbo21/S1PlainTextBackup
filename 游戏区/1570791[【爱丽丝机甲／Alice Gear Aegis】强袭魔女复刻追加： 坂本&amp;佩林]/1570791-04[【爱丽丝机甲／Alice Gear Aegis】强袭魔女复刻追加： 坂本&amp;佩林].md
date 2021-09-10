@@ -19184,3 +19184,18 @@ rapper史诗级强化，但据说由美的肥姑妈品控非常差缺胳膊少�
 你看乳晕都被玩到大的能顶起作战服了
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 5989#       发表于 2021-9-10 16:35
+
+
+[https://twitter.com/MXF_official/status/1436161641133981720](https://twitter.com/MXF_official/status/1436161641133981720)
+
+好奸笑推上承认肥姑妈由美确有实同手同脚问题，但机翼上的凹陷是设计上的需要不是次品，下面立刻被网友拆穿说官图那里本来是有个盖子的，就是个喷气口。该不是想赖掉吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就算没这问题今天推上又看到一些涂装中奖和缺零件的。
+
+
