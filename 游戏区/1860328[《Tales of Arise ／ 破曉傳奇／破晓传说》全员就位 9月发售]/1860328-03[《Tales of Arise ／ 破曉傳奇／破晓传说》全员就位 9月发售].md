@@ -7182,3 +7182,96 @@ pc优化挺好的啊
 pc 3080 4k最高画质120帧随便跑，2k 随便稳200多帧，虚幻4配n卡优化一直就很好这游戏只要你显卡过的去的随便跑，用高刷显示器的建议用pc玩
 
 
+
+
+*****
+
+####  leafS  
+##### 3598#       发表于 2021-9-10 15:03
+
+
+玩了一下，怎么感觉导演不会拍的样子，有些场景镜头给得太怪了，体验还不如绯红
+
+—— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  JC_AR  
+##### 3599#       发表于 2021-9-10 15:03
+
+
+这个默认按键设置也太坑了，默认是重按才有用，试了半天我以为R2L2坏了，要把设置里改成短按才行
+
+
+*****
+
+####  恋妖壶  
+##### 3600#       发表于 2021-9-10 15:04
+
+
+3080Ti，2K 144的屏，确实丝般顺滑，顺滑到我错觉战斗都变简单了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  qiyu1234  
+##### 3601#       发表于 2021-9-10 15:05
+
+
+ 本帖最后由 qiyu1234 于 2021-9-10 15:09 编辑 
+
+战斗音乐水准可能是历代最强
+
+虽然普通野怪战斗曲有点单调，以及野外巨体曲用的旧曲REMIX个人不太满意
+
+但是领将迷宫的战斗曲还是很优秀的（而且采用的是比较流行的迷宫与战斗无缝切换的编曲）
+
+特别是第四位领将迷宫里的普通战斗曲，配合团队完整成型后的战斗 非常爽快
+
+
+*****
+
+####  瑕在瑾中  
+##### 3602#       发表于 2021-9-10 15:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52695552&amp;ptid=1860328" target="_blank">空气先生 发表于 2021-9-10 14:41</a>
+请问一下数位究极版值得买吗</blockquote>
+pc嘛？pc不建议，好像已经出一键全dlc解锁补丁了，主机板本想要衣服的就入呗。
+
+
+*****
+
+####  余情自取  
+##### 3603#       发表于 2021-9-10 15:07
+
+
+ps4pro和1066哪个效果会好一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">买的ps4碟还没到好急啊
+
+
+*****
+
+####  supersssbc  
+##### 3604#       发表于 2021-9-10 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52695932&amp;ptid=1860328" target="_blank">余情自取 发表于 2021-9-10 15:07</a>
+
+ps4pro和1066哪个效果会好一点买的ps4碟还没到好急啊</blockquote>
+应该是1066，1080p好像是能稳60帧，ps4pro就那个直升机我就不大想玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3605#       发表于 2021-9-10 15:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52695932&amp;ptid=1860328" target="_blank">余情自取 发表于 2021-9-10 15:07</a>
+ps4pro和1066哪个效果会好一点买的ps4碟还没到好急啊</blockquote>
+pc体验完爆ps系了，1066跑1080p60帧随便跑，ps4pro才40多帧，ps5不能改键，得强制吃屎索尼的欧美键位，pc版随便改，圈确认x跳跃舒服多了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+

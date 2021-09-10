@@ -3002,3 +3002,15 @@ TV版好感是慢慢刷出来的,一开始香和丽都不喜欢真嗣,虽然因�
 想了一下式波和惣流的问题，应该是轮回之后seele继承前周目的经验，觉得惣流这个角色在剧本的影响力上还不够，就做了个改良，大规模复制然后吃鸡来增强战斗力，同时初始意识还是强化了一定要开EVA这点，简单来说这次是人造精神病，只是不会自我怀疑。
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1692#         楼主| 发表于 2021-9-10 15:20
+
+
+[https://twitter.com/egocoroking/status/1436062281985511450](https://twitter.com/egocoroking/status/1436062281985511450)
+<img src="https://p.sda1.dev/2/ad4afa01686bc35fa76b950754f2ad07/20210910_152017.jpg" referrerpolicy="no-referrer">
+
+
