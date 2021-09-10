@@ -3819,3 +3819,38 @@ https://www.resetera.com/threads/star-wars-knights-of-the-old-republic-remake-an
 —— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  gorilla994  
+##### 389#       发表于 2021-9-10 08:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688457&amp;ptid=2024215" target="_blank">-SLSL- 发表于 2021-9-10 04:44</a>
+无聊，这不是我要的playstation</blockquote>
+牛索尼牛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  SorroFrost  
+##### 390#       发表于 2021-9-10 08:05
+
+
+幸好昨晚睡觉了
+
+
+
+
+*****
+
+####  rt7539515  
+##### 391#       发表于 2021-9-10 08:06
+
+
+索尼已经是白皮的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
