@@ -16893,3 +16893,36 @@ Lantis EXPO Liella！嘉宾回9-4
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">青山的tiktok不看也没啥
 
 
+
+
+*****
+
+####  优妮可  
+##### 4368#       发表于 2021-9-10 13:17
+
+
+草哦，霓虹那边的人怎么开始挖青山的旧推文了，挖出个男朋友这<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 4369#       发表于 2021-9-10 13:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52694260&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-10 13:17</a>
+草哦，霓虹那边的人怎么开始挖青山的旧推文了，挖出个男朋友这</blockquote>
+有miku的先例在有个男朋友算啥，更何况都不是一个性质的。
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  chenflyyy  
+##### 4370#       发表于 2021-9-10 13:28
+
+
+青山姐这岁数这长相和性格，有男友也不奇怪吧
+
+

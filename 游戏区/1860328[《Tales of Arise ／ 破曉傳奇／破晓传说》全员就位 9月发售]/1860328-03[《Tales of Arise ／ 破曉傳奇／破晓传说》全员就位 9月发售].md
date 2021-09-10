@@ -7012,3 +7012,37 @@ pc版优化那么差吗？1660ti能稳40以上吗，还没到家没法试</block
 艹 原来2倍经验不在终极版里面，终极版只有个20%的，真有你的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Chia  
+##### 3583#       发表于 2021-9-10 13:08
+
+
+卖这么多dlc，实际上是放飞数值设计了
+
+
+而且pc上卖侮辱性挺强<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  虚无连斩  
+##### 3584#       发表于 2021-9-10 13:14
+
+
+早上看几件衣服挺好看没忍住买了，刚才一看全dlc解锁补丁都出了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  不得小于三字  
+##### 3585#       发表于 2021-9-10 13:20
+
+
+打到第三个地图，多打野怪居然会有BOSS龙乱入<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

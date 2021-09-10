@@ -1340,3 +1340,66 @@ Herman在后面的采访里说的，不知道有没有歧义
 提尔的左手上印的符文挺像埃及的象形文字，会是去旅游时的纪念品吗。
 
 
+
+
+*****
+
+####  史三问  
+##### 119#       发表于 2021-9-10 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690716&amp;ptid=2025548" target="_blank">radar 发表于 2021-9-10 10:09</a>
+
+然而Kratos本来也是个黑叔叔的样子…</blockquote>
+斯巴达人到你嘴里变黑叔叔了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笨笨塞  
+##### 120#       发表于 2021-9-10 13:08
+
+
+从上一作带崽就不太感兴趣了，我决定还是云一下算了。
+
+
+
+
+*****
+
+####  Ayre不发糖哟  
+##### 121#       发表于 2021-9-10 13:18
+
+
+只想看北欧女神阴谋洛基手刃奎爷然后黑化成为诸神黄昏的扳机，螺旋下行的剧情很卖座
+
+
+*****
+
+####  Kazepollar  
+##### 122#       发表于 2021-9-10 13:23
+
+
+我还真觉得洛基会黑化<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kazepollar  
+##### 123#       发表于 2021-9-10 13:23
+
+
+对奎爷来说最惨的就是把儿子放到自己的对立面，芙蕾雅的诅咒不就是要让奎爷遭受最凄惨的痛苦嘛
+
+
+*****
+
+####  Rinne70  
+##### 124#       发表于 2021-9-10 13:24
+
+
+万万没想到ps5护航阵容里唯一一个让我看了片毫无感想的游戏居然是战神
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
