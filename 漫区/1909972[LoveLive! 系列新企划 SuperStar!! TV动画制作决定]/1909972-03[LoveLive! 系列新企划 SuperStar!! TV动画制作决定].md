@@ -17032,3 +17032,28 @@ cv有没关系 偶像不能有....
 感觉日本拉拉人好像真的有幼驯染信仰 历代这些二创最热的都是幼驯染组
 
 
+
+
+*****
+
+####  星降る森  
+##### 4380#       发表于 2021-9-10 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52694405&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-10 13:28</a>
+
+青山姐这岁数这长相和性格，有男友也不奇怪吧，没有我才觉得不正常</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来星确实火，久保田特技一直写着叉车，工科学校里有这么一个（而且班里肯定没几个女的）在iris这么多年又配了个虹似乎也没人去挖她有没有男朋友的。
+
+
+
+
+*****
+
+####  AlfredXC  
+##### 4381#       发表于 2021-9-10 14:35
+
+
+其实田中ちえ美也被挖出过有男朋友，不过又怎样呢
+
+

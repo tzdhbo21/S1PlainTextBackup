@@ -7140,3 +7140,25 @@ pc优化挺好的啊
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  新庄運切  
+##### 3594#       发表于 2021-9-10 14:29
+
+
+有用win7玩这游戏的么，怎么买了个内挂手柄就不能用了，难受<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中泽君  
+##### 3595#       发表于 2021-9-10 14:31
+
+
+第二个BOSS是麻婆吗
+
+半血后的神雷是不是把三个分身打死就能破，输出不够打不完只能硬吃
+
+
