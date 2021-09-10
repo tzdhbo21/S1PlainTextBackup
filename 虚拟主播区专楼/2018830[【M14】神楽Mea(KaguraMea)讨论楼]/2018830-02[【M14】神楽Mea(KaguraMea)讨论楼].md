@@ -11456,3 +11456,125 @@ line stamp
 反正就是说快下播的时候记得提醒她告知要说的事，虽然好像已经说了
 
 
+
+
+*****
+
+####  yywzjsw  
+##### 2525#       发表于 2021-9-10 23:22
+
+
+还以为最近不叫mikey了
+
+
+*****
+
+####  时间在我手中  
+##### 2526#       发表于 2021-9-10 23:24
+
+
+叫得好甜，马上就改名叫mikey<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2527#       发表于 2021-9-10 23:26
+
+
+ 本帖最后由 T_Hb 于 2021-9-10 23:30 编辑 
+
+王之力（💩附魔）喊得还挺到位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+人生中第一次触碰了自己的💩
+
+
+*****
+
+####  追风小星星  
+##### 2528#       发表于 2021-9-10 23:27
+
+
+草,怎么突然发病 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2529#       发表于 2021-9-10 23:28
+
+
+王之力，指右手刚通了马桶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 2530#       发表于 2021-9-10 23:31
+
+
+好恶臭的王之力
+
+
+*****
+
+####  T_Hb  
+##### 2531#       发表于 2021-9-10 23:37
+
+
+ 本帖最后由 T_Hb 于 2021-9-10 23:38 编辑 
+
+六兆年
+
+因为有人点了团子大家族，所以就哼了一下
+
+
+*****
+
+####  yywzjsw  
+##### 2532#       发表于 2021-9-10 23:37
+
+
+为啥唐突团子家族
+
+
+*****
+
+####  时间在我手中  
+##### 2533#       发表于 2021-9-10 23:38
+
+
+ 本帖最后由 时间在我手中 于 2021-9-10 23:42 编辑 
+
+慢速版好听，待会儿点首少女ray
+
+这段还是拉了，可惜
+
+
+*****
+
+####  T_Hb  
+##### 2534#       发表于 2021-9-10 23:42
+
+
+ 本帖最后由 T_Hb 于 2021-9-10 23:49 编辑 
+
+最后还是拉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鹅妈妈，可以不拉吗，当我没说，高音棒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+rolling girl
+
+
+*****
+
+####  时间在我手中  
+##### 2535#       发表于 2021-9-10 23:48
+
+
+鹅妈妈就别想不翻了，这鬼歌懂的都懂
+
+
+rolling girl，我的小麻滚啊滚
+
+
