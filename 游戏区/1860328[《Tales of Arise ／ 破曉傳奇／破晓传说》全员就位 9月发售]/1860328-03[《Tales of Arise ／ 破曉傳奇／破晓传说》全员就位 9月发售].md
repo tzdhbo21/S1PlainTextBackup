@@ -6352,3 +6352,84 @@ I can verify it's not working because of Steam Bet ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我就想看你再说一遍
 
 
+
+
+*****
+
+####  DraQin  
+##### 3523#       发表于 2021-9-10 09:01
+
+
+ 本帖最后由 DraQin 于 2021-9-10 09:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689510&amp;ptid=1860328" target="_blank">lighttt 发表于 2021-9-10 08:56</a>
+大家伙pc啥配置，卡不卡</blockquote>
+5800U+35W究极残血RTX3050开1080P，100%渲染，SMAA，高阴影，其他中等序章基本上50多帧，室内稳定60，但是碰到读图完毕还有刚进战斗那回帧数会掉到40多，要过一会才好
+目前这个样子算是能玩的同时画面不至于太惨，但是不知道本作有没有那种大型城市之类的场景，有的话实在比较担心性能表现
+
+— from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  docklabor  
+##### 3524#       发表于 2021-9-10 09:02
+
+
+<blockquote>恋妖壶 发表于 2021-9-10 08:26
+好的，这种逻辑上毫无关联的bug，出品厂自己也不知道也不预警，搞到首发这么多人受影响，却怪不了出品厂 ...</blockquote>
+有个稳定版放在那不用，调成测试版，就要有承受莫名其妙bug的觉悟。测试版也是为了这个目的而存在的，要是没bug叫什么beta。你既然没这觉悟，那用稳定版不行吗？我是没这觉悟的，但是我心里有数，任何东西只要有稳定版我一律用稳定版。
+
+
+*****
+
+####  DraQin  
+##### 3525#       发表于 2021-9-10 09:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689609&amp;ptid=1860328" target="_blank">docklabor 发表于 2021-9-10 09:02</a>
+有个稳定版放在那不用，调成测试版，就要有承受莫名其妙bug的觉悟。测试版也是为了这个目的而存在的，要 ...</blockquote>
+然而其他家的游戏根本不会有这种非常不知所谓的问题
+并且如果这个解法能保证修好也就罢了，事实是这么做不保证一定解决问题，所以要我说这锅Steam和厂商一人一半接好咯
+
+— from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  Lisylfn  
+##### 3526#       发表于 2021-9-10 09:07
+
+
+虽然是幻想, 还是问问DS5在Steam版上能那个震动吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chan  
+##### 3527#       发表于 2021-9-10 09:09
+
+
+我看了一下DLC列表，把4个+5LV和2个+10LV都买了，是不是等级能初始提升40级<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PureWaltz  
+##### 3528#       发表于 2021-9-10 09:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689690&amp;ptid=1860328" target="_blank">Lisylfn 发表于 2021-9-10 09:07</a>
+
+虽然是幻想, 还是问问DS5在Steam版上能那个震动吗</blockquote>
+送我ds5，我帮你测试<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucky95  
+##### 3529#       发表于 2021-9-10 09:20
+
+
+在推特被骂翻了，幸好我6点过后才能玩不用被伞兵日厂恶心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+

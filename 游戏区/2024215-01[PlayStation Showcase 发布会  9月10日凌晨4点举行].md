@@ -4083,3 +4083,68 @@ S1众是不是对你索的日系有过什么不切实际幻想？<img src="https
 这要问大法，技术上没问题，还是那个引擎，他们想做ps4版就是改几个参数的事
 
 
+
+
+*****
+
+####  a2042312  
+##### 413#       发表于 2021-9-10 09:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689486&amp;ptid=2024215" target="_blank">泥潭办证先锋 发表于 2021-9-10 08:55</a>
+
+我觉得挺好的啊，有战神有猪猪侠2有GT7。是今年播的最好的片了。
+
+
+S1众是不是对你索的日系有过什么 ...</blockquote>
+GT7不就是SIE血统最纯正的日系扛把子么，这代各种要素回归主题曲都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D-JoeII  
+##### 414#       发表于 2021-9-10 09:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689641&amp;ptid=2024215" target="_blank">SergeGlenn 发表于 2021-9-10 09:04</a>
+
+目前失眠组倒是确认了金刚狼和蜘蛛侠2都是PS5独占。。。</blockquote>
+最快都2023了不可能還有PS4版
+
+
+*****
+
+####  hkguty  
+##### 415#       发表于 2021-9-10 09:16
+
+
+比较惊喜的反而是金刚狼，索尼这是拿到金刚狼版权了么，想起以前的金刚狼起源了，以前超喜欢那游戏，可惜一直没续作
+
+
+*****
+
+####  冀人燕南天  
+##### 416#       发表于 2021-9-10 09:18
+
+
+旧共和国武士这次应该有官中了吧？出PC版吗？
+
+
+*****
+
+####  冀人燕南天  
+##### 417#       发表于 2021-9-10 09:20
+
+
+还行，不值得熬夜，但可以接受
+
+
+*****
+
+####  clover293  
+##### 418#       发表于 2021-9-10 09:22
+
+
+不是，你们把gt7都开出日系了嘛
+
+

@@ -6727,3 +6727,21 @@ https://www.cnbeta.com/articles/tech/1176787.htm
 升级到win11后，这些配置没了，还是要到设置-声音里面点一下，再点一次疑难解答才能恢复。
 
 
+
+
+*****
+
+####  有点神奇  
+##### 554#       发表于 2021-9-10 09:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52682496&amp;ptid=2011727" target="_blank">mirari 发表于 2021-9-9 18:32</a>
+
+昨天dev通道升了下
+
+感觉任务栏和开始菜单的改动非常不适。
+
+任务栏强制合并就算了，原本第三方工具栏也不让 ...</blockquote>
+什么，TrueLaunchBar没了？刚需啊，或者说有什么替代品吗
+
+
