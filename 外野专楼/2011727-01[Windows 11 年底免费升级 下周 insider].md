@@ -6745,3 +6745,25 @@ https://www.cnbeta.com/articles/tech/1176787.htm
 什么，TrueLaunchBar没了？刚需啊，或者说有什么替代品吗
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 555#       发表于 2021-9-10 11:08
+
+
+dev推送了184，升级完蓝牙打不开了…………
+
+
+*****
+
+####  剑起苍斓  
+##### 556#       发表于 2021-9-10 11:18
+
+
+问一下老笔记本7代U，试了下GitHub上的whynotwin11，只有CPU是不兼容，能正常升么
+
+—— 来自 OnePlus ONEPLUS A5010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

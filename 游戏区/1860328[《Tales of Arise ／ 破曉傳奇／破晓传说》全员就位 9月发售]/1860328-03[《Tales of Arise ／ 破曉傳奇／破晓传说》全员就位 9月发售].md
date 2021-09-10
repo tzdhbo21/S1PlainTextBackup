@@ -6724,3 +6724,87 @@ pc版优化那么差吗？1660ti能稳40以上吗，还没到家没法试<img sr
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer"> 今天多吃两碗饭 周末拼了
 
 
+
+
+*****
+
+####  空气先生  
+##### 3556#       发表于 2021-9-10 11:01
+
+
+1050ti可以1366*768 60帧吗。
+
+1080P N年前的笔记本屏幕感觉没必要。体验游戏性重要
+
+
+*****
+
+####  Colure  
+##### 3557#       发表于 2021-9-10 11:06
+
+
+怎么我开着垂直同步还有严重的画面撕裂
+
+—— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  elven119  
+##### 3558#       发表于 2021-9-10 11:09
+
+
+DLC带的头衔能学的技能谁有列表啊，这学技能还要买衣服有点坑了哦。看了下衣服也就学院套黑丝好看，其他一般。女主剧情拿的衣服已经很色了。牛子硬邦邦的，特别那花纹丝袜<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 3559#       发表于 2021-9-10 11:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691913&amp;ptid=1860328" target="_blank">elven119 发表于 2021-9-10 11:09</a>
+DLC带的头衔能学的技能谁有列表啊，这学技能还要买衣服有点坑了哦。看了下衣服也就学院套黑丝好看，其他一 ...</blockquote>
+dlc技能都是和本篇重复用来叠数值的，不是强迫症没必要在乎
+
+
+*****
+
+####  李锐可  
+##### 3560#       发表于 2021-9-10 11:12
+
+
+ 本帖最后由 李锐可 于 2021-9-10 11:19 编辑 
+
+编辑
+
+
+*****
+
+####  citan8808  
+##### 3561#       发表于 2021-9-10 11:21
+
+
+我日，盘现在还没发货
+
+
+*****
+
+####  heseran  
+##### 3562#       发表于 2021-9-10 11:23
+
+
+12号才休息一天，之前预定的游戏店主说今天都不一定能能到货，只能多花20块钱吃现了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  rgauss  
+##### 3563#       发表于 2021-9-10 11:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">被二领主揍的鼻青脸肿
+
+

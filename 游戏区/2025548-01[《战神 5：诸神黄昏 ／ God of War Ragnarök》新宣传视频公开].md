@@ -1088,3 +1088,61 @@ Herman在后面的采访里说的，不知道有没有歧义
 2021-9-10 11:05 上传
 
 
+
+
+*****
+
+####  a2042312  
+##### 97#       发表于 2021-9-10 11:09
+
+
+这也是才开始宣传，奥丁如果是最终BOSS的话也不一定在这个片里面露脸吧。
+
+
+*****
+
+####  木架穷奇  
+##### 98#       发表于 2021-9-10 11:14
+
+
+如果这部是完结篇的话，那索尔可能刚好是游戏中段的boss，最后再打奥丁?总不可能奥丁啥事没有就完了吧
+
+
+*****
+
+####  Redis  
+##### 99#       发表于 2021-9-10 11:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688555&amp;ptid=2025548" target="_blank">jockeyjoestar 发表于 2021-9-10 05:11</a>
+
+黑妹好像是奎爷老婆。。。</blockquote>
+他老婆不是死了么，娶了黑萝莉！？
+
+
+*****
+
+####  Redis  
+##### 100#       发表于 2021-9-10 11:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688868&amp;ptid=2025548" target="_blank">芷雅居 发表于 2021-9-10 07:38</a>
+
+果然这作只是拿来衔接新战神的大型dlc吧</blockquote>
+平稳过渡
+
+
+大型DLC。。。看着有点儿不大过瘾
+
+
+*****
+
+####  抹茶瓜  
+##### 101#       发表于 2021-9-10 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52692097&amp;ptid=2025548" target="_blank">Redis 发表于 2021-9-10 11:16</a>
+他老婆不是死了么，娶了黑萝莉！？</blockquote>
+大概是boy的老婆 黑妹名字来源是神话里洛基的情妇。  耶梦加得 芬里尔 海拉 三个都是她生下的
+
+
