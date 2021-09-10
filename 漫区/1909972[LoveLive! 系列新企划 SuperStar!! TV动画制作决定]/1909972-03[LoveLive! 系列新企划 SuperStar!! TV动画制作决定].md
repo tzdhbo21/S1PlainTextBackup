@@ -16951,3 +16951,62 @@ cv有没关系 偶像不能有....
 网页版Tik Tok只要翻一下就行了，而且抓取视频也容易，她刚开的时候我试过，能上
 
 
+
+
+*****
+
+####  D麦林  
+##### 4373#       发表于 2021-9-10 13:44
+
+
+ 本帖最后由 D麦林 于 2021-9-10 14:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52692007&amp;ptid=1909972" target="_blank">saya1892 发表于 2021-9-10 11:13</a>
+
+用liyuu、5ch搜了几个串看了一眼，果然开播后友好的声音明显多了很多，比如这一串
+[https://fate.5ch.net/te](https://fate.5ch.net/te) ...</blockquote>
+也没啥吧 5ch拉拉版本来就算是比较纯良的版面我感觉
+
+黑暗面基本上都是那种下三路段子但是这帮人讲下三路段子是真滴行 时不时能看得我笑出声那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 4374#       发表于 2021-9-10 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52694405&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-10 13:28</a>
+青山姐这岁数这长相和性格，有男友也不奇怪吧，没有我才觉得不正常</blockquote>
+没有就要考虑她是不是真的百了（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  蜜梨柑  
+##### 4375#       发表于 2021-9-10 13:51
+
+
+青山姐这种谈过男朋友也很正常吧，现役没有问题不大
+
+
+*****
+
+####  Norkey1  
+##### 4376#       发表于 2021-9-10 14:03
+
+
+有男友照片吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+看看是哪个幸运的b能泡到这个有趣的女人
+
+
+*****
+
+####  cybernetics31  
+##### 4377#       发表于 2021-9-10 14:05
+
+
+这男友得多帅啊，青山这种家境好长得好看没男友才怪呢
+
+

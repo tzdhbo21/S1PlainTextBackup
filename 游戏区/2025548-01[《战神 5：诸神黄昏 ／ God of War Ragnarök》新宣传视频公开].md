@@ -1426,3 +1426,17 @@ Herman在后面的采访里说的，不知道有没有歧义
 主要是骨灰附体那段对比太明显
 
 
+
+
+*****
+
+####  里神经  
+##### 127#       发表于 2021-9-10 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52692639&amp;ptid=2025548" target="_blank">ads147147 发表于 2021-09-10 11:43:30</a>
+看到知乎有人分析如果奥丁是好人，芙蕾雅的目的是把洛基弄成原神话里的黑化大魔王（为父报仇），那么确实 ...</blockquote>但是原神话里诸神黄昏之后还有一个神带来的真正的诸神黄昏，比苏尔特尔还可怕，大概率是外来神，反应的大约是基督教入侵，那个外来神本来有可能是上帝，换成奎爷好像也没啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

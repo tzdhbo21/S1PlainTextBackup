@@ -7107,3 +7107,36 @@ pc优化挺好的啊
 就是开场那个麻婆的声音让我ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  人如其名  
+##### 3591#       发表于 2021-9-10 13:42
+
+
+2070s体验良好
+
+
+*****
+
+####  Ivent  
+##### 3592#       发表于 2021-9-10 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52693610&amp;ptid=1860328" target="_blank">培根芝士蛋堡XD 发表于 2021-9-10 12:35</a>
+1660ti全高稳60帧，我觉得优化非常强了</blockquote>
+谢谢 这就放心了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  快乐鸟  
+##### 3593#       发表于 2021-9-10 13:50
+
+
+键鼠能玩么这游戏
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
