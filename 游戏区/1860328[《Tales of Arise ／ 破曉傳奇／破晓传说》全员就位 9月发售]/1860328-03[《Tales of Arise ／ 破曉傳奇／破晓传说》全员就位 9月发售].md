@@ -6851,3 +6851,14 @@ Xbox的dlc会便宜一些吗？
 之前有人说女主换衣服的时候试试把男主头盔换下来看看表情，我试过了，过场又变成头盔了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sunnyjee  
+##### 3568#       发表于 2021-9-10 12:17
+
+
+1070 8700k 2k基本全开 才玩序章 室内一点都不卡 
+
+

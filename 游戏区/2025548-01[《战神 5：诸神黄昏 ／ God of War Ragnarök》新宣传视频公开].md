@@ -1220,3 +1220,28 @@ Herman在后面的采访里说的，不知道有没有歧义
 不知道你们看过noclip那个战神访谈没，里面Cory不小心说了一些提尔毁灭巨魔文明的黑历史。。。
 
 
+
+
+*****
+
+####  Marsoy  
+##### 109#       发表于 2021-9-10 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52692939&amp;ptid=2025548" target="_blank">JudgmentEye 发表于 2021-9-10 11:57</a>
+
+4里有段剧情暗示了全世界都有不同的神仙啊，奎爷6奎爷7可以打埃及神，奎爷8打玉皇大帝也不是不可能
+
+ ...</blockquote>
+我说的是北欧收官作，不是战神收官作
+
+
+*****
+
+####  ckseng  
+##### 110#       发表于 2021-9-10 12:24
+
+
+泥潭都反尼哥反到魔怔了，这黑妹的脸已经算迎合大多数人的审美了吧。
+
+
