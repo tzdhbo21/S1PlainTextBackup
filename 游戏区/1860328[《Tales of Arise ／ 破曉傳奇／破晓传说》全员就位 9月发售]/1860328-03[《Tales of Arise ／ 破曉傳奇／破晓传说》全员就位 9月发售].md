@@ -7476,3 +7476,51 @@ iq限定版发货了
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  光与暗的转生  
+##### 3622#       发表于 2021-9-10 16:45
+
+
+<blockquote>金子一马 发表于 2021-9-10 15:49
+我已经在受虐了，分身基本是破不了的</blockquote>
+这分身真的是要全打的吗？我觉得怎么样输出都是不够的啊，我还是硬吃药挂死的
+
+
+*****
+
+####  Arccueid  
+##### 3623#       发表于 2021-9-10 16:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">究极版进游戏把DLC都领了，发现有些东西领了直接生效有点IMBA，想知道重开档还能领吗
+
+另外感觉开头的战斗演出还可以
+
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 3624#       发表于 2021-9-10 16:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52695903&amp;ptid=1860328" target="_blank">瑕在瑾中 发表于 2021-9-10 15:05</a>
+
+pc嘛？pc不建议，好像已经出一键全dlc解锁补丁了，主机板本想要衣服的就入呗。 ...</blockquote>
+传说有把dlc信息写入存档的传统，如果用了解锁补丁，以后都得打了才能读档，也没有别的办法清除存档信息
+
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 3625#       发表于 2021-9-10 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696392&amp;ptid=1860328" target="_blank">liva 发表于 2021-9-10 15:40</a>
+
+有没试过对PRO手柄支持能力如何。。只有这个手柄了</blockquote>
+直接用，丝毫不夸张的说steam手柄的遗产，也就是Steam的手柄适配功能能覆盖所有手柄，主流御三家手柄甚至还有震动支持，switch pro手柄的话可能按键功能需要自己稍作修改一下，以对应手柄的abxy键
+
+
