@@ -12466,3 +12466,89 @@ Azusa这个磨皮过度导致沸羊羊这皮肤看着跟石膏似的，B叔画�
 哪乱杀  看上去也就那样  又不是狂娜3回合稳定特攻   要吃特攻前2回合这2技能还不能开
 
 
+
+
+*****
+
+####  zakki  
+##### 83558#       发表于 2021-9-10 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697716&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-10 17:18</a>
+
+哪乱杀  看上去也就那样  又不是狂娜3回合稳定特攻   要吃特攻前2回合这2技能还不能开 ...</blockquote>
+这俩五星都比较微妙，要说不强肯定不是，但和2.6这强度连发比起来差太多。。像是两年前的卡
+
+
+*****
+
+####  zakki  
+##### 83559#       发表于 2021-9-10 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697710&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-9-10 17:18</a>
+
+盲猜一个产能支持不了新效果的代码力</blockquote>
+本来还期待能有一个妖兰同款变宝具<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83560#       发表于 2021-9-10 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697768&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-10 17:22</a>
+
+这俩五星都比较微妙，要说不强肯定不是，但和2.6这强度连发比起来差太多。。像是两年前的卡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">看到是蓝卡我已经没兴趣了 我都不用蓝卡了  也就隔壁还能。。。战起来
+
+
+*****
+
+####  zakki  
+##### 83561#       发表于 2021-9-10 17:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697786&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-10 17:23</a>
+
+看到是蓝卡我已经没兴趣了 我都不用蓝卡了  也就隔壁还能。。。战起来 ...</blockquote>
+话说隔壁怎么有个人那么喜欢咋呼，大惊小怪的，起个特别浮夸的标题还一惊一乍的，每次都是他<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白金口袋  
+##### 83562#       发表于 2021-9-10 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697716&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-10 03:18</a>
+
+哪乱杀  看上去也就那样  又不是狂娜3回合稳定特攻   要吃特攻前2回合这2技能还不能开 ...</blockquote>
+别说了，我试用伽摩那关的蛇就魅惑miss了，仨里就中了俩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 83563#       发表于 2021-9-10 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697862&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-9-10 17:29</a>
+
+别说了，我试用伽摩那关的蛇就魅惑miss了，仨里就中了俩</blockquote>
+满级就是百分百命中了
+
+
+*****
+
+####  黑上シグマ  
+##### 83564#       发表于 2021-9-10 17:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">等沸羊羊单UP的时候礼节性抽一下好了……
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+

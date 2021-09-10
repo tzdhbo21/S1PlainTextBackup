@@ -7615,3 +7615,74 @@ pc嘛？pc不建议，好像已经出一键全dlc解锁补丁了，主机板本�
 炎之刃咋按啊，我长按a就隔那发呆<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  elven119  
+##### 3634#       发表于 2021-9-10 17:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697540&amp;ptid=1860328" target="_blank">虚无连斩 发表于 2021-9-10 17:06</a>
+
+我中午试了下成功了，三个文件塞到那个文件夹里就行了
+
+
+—— 来自 realme RMX3366, Android 11上的 S1Nex ...</blockquote>
+覆盖了以后挡也没了，语言也变成了德语，幸好我备了份，不敢用了。难度我们下的不是一个东西
+
+
+*****
+
+####  中泽君  
+##### 3635#       发表于 2021-9-10 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697739&amp;ptid=1860328" target="_blank">Damocles990609 发表于 2021-9-10 17:19</a>
+
+炎之刃咋按啊，我长按a就隔那发呆</blockquote>
+有些技能对应炎之技没解锁吧，技术设置里面看名字颜色
+
+
+*****
+
+####  Damocles990609  
+##### 3636#       发表于 2021-9-10 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697756&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-9-10 17:21</a>
+有些技能对应炎之技没解锁吧，技术设置里面看名字颜色</blockquote>
+这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我说咋一直按不出来
+
+
+*****
+
+####  山风短  
+##### 3637#       发表于 2021-9-10 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697753&amp;ptid=1860328" target="_blank">elven119 发表于 2021-9-10 17:20</a>
+覆盖了以后挡也没了，语言也变成了德语，幸好我备了份，不敢用了。难度我们下的不是一个东西 ...</blockquote>
+你下的不是正版dlc解锁吧，下了个学习版的
+
+
+*****
+
+####  风之道2号  
+##### 3638#       发表于 2021-9-10 17:28
+
+
+一键解锁 有一个要解压 
+
+—— 来自 OPPO PDEM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  笛普达克范太希  
+##### 3639#       发表于 2021-9-10 17:31
+
+
+DLC还是厉害，昨天看直播普通难度在第一个boss那里受苦刮痧，自己打困难的时候在dlc武器和1000血上限的加持下无脑换血就打过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
