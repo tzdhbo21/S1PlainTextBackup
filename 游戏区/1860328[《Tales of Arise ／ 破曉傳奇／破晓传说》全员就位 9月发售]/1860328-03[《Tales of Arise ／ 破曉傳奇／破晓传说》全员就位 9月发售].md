@@ -6267,3 +6267,88 @@ I can verify it's not working because of Steam Bet ...</blockquote>
 如果手柄不起作用，要不就是没配置对，要不就是steam出bug了手柄支持没正常工作，这波确实不能怪厂商。
 
 
+
+
+*****
+
+####  zero33333  
+##### 3516#       发表于 2021-9-10 08:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689174&amp;ptid=1860328" target="_blank">rak1 发表于 2021-9-10 08:26</a>
+
+我服了，休息处的横幅滚动广告能不能关，我DLC都买齐了还是有</blockquote>
+我草，以后别有厂也学习这个，太恶心了，准备差评伺候
+
+
+*****
+
+####  市松椿  
+##### 3517#       发表于 2021-9-10 08:47
+
+
+第一张图的巨物43级有点离谱
+
+
+*****
+
+####  hypnossz86  
+##### 3518#       发表于 2021-9-10 08:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689178&amp;ptid=1860328" target="_blank">恋妖壶 发表于 2021-9-10 08:26</a>
+好的，这种逻辑上毫无关联的bug，出品厂自己也不知道也不预警，搞到首发这么多人受影响，却怪不了出品厂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">开beta有风险steam告诉你了
+你觉得该怪谁呢？
+
+
+*****
+
+####  齿轮轴君  
+##### 3519#       发表于 2021-9-10 08:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">昨晚9点切了新西兰区才解锁玩到，下次再也不贪便宜跑哥伦比亚买首发了。
+初上手还是香，演出什么都挺到位的，有点后悔没买终极版，被之前的红秋裤给骗了，不同款式竟然不是单纯的换色，有点想买皮肤。
+
+
+*****
+
+####  lighttt  
+##### 3520#       发表于 2021-9-10 08:56
+
+
+大家伙pc啥配置，卡不卡
+
+
+*****
+
+####  恋妖壶  
+##### 3521#       发表于 2021-9-10 08:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689383&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-10 08:48</a>
+
+开beta有风险steam告诉你了
+
+你觉得该怪谁呢？</blockquote>
+？怎么又问一遍？
+
+
+你引用我的帖子我写的很清楚了啊
+
+
+*****
+
+####  hypnossz86  
+##### 3522#       发表于 2021-9-10 08:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689538&amp;ptid=1860328" target="_blank">恋妖壶 发表于 2021-9-10 08:58</a>
+？怎么又问一遍？
+
+
+你引用我的帖子我写的很清楚了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我就想看你再说一遍
+
+

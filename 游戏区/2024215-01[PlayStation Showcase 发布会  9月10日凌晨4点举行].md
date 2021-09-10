@@ -3974,3 +3974,112 @@ kotor可不是一般的星战游戏，而是大量作品里没有之一的历史
 没有ff16吗？
 
 
+
+
+*****
+
+####  D-JoeII  
+##### 404#       发表于 2021-9-10 08:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689256&amp;ptid=2024215" target="_blank">docklabor 发表于 2021-9-10 08:36</a>
+
+真滴没想到xbox上评价最高的游戏之一重制会给ps独占，牛批</blockquote>
+塞錢好辦事啊,反正不是永久獨佔而且PC會跟PS5版同步
+
+
+*****
+
+####  z.s  
+##### 405#       发表于 2021-9-10 08:53
+
+
+看了回复，没有起来看果然是正确的
+
+
+*****
+
+####  Yui_hirasawa  
+##### 406#       发表于 2021-9-10 08:55
+
+
+北欧神话给我出来个尼妹，属实看吐了。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  泥潭办证先锋  
+##### 407#       发表于 2021-9-10 08:55
+
+
+我觉得挺好的啊，有战神有猪猪侠2有GT7。是今年播的最好的片了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+S1众是不是对你索的日系有过什么不切实际幻想？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  john  
+##### 408#       发表于 2021-9-10 09:00
+
+
+十分之一的播放量。任天堂天下一统。
+
+<img src="https://img.saraba1st.com/forum/202109/10/085904b7h0687ln45qc0u4.png" referrerpolicy="no-referrer">
+
+
+<strong>J4NSR`I]ZURWO{%DGIZB5P3.png</strong> (22.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 08:59 上传
+
+
+*****
+
+####  三菱自工  
+##### 409#       发表于 2021-9-10 09:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689193&amp;ptid=2024215" target="_blank">不是熊 发表于 2021-9-10 08:28</a>
+幸好没看也没买ps5 这发布会除了小秦没人能觉得好吧
+感觉是不用买ps5了 ...</blockquote>
+什么PS5出了?PS4什么时候换代的?我手头最新就一PS4 PRO MAX，开了下机和初代PS4比，游戏几乎没变化，唯一的优点就是那个手柄手感了，so很快封印，让他和PRO一起去睡大觉，偶继续玩初代PS4。
+
+—— 来自 vivo V2031A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  SergeGlenn  
+##### 410#       发表于 2021-9-10 09:04
+
+
+目前失眠组倒是确认了金刚狼和蜘蛛侠2都是PS5独占。。。
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 411#       发表于 2021-9-10 09:06
+
+
+是不是像我这种讨厌欧美zzzq的人现在基本上可以ban掉所有欧美厂商了
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  JudgmentEye  
+##### 412#       发表于 2021-9-10 09:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689363&amp;ptid=2024215" target="_blank">针刺骑士 发表于 2021-9-10 08:46</a>
+
+金刚狼和蜘蛛侠2会登陆PS4吗</blockquote>
+这要问大法，技术上没问题，还是那个引擎，他们想做ps4版就是改几个参数的事
+
+

@@ -11447,3 +11447,14 @@ Clannad没玩过原作，知道一点智代After的内容
 tc真好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 6924#       发表于 2021-9-10 08:51
+
+
+看历史记录这次的几个切片基本都被版权了，看来是真的很不想让人剪，约等于会限了
+
+
