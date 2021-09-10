@@ -826,3 +826,145 @@ origin_202109100500345348.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">3代才是最有诸神黄昏味的
 
 
+
+
+*****
+
+####  Pipcat  
+##### 78#       发表于 2021-9-10 10:28
+
+
+提尔和索尔的造型逼格略差，嘛不过重启之后本来大家都是这种脏兮兮的感觉
+
+画质就别指望了，估计一开始就是基于PS4开发的
+
+
+*****
+
+####  byisme001  
+##### 79#       发表于 2021-9-10 10:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688836&amp;ptid=2025548" target="_blank">木架穷奇 发表于 2021-9-10 07:31</a>
+老战神2相比一代变化也不大啊，怎么就好评了呢</blockquote>
+boss多，量大管饱
+
+
+*****
+
+####  ads147147  
+##### 80#       发表于 2021-9-10 10:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690716&amp;ptid=2025548" target="_blank">radar 发表于 2021-9-10 10:09</a>
+然而Kratos本来也是个黑叔叔的样子…</blockquote>
+奎爷敷上骨灰前是晒得黑，psp里小时候还是那种偏黄种人的。反正这次脏辫小媳妇是看的有点恶寒。
+
+不过泥潭说1.5也就算了，说dlc就过分了。感觉更像是次时代战神2。
+个人怀疑会有时间穿越要素，因为战神2就是时间穿越要素。然后是奎爷很多新招式，包括刽子手批砍的新处决设计，还有追加投技一个杂兵​，高空有下落攻击技，斧子也有新的赋能，此外熟悉半人马哥要取代山怪的位置了吧。儿子可以骑鹿了，说不定符文也要改的更复杂。
+
+好奇这次怎么洗点，目前给的奎爷装备全是初始未强化的。我当年辛辛苦苦刷的女装啊。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  heseran  
+##### 81#       发表于 2021-9-10 10:31
+
+
+半夜看直播黑妹一出来人都傻了，不过无所谓我就想看奎秃子的结局。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  黑修士  
+##### 82#       发表于 2021-9-10 10:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689754&amp;ptid=2025548" target="_blank">woshenc 发表于 2021-9-10 09:11</a>
+
+喷了，这啤酒肚索尔233</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/10/103350g3wtsx1tzsxd1uzd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>001.jpg</strong> (136.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 10:33 上传
+
+
+P了一张感觉毫无违和感<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 83#       发表于 2021-9-10 10:38
+
+
+这次的主线是打索尔，支线是解开芙蕾雅心结吧。
+没想到吧，其实是芙蕾雅原谅了奎爷（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  diketuiduoLI  
+##### 84#       发表于 2021-9-10 10:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689517&amp;ptid=2025548" target="_blank">SergeGlenn 发表于 2021-9-10 08:56</a>
+刚看到第一方的头在采访里说了本作是北欧篇章的完结篇，没有下一作了</blockquote>
+有采访链接吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Ironman_mk5  
+##### 85#       发表于 2021-9-10 10:41
+
+
+雷神怎么又变肥宅了，光头戴着上一部的无限手套时不小心打了个响指么
+
+
+*****
+
+####  抹茶瓜  
+##### 86#       发表于 2021-9-10 10:47
+
+
+这就完结篇了吗  剩下那么多内容能一口气塞完吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 87#       发表于 2021-9-10 10:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691267&amp;ptid=2025548" target="_blank">ads147147 发表于 2021-9-10 10:38</a>
+
+这次的主线是打索尔，支线是解开芙蕾雅心结吧。
+
+没想到吧，其实是芙蕾雅原谅了奎爷（</blockquote>
+看在洛基份上，拼个你死我活应该是不会的，不过感觉还是得打服为止
+
+
+*****
+
+####  hkguty  
+##### 88#       发表于 2021-9-10 10:48
+
+
+哪里有说这部是北欧篇完结
+
+

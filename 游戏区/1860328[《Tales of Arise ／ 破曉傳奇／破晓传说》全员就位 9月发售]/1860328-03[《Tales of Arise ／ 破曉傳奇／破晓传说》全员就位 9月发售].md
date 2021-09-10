@@ -6655,3 +6655,59 @@ pc版优化那么差吗？1660ti能稳40以上吗，还没到家没法试<img sr
 不买dlc一路打下来差三四级，最后试了几次买了官方作弊器，练了会级到差一级好打多了
 
 
+
+
+*****
+
+####  提挈天地  
+##### 3550#       发表于 2021-9-10 10:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690785&amp;ptid=1860328" target="_blank">桧山修之 发表于 2021-9-10 10:13</a>
+都说ps4版的风扇声大，我的普通ps4玩起来很正常啊，没感觉得风扇有多大声，难道是玩下载版的原因吗？ ...</blockquote>
+可以看看你ps4的型号四位数的第二位，通常数字越大机器温度越高风扇声越小<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Bani82  
+##### 3551#       发表于 2021-9-10 10:29
+
+
+有没有玩N难度的，后期需要DLC救济么
+
+我记得TOB我好像卡过凤凰，TOX2卡过异世界路多卡，TOX似乎没有任何卡过<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zero12  
+##### 3552#       发表于 2021-9-10 10:29
+
+
+打别祖好多人8级打15级 屎都被打出来了……
+
+
+*****
+
+####  Bani82  
+##### 3553#       发表于 2021-9-10 10:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691094&amp;ptid=1860328" target="_blank">zero12 发表于 2021-9-10 10:29</a>
+
+打别祖好多人8级打15级 屎都被打出来了……</blockquote>
+我N难度来说只要不是无脑砍秒不掉我
+
+
+*****
+
+####  天堂蜘蛛  
+##### 3554#       发表于 2021-9-10 10:31
+
+
+草，果然是万恶的动态模糊。关掉就好了。
+
+
