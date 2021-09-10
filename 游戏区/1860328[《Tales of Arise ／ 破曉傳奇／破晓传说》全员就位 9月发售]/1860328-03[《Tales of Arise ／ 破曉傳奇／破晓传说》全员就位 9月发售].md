@@ -7524,3 +7524,94 @@ pc嘛？pc不建议，好像已经出一键全dlc解锁补丁了，主机板本�
 直接用，丝毫不夸张的说steam手柄的遗产，也就是Steam的手柄适配功能能覆盖所有手柄，主流御三家手柄甚至还有震动支持，switch pro手柄的话可能按键功能需要自己稍作修改一下，以对应手柄的abxy键
 
 
+
+
+*****
+
+####  Suzutsuki.Mk.II  
+##### 3626#       发表于 2021-9-10 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697339&amp;ptid=1860328" target="_blank">Arccueid 发表于 2021-9-10 16:52</a>
+
+究极版进游戏把DLC都领了，发现有些东西领了直接生效有点IMBA，想知道重开档还能领吗
+
+另外感觉开头 ...</blockquote>
+可以的，惯例都是每一次新游戏都可以领一次，领了的在当前周目生效
+
+
+*****
+
+####  elven119  
+##### 3627#       发表于 2021-9-10 17:02
+
+
+一键DLC解锁谁用成功了吗？群里几个买普通版的加上我自己试了都没用。难道必须学习版才能用？
+
+
+*****
+
+####  Arccueid  
+##### 3628#       发表于 2021-9-10 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697480&amp;ptid=1860328" target="_blank">Suzutsuki.Mk.II 发表于 2021-9-10 17:02</a>
+
+可以的，惯例都是每一次新游戏都可以领一次，领了的在当前周目生效</blockquote>
+好，前面动画全跳马上也能追上流程
+
+
+*****
+
+####  节艾司  
+##### 3629#       发表于 2021-9-10 17:05
+
+
+草，男主用起来一股宵星触角女的手感
+
+
+*****
+
+####  虚无连斩  
+##### 3630#       发表于 2021-9-10 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697483&amp;ptid=1860328" target="_blank">elven119 发表于 2021-9-10 17:02</a>
+一键DLC解锁谁用成功了吗？群里几个买普通版的加上我自己试了都没用。难道必须学习版才能用？ ...</blockquote>
+我中午试了下成功了，三个文件塞到那个文件夹里就行了
+
+—— 来自 realme RMX3366, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3631#       发表于 2021-9-10 17:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我不是很明白招式升星为什么要打几百招，你这系统本来不就鼓励多样化的吗
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3632#       发表于 2021-9-10 17:13
+
+
+这次比较遗憾的是地图系统还是没什么突破，还是老传说的感觉，读图分区太多，然后画面提升到这个程度了怎么还是不做xb那样的全伙伴跟随啊，买了这么多服装只能过场战斗的时候看
+
+
+其他目前玩下来一切完美
+
+
+*****
+
+####  Damocles990609  
+##### 3633#       发表于 2021-9-10 17:19
+
+
+炎之刃咋按啊，我长按a就隔那发呆<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+

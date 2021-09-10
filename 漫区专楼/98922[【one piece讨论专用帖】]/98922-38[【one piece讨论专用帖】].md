@@ -2015,3 +2015,33 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 凯多的女儿大和倒是有她爹的遗传
 
 
+
+
+*****
+
+####  武男  
+##### 55648#       发表于 2021-9-10 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696100&amp;ptid=98922" target="_blank">小野寺熊介 发表于 2021-9-10 15:18</a>
+
+大和这也挺抗打的
+
+被霸缠狼牙棒对着脑袋砸都死不了
+
+御田要是有这生命力怎么会输 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">说明御田防御力不及格呗，综合下来个准四皇，狗子当年被白胡子搏命大招砸了两次人家不还是好好的。还要考虑凯多的进步。
+
+
+*****
+
+####  武男  
+##### 55649#       发表于 2021-9-10 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697441&amp;ptid=98922" target="_blank">小野寺熊介 发表于 2021-9-10 16:59</a>
+
+op世界观下如果不用霸气或者果实进行防御，普遍防御力低下，老白这种在顶上被小兵拿着火枪火箭炮破防就能说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">主要是白胡子也没被打得丧失战斗力吧，虽然交换比来说，跟红狗比很难看，但是还是能打。结论还是虽然现在特效不错，但御田因为WT的矫情搞得很扭曲。
+
+

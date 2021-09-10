@@ -13037,3 +13037,31 @@ syl
 是他们没看出来还是不愿/敢说啊
 
 
+
+
+*****
+
+####  qq845629713  
+##### 6965#       发表于 2021-9-10 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697444&amp;ptid=1972669" target="_blank">哈曼的YY 发表于 2021-9-10 16:59</a>
+
+这个推下面一堆人回复我也最喜欢你了什么的
+
+是他们没看出来还是不愿/敢说啊 ...</blockquote>
+她突然病休，又是症状扁桃体发炎的，其实观众心里都默认了，
+
+
+是JP人特有的读空气才不直说的，
+
+
+*****
+
+####  ヒトニナル  
+##### 6966#       发表于 2021-9-10 17:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">后面复健会更辛苦，只能说加油吧
+
+

@@ -12349,3 +12349,120 @@ Azusa这个磨皮过度导致沸羊羊这皮肤看着跟石膏似的，B叔画�
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但是建模很棒（
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83548#       发表于 2021-9-10 17:07
+
+1
+
+
+ 本帖最后由 alucardcz 于 2021-9-10 17:11 编辑 
+
+家膜复仇者光炮+蓝卡+万物特攻（1轮限定）
+
+为什么不是红卡！
+
+
+*****
+
+####  AbigailWilliams  
+##### 83549#       发表于 2021-9-10 17:09
+
+
+开打开打！宇宙凛大战夹馍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83550#       发表于 2021-9-10 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697591&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-9-10 17:09</a>
+
+开打开打！宇宙凛大战夹馍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不是红卡有什么好战的（
+
+
+
+
+*****
+
+####  时间在我手中  
+##### 83551#       发表于 2021-9-10 17:11
+
+
+这波是姐妹大战了
+
+
+*****
+
+####  真红眼教授  
+##### 83552#       发表于 2021-9-10 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697591&amp;ptid=1085254" target="_blank">AbigailWilliams 发表于 2021-9-10 17:09</a>
+
+开打开打！宇宙凛大战夹馍</blockquote>
+姐妹乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+先投一个妹妹自带特攻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83553#       发表于 2021-9-10 17:15
+
+
+翻页
+
+
+*****
+
+####  zakki  
+##### 83554#       发表于 2021-9-10 17:16
+
+
+迦摩这技能有点儿简单了吧，以前每个泳装都有个新机制的从者，迦摩和魔总都简易的不行。。。不像是跟着妖兰杀狐奥伯龙出来的
+
+
+*****
+
+####  angelooo  
+##### 83555#       发表于 2021-9-10 17:18
+
+
+好像又是刀法精准，不过萝莉形态比本体的可爱，有点想冲（顺便连同池子的水清一起冲了）
+
+
+*****
+
+####  AbigailWilliams  
+##### 83556#       发表于 2021-9-10 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697696&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-10 17:16</a>
+迦摩这技能有点儿简单了吧，以前每个泳装都有个新机制的从者，迦摩和魔总都简易的不行。。。不像是跟着妖兰 ...</blockquote>
+盲猜一个产能支持不了新效果的代码力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83557#       发表于 2021-9-10 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697658&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-9-10 17:14</a>
+
+姐妹乱杀
+
+
+先投一个妹妹自带特攻</blockquote>
+哪乱杀  看上去也就那样  又不是狂娜3回合稳定特攻   要吃特攻前2回合这2技能还不能开
+
+

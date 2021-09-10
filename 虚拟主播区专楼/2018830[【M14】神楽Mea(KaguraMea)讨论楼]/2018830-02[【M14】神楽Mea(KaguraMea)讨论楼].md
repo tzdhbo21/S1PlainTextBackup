@@ -10977,3 +10977,37 @@ yysy，生日第一首我还挺喜欢的，虽然mv本身我不会特意去循�
 看看昨天的月见憨八嘎，坦克民的燃料就足了
 
 
+
+
+*****
+
+####  咸鱼渣  
+##### 2481#       发表于 2021-9-10 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697149&amp;ptid=2018830" target="_blank">makourisu-2 发表于 2021-9-10 16:38</a>
+
+九月好像还没tc过吧</blockquote>
+八月也没几次TC吧（我是通过tc的live history和录像判断的，不知道偏差大不大）
+
+
+*****
+
+####  Klience  
+##### 2482#       发表于 2021-9-10 17:11
+
+
+吃了月见汉堡 已经变成和月亮一样圆润了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2483#       发表于 2021-9-10 17:27
+
+
+什么时候能再生产成汉堡肉呢
+
+8月有3次TC
+
+
