@@ -7046,3 +7046,64 @@ pc版优化那么差吗？1660ti能稳40以上吗，还没到家没法试</block
 打到第三个地图，多打野怪居然会有BOSS龙乱入<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 3586#       发表于 2021-9-10 13:28
+
+
+提醒一下，这作DLC清单里领取了以后，某些物品不会再像旧作那样出现在DLC物品里而是直接加上
+
+所以需要规避的玩家就要注意一下，有几种领取后效果不可逆的项目
+
+文物：物品最大值99，这个拿了就不可逆了，如果不希望开始就拿到物品最大值的玩家注意一下
+
+等级和GALD的DLC，清单里领了就给你直接算上了，如果是想先买然后等后面卡关了再用的注意了（或者准备在前期等级容易提升的时候保留，到后面再加上），领了就直接加在现有等级上了
+
+其他DLC文物和服装都是可以设置里选择关闭效果或者不装备的
+
+
+*****
+
+####  慕容断月  
+##### 3587#       发表于 2021-9-10 13:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690741&amp;ptid=1860328" target="_blank">Ivent 发表于 2021-9-10 10:10</a>
+pc版优化那么差吗？1660ti能稳40以上吗，还没到家没法试</blockquote>
+优化非常强2K1066差不多45+，1080p稳稳当当60
+
+
+*****
+
+####  licha1995  
+##### 3588#       发表于 2021-9-10 13:33
+
+
+2070s2K能拉满
+
+
+*****
+
+####  慕容断月  
+##### 3589#       发表于 2021-9-10 13:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52693572&amp;ptid=1860328" target="_blank">wolfwood 发表于 2021-9-10 12:33</a>
+幸好没买首发，PC等优化好些了再说</blockquote>
+pc优化好到爆炸
+
+
+*****
+
+####  jhjy217  
+##### 3590#       发表于 2021-9-10 13:35
+
+
+pc优化挺好的啊
+我这里非常顺畅
+就是开场那个麻婆的声音让我ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+

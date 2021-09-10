@@ -1403,3 +1403,26 @@ Herman在后面的采访里说的，不知道有没有歧义
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  沙发果冻  
+##### 125#       发表于 2021-9-10 13:26
+
+
+这黑妹长的不好看呀，为啥游戏中总搞这种恶心人，zzzq的人又不玩这游戏
+
+
+*****
+
+####  radar  
+##### 126#       发表于 2021-9-10 13:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52694113&amp;ptid=2025548" target="_blank">史三问 发表于 2021-9-10 13:06</a>
+斯巴达人到你嘴里变黑叔叔了</blockquote>
+这不是记得原先不咋白…
+主要是骨灰附体那段对比太明显
+
+
