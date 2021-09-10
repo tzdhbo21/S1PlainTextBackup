@@ -6216,3 +6216,54 @@ I can verify it's not working because of Steam Bet ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有人知道第一章换衣服那男的支线咋做吗,让我等,已经等了三章都没变化了
 
 
+
+
+*****
+
+####  docklabor  
+##### 3512#       发表于 2021-9-10 08:23
+
+
+<blockquote>恋妖壶 发表于 2021-9-10 07:08
+解决了
+
+
+爬了下steam社区，如果你steam beta是打开的，把steam beta关掉重启客户端再进游戏就能用了，我解 ...</blockquote>
+用测试版本来就包含多折腾的风险，这怪不了日厂
+
+
+*****
+
+####  rak1  
+##### 3513#       发表于 2021-9-10 08:26
+
+
+我服了，休息处的横幅滚动广告能不能关，我DLC都买齐了还是有<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恋妖壶  
+##### 3514#       发表于 2021-9-10 08:26
+
+
+<blockquote>docklabor 发表于 2021-9-10 08:23
+用测试版本来就包含多折腾的风险，这怪不了日厂</blockquote>
+好的，这种逻辑上毫无关联的bug，出品厂自己也不知道也不预警，搞到首发这么多人受影响，却怪不了出品厂，那看来只能怪玩家了，谁让玩家这么欠非要调成beta呢，NB无责
+
+
+*****
+
+####  PureWaltz  
+##### 3515#       发表于 2021-9-10 08:36
+
+
+ 本帖最后由 PureWaltz 于 2021-9-10 08:40 编辑 
+
+《绯红结系》对手柄的支持是原生的，所以要把steam手柄支持关掉；
+
+《破晓传说》我试了一下，原生不支持ds4和xbox手柄，所以要把steam手柄支持打开才能正常使用。
+
+如果手柄不起作用，要不就是没配置对，要不就是steam出bug了手柄支持没正常工作，这波确实不能怪厂商。
+
+

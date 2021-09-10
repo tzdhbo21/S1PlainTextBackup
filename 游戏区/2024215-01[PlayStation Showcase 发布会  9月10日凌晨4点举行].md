@@ -3868,3 +3868,109 @@ https://www.resetera.com/threads/star-wars-knights-of-the-old-republic-remake-an
 什么叫意外……
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 393#       发表于 2021-9-10 08:26
+
+
+有没有课代表讲讲凌晨的拨片有没有日系
+
+
+*****
+
+####  Moritaka  
+##### 394#       发表于 2021-9-10 08:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689175&amp;ptid=2024215" target="_blank">红魔馆的糖 发表于 2021-9-10 08:26</a>
+有没有课代表讲讲凌晨的拨片有没有日系</blockquote>
+想了一下，没有，有韩系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不是熊  
+##### 395#       发表于 2021-9-10 08:28
+
+
+幸好没看也没买ps5<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 这发布会除了小秦没人能觉得好吧
+感觉是不用买ps5了
+
+
+*****
+
+####  红魔馆的糖  
+##### 396#       发表于 2021-9-10 08:29
+
+
+感谢楼上，索尼什么时候死啊<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  芷雅居  
+##### 397#       发表于 2021-9-10 08:31
+
+
+赶紧死吧，索尼
+
+
+*****
+
+####  docklabor  
+##### 398#       发表于 2021-9-10 08:36
+
+
+真滴没想到xbox上评价最高的游戏之一重制会给ps独占，牛批
+
+
+*****
+
+####  docklabor  
+##### 399#       发表于 2021-9-10 08:39
+
+
+<blockquote>jockeyjoestar 发表于 2021-9-10 05:17
+旧共和国武士在推特意外很火  美国佬是真喜欢星战啊</blockquote>
+kotor可不是一般的星战游戏，而是大量作品里没有之一的历史评价最好的星战游戏，靠的可不仅是星战这牌子
+
+
+*****
+
+####  刘震云  
+##### 400#       发表于 2021-9-10 08:43
+
+
+拉胯了，都是些什么玩意儿
+
+
+*****
+
+####  针刺骑士  
+##### 401#       发表于 2021-9-10 08:46
+
+
+金刚狼和蜘蛛侠2会登陆PS4吗
+
+
+*****
+
+####  rp1993  
+##### 402#       发表于 2021-9-10 08:46
+
+
+还好没起来看<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  嘉术2015  
+##### 403#       发表于 2021-9-10 08:47
+
+
+没有ff16吗？
+
+

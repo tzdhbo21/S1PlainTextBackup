@@ -12808,3 +12808,53 @@ syl
 毕竟赶上奥运期间。
 
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 6952#       发表于 2021-9-10 08:28
+
+
+<blockquote>👑新キービジュアル👑
+
+
+さいねママにわらわに新しい
+
+キービジュアルを描きおろししてもらったのじゃ！
+
+どっちも素敵じゃ😇✨
+
+
+さいねママ
+
+@sainexxx
+
+
+ありがとうございます！！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/10/082619jpmjddvl5qs54qtl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E-4OooxVcBE2Rfn.jpg</strong> (199.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 08:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/10/082622w6st6bpifwip8ryt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E-4OqE-VcBMdIMO.jpg</strong> (199.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 08:26 上传
+
+
+顺便 <blockquote>♥️♠️物述有栖♠️♥️ @AliceMononobe
+
+生きてるすごいっ•*¨*•.¸¸☆*･ﾟ≡(　ε:)`дﾟ)･;"</blockquote>
+
+
