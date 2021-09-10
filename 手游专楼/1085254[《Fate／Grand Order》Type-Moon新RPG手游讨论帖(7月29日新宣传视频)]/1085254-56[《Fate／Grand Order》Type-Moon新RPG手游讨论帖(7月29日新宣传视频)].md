@@ -12552,3 +12552,42 @@ Azusa这个磨皮过度导致沸羊羊这皮肤看着跟石膏似的，B叔画�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83565#       发表于 2021-9-10 18:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697850&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-10 17:28</a>
+
+话说隔壁怎么有个人那么喜欢咋呼，大惊小怪的，起个特别浮夸的标题还一惊一乍的，每次都是他 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">是真爱 过期蓝卡绿卡还能这么欢  像我看到卡色的时候已经没兴趣了
+
+
+*****
+
+####  上坂莲华  
+##### 83566#       发表于 2021-9-10 18:15
+
+
+隔壁又开始车泳装杀生院，说得好像日服真有大把人用她当泛用蓝卡光炮一样
+
+打白字选手多的是，红字的话上三都有便宜替代，下三她本体就能全干碎了不需要泳装上
+
+这才抽了不到一个月就开始絮叨被值班只能说是被害妄想症（
+
+
+*****
+
+####  白金口袋  
+##### 83567#       发表于 2021-9-10 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697893&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-10 03:31</a>
+
+满级就是百分百命中了</blockquote>
+没结晶啊，嗷嗷待哺的一堆但是活动就不肯多给几个，就算过几天抽到了也轮不到她技能满级啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

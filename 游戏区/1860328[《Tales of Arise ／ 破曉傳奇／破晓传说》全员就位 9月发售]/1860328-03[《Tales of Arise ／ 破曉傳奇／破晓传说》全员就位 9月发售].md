@@ -7734,3 +7734,79 @@ DLC还是厉害，昨天看直播普通难度在第一个boss那里受苦刮痧�
 我稍微留意了一下，游戏各种环境的加载速度，感觉上除了战斗切换稍微慢一点（但也比 PS4 快很多），大部分时候加载耗时不比 PS5 长多少——我用的是五六年前的镁光 SATA3 MLC 固态硬盘，其他的硬件参数也是比推荐要求稍好或刚好。
 
 
+
+
+*****
+
+####  supersssbc  
+##### 3644#       发表于 2021-9-10 18:01
+
+
+这种级别的画面以日厂的能力和销量xb系列水准的地图我觉着是不可能的，但是我还是想要dq11水平的，多少再大点复杂点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jhjy217  
+##### 3645#       发表于 2021-9-10 18:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52698080&amp;ptid=1860328" target="_blank">elven119 发表于 2021-9-10 17:46</a>
+搞定了。但是进去看了下dlc带的东西，默默退出游戏删除了。。这简直太变态了。那些东西领完是不是就变成游 ...</blockquote>
+可以不领升级包啊
+那个武器包挺好的，养肝
+
+
+*****
+
+####  金子一马  
+##### 3646#       发表于 2021-9-10 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697502&amp;ptid=1860328" target="_blank">Arccueid 发表于 2021-9-10 17:03</a>
+
+好，前面动画全跳马上也能追上流程</blockquote>
+不用dlc打hard前期体验特别好
+
+
+*****
+
+####  金子一马  
+##### 3647#       发表于 2021-9-10 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697244&amp;ptid=1860328" target="_blank">光与暗的转生 发表于 2021-9-10 16:45</a>
+
+这分身真的是要全打的吗？我觉得怎么样输出都是不够的啊，我还是硬吃药挂死的 ...</blockquote>
+我现在没玩了，明天试试能不能用洛破屏障
+
+
+*****
+
+####  oniwarud  
+##### 3648#       发表于 2021-9-10 18:11
+
+
+<blockquote>supersssbc 发表于 2021-9-10 18:01
+这种级别的画面以日厂的能力和销量xb系列水准的地图我觉着是不可能的，但是我还是想要dq11水平的，多少再大 ...</blockquote>
+xb系列水准的地图除了mono也没人能做了吧
+
+
+*****
+
+####  makar0601  
+##### 3649#       发表于 2021-9-10 18:11
+
+
+快速打了十几小时，目前来说，红毛阿三那章节不错，前面两个章节都不行
+
+
+*****
+
+####  zmny  
+##### 3650#       发表于 2021-9-10 18:17
+
+
+steam为啥我每次小剧场开头都会卡一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
