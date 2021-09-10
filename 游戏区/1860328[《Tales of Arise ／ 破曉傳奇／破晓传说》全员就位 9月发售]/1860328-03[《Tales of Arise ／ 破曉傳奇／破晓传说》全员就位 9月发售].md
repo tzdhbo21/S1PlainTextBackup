@@ -8131,3 +8131,82 @@ B财团这次没上D加密真的是血亏<img src="https://static.saraba1st.com/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打桩叫分身那段锁视角的时间，可以提前站好位置或者盲操去压分身血量的，普通难度我看了血量随便打断，并且切阶段之前对BOSS0伤害那段几秒，足够俩法师提前捏魔法，男主捏火剑，可操作空间还是有的
 
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3678#       发表于 2021-9-10 20:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉就是不上属性对策没法玩，全员统一属性饰品
+
+
+*****
+
+####  yingu377  
+##### 3679#       发表于 2021-9-10 20:23
+
+
+还在慢悠悠玩开头，男主什么时候才能去掉头盔，太难看了
+
+反正我就随便玩玩，看看剧情啥的，简单难度是不是可以半自动瞎砍，技能XJB乱点也可以<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lisylfn  
+##### 3680#       发表于 2021-9-10 20:27
+
+
+ 本帖最后由 Lisylfn 于 2021-9-10 20:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52699257&amp;ptid=1860328" target="_blank">余情自取 发表于 2021-9-10 18:56</a>
+
+退了ps4版买pc，全dlc解锁补丁太给力了我超
+
+跟游戏资源相关的可以不急着领，但是服装不能没有 ...</blockquote>
+哪里下补丁<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+找到了, 舒服
+
+
+*****
+
+####  Lisylfn  
+##### 3681#       发表于 2021-9-10 20:31
+
+
+steam版刚进游戏, 设置了手柄按键和画面, 不得不夸一下这次的PC版, 首先是手柄配置(我是DS4)用了steam自己的控制器API, 自定义化程度极高, 想怎么设置怎么设置, 而且还不是映射的改键, 其次就是优化相关做得很好, 暂时刚开始场景1440P除动态模糊全开120fps
+
+这PC版体验可以打10分, 不能说移植, 应该说steam原生游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shamisen  
+##### 3682#       发表于 2021-9-10 20:35
+
+
+为毛星际文明会出大把人力去搞奴隶制社会呀
+
+
+*****
+
+####  Kojimaru  
+##### 3683#       发表于 2021-9-10 20:35
+
+
+下班回来用了全解锁dlc补丁，全领取后我人物直升50级困难模式打别祖只要三刀<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">，删档不知道有没有用
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3684#       发表于 2021-9-10 20:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52700815&amp;ptid=1860328" target="_blank">shamisen 发表于 2021-9-10 20:35</a>
+为毛星际文明会出大把人力去搞奴隶制社会呀</blockquote>
+打下去有解释的
+
+

@@ -12660,3 +12660,23 @@ Azusa这个磨皮过度导致沸羊羊这皮肤看着跟石膏似的，B叔画�
 海牙，你游抽卡不都是看下体的吗，整天一惊一乍地战强度看强度抽卡的是不是有毛病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 83574#       发表于 2021-9-10 20:26
+
+
+我不管，反正夹馍可爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 83575#       发表于 2021-9-10 20:34
+
+
+nga玩国服的才是大多数，所以大多数都是国服思维，红卡在他们的脑子里还是垃圾的定位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
