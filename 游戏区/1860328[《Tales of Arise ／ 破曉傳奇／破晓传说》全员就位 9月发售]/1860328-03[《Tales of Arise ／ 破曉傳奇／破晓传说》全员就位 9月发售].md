@@ -8210,3 +8210,47 @@ steam版刚进游戏, 设置了手柄按键和画面, 不得不夸一下这次�
 打下去有解释的
 
 
+
+
+*****
+
+####  七氷  
+##### 3685#       发表于 2021-9-10 20:42
+
+
+艹 ，小剧场过完卡住了<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makar0601  
+##### 3686#       发表于 2021-9-10 20:51
+
+
+这一部感觉连段设计有点问题，很多招式很容易把敌人吹飞到够不到的距离，特别是拳师的空中技
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  妄想中毒  
+##### 3687#       发表于 2021-9-10 20:51
+
+
+ 本帖最后由 妄想中毒 于 2021-9-10 20:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">">了
+
+
+*****
+
+####  lighttt  
+##### 3688#       发表于 2021-9-10 20:58
+
+
+这种鸟事<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+退出游戏只能alt f4吗，
+
+
