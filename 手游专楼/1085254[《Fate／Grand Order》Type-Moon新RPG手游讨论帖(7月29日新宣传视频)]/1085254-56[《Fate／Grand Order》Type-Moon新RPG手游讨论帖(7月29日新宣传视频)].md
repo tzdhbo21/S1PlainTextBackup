@@ -12591,3 +12591,52 @@ Azusa这个磨皮过度导致沸羊羊这皮肤看着跟石膏似的，B叔画�
 没结晶啊，嗷嗷待哺的一堆但是活动就不肯多给几个，就算过几天抽到了也轮不到她技能满级啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83568#       发表于 2021-9-10 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52698579&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-9-10 18:15</a>
+隔壁又开始车泳装杀生院，说得好像日服真有大把人用她当泛用蓝卡光炮一样
+
+打白字选手多的是，红字的话上三 ...</blockquote>
+只有隔壁把杀生院当顶级光炮，一边抽还一边焦虑，日服有什么人吹过杀生院吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83569#       发表于 2021-9-10 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52698721&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-10 18:24</a>
+
+只有隔壁把杀生院当顶级光炮，一边抽还一边焦虑，日服有什么人吹过杀生院吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">隔壁我最看不懂的就是总有人来一句换人奥宝伤害没问题。。 默认换人了还用蓝卡？
+
+
+*****
+
+####  不垃圾屌丝  
+##### 83570#       发表于 2021-9-10 18:28
+
+
+只能说有这种配置的从者已经太多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  zakki  
+##### 83571#       发表于 2021-9-10 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52698769&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-10 18:27</a>
+隔壁我最看不懂的就是总有人来一句换人奥宝伤害没问题。。 默认换人了还用蓝卡？ ...</blockquote>
+还是那句话都换人了为什么不用妖兰，还能无视配置<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在隔壁对新卡的脑测全是以国服环境和认知考虑的，他们还以为现在日服是蓝卡一家独大呢
+
+

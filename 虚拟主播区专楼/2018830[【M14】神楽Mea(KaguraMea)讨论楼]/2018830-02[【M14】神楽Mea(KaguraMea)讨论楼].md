@@ -11011,3 +11011,43 @@ yysy，生日第一首我还挺喜欢的，虽然mv本身我不会特意去循�
 8月有3次TC
 
 
+
+
+*****
+
+####  2014720  
+##### 2484#       发表于 2021-9-10 18:22
+
+
+终将成为点人<img src="https://p.sda1.dev/2/5b9a451f3c9f86b51d1e70f6fbc301ce/IMG_CMP_135568365.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rem-清曲  
+##### 2485#       发表于 2021-9-10 18:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2486#       发表于 2021-9-10 18:29
+
+
+ 本帖最后由 T_Hb 于 2021-9-10 18:46 编辑 
+
+证件照太傻了，直播啊，看来又要花时间出门彩排
+
+
+*****
+
+####  Klience  
+##### 2487#       发表于 2021-9-10 18:35
+
+
+批站也有 168一张门票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

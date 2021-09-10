@@ -7810,3 +7810,66 @@ xb系列水准的地图除了mono也没人能做了吧
 steam为啥我每次小剧场开头都会卡一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  arbilest  
+##### 3651#       发表于 2021-9-10 18:21
+
+
+玩了个开头，话说PC这优化也太强了，2060全高4K60一看GPU负载都不到80%
+前阵子玩PS5试玩版的时候是怎么做到画质模式只能锁30帧的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  sunnyjee  
+##### 3652#       发表于 2021-9-10 18:21
+
+
+Steam版买了dlc是不是不能退  还是我干脆把整个游戏退了 dlc能一起退   刚玩2个小时
+
+
+*****
+
+####  oniwarud  
+##### 3653#       发表于 2021-9-10 18:22
+
+
+面部表情这一块还是比较僵硬，打完别祖后希侬被奥尔芬直球后第一次娇，这么宝贵的的剧情，结果直接被那梆硬的面部表情给冲淡了不少观感，我自己脑补的是xb2里光被雷老板膝枕后娇起来的那样的表情。而且下地紫野这次的声线真的好粗啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，感觉有时候她自己都蚌埠住这声线，时不时就冒出几句少女音
+
+
+*****
+
+####  soranoguiji  
+##### 3654#       发表于 2021-9-10 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 原来PC版这么给力，后悔买PS4版了
+
+
+*****
+
+####  majiyabakunei  
+##### 3655#       发表于 2021-9-10 18:28
+
+
+ps5版的表现咋样呢，能4k60吗<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  zero12  
+##### 3656#       发表于 2021-9-10 18:32
+
+
+<blockquote>sunnyjee 发表于 2021-9-10 18:21
+Steam版买了dlc是不是不能退  还是我干脆把整个游戏退了 dlc能一起退   刚玩2个小时 ...</blockquote>
+一些加成是可以自己关的
+
+
