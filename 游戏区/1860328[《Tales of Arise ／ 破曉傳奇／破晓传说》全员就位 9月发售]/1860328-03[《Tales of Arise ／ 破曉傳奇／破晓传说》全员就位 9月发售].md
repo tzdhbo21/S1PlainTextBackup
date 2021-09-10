@@ -8254,3 +8254,73 @@ steam版刚进游戏, 设置了手柄按键和画面, 不得不夸一下这次�
 退出游戏只能alt f4吗，
 
 
+
+
+*****
+
+####  蓝雉  
+##### 3689#       发表于 2021-9-10 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52701115&amp;ptid=1860328" target="_blank">妄想中毒 发表于 2021-9-10 20:51</a>
+发售第一天就这么多DLC太离谱了</blockquote>
+因为后续基本不会再有dlc了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  虚无连斩  
+##### 3690#       发表于 2021-9-10 21:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我没看错吗，水手服下面竟然是安全裤....
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  司马千晶  
+##### 3691#       发表于 2021-9-10 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52701110&amp;ptid=1860328" target="_blank">makar0601 发表于 2021-9-10 20:51</a>
+
+这一部感觉连段设计有点问题，很多招式很容易把敌人吹飞到够不到的距离，特别是拳师的空中技
+
+
+—— 来自 mo ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">其实对杂兵设计没啥问题，那种你觉得吹飞接不了后续的，在怪落地前，可以考虑接万能的女主或法师援护，要么继续追打，要么切那俩女主空连。然后不少技能可以跟一个翻滚平A再继续连特技的，比如凤凰天驱，魔王炎击波，格斗家的鹰爪袭击（试玩版还有那个火属性下砸也可以）
+
+
+*****
+
+####  华安9527  
+##### 3692#       发表于 2021-9-10 21:13
+
+
+有人知道steam版怎么设置手柄么，我XBOX手柄，进游戏没有反应……<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  塔奇克马  
+##### 3693#       发表于 2021-9-10 21:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">狗尾巴配男主,兔耳朵配女主.是不是在暗示什么(
+
+
+*****
+
+####  克里斯蒂娜  
+##### 3694#       发表于 2021-9-10 21:17
+
+
+我pro手柄也不行，不用steam却可以，之前玩绯红都没问题
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

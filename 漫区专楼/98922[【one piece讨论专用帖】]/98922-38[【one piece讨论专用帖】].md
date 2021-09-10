@@ -2058,3 +2058,28 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 就是凯多戴着的是海楼石手环（打御田那一下的镜头里凯多没有手环，打完之后又戴上了）
 
 
+
+
+*****
+
+####  武男  
+##### 55651#       发表于 2021-9-10 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52700031&amp;ptid=98922" target="_blank">小野寺熊介 发表于 2021-9-10 19:47</a>
+
+御田唯一挽回自己不是脆皮的方法
+
+就是凯多戴着的是海楼石手环（打御田那一下的镜头里凯多没有手环，打完之 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">那不是更LOW嘛，实锤御田只有皇副，凯多陪他玩玩
+
+
+*****
+
+####  modkingr  
+##### 55652#       发表于 2021-9-10 21:05
+
+
+小菊不可爱吗
+
+
