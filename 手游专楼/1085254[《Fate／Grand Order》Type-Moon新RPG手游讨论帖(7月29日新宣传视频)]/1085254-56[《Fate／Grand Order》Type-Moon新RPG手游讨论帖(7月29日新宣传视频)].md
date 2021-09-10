@@ -12732,3 +12732,16 @@ nga玩国服的才是大多数，所以大多数都是国服思维，红卡在�
 血量不多重新试了下 蓝字照杀 舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zakki  
+##### 83580#       发表于 2021-9-10 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52702078&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-9-10 21:43</a>
+我跟你正好相反，还没用过杀狐</blockquote>
+我也没用杀狐，奥伯龙和道满随便配个打手就基本通杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

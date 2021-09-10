@@ -8783,3 +8783,88 @@ steam成就这not yet translation也太搞了吧，，。
 有个问题，有没有为了称号必须买的dlc
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 3736#       发表于 2021-9-10 23:44
+
+
+没有吧
+
+
+*****
+
+####  司马千晶  
+##### 3737#       发表于 2021-9-10 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52703597&amp;ptid=1860328" target="_blank">五星战世韩玉昆 发表于 2021-9-10 23:29</a>
+
+DLC男主那些术技初期好像还是有些华而不实，还是我没搞懂用法？</blockquote>
+魔神剑和飞燕刃能用到20级，不管是BOSS战还是杂鱼都比那俩DLC好用，等到AG上限到6再用那俩技能比较靠谱。 最好用的是苍破追莲
+
+
+*****
+
+####  DKD  
+##### 3738#       发表于 2021-9-10 23:47
+
+
+灵动力之粒在哪搞？
+
+
+*****
+
+####  天堂蜘蛛  
+##### 3739#       发表于 2021-9-10 23:48
+
+
+传说的剧情一直都挺土吧
+
+反正我玩TOB的时候里面的对话也是各种低情商发言，习惯了
+
+
+*****
+
+####  司马千晶  
+##### 3740#       发表于 2021-9-10 23:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52703569&amp;ptid=1860328" target="_blank">笛普达克范太希 发表于 2021-9-10 23:27</a>
+
+boss和精英用什么方法打好一点，没法break攒不了条满cp进去红cp出来，打得属实有点难看 ...</blockquote>
+BOSS出大招你就把作战设置成“什么都不做”，队友几乎闪避一切招式，你就怂在一边苍破追莲或者魔神剑慢慢刮痧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等BOSS动作结束你在把作战调回正常。 最简单的办法。
+
+
+*****
+
+####  人如其名  
+##### 3741#       发表于 2021-9-10 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52703819&amp;ptid=1860328" target="_blank">DKD 发表于 2021-9-10 23:47</a>
+灵动力之粒在哪搞？</blockquote>
+火城宝箱有俩
+
+
+*****
+
+####  herryk159  
+##### 3742#       发表于 2021-9-11 00:00
+
+
+第二个大boss太过瘾了，死了快十次，终于过了，爽爽爽<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Nosgoth  
+##### 3743#       发表于 2021-9-11 00:00
+
+
+妈的，本来这个月其他买的多，这个就准备先学习，以后打折再补。结果学习版问题多，搞烦了，上淘宝看国区key还可以，直接买了。还有银河战士限定版，那两个amiibo，pathfinder，暗黑2要买。
+
+
