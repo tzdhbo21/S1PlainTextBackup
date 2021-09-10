@@ -11302,3 +11302,157 @@ Mea和如月都是10的开播，这是时隔多久的神乐组直播撞车事件
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2512#       发表于 2021-9-10 23:02
+
+
+触 雪 麻
+
+
+*****
+
+####  2014720  
+##### 2513#       发表于 2021-9-10 23:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mikumiku831  
+##### 2514#       发表于 2021-9-10 23:03
+
+
+手艺型VTB
+
+
+*****
+
+####  T_Hb  
+##### 2515#       发表于 2021-9-10 23:04
+
+
+<img src="https://img.saraba1st.com/forum/202109/10/230440ybm8lz1s8q4gwwg8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (83.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 23:04 上传
+
+
+line stamp
+
+
+*****
+
+####  时间在我手中  
+##### 2516#       发表于 2021-9-10 23:05
+
+
+草，line的stamp包，等一个人扒图下来做成扣扣表情包了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ky·Kiske  
+##### 2517#       发表于 2021-9-10 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2518#       发表于 2021-9-10 23:06
+
+
+<img src="https://img.saraba1st.com/forum/202109/10/230627i069xxxc96v0dvsz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (17.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 23:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/10/230653b9i4mioybwwstlo3.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (11.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 23:06 上传
+
+
+*****
+
+####  yywzjsw  
+##### 2519#       发表于 2021-9-10 23:09
+
+
+今天的重大发布就是这个？
+
+
+*****
+
+####  T_Hb  
+##### 2520#       发表于 2021-9-10 23:10
+
+
+不清楚，魔法绒毯真棒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  时间在我手中  
+##### 2521#       发表于 2021-9-10 23:10
+
+
+醒醒，就说有告知而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 2522#       发表于 2021-9-10 23:16
+
+
+人要有梦想
+
+
+*****
+
+####  T_Hb  
+##### 2523#       发表于 2021-9-10 23:16
+
+
+ 本帖最后由 T_Hb 于 2021-9-10 23:18 编辑 
+
+置顶那个5步是啥意思
+
+犯病了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2524#       发表于 2021-9-10 23:20
+
+
+只查到个一歩手前：引申为眼前、跟前的意思，表示距离近
+
+反正就是说快下播的时候记得提醒她告知要说的事，虽然好像已经说了
+
+

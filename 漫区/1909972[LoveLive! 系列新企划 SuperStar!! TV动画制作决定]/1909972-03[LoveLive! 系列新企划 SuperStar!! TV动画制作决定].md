@@ -17245,3 +17245,24 @@ TV电视
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">求一个
 
 
+
+
+*****
+
+####  名津流  
+##### 4394#       发表于 2021-9-10 23:06
+
+
+青山INS达到3W粉，总算发了条普通的纪念视频没再整活
+
+
+*****
+
+####  Piano-Forest  
+##### 4395#       发表于 2021-9-10 23:18
+
+
+[https://twitter.com/AkatsukiKatoh/status/1436279329642582018](https://twitter.com/AkatsukiKatoh/status/1436279329642582018)
+<img src="https://p.sda1.dev/2/d0ce0f2e067cfd3493cea0f57ca0af44/20210910_231747.jpg" referrerpolicy="no-referrer">
+
+

@@ -8533,3 +8533,17 @@ mla漫画看完了，非常地满足。
 80分钟的全熟肉，值得致敬
 
 
+
+
+*****
+
+####  belldandy_ye  
+##### 597#       发表于 2021-9-10 23:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52543520&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2021-8-29 08:52</a>
+
+其实我们在期待中逐渐忘了一点，那就是âge只是黄油厂里比较成功的一批，做出过神作，君望的动画化待遇也不 ...</blockquote>
+只能说âge在十几年前错过了一个重要的时间节点，找京都动画合作的机会落到了KEY的手上。
+
+

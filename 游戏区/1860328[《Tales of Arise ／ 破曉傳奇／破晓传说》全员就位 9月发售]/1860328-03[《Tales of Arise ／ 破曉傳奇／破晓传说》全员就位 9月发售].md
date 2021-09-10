@@ -8666,3 +8666,73 @@ PC版用PS5手柄有HD震动吗？ 还是说压根没做PS5手柄震动适配？
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  oniwarud  
+##### 3725#       发表于 2021-9-10 23:12
+
+
+感觉bgm的风格太单调了，两个国家场景差异这么大，bgm风格却没有什么差别，都是交响乐+人声合唱，火国听着还有点感觉，到雪国这里已经快审美疲劳了
+
+
+*****
+
+####  JudgmentEye  
+##### 3726#       发表于 2021-9-10 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52703112&amp;ptid=1860328" target="_blank">DasLebewohl 发表于 2021-9-10 22:50</a>
+
+PC版用PS5手柄有HD震动吗？ 还是说压根没做PS5手柄震动适配？ 如果没有我就用xbox手柄了 ...</blockquote>
+
+反正ps4手柄没有
+
+
+*****
+
+####  allenz3  
+##### 3727#       发表于 2021-9-10 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52703086&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-9-10 22:49</a>
+问下能战斗中换人么？怎么换？</blockquote>
+r1加方向键
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  尤伽  
+##### 3728#       发表于 2021-9-10 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52703382&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-10 23:12</a>
+
+感觉bgm的风格太单调了，两个国家场景差异这么大，bgm风格却没有什么差别，都是交响乐+人声合唱，火国听着 ...</blockquote>
+bgm我觉得不如泥潭神作2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moekyo  
+##### 3729#       发表于 2021-9-10 23:16
+
+
+这楼不是禁剧透的吗
+
+
+*****
+
+####  尤伽  
+##### 3730#       发表于 2021-9-10 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52703431&amp;ptid=1860328" target="_blank">尤伽 发表于 2021-9-10 23:15</a>
+
+bgm我觉得不如泥潭神作2</blockquote>
+但是利伯狱塔那段我又感觉支棱起来了，有XB1决战监狱岛内味了
+
+
