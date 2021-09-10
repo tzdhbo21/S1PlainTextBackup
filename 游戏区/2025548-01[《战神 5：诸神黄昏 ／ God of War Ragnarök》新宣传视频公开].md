@@ -1245,3 +1245,67 @@ Herman在后面的采访里说的，不知道有没有歧义
 泥潭都反尼哥反到魔怔了，这黑妹的脸已经算迎合大多数人的审美了吧。
 
 
+
+
+*****
+
+####  天妇罗  
+##### 111#       发表于 2021-9-10 12:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52692903&amp;ptid=2025548" target="_blank">wswad436710 发表于 2021-9-10 11:55</a>
+
+看这架势，妙尔尼尔作为主武器应该是稳了吧。不知道会不会向战神2看齐再藏一把主武器。能用冈枪或是莱瓦汀 ...</blockquote>
+说实话链剑解锁之后也就三分钟热度，实际用起来很无聊，希望雷锤能好好设计。
+
+
+*****
+
+####  Racyjackman  
+##### 112#       发表于 2021-9-10 12:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52693389&amp;ptid=2025548" target="_blank">ckseng 发表于 2021-9-10 12:24</a>
+
+泥潭都反尼哥反到魔怔了，这黑妹的脸已经算迎合大多数人的审美了吧。</blockquote>
+我觉得脸其实偏亚裔
+
+
+*****
+
+####  codecloud  
+##### 113#       发表于 2021-9-10 12:39
+
+
+ 本帖最后由 codecloud 于 2021-9-10 12:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52693389&amp;ptid=2025548" target="_blank">ckseng 发表于 2021-9-10 12:24</a>
+
+泥潭都反尼哥反到魔怔了，这黑妹的脸已经算迎合大多数人的审美了吧。</blockquote>
+你这思维正见证了逆向文化冲击的可怕.
+
+北欧神话是啥?是老皮炎白人精神信仰的起源之一.如果这都能冒出各种尼哥尼妹,那么下一步咱们在玉清宫床上享受冷猪肉的玉皇大帝也迟早会变成尼哥的.就问你服不服.
+
+
+*****
+
+####  jokertx  
+##### 114#       发表于 2021-9-10 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52693546&amp;ptid=2025548" target="_blank">天妇罗 发表于 2021-9-10 12:32</a>
+
+说实话链剑解锁之后也就三分钟热度，实际用起来很无聊，希望雷锤能好好设计。 ...</blockquote>
+链刃的技能演出效果和输出能力都比斧头强啊，斧头反而变成远程武器了
+
+
+*****
+
+####  tengshuo980  
+##### 115#       发表于 2021-9-10 12:43
+
+
+也不是反尼哥，主要是北欧实在感觉和黑人八竿子打不着，制作组就硬塞一个进去
+
+要是新战神是埃及背景有个黑皮人设估计也没人说啥
+
+

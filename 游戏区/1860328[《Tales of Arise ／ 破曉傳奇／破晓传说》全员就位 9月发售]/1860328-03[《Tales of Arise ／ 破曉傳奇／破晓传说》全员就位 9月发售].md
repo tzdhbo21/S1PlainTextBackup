@@ -6862,3 +6862,93 @@ Xbox的dlc会便宜一些吗？
 1070 8700k 2k基本全开 才玩序章 室内一点都不卡 
 
 
+
+
+*****
+
+####  wolfwood  
+##### 3569#       发表于 2021-9-10 12:33
+
+
+幸好没买首发，PC等优化好些了再说
+
+
+*****
+
+####  蓝雉  
+##### 3570#       发表于 2021-9-10 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52693572&amp;ptid=1860328" target="_blank">wolfwood 发表于 2021-9-10 12:33</a>
+幸好没买首发，PC等优化好些了再说</blockquote>
+pc优化没问题啊
+
+
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3571#       发表于 2021-9-10 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690741&amp;ptid=1860328" target="_blank">Ivent 发表于 2021-9-10 10:10</a>
+
+pc版优化那么差吗？1660ti能稳40以上吗，还没到家没法试</blockquote>
+1660ti全高稳60帧，我觉得优化非常强了
+
+
+*****
+
+####  zqqwe  
+##### 3572#       发表于 2021-9-10 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52692727&amp;ptid=1860328" target="_blank">zero33333 发表于 2021-9-10 11:48</a>
+原来2倍经验什么的不在究极版里啊，单独的，2周目可以解锁吗</blockquote>
+2倍经验和sp可以靠后期收集品叠出来，分别都有一个80%一个20%
+只有所需素材1那个是dlc独占
+前期如果想加速还是买个2倍吧
+
+
+*****
+
+####  zqqwe  
+##### 3573#       发表于 2021-9-10 12:37
+
+
+由于dlc的2倍文物是单独一个，推测可以和本篇的叠加
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 3574#       发表于 2021-9-10 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52693572&amp;ptid=1860328" target="_blank">wolfwood 发表于 2021-9-10 12:33</a>
+
+幸好没买首发，PC等优化好些了再说</blockquote>
+这次pc算神优化了，上面某些楼我觉得是自己的问题不是游戏的问题
+
+
+*****
+
+####  hypnossz86  
+##### 3575#       发表于 2021-9-10 12:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">15年换的4790k都能稳60，还可以了吧
+
+
+*****
+
+####  mazin001  
+##### 3576#       发表于 2021-9-10 12:37
+
+
+我的蒸汽版没有手柄震动
+
+有没有遇到一样问题的能告诉我解决方法<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
