@@ -9182,3 +9182,19 @@ syl 找到了，我sb了每次都进战斗再切，原来在外面也能切
 确实难度上相比以前是难了一点
 
 
+
+
+*****
+
+####  中泽君  
+##### 3770#       发表于 2021-9-11 03:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52705302&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-11 02:59</a>
+
+第二章过了，N难度重来3次药全用完了
+
+确实难度上相比以前是难了一点 ...</blockquote>
+分身会吟唱还经常瞬移，想好好打伤害都不行，简直是粪BOSS
+
+
