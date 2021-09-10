@@ -7427,3 +7427,52 @@ rx580 1080P 60帧左右.
 因为3060TI  1080P 200解析度是75-80帧.
 
 
+
+
+*****
+
+####  静静在想我  
+##### 3618#       发表于 2021-9-10 16:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696912&amp;ptid=1860328" target="_blank">塔奇克马 发表于 2021-9-10 16:20</a>
+满血移动3060和台式机3060差不多.
+
+推测50左右
+
+因为3060TI  1080P 200解析度是75-80帧. ...</blockquote>
+确实是满血的3060，看来这代优化确实很不错
+
+
+*****
+
+####  fateultraone  
+##### 3619#       发表于 2021-9-10 16:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696788&amp;ptid=1860328" target="_blank">静静在想我 发表于 2021-9-10 16:10</a>
+
+3060笔记本能稳定4k60吗？能的话我就退了ps版</blockquote>
+估计50帧左右吧，不一定要真4k 60帧降点渲染分辨率就行，反正比ps5强
+
+
+*****
+
+####  zzzzpapa  
+##### 3620#       发表于 2021-9-10 16:37
+
+
+iq限定版发货了
+
+
+*****
+
+####  无线未覆盖  
+##### 3621#       发表于 2021-9-10 16:40
+
+
+最近没啥游戏玩，能问一下传说的玩点主要在，战斗还是剧情还是啥么，jrpg玩的不多，就玩过ct和xb2吧，ct太老就不说了，xb2我感觉纯靠播片撑着动力，战斗系统一般般，支线和刷小黑开环有点劝退通关就没玩，想问传说属于侧重哪类<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
