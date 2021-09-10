@@ -8982,3 +8982,50 @@ md,早知道那些衣服都有技能我就买终极版了，不然那几件衣�
 <img src="https://img.saraba1st.com/forum/202109/11/001737hims2o1zcwr5iosj.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 3753#       发表于 2021-9-11 00:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52704180&amp;ptid=1860328" target="_blank">莱纳斯 发表于 2021-9-11 00:18</a>
+
+这是啥技术，成就全是not yet translation</blockquote>
+官方忘了翻译
+
+
+*****
+
+####  ky怪  
+##### 3754#       发表于 2021-9-11 00:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52704060&amp;ptid=1860328" target="_blank">kangkangsama 发表于 2021-9-11 00:08</a>
+现在整体下来有那些招比较实用啊</blockquote>
+我只用男女主。清堆怪就魔王炎击破、女主碧色刹那， 打灵活的敌人就魔神剑或者空破绝掌击，打倒地或者静止的目标就秋沙雨接炎派生
+
+
+*****
+
+####  origen  
+##### 3755#       发表于 2021-9-11 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52702426&amp;ptid=1860328" target="_blank">leafS 发表于 2021-9-10 22:04</a>
+按住L1+上下左右
+
+—— 来自 Xiaomi Redmi Note 8, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+谢谢
+
+
+*****
+
+####  reficul  
+##### 3756#       发表于 2021-9-11 00:37
+
+
+招式经验怎么能多一些？我刚刚学会了秋沙雨，出来一看经验有11了，所以不是非要打100次才升级，怎么样能刷的快一些？
+
+
