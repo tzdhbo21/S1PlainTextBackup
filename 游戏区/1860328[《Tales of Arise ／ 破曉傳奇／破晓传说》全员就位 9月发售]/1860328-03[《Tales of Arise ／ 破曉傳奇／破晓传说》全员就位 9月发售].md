@@ -6570,3 +6570,88 @@ tob的记忆已经模糊了 不过感觉这代的动作系统比tob好用 有那
 boss召小怪有点恶心，小怪本来就硬，五六个一起放魔法一大片死亡区
 
 
+
+
+*****
+
+####  天乃冥  
+##### 3542#       发表于 2021-9-10 10:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687821&amp;ptid=1860328" target="_blank">jimclack 发表于 2021-9-10 01:33</a>
+
+不至于，都不是开放世界，每块地图也很小读图黑屏，画面也就是dq11好一些的水准，老ps4玩起来没问题，当 ...</blockquote>
+好的，谢谢，下单了<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ivent  
+##### 3543#       发表于 2021-9-10 10:10
+
+
+pc版优化那么差吗？1660ti能稳40以上吗，还没到家没法试<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桧山修之  
+##### 3544#       发表于 2021-9-10 10:13
+
+
+都说ps4版的风扇声大，我的普通ps4玩起来很正常啊，没感觉得风扇有多大声，难道是玩下载版的原因吗？
+
+
+*****
+
+####  a7828986  
+##### 3545#       发表于 2021-9-10 10:14
+
+
+隔壁说优化挺好的啊
+
+1060 1080p可以拉满
+
+2070 2k可以拉满
+
+
+*****
+
+####  JC_AR  
+##### 3546#       发表于 2021-9-10 10:15
+
+
+草，为啥我开了那个测试计划游戏没了，叫我重新下载
+
+
+*****
+
+####  天堂蜘蛛  
+##### 3547#       发表于 2021-9-10 10:19
+
+
+有感觉这游戏视角有点晕的么？我拉到90帧还是晕视角请问怎么解决啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lisylfn  
+##### 3548#       发表于 2021-9-10 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690833&amp;ptid=1860328" target="_blank">JC_AR 发表于 2021-9-10 10:15</a>
+
+草，为啥我开了那个测试计划游戏没了，叫我重新下载</blockquote>
+你看看steam设置-下载里的库文件夹? 
+
+
+*****
+
+####  LMBS  
+##### 3549#       发表于 2021-9-10 10:20
+
+
+第二个BOSS有点离谱，召唤分身还会瞬移，战场乱得一逼，还经常放魔法林薇儿的BA完全不够用。
+不买dlc一路打下来差三四级，最后试了几次买了官方作弊器，练了会级到差一级好打多了
+
+

@@ -795,3 +795,34 @@ origin_202109100500345348.jpg
 视频里有一段都在刷床头灯给我笑傻了
 
 
+
+
+*****
+
+####  radar  
+##### 75#       发表于 2021-9-10 10:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689135&amp;ptid=2025548" target="_blank">codecloud 发表于 2021-9-10 08:22</a>
+我敢打赌,sony现在最后悔的是为什么白人奎秃和他的白人老婆居然没生出一个黑鬼儿子.这小鬼绝对不是奎秃亲儿 ...</blockquote>
+然而Kratos本来也是个黑叔叔的样子…
+
+
+*****
+
+####  Vladimeow  
+##### 76#       发表于 2021-9-10 10:20
+
+
+这索尔搞得和矮人一样也是没谁了
+
+
+*****
+
+####  popchong  
+##### 77#       发表于 2021-9-10 10:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">3代才是最有诸神黄昏味的
+
+

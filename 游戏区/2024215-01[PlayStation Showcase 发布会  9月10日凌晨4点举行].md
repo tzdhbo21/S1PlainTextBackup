@@ -4304,3 +4304,20 @@ gt是欧系</blockquote>
 还以为能有ff16的片<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">睡觉不看是对的
 
 
+
+
+*****
+
+####  ggssoo  
+##### 433#       发表于 2021-9-10 10:10
+
+
+战神看完感觉真的没啥感觉，更像前作大型资料篇，敌人的设计依旧又丑又土。。。。对比一下东京幽灵线敌人丰富设计观感差距真是太大了。
+
+无主缇娜冒险看着不错，胡逼的感觉比3本体有趣的多，起码不用担心被剧情喂屎，而且近战+枪械的新系统也比本体进步大的多，所以2K在做本体的时候到底在赣神魔。
+
+蜘蛛侠+金刚狼不知道是不是双开，不过是失眠组效率还可以，只是没展示太多东西也没啥可说的。
+
+SE那个Forspoken风格感觉怪怪的，感觉像个引擎展示片一样，顺便手上那几个环真不是致敬上气吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
