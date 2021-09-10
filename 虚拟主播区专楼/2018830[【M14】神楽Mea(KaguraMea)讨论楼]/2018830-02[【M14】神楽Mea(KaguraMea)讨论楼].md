@@ -11618,3 +11618,88 @@ calc 好耶！
 屮 刚说完就翻车
 
 
+
+
+*****
+
+####  雪风utopia  
+##### 2540#       发表于 2021-9-11 00:02
+
+
+就好翻车这口<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 2541#       发表于 2021-9-11 00:04
+
+
+今天都什么带人走调的伴奏。
+
+
+*****
+
+####  2014720  
+##### 2542#       发表于 2021-9-11 00:07
+
+
+这歌翻了我操尼玛神乐mea<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rem-清曲  
+##### 2543#       发表于 2021-9-11 00:18
+
+
+感觉现在才开嗓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2544#       发表于 2021-9-11 00:18
+
+
+又去厕所了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yywzjsw  
+##### 2545#       发表于 2021-9-11 00:25
+
+
+还以为要唱归路
+
+
+*****
+
+####  Rem-清曲  
+##### 2546#       发表于 2021-9-11 00:27
+
+
+混郎能不能别j8调音了，属于是整不明白这块 
+
+
+*****
+
+####  T_Hb  
+##### 2547#       发表于 2021-9-11 00:28
+
+
+ 本帖最后由 T_Hb 于 2021-9-11 00:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">唱的真好
+
+
+*****
+
+####  时间在我手中  
+##### 2548#       发表于 2021-9-11 00:29
+
+
+这道しろべ必秒混郎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

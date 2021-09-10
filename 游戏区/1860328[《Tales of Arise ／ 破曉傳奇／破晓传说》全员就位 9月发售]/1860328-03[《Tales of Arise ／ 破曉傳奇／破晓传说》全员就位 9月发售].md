@@ -8868,3 +8868,117 @@ BOSS出大招你就把作战设置成“什么都不做”，队友几乎闪避�
 妈的，本来这个月其他买的多，这个就准备先学习，以后打折再补。结果学习版问题多，搞烦了，上淘宝看国区key还可以，直接买了。还有银河战士限定版，那两个amiibo，pathfinder，暗黑2要买。
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 3744#       发表于 2021-9-11 00:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52698080&amp;ptid=1860328" target="_blank">elven119 发表于 2021-9-10 17:46</a>
+
+搞定了。但是进去看了下dlc带的东西，默默退出游戏删除了。。这简直太变态了。那些东西领完是不是就变成游 ...</blockquote>
+开头第一个43级的精英怪照样吊打你
+
+
+*****
+
+####  JudgmentEye  
+##### 3745#       发表于 2021-9-11 00:04
+
+
+ 本帖最后由 JudgmentEye 于 2021-9-11 00:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52702691&amp;ptid=1860328" target="_blank">粉色猛男 发表于 2021-9-10 22:20</a>
+
+这游戏的PC优化咋样？1050ti能跑中画质60的话就买了</blockquote>
+1650能关抗锯齿跑1080p最高画质，1050关点特效应该差不多
+
+
+*****
+
+####  kangkangsama  
+##### 3746#       发表于 2021-9-11 00:08
+
+
+现在整体下来有那些招比较实用啊
+
+
+*****
+
+####  金子一马  
+##### 3747#       发表于 2021-9-11 00:11
+
+
+md,早知道那些衣服都有技能我就买终极版了，不然那几件衣服那么难看谁要啊。现在要补完全不核算了。这gs评测也说的不清不楚，NB更是啥都没说。
+
+
+*****
+
+####  KuonjiClara  
+##### 3748#       发表于 2021-9-11 00:11
+
+
+已经有人研究出来带鱼屏全屏的方法了,爽到,就是动画会拉伸
+
+
+*****
+
+####  良臣没有重谢  
+##### 3749#       发表于 2021-9-11 00:12
+
+
+配置的话我3070能丝般润滑。
+
+感觉法师妹妹的连携大比女主酷太多了，女主就只能给男主发一把火之高兴，法师妹妹一抬手就是四属性的波。顺便一提跑路我是切这小妹妹了，小猫头鹰能找猫头鹰确实帮了大忙
+
+
+—— 来自 HONOR YOK-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  人如其名  
+##### 3750#       发表于 2021-9-11 00:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52704106&amp;ptid=1860328" target="_blank">良臣没有重谢 发表于 2021-9-11 00:12</a>
+配置的话我3070能丝般润滑。
+
+感觉法师妹妹的连携大比女主酷太多了，女主就只能给男主发一把火之高兴，法师 ...</blockquote>
+跑路用别的角**头鹰也会出来提示的
+
+
+
+
+*****
+
+####  guiminan  
+##### 3751#       发表于 2021-9-11 00:16
+
+
+进第二个地区后壮壮疯狂指点人生，死相可太明显了
+
+
+*****
+
+####  莱纳斯  
+##### 3752#       发表于 2021-9-11 00:18
+
+
+这是啥技术，成就全是not yet translation<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+1710.png
+(26.02 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-11 00:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001737hims2o1zcwr5iosj.png" referrerpolicy="no-referrer">
+
+

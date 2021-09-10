@@ -17284,3 +17284,153 @@ TV电视
 五十步笑一百步～
 
 
+
+
+*****
+
+####  名津流  
+##### 4397#       发表于 2021-9-11 00:11
+
+
+月刊 声优グランプリ 2021年10月号
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001057omcggzg2cxrf70pe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>01.jpg</strong> (538.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001058kqtk3fmb90m35sr0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>02.jpg</strong> (442.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001059b924905kuimuku0b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>03.jpg</strong> (497.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001101cfzt7i814yriyxtx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>04.jpg</strong> (497.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001102ngsd3ofhxx0nrxmt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>05.jpg</strong> (459.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001103pq2w0e00evvsyppp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>06.jpg</strong> (494.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001104w10zb3zjgnoaoogn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>07.jpg</strong> (461.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001106w2cezbyqfoc00bql.jpg" referrerpolicy="no-referrer">
+
+
+<strong>08.jpg</strong> (557.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001108rywctt2i6ucw3ozx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>09.jpg</strong> (621.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001110t8z0pppq1mys1lt8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>10.jpg</strong> (631.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/001113jxaex6aihhzm33ae.jpg" referrerpolicy="no-referrer">
+
+
+<strong>11.jpg</strong> (752.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 00:11 上传
+
+
+*****
+
+####  离心  
+##### 4398#       发表于 2021-9-11 00:19
+
+
+ 本帖最后由 离心 于 2021-9-11 00:20 编辑 
+
+叔叔家下周4到6话，看来走一口气放三话的节奏了……
+
+
+*****
+
+####  名津流  
+##### 4399#       发表于 2021-9-11 00:19
+
+
+B站更新了新番时间表 9月17日（下周5）更新4-6话
+
+
+*****
+
+####  优妮可  
+##### 4400#       发表于 2021-9-11 00:22
+
+
+那要分四批上了
+
+
