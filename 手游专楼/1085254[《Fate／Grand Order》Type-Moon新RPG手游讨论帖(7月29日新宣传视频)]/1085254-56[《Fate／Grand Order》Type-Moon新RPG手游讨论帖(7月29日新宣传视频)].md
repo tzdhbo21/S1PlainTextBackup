@@ -12640,3 +12640,23 @@ Azusa这个磨皮过度导致沸羊羊这皮肤看着跟石膏似的，B叔画�
 还是那句话都换人了为什么不用妖兰，还能无视配置<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在隔壁对新卡的脑测全是以国服环境和认知考虑的，他们还以为现在日服是蓝卡一家独大呢
 
 
+
+
+*****
+
+####  eyeego  
+##### 83572#       发表于 2021-9-10 18:45
+
+
+这不就是个稍微高配点的罗马？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白夜羽  
+##### 83573#       发表于 2021-9-10 19:00
+
+
+海牙，你游抽卡不都是看下体的吗，整天一惊一乍地战强度看强度抽卡的是不是有毛病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

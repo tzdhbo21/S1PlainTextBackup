@@ -7873,3 +7873,101 @@ Steam版买了dlc是不是不能退  还是我干脆把整个游戏退了 dlc�
 一些加成是可以自己关的
 
 
+
+
+*****
+
+####  oniwarud  
+##### 3657#       发表于 2021-9-10 18:42
+
+
+我感觉很多人说普通难度都很难打是不是因为不知道战斗中可以暂停吃药的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oniwarud  
+##### 3658#       发表于 2021-9-10 18:43
+
+
+<blockquote>majiyabakunei 发表于 2021-9-10 18:28
+ps5版的表现咋样呢，能4k60吗
+
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+不能，xsx可以
+
+
+*****
+
+####  喵喵叫的猫  
+##### 3659#       发表于 2021-9-10 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52698789&amp;ptid=1860328" target="_blank">majiyabakunei 发表于 2021-9-10 18:28</a>
+ps5版的表现咋样呢，能4k60吗
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+到不了 和试玩版差不多记得试玩版帧数模式1620p/60帧
+我用画质模式玩的，跑图固定几个点感觉会明显卡一下（不确定掉到30以下没）战斗倒是完全没影响
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3660#       发表于 2021-9-10 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52698675&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-10 18:22</a>
+面部表情这一块还是比较僵硬，打完别祖后希侬被奥尔芬直球后第一次娇，这么宝贵的的剧情，结果直接被那梆硬 ...</blockquote>
+整体演出风格差异吧，不像异度那么动画风，属于含蓄一点的
+这段我也好想重看的，然后发现没法重看3d过场...
+
+
+
+
+*****
+
+####  kangkangsama  
+##### 3661#       发表于 2021-9-10 18:48
+
+
+这些招升了星除了能学其他招式之外还能有什么变化吗
+
+
+招式又这么多每个用个几百次的好肝啊，而且同时只能装6个招式
+
+
+*****
+
+####  zqqwe  
+##### 3662#       发表于 2021-9-10 18:48
+
+
+看了a9的攻略，dlc服装给的术技不会是独占的吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">八岐大蛇和苍破追莲能正常解锁么
+
+
+*****
+
+####  余情自取  
+##### 3663#       发表于 2021-9-10 18:56
+
+
+退了ps4版买pc，全dlc解锁补丁太给力了我超<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+跟游戏资源相关的可以不急着领，但是服装不能没有
+
+
+*****
+
+####  喵喵叫的猫  
+##### 3664#       发表于 2021-9-10 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52698080&amp;ptid=1860328" target="_blank">elven119 发表于 2021-9-10 17:46</a>
+搞定了。但是进去看了下dlc带的东西，默默退出游戏删除了。。这简直太变态了。那些东西领完是不是就变成游 ...</blockquote>
+没那么夸张
+最低难度加全dlc（除了加等级的那个）打最开始的杂鱼也不是一下秒 boss更要打很久一不小心也会掉到半血一下 dlc给的武器过了第三个区域就要换了 也就是前期少省点时间
+
+况且传说系列这种dlc算传统，只不过过去几作有的功能是放在二周目解锁，但传说系列单次通关那么久的游戏我是死活不想碰二周目了
+
+

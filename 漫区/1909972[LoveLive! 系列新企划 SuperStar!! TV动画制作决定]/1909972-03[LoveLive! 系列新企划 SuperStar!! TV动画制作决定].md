@@ -17121,3 +17121,14 @@ cv有没关系 偶像不能有....
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">照片拍出了等比例放大的感觉
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 4386#       发表于 2021-9-10 18:47
+
+
+说来鬼头明理不也是虹团的吗，被文春给爆了不也没啥影响
+
+
