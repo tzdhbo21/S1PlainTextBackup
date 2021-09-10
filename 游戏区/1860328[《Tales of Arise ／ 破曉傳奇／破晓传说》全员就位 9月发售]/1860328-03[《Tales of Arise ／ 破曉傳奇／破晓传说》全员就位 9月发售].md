@@ -9218,3 +9218,16 @@ syl 找到了，我sb了每次都进战斗再切，原来在外面也能切
 打到洛入队，目前体验感觉十分的好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">。
 
 
+
+
+*****
+
+####  LT_Harry  
+##### 3773#         楼主| 发表于 2021-9-11 04:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52705312&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-9-11 03:03</a>
+分身会吟唱还经常瞬移，想好好打伤害都不行，简直是粪BOSS</blockquote>
+我困难难度只试了三次就过了，感觉没有那么难啊😅
+
+
