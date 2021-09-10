@@ -12320,3 +12320,32 @@ Azusa这个磨皮过度导致沸羊羊这皮肤看着跟石膏似的，B叔画�
 我单方面宣布楼里大佬画的才是真正的水夏，舔爆
 
 
+
+
+*****
+
+####  exiaexa  
+##### 83546#       发表于 2021-9-10 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52686287&amp;ptid=1085254" target="_blank">Humpy 发表于 2021-9-9 23:08</a>
+
+最近几天身体又不太好，今天舒服些了，画个FGO刚实装的泳装夏绿蒂1破当复健吧。
+
+之所以选一破是因为我觉得 ...</blockquote>
+夏洛特也算是底子还可以但是被画工坑出血的经典案例了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83547#       发表于 2021-9-10 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696406&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-9-10 15:41</a>
+
+夏洛特也算是底子还可以但是被画工坑出血的经典案例了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">但是建模很棒（
+
+

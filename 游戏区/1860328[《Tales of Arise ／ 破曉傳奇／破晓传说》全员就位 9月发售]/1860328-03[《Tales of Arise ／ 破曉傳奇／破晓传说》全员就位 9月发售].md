@@ -7306,3 +7306,124 @@ BA发动同时切人就是了
 有没试过对PRO手柄支持能力如何。。只有这个手柄了
 
 
+
+
+*****
+
+####  luozicheng  
+##### 3609#       发表于 2021-9-10 15:46
+
+
+一键全dlc解锁还行
+
+
+*****
+
+####  金子一马  
+##### 3610#       发表于 2021-9-10 15:49
+
+
+<blockquote>focus 发表于 2021-9-10 09:59
+第二关boss比别祖难好几倍，不买dlc要有心理准备</blockquote>
+我已经在受虐了，分身基本是破不了的
+
+
+*****
+
+####  塔奇克马  
+##### 3611#       发表于 2021-9-10 15:54
+
+
+PC优化应该没啥问题,开头.
+
+3060TI 1440P 200左右
+
+3060 1440P 160左右
+
+rx580 1080P 60帧左右. 
+
+
+*****
+
+####  sdfzzha  
+##### 3612#       发表于 2021-9-10 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696392&amp;ptid=1860328" target="_blank">liva 发表于 2021-9-10 15:40</a>
+有没试过对PRO手柄支持能力如何。。只有这个手柄了</blockquote>
+没问题，震动也有。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| liva| + 2|谢谢|
+
+
+查看全部评分
+
+
+*****
+
+####  静静在想我  
+##### 3613#       发表于 2021-9-10 16:10
+
+
+3060笔记本能稳定4k60吗？能的话我就退了ps版<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恋妖壶  
+##### 3614#       发表于 2021-9-10 16:14
+
+
+<blockquote>静静在想我 发表于 2021-9-10 16:10
+3060笔记本能稳定4k60吗？能的话我就退了ps版</blockquote>
+脑测一下感觉应该不能，除非全低
+
+
+*****
+
+####  GuardHei  
+##### 3615#       发表于 2021-9-10 16:16
+
+
+游戏电脑不在身边，没法玩<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  静静在想我  
+##### 3616#       发表于 2021-9-10 16:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696828&amp;ptid=1860328" target="_blank">恋妖壶 发表于 2021-9-10 16:14</a>
+脑测一下感觉应该不能，除非全低</blockquote>
+也是，但看到上面3060有说1440p 160，以为能行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  塔奇克马  
+##### 3617#       发表于 2021-9-10 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696788&amp;ptid=1860328" target="_blank">静静在想我 发表于 2021-9-10 16:10</a>
+
+3060笔记本能稳定4k60吗？能的话我就退了ps版</blockquote>
+满血移动3060和台式机3060差不多.
+
+推测50左右
+
+因为3060TI  1080P 200解析度是75-80帧.
+
+

@@ -1506,3 +1506,55 @@ ps2后期，当时大家普遍大场面还见的不多，战神2相比鬼泣鬼�
 上作女武神都打光了，这次能凑个啥强力战队呢
 
 
+
+
+*****
+
+####  ads147147  
+##### 133#       发表于 2021-9-10 15:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696190&amp;ptid=2025548" target="_blank">弹簧电光 发表于 2021-9-10 15:24</a>
+
+上作女武神都打光了，这次能凑个啥强力战队呢</blockquote>
+女武神算芙蕾雅的人吧，4里杀的是躯壳，女武神本来就是灵体状态的。如果芙蕾雅洗白了，自然女武神就算做奎爷这边的战队人选了。
+
+
+*****
+
+####  缤纷如落絮  
+##### 134#       发表于 2021-9-10 16:06
+
+
+ 本帖最后由 缤纷如落絮 于 2021-9-10 16:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52693679&amp;ptid=2025548" target="_blank">codecloud 发表于 2021-9-10 12:39</a>
+
+你这思维正见证了逆向文化冲击的可怕.
+
+北欧神话是啥?是老皮炎白人精神信仰的起源之一.如果这都能冒出各种 ...</blockquote>
+你该担心的不是玉帝换成白人或丧气人？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wx41122  
+##### 135#       发表于 2021-9-10 16:17
+
+
+黑妹脸比起泥哥更像东南亚那块的。
+
+4感觉战斗系统其实很丰富，能玩不少花样，但人物基本成型后打不了几场能全力发挥的战斗。5如果是偏战斗的大型dlc就……也还行吧。
+
+
+*****
+
+####  popchong  
+##### 136#       发表于 2021-9-10 16:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696737&amp;ptid=2025548" target="_blank">缤纷如落絮 发表于 2021-9-10 16:06</a>
+
+你该担心的不是玉帝换成白人或丧气人？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说真的西游记里出现深色皮肤人种都比北欧神话靠谱，至少唐朝真的有昆仑奴，佛教也源自古印度
+
+

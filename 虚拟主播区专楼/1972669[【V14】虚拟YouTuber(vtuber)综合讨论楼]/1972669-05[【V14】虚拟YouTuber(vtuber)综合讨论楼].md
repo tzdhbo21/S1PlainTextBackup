@@ -12970,3 +12970,46 @@ syl
 葵，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  OldGlory  
+##### 6960#       发表于 2021-9-10 15:47
+
+
+是不是听错了？烧到41度不是血氧41吧，血氧41光靠意志活过来是真的超人了。
+
+
+
+
+*****
+
+####  poipanchao  
+##### 6961#       发表于 2021-9-10 16:16
+
+
+血氧90下高烧41来着？
+90下在我们这好像就拉进去了，也就鬼子让你硬挺了
+
+
+*****
+
+####  Ketestrait  
+##### 6962#       发表于 2021-9-10 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52696296&amp;ptid=1972669" target="_blank">TiHaru 发表于 2021-9-10 15:32</a>
+
+血氧41没氧气罐挺过来了，甚至发了推特
+
+
+葵，我的超人</blockquote>
+那一段有错，跟后面的发烧到41℃吃退烧药没用，开始走马灯然后上推发みんなだいすき搞混了，直到后来打类固醇强行退烧。
+
+
+讲血氧浓度那一段是说本来让血氧降到95以下就打新冠专用急救电话，结果打了之后说派急救队员来却隔了整整一天才接到急救队员电话，问自己血氧浓度回没回复到96，回答有时能回到96后就被告知那就继续在家呆着。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">；
+
+后来保健所这个急救电话的阈值也不断降低，到后面就是要求血氧降到92以下再打急救电话了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
