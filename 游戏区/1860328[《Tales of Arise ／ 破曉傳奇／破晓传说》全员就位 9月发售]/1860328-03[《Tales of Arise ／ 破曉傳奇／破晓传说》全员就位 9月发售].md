@@ -9110,3 +9110,53 @@ md,早知道那些衣服都有技能我就买终极版了，不然那几件衣�
 神秘，明明玩起来跟前不久那个绯红结系没啥区别，我居然觉得还挺好玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  慕容断月  
+##### 3764#       发表于 2021-9-11 02:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52704912&amp;ptid=1860328" target="_blank">布里兰特 发表于 2021-9-11 01:39</a>
+终于玩上了，玩了一小会，感觉有些失望。最大的不满还是羊肠小道的地图吧，虽然知道传说系列一直是这样子， ...</blockquote>
+羊肠小道主要还是前面几个小时的地图吧，确实很菜，之前demo那张图就很大
+
+
+*****
+
+####  良臣没有重谢  
+##### 3765#       发表于 2021-9-11 02:06
+
+
+ 本帖最后由 良臣没有重谢 于 2021-9-11 02:09 编辑 
+
+每次进战斗怎么都是男主。每次都手动换人也太操蛋了，有没有能改默认操纵角色的方法啊
+
+syl 找到了，我sb了每次都进战斗再切，原来在外面也能切
+
+—— 来自 HONOR YOK-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  VictorWJ  
+##### 3766#       发表于 2021-9-11 02:11
+
+
+能不能来个好哥哥说下这作是单女主还是xb2
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  良臣没有重谢  
+##### 3767#       发表于 2021-9-11 02:20
+
+
+法师妹玩起来宛如官方外挂，打谁都是打靶 剩下三个角色变成了抗伤害破盾和放必杀回豆子的工具人
+
+—— 来自 HONOR YOK-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
