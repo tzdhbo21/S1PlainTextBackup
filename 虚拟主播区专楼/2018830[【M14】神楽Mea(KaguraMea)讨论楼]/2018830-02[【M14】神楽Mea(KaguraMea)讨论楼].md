@@ -11084,3 +11084,52 @@ yysy，生日第一首我还挺喜欢的，虽然mv本身我不会特意去循�
 她摆烂不播，我摆烂不买票，很般配
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2491#       发表于 2021-9-10 19:31
+
+
+10点歌回
+
+
+*****
+
+####  T_Hb  
+##### 2492#       发表于 2021-9-10 19:32
+
+
+牙拔光了唱歌不是漏风
+
+
+*****
+
+####  2014720  
+##### 2493#       发表于 2021-9-10 19:33
+
+
+没事，已经在天天翻车了
+
+
+*****
+
+####  Klience  
+##### 2494#       发表于 2021-9-10 19:36
+
+
+天天翻车+漏风 负负得正 又好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GRMeA104  
+##### 2495#       发表于 2021-9-10 19:42
+
+
+海苔男三周年会有神必嘉宾一起出场吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+12号这个傻卵扑克一股子廉价二次元赌场味,搞不懂yhm的想法<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+

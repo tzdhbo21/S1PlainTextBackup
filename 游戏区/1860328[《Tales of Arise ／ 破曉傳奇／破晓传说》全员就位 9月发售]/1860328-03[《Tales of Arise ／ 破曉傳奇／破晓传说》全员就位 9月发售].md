@@ -8078,3 +8078,29 @@ B财团这次没上D加密真的是血亏<img src="https://static.saraba1st.com/
 没开DLC打到麻婆老二,属实恶心到我了,半血开分身自己无敌读全屏大还则罢了,濒死连开两个秘奥义,纯纯的攻击力check打桩,放手游里就是明显的放置氪金点行为,估计买了1000血和等级就轻松加愉快了...
 
 
+
+
+*****
+
+####  人如其名  
+##### 3674#       发表于 2021-9-10 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52699477&amp;ptid=1860328" target="_blank">sodah 发表于 2021-9-10 19:10</a>
+只能说领了不会这么刮，我领了DLC打连战出的那龙也刮蛮久的。还有你操作不是很牛逼的话又不是特意练 ...</blockquote>
+想了一下可能是难度问题
+我是关卡着卡着就往下调到了普通
+爽快地向数值认输
+
+
+*****
+
+####  chan  
+##### 3675#       发表于 2021-9-10 19:35
+
+
+优化很好。3070 4k 60帧稳稳的。但是发现个问题，不知道是不是只有我这样:如果用无边框模式，菜单字体看起来像没有抗锯齿一样。切换成全屏就没问题
+
+—— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
