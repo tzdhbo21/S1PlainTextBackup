@@ -968,3 +968,123 @@ P了一张感觉毫无违和感<img src="https://static.saraba1st.com/image/smil
 哪里有说这部是北欧篇完结
 
 
+
+
+*****
+
+####  ads147147  
+##### 89#       发表于 2021-9-10 10:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691452&amp;ptid=2025548" target="_blank">hkguty 发表于 2021-9-10 10:47</a>
+看在洛基份上，拼个你死我活应该是不会的，不过感觉还是得打服为止</blockquote>
+比当年哈迪斯好多了，当年他老婆要灭世结果奎爷拦下来，哈迪斯自己反而是说我要宰了你复仇，就很草，虽然哈迪斯那段也是推给潘多拉魔盒的锅去了。
+
+奎爷新老婆芙蕾雅，然后被克妻宿命克死（
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ads147147  
+##### 90#       发表于 2021-9-10 10:51
+
+
+奥丁的脸都没有，怎么可能是完结篇，明显3部曲走的吧。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  hkguty  
+##### 91#       发表于 2021-9-10 10:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691489&amp;ptid=2025548" target="_blank">ads147147 发表于 2021-9-10 10:49</a>
+
+比当年哈迪斯好多了，当年他老婆要灭世结果奎爷拦下来，哈迪斯自己反而是说我要宰了你复仇，就很草，虽然 ...</blockquote>
+如果主导还是cory的话感觉不怎么可能会讲奎爷跟芙蕾雅有感情，倒是有可能写芙蕾雅视洛基为养子
+
+
+*****
+
+####  dren_zheng  
+##### 92#       发表于 2021-9-10 10:54
+
+
+老战神虽然也是变化不大，但它们是远景俯视模式啊，能做出很巨大很宏伟的场景和怪物，来提升玩家感官刺激
+
+新战神这越肩视角，很多东西玩不出花来，看起来就像是4代的资料篇了
+
+
+*****
+
+####  SergeGlenn  
+##### 93#       发表于 2021-9-10 10:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691313&amp;ptid=2025548" target="_blank">diketuiduoLI 发表于 2021-9-10 10:40</a>
+
+有采访链接吗？
+
+
+—— 来自 S1Fun</blockquote>
+[https://b23.tv/HwZFD8](https://b23.tv/HwZFD8)
+
+
+*****
+
+####  ads147147  
+##### 94#       发表于 2021-9-10 10:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691571&amp;ptid=2025548" target="_blank">hkguty 发表于 2021-9-10 10:53</a>
+
+如果主导还是cory的话感觉不怎么可能会讲奎爷跟芙蕾雅有感情，倒是有可能写芙蕾雅视洛基为养子 ...</blockquote>
+剧本大方向估计cory已经定好了，现在又冒出来说北欧篇这部就要结束，我猜这次故事的结尾也是以奎爷的死亡为结局。以这个结局反推的话也挺可能让奎爷死在芙蕾雅手上，芙蕾雅接过培养儿子的担子。
+
+
+*****
+
+####  放大镜  
+##### 95#       发表于 2021-9-10 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691597&amp;ptid=2025548" target="_blank">dren_zheng 发表于 2021-9-10 10:54</a>
+
+老战神虽然也是变化不大，但它们是远景俯视模式啊，能做出很巨大很宏伟的场景和怪物，来提升玩家感官刺激
+
+ ...</blockquote>
+越肩和宏伟不矛盾。
+
+
+带娃题材本来就少，梅开二度就特别扎眼，容易先入为主。
+
+且事实上就是资料片的可能性也不小。
+
+
+*****
+
+####  SergeGlenn  
+##### 96#       发表于 2021-9-10 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691458&amp;ptid=2025548" target="_blank">hkguty 发表于 2021-9-10 10:48</a>
+
+哪里有说这部是北欧篇完结</blockquote>
+Herman在后面的采访里说的，不知道有没有歧义
+
+<img src="https://img.saraba1st.com/forum/202109/10/110518n08v75s4xnzesk3d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-09-10-11-02-35-709_mark.via.jpg</strong> (110.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-10 11:05 上传
+
+

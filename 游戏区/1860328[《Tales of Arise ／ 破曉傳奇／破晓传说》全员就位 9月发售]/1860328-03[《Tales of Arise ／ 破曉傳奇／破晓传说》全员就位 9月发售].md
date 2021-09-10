@@ -6711,3 +6711,16 @@ pc版优化那么差吗？1660ti能稳40以上吗，还没到家没法试<img sr
 草，果然是万恶的动态模糊。关掉就好了。
 
 
+
+
+*****
+
+####  奈奈未喵  
+##### 3555#       发表于 2021-9-10 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690541&amp;ptid=1860328" target="_blank">focus 发表于 2021-9-10 09:59</a>
+第二关boss比别祖难好几倍，不买dlc要有心理准备</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer"> 今天多吃两碗饭 周末拼了
+
+

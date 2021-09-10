@@ -6284,3 +6284,16 @@ PVP副业原来是刷成就，10m成就相对好出，活动不算成就有点�
 这活动太玄学了，之前从9千万不停试错不停重来，500万500万往上爬，到1亿1死活上不去，连成就都拿不起。昨天把3个特训重扫了一遍，第一把本番就打了8kw，顿时傻眼。今天把舞蹈的又刷了一遍，然后本番樱一发sp打了58m直接把我送上1亿7，拿到了排行榜29<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">川咲樱yyds
 
 
+
+
+*****
+
+####  黄昏的轮回  
+##### 451#       发表于 2021-9-10 10:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">昨天上班撞车，但是挖矿挖出来的十连把爱出了，也不知道怎么说才好。新活动这个币我也懒得挖。这几张活动卡有没有大佬评价下好不好用啊，感觉已经没太多人玩了，我瞎几把打打活动都有五六百名。
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
