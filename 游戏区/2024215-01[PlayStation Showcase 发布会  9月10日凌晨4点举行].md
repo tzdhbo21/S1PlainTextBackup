@@ -4258,3 +4258,49 @@ gt是欧系</blockquote>
 我记得是个模拟跑团的游戏？
 
 
+
+
+*****
+
+####  医生狼多  
+##### 429#       发表于 2021-9-10 09:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690230&amp;ptid=2024215" target="_blank">peh 发表于 2021-9-10 09:39</a>
+问下小缇娜是独立作品还是无主3的dlc？</blockquote>
+衍生的独立游戏，播过几次片了
+
+
+*****
+
+####  1981112  
+##### 430#       发表于 2021-9-10 09:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690121&amp;ptid=2024215" target="_blank">陈玉礼 发表于 2021-9-10 09:32</a>
+休杰克曼的狼叔过于深入人心 不知道游戏版怎么处理</blockquote>
+参考妇联呗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莫夜戎  
+##### 431#       发表于 2021-9-10 09:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688563&amp;ptid=2024215" target="_blank">jockeyjoestar 发表于 2021-9-10 05:17</a>
+旧共和国武士在推特意外很火  美国佬是真喜欢星战啊</blockquote>
+开玩笑，星战可是美国的优秀传统文化！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">大家都喜欢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zayrq  
+##### 432#       发表于 2021-9-10 10:06
+
+
+还以为能有ff16的片<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">睡觉不看是对的
+
+

@@ -6453,3 +6453,120 @@ I can verify it's not working because of Steam Bet ...</blockquote>
 我怀疑2倍经验dlc才是困难的正常数值设计 昨天打到别祖 他15级我8级 秒的我头晕脑胀 刮了一小时痧才打过去 期间我无数次想氪金 
 
 
+
+
+*****
+
+####  LT_Harry  
+##### 3532#         楼主| 发表于 2021-9-10 09:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52689682&amp;ptid=1860328" target="_blank">DraQin 发表于 2021-9-10 09:07</a>
+然而其他家的游戏根本不会有这种非常不知所谓的问题
+并且如果这个解法能保证修好也就罢了，事实是这么做 ...</blockquote>
+其实有的，我初步怀疑是 Steam 的控制器方案和游戏自己的控制器映射方案有冲突造成的。有些支持 Steam Controller 的游戏会把我用的 Xbox One 控制器识别成前者，显示的也是前者的按键。
+
+
+*****
+
+####  hypnossz86  
+##### 3533#       发表于 2021-9-10 09:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690266&amp;ptid=1860328" target="_blank">奈奈未喵 发表于 2021-9-10 09:41</a>
+我怀疑2倍经验dlc才是困难的正常数值设计 昨天打到别祖 他15级我8级 秒的我头晕脑胀 刮了一小时痧才打过去  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">我记得tob和toz当年也是被这么喷的
+不过toz那个战斗姑且不提
+tob我一周目没买dlc全程最高难度打下来，除了最终boss是实在打不过以外，其他道中全部大小boss都是反复挑战几次就能过的
+
+
+*****
+
+####  不应  
+##### 3534#       发表于 2021-9-10 09:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">万代nm怎么做的优化，我都把画面调最低了结果还是ppt，你哪来的逼脸写推荐配置970，建议改成3070
+
+
+*****
+
+####  LT_Harry  
+##### 3535#         楼主| 发表于 2021-9-10 09:54
+
+
+一口气玩了两个小时，看来商店页面标注的推荐硬件要求所言不虚，我正好满足这个要求，可以达到稳定的 1080P/60帧率 性能。不得不说高帧率下动作反应真是迅速，感觉难度都低了一截。
+
+比较在意的地方有两个：其一是游戏里有 DLC 商品信息推送（这个好像游戏机上也有）；其二是简体字界面的 Steam 成就还没有翻译文本，所以现在的成就描述都是占位符。
+
+
+*****
+
+####  Lisylfn  
+##### 3536#       发表于 2021-9-10 09:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690370&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-9-10 09:49</a>
+
+其实有的，我初步怀疑是 Steam 的控制器方案和游戏自己的控制器映射方案有冲突造成的。有些支持 Steam Co ...</blockquote>
+游戏自己的和steam的就是会冲突...一直用DS4玩steam的都深有体会
+
+
+*****
+
+####  奈奈未喵  
+##### 3537#       发表于 2021-9-10 09:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690417&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-10 09:52</a>
+我记得tob和toz当年也是被这么喷的
+不过toz那个战斗姑且不提
+tob我一周目没买dlc全程最高难度打下 ...</blockquote>
+不会氪金的 我其实是显摆自己头铁 
+tob的记忆已经模糊了 不过感觉这代的动作系统比tob好用 有那个瞬间回避
+
+
+*****
+
+####  focus  
+##### 3538#       发表于 2021-9-10 09:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690266&amp;ptid=1860328" target="_blank">奈奈未喵 发表于 2021-9-10 09:41</a>
+
+我怀疑2倍经验dlc才是困难的正常数值设计 昨天打到别祖 他15级我8级 秒的我头晕脑胀 刮了一小时痧才打过去  ...</blockquote>
+第二关boss比别祖难好几倍，不买dlc要有心理准备
+
+
+*****
+
+####  最浅的语言  
+##### 3539#       发表于 2021-9-10 09:59
+
+
+有二周目要素吗 有的话一周目就不选困难难度了
+
+
+*****
+
+####  BRRM  
+##### 3540#       发表于 2021-9-10 10:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52690437&amp;ptid=1860328" target="_blank">不应 发表于 2021-9-10 09:53</a>
+
+万代nm怎么做的优化，我都把画面调最低了结果还是ppt，你哪来的逼脸写推荐配置970，建议改成3070 ...</blockquote>
+你一开始就ppt，还是打到什么地方变成ppt
+
+
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3541#       发表于 2021-9-10 10:00
+
+
+boss召小怪有点恶心，小怪本来就硬，五六个一起放魔法一大片死亡区
+
+
