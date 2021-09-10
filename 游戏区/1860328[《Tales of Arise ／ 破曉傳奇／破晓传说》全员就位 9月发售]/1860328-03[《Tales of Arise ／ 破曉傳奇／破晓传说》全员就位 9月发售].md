@@ -6181,3 +6181,38 @@ I can verify it's not working because of Steam Bet ...</blockquote>
 —— 来自 OnePlus HD1917, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  cqggff  
+##### 3509#       发表于 2021-9-10 08:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52687370&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-10 00:27</a>
+总担心错过了猫头鹰</blockquote>
+后面琳薇尔加入队伍后，地图有猫头鹰会有提示，不会错过
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  最浅的语言  
+##### 3510#       发表于 2021-9-10 08:15
+
+
+早上起来看了下sony发布会的总结，然后steam开始下载，晚上下班回来开冲<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  cqggff  
+##### 3511#       发表于 2021-9-10 08:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有人知道第一章换衣服那男的支线咋做吗,让我等,已经等了三章都没变化了
+
+

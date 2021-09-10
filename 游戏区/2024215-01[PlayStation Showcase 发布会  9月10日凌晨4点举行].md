@@ -3854,3 +3854,17 @@ https://www.resetera.com/threads/star-wars-knights-of-the-old-republic-remake-an
 索尼已经是白皮的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  咸鱼高达  
+##### 392#       发表于 2021-9-10 08:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52688563&amp;ptid=2024215" target="_blank">jockeyjoestar 发表于 2021-9-10 05:17</a>
+
+旧共和国武士在推特意外很火  美国佬是真喜欢星战啊</blockquote>
+什么叫意外……
+
+
