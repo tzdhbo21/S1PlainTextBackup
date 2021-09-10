@@ -624,9 +624,9 @@
     "newtitle": "[机战30发布会讨论贴]"
   },
   "2014516": {
-    "totalreply": 18720,
+    "totalreply": 18721,
     "title": "[原神（多平台）攻略讨论专楼#3（禁止新开讨论）]",
-    "lastedit": 1631306947,
+    "lastedit": 1631310053,
     "category": "手游专楼",
     "active": true,
     "newtitle": "[原神（多平台）攻略讨论专楼#3（禁止新开讨论）]"
@@ -792,9 +792,9 @@
     "newtitle": "[「がぁちぃ？」←これやめな]"
   },
   "2017705": {
-    "totalreply": 29991,
+    "totalreply": 29992,
     "title": "[【B32】VUP综合讨论楼]",
-    "lastedit": 1631307979,
+    "lastedit": 1631310547,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【B32】VUP综合讨论楼 - Liver看楼破防你楼概不负责]"
@@ -5813,7 +5813,7 @@
     "newtitle": "[我国11万人消费了四分之一的奢侈品]",
     "lastedit": 1630014382,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2022612": {
     "totalreply": 96,
@@ -10792,10 +10792,10 @@
     "active": true
   },
   "2025522": {
-    "totalreply": 98,
+    "totalreply": 99,
     "title": "[猜想这次破晓传说销量]",
     "newtitle": "[猜想这次破晓传说销量]",
-    "lastedit": 1631304615,
+    "lastedit": 1631310359,
     "category": "游戏区",
     "active": true
   },
@@ -10832,10 +10832,10 @@
     "active": true
   },
   "2025674": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[有没有那种可以保护脖子的防刺服]",
     "newtitle": "[有没有那种可以保护脖子的防刺服]",
-    "lastedit": 1631300940,
+    "lastedit": 1631310667,
     "category": "外野",
     "active": true
   },
@@ -10848,10 +10848,10 @@
     "active": true
   },
   "2025725": {
-    "totalreply": 155,
+    "totalreply": 156,
     "title": "[【A20】A-SOUL讨论楼]",
     "newtitle": "[【A20】A-SOUL讨论楼]",
-    "lastedit": 1631309482,
+    "lastedit": 1631310620,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -10900,6 +10900,14 @@
     "title": "[全国只有100多个调查记者了]",
     "newtitle": "[全国只有100多个调查记者了]",
     "lastedit": 1631309468,
+    "category": "外野",
+    "active": true
+  },
+  "2025716": {
+    "totalreply": 61,
+    "title": "[李硕： 殷商最后的人祭]",
+    "newtitle": "[李硕： 殷商最后的人祭]",
+    "lastedit": 1631310542,
     "category": "外野",
     "active": true
   }
