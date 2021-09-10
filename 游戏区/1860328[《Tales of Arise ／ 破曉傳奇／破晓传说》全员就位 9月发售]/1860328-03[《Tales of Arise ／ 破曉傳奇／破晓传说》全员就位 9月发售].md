@@ -9160,3 +9160,25 @@ syl 找到了，我sb了每次都进战斗再切，原来在外面也能切
 —— 来自 HONOR YOK-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
+
+
+*****
+
+####  Dag8  
+##### 3768#       发表于 2021-9-11 02:51
+
+
+是不是那个加成包挺值的
+
+
+*****
+
+####  Bani82  
+##### 3769#       发表于 2021-9-11 02:59
+
+
+第二章过了，N难度重来3次药全用完了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+确实难度上相比以前是难了一点
+
+
