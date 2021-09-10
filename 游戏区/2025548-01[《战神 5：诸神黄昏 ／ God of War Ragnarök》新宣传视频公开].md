@@ -1481,3 +1481,17 @@ ps2后期，当时大家普遍大场面还见的不多，战神2相比鬼泣鬼�
 不像现在，创意枯竭，成本上天，玩家群体审美疲劳，新鲜血液不往主机上走
 
 
+
+
+*****
+
+####  黄昏之月  
+##### 131#       发表于 2021-9-10 14:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52691328&amp;ptid=2025548" target="_blank">Ironman_mk5 发表于 2021-9-10 10:41</a>
+
+雷神怎么又变肥宅了，光头戴着上一部的无限手套时不小心打了个响指么</blockquote>
+上一部的背影明显看得出是个胖子
+
+
