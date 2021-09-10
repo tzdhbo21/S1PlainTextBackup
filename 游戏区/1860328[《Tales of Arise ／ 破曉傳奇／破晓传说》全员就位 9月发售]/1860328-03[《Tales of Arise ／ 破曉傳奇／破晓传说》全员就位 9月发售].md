@@ -7971,3 +7971,110 @@ ps5版的表现咋样呢，能4k60吗
 况且传说系列这种dlc算传统，只不过过去几作有的功能是放在二周目解锁，但传说系列单次通关那么久的游戏我是死活不想碰二周目了
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 3665#       发表于 2021-9-10 19:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52699138&amp;ptid=1860328" target="_blank">kangkangsama 发表于 2021-9-10 18:48</a>
+
+这些招升了星除了能学其他招式之外还能有什么变化吗
+
+
+招式又这么多每个用个几百次的好肝啊，而且同时只能装 ...</blockquote>
+菜单里按L1查看角色能力值（其他平台控制器的界面下方有对应按键提示
+
+那里写的熟练度才是学会新招式需要的点数
+
+
+升星是提高该技能的威力（旧作里部分技能有特殊变化，但本作似乎没有）
+
+
+*****
+
+####  kangkangsama  
+##### 3666#       发表于 2021-9-10 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52699342&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-10 19:01</a>
+
+菜单里按L1查看角色能力值（其他平台控制器的界面下方有对应按键提示
+
+那里写的熟练度才是学会新招式需要 ...</blockquote>
+主要也不清楚什么招式强，这么一来换招式的沉没成本还挺大的，更别说换角色了。
+
+
+*****
+
+####  lucky95  
+##### 3667#       发表于 2021-9-10 19:05
+
+
+太草了
+
+B财团这次没上D加密真的是血亏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucky95  
+##### 3668#       发表于 2021-9-10 19:05
+
+
+太草了
+
+B财团这次没上D加密真的是血亏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sodah  
+##### 3669#       发表于 2021-9-10 19:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说领了不会这么刮，我领了DLC打连战出的那龙也刮蛮久的。还有你操作不是很牛逼的话又不是特意练了级，第二章一样干不掉全部分身要被电疗。
+
+
+*****
+
+####  hypnossz86  
+##### 3670#       发表于 2021-9-10 19:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">别说了，上了d加密还能优化这么好？
+平均直降10帧好吧
+
+
+*****
+
+####  461757753  
+##### 3671#       发表于 2021-9-10 19:15
+
+
+开局的大螳螂刮了半天，结果半血召了一群小弟
+
+
+*****
+
+####  人如其名  
+##### 3672#       发表于 2021-9-10 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52699477&amp;ptid=1860328" target="_blank">sodah 发表于 2021-9-10 19:10</a>
+只能说领了不会这么刮，我领了DLC打连战出的那龙也刮蛮久的。还有你操作不是很牛逼的话又不是特意练 ...</blockquote>
+我没买dlc，17级左右刚打完第二章
+只要打掉一个分身就能剩个几百血
+
+
+*****
+
+####  entheos  
+##### 3673#       发表于 2021-9-10 19:18
+
+
+没开DLC打到麻婆老二,属实恶心到我了,半血开分身自己无敌读全屏大还则罢了,濒死连开两个秘奥义,纯纯的攻击力check打桩,放手游里就是明显的放置氪金点行为,估计买了1000血和等级就轻松加愉快了...
+
+

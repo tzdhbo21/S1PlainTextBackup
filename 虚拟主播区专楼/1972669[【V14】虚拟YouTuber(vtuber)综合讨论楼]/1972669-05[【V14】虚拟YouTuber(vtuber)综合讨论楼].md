@@ -13098,3 +13098,18 @@ syl
 担心这些有的没的，多打点钱让她来我们这治<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 6969#       发表于 2021-9-10 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52671176&amp;ptid=1972669" target="_blank">winda 发表于 2021-9-8 21:04</a>
+
+应该是tc上说的一只眼睛要做的網膜剥離手术，时间上和unite大会冲突</blockquote>
+[https://twitter.com/Naraka_2434/status/1436209356106731530?s=20](https://twitter.com/Naraka_2434/status/1436209356106731530?s=20) <blockquote>我 目 無事 ！！</blockquote>
+看来手术成功了
+
+
