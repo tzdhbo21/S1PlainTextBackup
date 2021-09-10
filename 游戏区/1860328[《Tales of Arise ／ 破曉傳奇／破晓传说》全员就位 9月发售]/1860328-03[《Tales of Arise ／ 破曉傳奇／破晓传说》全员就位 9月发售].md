@@ -6808,3 +6808,14 @@ dlc技能都是和本篇重复用来叠数值的，不是强迫症没必要在�
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">被二领主揍的鼻青脸肿
 
 
+
+
+*****
+
+####  d-scher  
+##### 3564#       发表于 2021-9-10 11:36
+
+
+画面看着不错，观望中，有没有通关的大佬说说剧情上有没有雷点？
+
+
