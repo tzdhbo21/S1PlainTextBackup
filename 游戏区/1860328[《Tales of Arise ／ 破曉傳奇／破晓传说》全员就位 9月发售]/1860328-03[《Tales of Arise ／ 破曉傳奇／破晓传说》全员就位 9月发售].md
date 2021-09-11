@@ -12841,3 +12841,16 @@ DLC溜达了一圈看得我直呼内行，买个联动包意思下了，早知�
 有些技能举盾时是不能放的，这个特性设计感觉像是弥补盾娘没有闪避不能闪避反击的问题
 
 
+
+
+*****
+
+####  DraQin  
+##### 4069#       发表于 2021-9-12 03:34
+
+
+推完第二章以后发现迄今为止我打的最爽的怪反倒是监狱塔那个红色铠甲的骑士<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打BOSS和精英怪真的没有感觉很爽，打完了只会有一种终于结束了的解脱感
+
+— from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
