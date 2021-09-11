@@ -11470,3 +11470,37 @@ gs的几个喷点其实还都没说错<img src="https://static.saraba1st.com/ima
 风大师和dlc解锁补丁都有了
 
 
+
+
+*****
+
+####  fuochai  
+##### 3955#       发表于 2021-9-11 19:31
+
+
+玩的次级，打完三个领地，没觉得经验卡得很死啊，就是不给越级罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+rpg不需要刷经验、那等于说这个经验系统的设计就是废的
+
+
+*****
+
+####  fuochai  
+##### 3956#       发表于 2021-9-11 19:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710963&amp;ptid=1860328" target="_blank">lelouchwang 发表于 2021-9-11 18:20</a>
+为啥女主让电脑自动打还能用我没装备的技能普攻也能放激光炮和蹲下射击 ...</blockquote>
+电脑操作是从勾选的那一堆里用的 和玩家使用的ref配置不同
+
+
+*****
+
+####  mhfdt  
+##### 3957#       发表于 2021-9-11 19:38
+
+
+电脑打的比我好.jpg
+
+这代手操只有六个技能，而且强制地上三天上三，就导致连招被限的死死的，为了练技能还总得想办法用，就导致打起来一点节奏感没有
+
+
