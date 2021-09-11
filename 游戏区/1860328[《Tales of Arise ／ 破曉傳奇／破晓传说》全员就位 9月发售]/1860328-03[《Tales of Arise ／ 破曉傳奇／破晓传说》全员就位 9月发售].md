@@ -10262,3 +10262,48 @@ BOSS战不能破刚体连来连去，最多触发down硬直（强度考虑勉强
 其实你仔细看说明，最后就提示你可能会遇到稀有种。这龙不难，我困难难度低六级都能打败。
 
 
+
+
+*****
+
+####  Bani82  
+##### 3854#       发表于 2021-9-11 13:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52708017&amp;ptid=1860328" target="_blank">名字已被吃 发表于 2021-9-11 12:03</a>
+
+艹，现在主机板只能改战斗状态的按键
+
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+你在系统设置O和X反转就完美解决了
+
+
+*****
+
+####  Bani82  
+##### 3855#       发表于 2021-9-11 13:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52708117&amp;ptid=1860328" target="_blank">山风短 发表于 2021-9-11 12:17</a>
+
+有没有男主技能配置阿，感觉乱配的都不好用</blockquote>
+突进/飞道
+
+连击
+
+挑空/下砸
+
+
+空中地上配置一样
+
+
+*****
+
+####  haru橙子  
+##### 3856#       发表于 2021-9-11 13:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剧情后面致敬了xb2经典桥段，你这么演我可就不困了
+
+
