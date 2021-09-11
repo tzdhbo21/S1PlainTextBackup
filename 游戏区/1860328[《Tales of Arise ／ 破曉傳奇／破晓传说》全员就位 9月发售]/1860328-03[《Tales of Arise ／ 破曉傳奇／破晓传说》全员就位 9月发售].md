@@ -12120,3 +12120,74 @@ DLC就算不选官方经验值金手指都是10级开局
 为啥你们会觉得缺经验啊，我只带了一个加20%sp的dlc，次等难度，打别祖的时候都11级了，轻松过的，现在到雪国都14级了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  后入芙蓉王  
+##### 4008#       发表于 2021-9-11 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52714398&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-9-11 22:53</a>
+
+为啥你们会觉得缺经验啊，我只带了一个加20%sp的dlc，次等难度，打别祖的时候都11级了，轻松过的，现在到雪 ...</blockquote>
+调成困难啊，看看接下来的下水道BOSS和光领主能不能把你恶心死
+
+
+*****
+
+####  千千千千鸟  
+##### 4009#       发表于 2021-9-11 23:01
+
+
+ 本帖最后由 千千千千鸟 于 2021-9-11 23:05 编辑 
+
+困难第二章泥怪BOSS，打完我6个复活药和3个大药才过，也太恶心了这设计，一直招小怪，小怪无限放技能，萝莉的反制CD根本跟不上，被打的满地跑。而且锁定老是自动切到BOSS身上我不知道怎么回事，切到小怪身上打的好好的突然就切到BOSS上面，然后技能放空，气死了。最后变成小怪一出来，就满场找读条的小怪放轰霸打断，打断一个下一个，中途还要躲BOSS各种招，最烦的还是锁定老是自动切到boss身上，打的贼折磨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+而且队友AI好像躲不掉boss飞天下砸或者是躲不过小怪的技能？反正老是死，最后打到Boss最后一格血顶着小怪莽死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+对了等级是15级。
+
+
+*****
+
+####  蓝雉  
+##### 4010#       发表于 2021-9-11 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52714475&amp;ptid=1860328" target="_blank">后入芙蓉王 发表于 2021-9-11 23:01</a>
+调成困难啊，看看接下来的下水道BOSS和光领主能不能把你恶心死</blockquote>
+困难不是二周目才考虑到问题了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千千千千鸟  
+##### 4011#       发表于 2021-9-11 23:04
+
+
+软泥BOSS出来之后气得我把自制的武器全卖了，钱全部买药，再换上DLC武器，明天再打了，打这一个boss比玩一晚上还累<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七氷  
+##### 4012#       发表于 2021-9-11 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52714221&amp;ptid=1860328" target="_blank">makar0601 发表于 2021-9-11 22:40</a>
+技能要先打中</blockquote>
+都贴身放技能了，然后按xa就是没反应<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  supersssbc  
+##### 4013#       发表于 2021-9-11 23:08
+
+
+<blockquote>七氷 发表于 2021-9-11 23:07
+都贴身放技能了，然后按xa就是没反应</blockquote>
+长按，要按1秒以上
+
+
