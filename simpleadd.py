@@ -21,9 +21,9 @@ while 1:
         print(u"早就有了！更新时间")
         thdata[threadid]['active'] = True
     else:
-        print(u'请输入版面分类代号：\n1 = 外野，11 = 外野专楼\n2 = 漫区\n3 = 游戏区，33 = 游戏区专楼\n4 = 虚拟主播区专楼')
+        print(u'请输入版面分类代号：\n1 = 外野，11 = 外野专楼\n2 = 漫区\n3 = 游戏区，33 = 手游专楼\n4 = 虚拟主播区专楼')
         threadcategory  = input(u'我选：')
-        catechooser = {'1':'外野','11':'外野专楼','2':'漫区','3':'游戏区','33':'游戏区专楼','4':'虚拟主播区专楼'}
+        catechooser = {'1':'外野','11':'外野专楼','2':'漫区','3':'游戏区','33':'手游专楼','4':'虚拟主播区专楼'}
         # newthread = {"id": threadid,"totalreply": 0,"title": "待更新","lastedit": ,"category": ,"active": True}
         thdata[threadid] = {}
         thdata[threadid]['totalreply'] = 0
