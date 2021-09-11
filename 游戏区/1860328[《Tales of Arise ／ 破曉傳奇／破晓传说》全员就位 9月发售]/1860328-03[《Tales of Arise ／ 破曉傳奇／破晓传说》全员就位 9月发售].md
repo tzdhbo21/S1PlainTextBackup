@@ -10348,3 +10348,116 @@ BOSS战不能破刚体连来连去，最多触发down硬直（强度考虑勉强
 BOSS加钢体就算了，小兵也钢体，不清楚制作人怎么想的，不让越级杀怪？
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 3860#       发表于 2021-9-11 14:22
+
+
+ 本帖最后由 JudgmentEye 于 2021-9-11 14:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707222&amp;ptid=1860328" target="_blank">leafS 发表于 2021-9-11 10:44</a>
+
+问一下，之前只玩过热情传说，这游戏的自动手动半自动到底有啥区别？我看游戏里的描述以为手动是全程需要自 ...</blockquote>
+自动是全交给电脑打你不用碰手柄，想让电脑用哪些技能不用哪些技能你可以事先在菜单里开关，半自动是电脑帮你锁定敌人帮你移动，你只要按攻击按闪避按事先绑定技能的按键就行，手动是格斗游戏
+
+
+*****
+
+####  qiyu1234  
+##### 3861#       发表于 2021-9-11 14:23
+
+
+ 本帖最后由 qiyu1234 于 2021-9-11 14:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709165&amp;ptid=1860328" target="_blank">后入芙蓉王 发表于 2021-9-11 14:19</a>
+
+玩到下水道，打怪感像是在跳舞，没有啥手感可言
+
+
+怪物自己一套动作，玩家角色自己一套动作，破不了防就是等 ...</blockquote>
+咏唱中的敌人用琳薇尔的BA打down（或者男主火剑万能打down,其他角色的BA也是针对性的对策技）
+
+
+对付咏唱BOSS也可以 但BOSS处在 OVL状态下不行（全身发蓝光）
+
+
+*****
+
+####  makar0601  
+##### 3862#       发表于 2021-9-11 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52708951&amp;ptid=1860328" target="_blank">haru橙子 发表于 2021-9-11 13:55</a>
+剧情后面致敬了xb2经典桥段，你这么演我可就不困了</blockquote>
+叫你致敬没叫你超越<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  JudgmentEye  
+##### 3863#       发表于 2021-9-11 14:28
+
+
+ 本帖最后由 JudgmentEye 于 2021-9-11 14:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52704473&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-11 00:51</a>
+
+我的意思就是我刚学会的秋沙雨，明显不可能在那一场战斗里用11次啊，这里肯定有什么加成了 ...</blockquote>
+
+
+技能使用次数和经验值是两套数值，同类技能使用到一定次数加经验，不用只使用秋沙雨，比如你3个技能全是对空型，那使用任何一个技能都会加经验
+
+
+*****
+
+####  久井路路  
+##### 3864#       发表于 2021-9-11 14:28
+
+
+游戏今天刚送到，总之先推到我最感兴趣的林薇尔入队了
+
+
+同样是为达目的不择手段，这女主在我这里的观感实在很难说能企及贝姐米拉，不仅对谁都没好气，只要抓得到机会还会精准踩雷，踩完了还得男主来缓和气氛，堪称一个情商负值。
+
+
+米拉顶多算不食人间烟火的合理主义者，戳人痛处的发言本身只是她性格天然，并没有恶意，而破晓女主的某些发言我怎么听怎么像是在挑衅，而且米拉也早早就有操使四大和不惜炸腿也要砍死boss的高光表现，很明显长处描写很多
+
+
+贝姐抱有恶意的对象只有一个，其余的凡是不拦着她她也懒得管，所以也不会特地嘴臭谁（除了某个屑魔女），而且口才也在线，贝姐扔硬币拉艾森入队那段可是帅得不正常
+
+
+相比之下，破晓女主要是一直都这副样子我很难喜欢上啊（
+
+
+不晓得推到什么时候我能看到能对她有所改观的情节，现在就先当是未来可期吧（
+
+
+*****
+
+####  蓝雉  
+##### 3865#       发表于 2021-9-11 14:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709254&amp;ptid=1860328" target="_blank">久井路路 发表于 2021-9-11 14:28</a>
+游戏今天刚送到，总之先推到我最感兴趣的林薇尔入队了
+
+
+同样是为达目的不择手段，这女主在我这里的观感实在 ...</blockquote>
+希侬这明显是因为诅咒所以刻意疏远别人啊
+
+
+*****
+
+####  reficul  
+##### 3866#       发表于 2021-9-11 14:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709249&amp;ptid=1860328" target="_blank">JudgmentEye 发表于 2021-9-11 14:28</a>
+
+
+技能使用次数和经验值是两套数值，同类技能使用到一定次数加经验，不用只使用秋沙雨，比如 ...</blockquote>
+没懂，游戏里显示的count是次数吧？那经验是在哪里看的
+
+
