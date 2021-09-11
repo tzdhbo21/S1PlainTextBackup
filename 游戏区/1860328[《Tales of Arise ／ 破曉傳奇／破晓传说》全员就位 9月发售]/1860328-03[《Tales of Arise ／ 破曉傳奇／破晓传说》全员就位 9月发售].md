@@ -11607,3 +11607,117 @@ rpg不需要刷经验、那等于说这个经验系统的设计就是废的
 现在一周目看了下攻略好像快打完了，有二周目的话我就直接开二周目？
 
 
+
+
+*****
+
+####  武者小路紫苑  
+##### 3967#       发表于 2021-9-11 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52712188&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2021-9-11 20:18</a>
+
+年轻人的第一款传说，请问下这个有多周目要素吗
+
+现在一周目看了下攻略好像快打完了，有二周目的话我就直接 ...</blockquote>
+我也刚开始玩，不过传说系列一直有丰富的多周目要素。不出意外的话，战斗后结算的score值会一直累积到通关，在二周目开始前用来购买各种奖励要素和挑战要素
+
+
+*****
+
+####  JudgmentEye  
+##### 3968#       发表于 2021-9-11 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52712188&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2021-9-11 20:18</a>
+
+年轻人的第一款传说，请问下这个有多周目要素吗
+
+现在一周目看了下攻略好像快打完了，有二周目的话我就直接 ...</blockquote>
+有，系列传统
+
+
+*****
+
+####  JudgmentEye  
+##### 3969#       发表于 2021-9-11 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52711039&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-11 18:27</a>
+
+wizard什么时候支持啊，我tm要改爆</blockquote>
+一般一星期吧，大作可能三四天
+
+
+*****
+
+####  fuochai  
+##### 3970#       发表于 2021-9-11 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52711995&amp;ptid=1860328" target="_blank">索非亚 发表于 2021-9-11 20:05</a>
+普通难度第二领主 ，半血时候那读大招得把所有分身都打掉才能解除？我16级打掉一个已经极限了 ...</blockquote>
+饰品伤害减半 硬抗就行了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+趁机多输出分身
+
+
+*****
+
+####  后入芙蓉王  
+##### 3971#       发表于 2021-9-11 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709460&amp;ptid=1860328" target="_blank">电风扇 发表于 2021-9-11 14:52</a>
+
+just回避，J回后普通攻击会变为追踪攻击+必定破防</blockquote>
+道理大家都知道，但这样打确实太恶心了
+
+
+*****
+
+####  Luminous脑壳痛  
+##### 3972#       发表于 2021-9-11 20:24
+
+
+这么一看gs的评分其实还好，除了战斗评价都不太离谱
+
+
+*****
+
+####  RushMove  
+##### 3973#       发表于 2021-9-11 20:26
+
+
+我次级难度打到第一章boss男女主才8级，boss15级，几乎吃一招就被秒。当时我还怀疑我是不是错过了什么重要的内容。原来就是逼氪金啊。
+
+
+*****
+
+####  后入芙蓉王  
+##### 3974#       发表于 2021-9-11 20:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709199&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-11 14:23</a>
+
+咏唱中的敌人用琳薇尔的BA打down（或者男主火剑万能打down,其他角色的BA也是针对性的对策技）
+
+
+对付咏唱BO ...</blockquote>
+BA是有限的，蓄力火剑出招速度也不是很快，蓄力的时候有可能直接被反打一套
+
+
+打到下水道那个BOSS真是把我打恶心了，一直招唤咏唱怪
+
+
+虽然不是打不过这BOSS，但真的不喜欢这种明明看着对面小怪咏唱你却无能为力的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 3975#       发表于 2021-9-11 20:37
+
+
+盾姐停龙车要一定刚好冲过来才能停吗，打领主就停成功两次，一次还是过场动画
+
+
