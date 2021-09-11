@@ -6781,3 +6781,20 @@ dev推送了184，升级完蓝牙打不开了…………
 7+ taskbar tweaker 大部分功能都无法支持了 但好像 open last window 好像还能用？
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 558#       发表于 2021-9-11 22:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52692126&amp;ptid=2011727" target="_blank">剑起苍斓 发表于 2021-9-10 11:18</a>
+
+问一下老笔记本7代U，试了下GitHub上的whynotwin11，只有CPU是不兼容，能正常升么
+
+
+—— 来自 OnePlus ONEP ...</blockquote>
+安装文件删掉/sources/appraiserres.dll直接装就行，我4代都能
+
+

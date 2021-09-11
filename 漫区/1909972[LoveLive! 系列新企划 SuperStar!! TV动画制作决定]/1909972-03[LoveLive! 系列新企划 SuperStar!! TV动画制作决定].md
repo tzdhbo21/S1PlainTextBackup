@@ -17598,3 +17598,43 @@ NTR本子好多都是发生在青梅竹马关系之中，虽然可能苦主从�
 上海偶像是百合（其实想说后面的点会长脸颊看起来更姬）
 
 
+
+
+*****
+
+####  Jobtownb  
+##### 4414#       发表于 2021-9-11 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52712582&amp;ptid=1909972" target="_blank">Piano-Forest 发表于 2021-9-11 20:43</a>
+ラブライブ！スーパースター!! Comic Book 2人の時間! ～Special times～（１）封面，2021年9月30日发售
+
+
+ ...</blockquote>
+2人？真就C25<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AlfredXC  
+##### 4415#       发表于 2021-9-11 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52712582&amp;ptid=1909972" target="_blank">Piano-Forest 发表于 2021-9-11 20:43</a>
+
+ラブライブ！スーパースター!! Comic Book 2人の時間! ～Special times～（１）封面，2021年9月30日发售
+
+
+ ...</blockquote>
+夹手（
+
+
+*****
+
+####  lj205  
+##### 4416#       发表于 2021-9-11 22:57
+
+
+嗯？等等，手放哪呢？
+
+
