@@ -9349,3 +9349,27 @@ Hard难度不手控奥尔芬的话感觉他死的超级快，三个小怪都能�
 提醒下，别忘了把战斗改成手动模式，传说老玩家肯定上来就改了，很多新入坑的估计都不知道这东西吧，游戏默认是半自动操作模式，需要设置才能变成手动
 
 
+
+
+*****
+
+####  不应  
+##### 3784#       发表于 2021-9-11 07:55
+
+
+猫头鹰是是每个地图地图都有吗，打到第二章找到了5个。只有猫耳朵没有猫尾巴，好急
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  蓝雉  
+##### 3785#       发表于 2021-9-11 08:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52705658&amp;ptid=1860328" target="_blank">loley 发表于 2021-9-11 06:47</a>
+玩到第三个领国，突然发现过场里一个搞笑的细节。杜欧哈林第一次见主角团请吃饭，大伙都戒心很重不肯吃，只 ...</blockquote>
+吃不饱的女人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
