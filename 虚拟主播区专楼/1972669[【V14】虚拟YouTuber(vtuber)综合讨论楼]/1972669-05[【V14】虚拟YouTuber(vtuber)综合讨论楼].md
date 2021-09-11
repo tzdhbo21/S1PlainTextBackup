@@ -13160,3 +13160,23 @@ Note: - Vsinger - のライブ配信
 cytus2和花谱联动，有点想回归你游了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  FCCHua  
+##### 6973#       发表于 2021-9-11 12:29
+
+
+看爱丽丝那个说法小海牛也已经到青春期或者说反抗期了吗，时间过好快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 6974#       发表于 2021-9-11 12:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一直都在想小海牛这从小看到大，养成感太强了。
+
+

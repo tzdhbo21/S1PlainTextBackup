@@ -10028,3 +10028,121 @@ nga居然有人在裱剧情+jrpg
 有没有男主技能配置阿，感觉乱配的都不好用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  laosai13  
+##### 3837#       发表于 2021-9-11 12:21
+
+
+感觉很神秘啊这个游戏为什么时可以传送时不行，什么时候算是可以？
+
+
+*****
+
+####  jhjy217  
+##### 3838#       发表于 2021-9-11 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52708117&amp;ptid=1860328" target="_blank">山风短 发表于 2021-9-11 12:17</a>
+有没有男主技能配置阿，感觉乱配的都不好用</blockquote>
+同问
+我都一直在瞎jb打……
+
+
+*****
+
+####  allenz3  
+##### 3839#       发表于 2021-9-11 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52708108&amp;ptid=1860328" target="_blank">redsibyl 发表于 2021-9-11 12:16</a>
+问一哈，上来看动画，这么多国家，不会跟轨迹一样用n部完结吧，还是传说就一部一个故事 ...</blockquote>
+一部讲完
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Chia  
+##### 3840#       发表于 2021-9-11 12:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52708142&amp;ptid=1860328" target="_blank">laosai13 发表于 2021-9-11 12:21</a>
+
+感觉很神秘啊这个游戏为什么时可以传送时不行，什么时候算是可以？</blockquote>
+目前感觉是
+
+剧情空气墙，或者希望你“偶遇”某段剧情时就不行
+
+
+
+
+*****
+
+####  oniwarud  
+##### 3841#       发表于 2021-9-11 12:25
+
+
+<blockquote>redsibyl 发表于 2021-9-11 12:16
+问一哈，上来看动画，这么多国家，不会跟轨迹一样用n部完结吧，还是传说就一部一个故事 ...</blockquote>
+一作完结。说是国家，但是世界观基本上经不起多少推敲，每个国家的探索空间就跟个屯差不多，你可以把这世界理解成是宝可梦的地区，上面有不同属性的道馆，你的目标就是击败各个道馆馆主拿到对应属性的徽章<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SaitoYuki  
+##### 3842#       发表于 2021-9-11 12:27
+
+
+微软商店标的豪华版内容是错的啊，没那几个衣服，买了豪华版血亏<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjk  
+##### 3843#       发表于 2021-9-11 12:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52708142&amp;ptid=1860328" target="_blank">laosai13 发表于 2021-9-11 12:21</a>
+
+感觉很神秘啊这个游戏为什么时可以传送时不行，什么时候算是可以？</blockquote>
+有沿途触发过场动画的需求
+
+
+*****
+
+####  zero33333  
+##### 3844#       发表于 2021-9-11 12:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707463&amp;ptid=1860328" target="_blank">名字已被吃 发表于 2021-9-11 11:07</a>
+
+非战斗状态下的按键，pc版能改？
+
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+可以，按键分四组，大地图，菜单，战斗，钓鱼，都可以设置，不同手柄配置不同，挺用心的，以nspro为例子，如下图
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/123910ursqe24fqx0lt4ts.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210911123850.png</strong> (84.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-11 12:39 上传
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 3845#       发表于 2021-9-11 12:40
+
+
+只能说左下角的小剧场会被loading打断真的太难受了，我记得有部分jrpg是这种语音就算是loading也能继续播放的
+
+
