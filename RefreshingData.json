@@ -288,9 +288,9 @@
     "newtitle": "[【V14】虚拟YouTuber(vtuber)综合讨论楼]"
   },
   "2000025": {
-    "totalreply": 3207,
+    "totalreply": 3209,
     "title": "[推荐小约翰可汗的“奇葩小国”系列]",
-    "lastedit": 1631335244,
+    "lastedit": 1631337643,
     "category": "外野",
     "active": true,
     "newtitle": "[推荐小约翰可汗的“奇葩小国”系列]"
@@ -352,9 +352,9 @@
     "newtitle": "[【H】黑泥楼3]"
   },
   "2001963": {
-    "totalreply": 13220,
+    "totalreply": 13221,
     "title": "[戰慄の解答編『寒蝉鸣泣之时 卒』专楼，7.1两集连播]",
-    "lastedit": 1631336454,
+    "lastedit": 1631337643,
     "category": "漫区专楼",
     "active": true,
     "newtitle": "[戰慄の解答編『寒蝉鸣泣之时 卒』专楼  『神樂編』]"
@@ -440,9 +440,9 @@
     "newtitle": "[夏色（なついろ）まつり／夏色祭 祭丝日记楼]"
   },
   "1860328": {
-    "totalreply": 3847,
+    "totalreply": 3851,
     "title": "[《Tales of Arise ／ 破曉傳奇／破晓传说》全员就位 9月发售]",
-    "lastedit": 1631336461,
+    "lastedit": 1631337651,
     "category": "游戏区",
     "active": true,
     "newtitle": "[《Tales of Arise ／ 破曉傳奇／破晓传说》8月18日试玩 9月发售]"
@@ -560,9 +560,9 @@
     "newtitle": "[21.07『小林家的龙女仆S／小林さんちのメイドラゴンS』]"
   },
   "1982993": {
-    "totalreply": 1320,
+    "totalreply": 1321,
     "title": "[21.07『白沙的水族馆 ／ 白い砂のアクアトープ』专楼 07.08放送]",
-    "lastedit": 1631288464,
+    "lastedit": 1631337996,
     "category": "漫区专楼",
     "active": true,
     "newtitle": "[21.07『白沙的水族馆 ／ 白い砂のアクアトープ』专楼 07.08放送]"
@@ -576,9 +576,9 @@
     "newtitle": "[【10周年】回转企鹅罐rewatch 第20站 谢谢你选择了我]"
   },
   "1997998": {
-    "totalreply": 605,
+    "totalreply": 606,
     "title": "[21.07『漂流少年 ／ Sonny Boy ／ サニーボーイ』专楼 07.15放送]",
-    "lastedit": 1631332859,
+    "lastedit": 1631337657,
     "category": "漫区专楼",
     "active": true,
     "newtitle": "[21.07『漂流少年 ／ Sonny Boy ／ サニーボーイ』专楼 07.15放送]"
@@ -784,9 +784,9 @@
     "newtitle": "[おじの末路]"
   },
   "2017705": {
-    "totalreply": 30063,
+    "totalreply": 30068,
     "title": "[【B32】VUP综合讨论楼]",
-    "lastedit": 1631336472,
+    "lastedit": 1631337664,
     "category": "虚拟主播区专楼",
     "active": true,
     "newtitle": "[【B32】VUP综合讨论楼 - Liver看楼破防你楼概不负责]"
@@ -808,9 +808,9 @@
     "newtitle": "[2021年8月网文交流推荐帖]"
   },
   "2009193": {
-    "totalreply": 2098,
+    "totalreply": 2099,
     "title": "[『魔法纪录 魔法少女小圆外传 第二季 -觉醒前夜-』07.31放送]",
-    "lastedit": 1631325072,
+    "lastedit": 1631337669,
     "category": "漫区专楼",
     "active": true,
     "newtitle": "[『魔法纪录 魔法少女小圆外传 第二季 -觉醒前夜-』07.31放送]"
@@ -900,7 +900,7 @@
     "title": "[『BLEACH ／ 死神』20周年纪念短篇：《獄颐鸣鸣篇》序章]",
     "lastedit": 1630040952,
     "category": "漫区专楼",
-    "active": true,
+    "active": false,
     "newtitle": "[『BLEACH ／ 死神』20周年纪念短篇：《獄颐鸣鸣篇》序章]"
   },
   "2019032": {
@@ -1535,14 +1535,6 @@
     "active": false,
     "newtitle": "[关于岳飞是不是民族英雄的争论的本质]"
   },
-  "2020275": {
-    "totalreply": 130,
-    "title": "[以暴制暴把男朋友挠伤了，我有没有错呢？]",
-    "lastedit": 1628745225,
-    "category": "外野",
-    "active": false,
-    "newtitle": "[脑瘫情侣的小破事烦恼]"
-  },
   "2020236": {
     "totalreply": 75,
     "title": "[从来没吃过叉烧，今天点了一份]",
@@ -1582,14 +1574,6 @@
     "category": "漫区",
     "active": false,
     "newtitle": "[关于《死神》男主黑崎一护的cp投票]"
-  },
-  "2020182": {
-    "totalreply": 71,
-    "title": "[半年多时间打通闪轨4部了]",
-    "lastedit": 1628745247,
-    "category": "游戏区",
-    "active": false,
-    "newtitle": "[半年多时间打通闪轨4部了]"
   },
   "2020270": {
     "totalreply": 97,
@@ -1654,14 +1638,6 @@
     "category": "漫区",
     "active": false,
     "newtitle": "[像幽助这种豪爽类性格的男主这么少是不是因为很难写好？]"
-  },
-  "2020307": {
-    "totalreply": 75,
-    "title": "[坛友在S1晒可爱的女朋友，分手后被马上其他坛友上位了，是不是证明秀恩爱不是好事]",
-    "lastedit": 1628745301,
-    "category": "外野",
-    "active": false,
-    "newtitle": "[坛友在S1晒可爱的女朋友，分手后被马上其他坛友上位了，是不是证明秀恩爱不是好事]"
   },
   "2020151": {
     "totalreply": 82,
@@ -5925,7 +5901,7 @@
     "newtitle": "[江西一00后拒服兵役并威胁部队，被多重处罚]",
     "lastedit": 1630040942,
     "category": "外野",
-    "active": true
+    "active": false
   },
   "2022659": {
     "totalreply": 95,
@@ -7328,10 +7304,10 @@
     "active": true
   },
   "2022965": {
-    "totalreply": 2256,
+    "totalreply": 2259,
     "title": "[【明日方舟】国服5号楼 危机合约#6蛮鳞行动]",
     "newtitle": "[【明日方舟】国服5号楼丨主线EP09【风暴瞭望】9月17日开放]",
-    "lastedit": 1631336591,
+    "lastedit": 1631337781,
     "category": "手游专楼",
     "active": true
   },
@@ -7616,10 +7592,10 @@
     "active": true
   },
   "2023688": {
-    "totalreply": 910,
+    "totalreply": 911,
     "title": "[传奇团CRPG《开拓者：正义之怒》9月2日，已经开放预载]",
     "newtitle": "[传奇团CRPG《开拓者：正义之怒》专楼]",
-    "lastedit": 1631332999,
+    "lastedit": 1631338200,
     "category": "游戏区",
     "active": true
   },
@@ -8512,10 +8488,10 @@
     "active": true
   },
   "2023950": {
-    "totalreply": 162,
+    "totalreply": 163,
     "title": "[魂系战斗是否是在ACT和RPG之间平衡得最好的？]",
     "newtitle": "[魂系战斗是否是在ACT和RPG之间平衡得最好的？]",
-    "lastedit": 1631336658,
+    "lastedit": 1631338094,
     "category": "游戏区",
     "active": true
   },
@@ -9032,10 +9008,10 @@
     "active": true
   },
   "2024797": {
-    "totalreply": 651,
+    "totalreply": 654,
     "title": "[才淹死了三个华裔，说难听点够干啥的]",
     "newtitle": "[才淹死了三个华裔，说难听点够干啥的]",
-    "lastedit": 1631335479,
+    "lastedit": 1631337878,
     "category": "外野",
     "active": true
   },
@@ -9376,10 +9352,10 @@
     "active": true
   },
   "2024770": {
-    "totalreply": 155,
+    "totalreply": 156,
     "title": "[破晓传说 剧透讨论]",
     "newtitle": "[破晓传说 剧透讨论]",
-    "lastedit": 1631336704,
+    "lastedit": 1631338223,
     "category": "游戏区",
     "active": true
   },
@@ -9760,10 +9736,10 @@
     "active": true
   },
   "2025162": {
-    "totalreply": 3415,
+    "totalreply": 3416,
     "title": "[货拉拉案9月10日开庭，家属聘请的律师未能介入]",
     "newtitle": "[货拉拉案宣判：过失致人死亡罪,判处有期徒刑一年缓刑一年]",
-    "lastedit": 1631337034,
+    "lastedit": 1631337921,
     "category": "外野",
     "active": true
   },
@@ -10312,10 +10288,10 @@
     "active": true
   },
   "2025334": {
-    "totalreply": 65,
+    "totalreply": 67,
     "title": "[下午被病区护士长批评了]",
     "newtitle": "[下午被病区护士长批评了]",
-    "lastedit": 1631336950,
+    "lastedit": 1631338141,
     "category": "外野",
     "active": true
   },
@@ -10352,10 +10328,10 @@
     "active": true
   },
   "2025497": {
-    "totalreply": 140,
+    "totalreply": 142,
     "title": "[日本剑道“北辰一刀流”七代目德国人将道场本部移到德国]",
     "newtitle": "[日本剑道“北辰一刀流”七代目德国人将道场本部移到德国]",
-    "lastedit": 1631331954,
+    "lastedit": 1631337952,
     "category": "外野",
     "active": true
   },
@@ -10440,10 +10416,10 @@
     "active": true
   },
   "2025545": {
-    "totalreply": 410,
+    "totalreply": 414,
     "title": "[王师傅离婚]",
     "newtitle": "[王师傅离婚]",
-    "lastedit": 1631335751,
+    "lastedit": 1631338241,
     "category": "外野",
     "active": true
   },
@@ -10648,10 +10624,10 @@
     "active": true
   },
   "2025686": {
-    "totalreply": 109,
+    "totalreply": 112,
     "title": "[【生存策略】从今以后底层男该采用怎样的行为模式]",
     "newtitle": "[【生存策略】从今以后底层男该采用怎样的行为模式]",
-    "lastedit": 1631336958,
+    "lastedit": 1631337970,
     "category": "外野",
     "active": true
   },
@@ -10696,10 +10672,10 @@
     "active": true
   },
   "2025725": {
-    "totalreply": 224,
+    "totalreply": 229,
     "title": "[【A20】A-SOUL讨论楼]",
     "newtitle": "[【A20】A-SOUL讨论楼]",
-    "lastedit": 1631336959,
+    "lastedit": 1631338156,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -10728,18 +10704,18 @@
     "active": true
   },
   "2025755": {
-    "totalreply": 201,
+    "totalreply": 203,
     "title": "[这玩意的影响力能超过彭宇案吗]",
     "newtitle": "[这玩意的影响力能超过彭宇案吗]",
-    "lastedit": 1631337094,
+    "lastedit": 1631337975,
     "category": "外野",
     "active": true
   },
   "2025707": {
-    "totalreply": 69,
+    "totalreply": 70,
     "title": "[有多少男人／女人愿意变成女人／男人？]",
     "newtitle": "[有多少男人／女人愿意变成女人／男人？]",
-    "lastedit": 1631332159,
+    "lastedit": 1631337974,
     "category": "外野",
     "active": true
   },
@@ -10768,18 +10744,18 @@
     "active": true
   },
   "2025675": {
-    "totalreply": 79,
+    "totalreply": 81,
     "title": "[现在看那个被关了251天的人真的是厉害]",
     "newtitle": "[现在看那个被关了251天的人真的是厉害]",
-    "lastedit": 1631336782,
+    "lastedit": 1631338156,
     "category": "外野",
     "active": true
   },
   "2025771": {
-    "totalreply": 116,
+    "totalreply": 117,
     "title": "[突然好怕下班打不到车啊]",
     "newtitle": "[突然好怕下班打不到车啊]",
-    "lastedit": 1631336782,
+    "lastedit": 1631337975,
     "category": "外野",
     "active": true
   },
@@ -10816,18 +10792,18 @@
     "active": true
   },
   "2025658": {
-    "totalreply": 72,
+    "totalreply": 75,
     "title": "[感觉要红了。]",
     "newtitle": "[感觉要红了。]",
-    "lastedit": 1631335761,
+    "lastedit": 1631338156,
     "category": "外野",
     "active": true
   },
   "2025566": {
-    "totalreply": 63,
+    "totalreply": 67,
     "title": "[这二战后的波兰 德国地图这么搞笑么]",
     "newtitle": "[这二战后的波兰 德国地图这么搞笑么]",
-    "lastedit": 1631336783,
+    "lastedit": 1631338157,
     "category": "外野",
     "active": true
   },
@@ -10836,6 +10812,14 @@
     "title": "[穿李宁鞋比赛被割伤流血！奥运冠军表态，李宁官方拒绝回]",
     "newtitle": "[穿李宁鞋比赛被割伤流血！奥运冠军表态，李宁官方拒绝回]",
     "lastedit": 1631337094,
+    "category": "外野",
+    "active": true
+  },
+  "2025801": {
+    "totalreply": 64,
+    "title": "[高压锅，我的高压锅]",
+    "newtitle": "[高压锅，我的高压锅]",
+    "lastedit": 1631337984,
     "category": "外野",
     "active": true
   }
