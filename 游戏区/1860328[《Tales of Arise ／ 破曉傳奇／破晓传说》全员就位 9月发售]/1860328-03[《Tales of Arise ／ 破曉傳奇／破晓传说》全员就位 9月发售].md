@@ -9747,3 +9747,92 @@ PC版十分自由，主机板不清楚了，不同手柄适配还不一样，这
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 3814#       发表于 2021-9-11 11:22
+
+
+这作剧情BOSS战都有特殊演出QTE触发的
+
+几种方式
+
+通过队友对话提示指定角色发动BA触发
+
+BOSS身上冒出特殊按键提示时按键触发
+
+基本都有对话提示的，倒不是很难发现
+
+
+以及 发动秘奥义直接进入特殊动画斩杀（这也是传统之一）
+
+
+*****
+
+####  jhjy217  
+##### 3815#       发表于 2021-9-11 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707541&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-11 11:14</a>
+那个劫法场的演出也过于神必了，比泥潭吐槽疯了的xb2小皇帝挡刀都还神秘，感情你们军队就派了两个人出来 ...</blockquote>
+应该是故意让他去救的
+麻婆在一边看戏看得很欢
+话说麻婆一出场我就知道这家伙要跳反了，真是长着一张跳反的脸啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PureWaltz  
+##### 3816#       发表于 2021-9-11 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707463&amp;ptid=1860328" target="_blank">名字已被吃 发表于 2021-9-11 11:07</a>
+
+非战斗状态下的按键，pc版能改？
+
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+steam版用到了steam的手柄适配功能，官方配置按照原野、战斗、菜单、钓鱼分了四个场景，每个场景的按键可以自由修改
+
+
+*****
+
+####  laoz  
+##### 3817#       发表于 2021-9-11 11:32
+
+
+bs是真的无缝秘奥义，强敌半血的时候用奥尔芬和奇莎兰的bs之后角色还是在空中，怎么秘奥义不这么搞呢
+
+
+*****
+
+####  苇原雪道  
+##### 3818#       发表于 2021-9-11 11:35
+
+
+怎么切换原野中控制的人啊？
+
+
+*****
+
+####  laoz  
+##### 3819#       发表于 2021-9-11 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707739&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-9-11 11:35</a>
+
+怎么切换原野中控制的人啊？</blockquote>
+进菜单，下方选项有有说哪个按键更换领队
+
+
+*****
+
+####  haru橙子  
+##### 3820#       发表于 2021-9-11 11:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">到第四章剧情开始神秘起来，有种不好的预感
+
+
