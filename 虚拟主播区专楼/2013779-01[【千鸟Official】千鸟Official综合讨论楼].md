@@ -3776,3 +3776,20 @@ P1020004.JPG
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  rgauss  
+##### 333#       发表于 2021-9-11 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52708756&amp;ptid=2013779" target="_blank">黄金鸡屁屁 发表于 2021-9-11 13:34</a>
+
+就好文静这一口大姐姐味
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+什么大姐姐味，明明是阿姨味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
