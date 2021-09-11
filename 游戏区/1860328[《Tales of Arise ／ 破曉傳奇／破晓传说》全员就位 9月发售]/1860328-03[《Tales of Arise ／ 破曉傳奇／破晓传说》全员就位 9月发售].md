@@ -12949,3 +12949,14 @@ DLC溜达了一圈看得我直呼内行，买个联动包意思下了，早知�
 还真不知道
 
 
+
+
+*****
+
+####  名余竹  
+##### 4078#       发表于 2021-9-12 06:41
+
+
+到底是我不会玩jrpg还是数值不太对劲，怎么序章boss一个大风车就给我俩人全秒了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
