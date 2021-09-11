@@ -10238,3 +10238,27 @@ BOSS战不能破刚体连来连去，最多触发down硬直（强度考虑勉强
 但是人物光影真的拉垮，一露大腿就起棱角，泳装就废了
 
 
+
+
+*****
+
+####  良臣没有重谢  
+##### 3852#       发表于 2021-9-11 13:21
+
+
+第三个图进去终于解锁了连战奖励，刚打两个怪，飞过来一只龙对我队员一爪一个小朋友。。。搞毛啊这是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR YOK-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  LT_Harry  
+##### 3853#         楼主| 发表于 2021-9-11 13:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52708648&amp;ptid=1860328" target="_blank">良臣没有重谢 发表于 2021-9-11 13:21</a>
+第三个图进去终于解锁了连战奖励，刚打两个怪，飞过来一只龙对我队员一爪一个小朋友。。。搞毛啊这是[f:001 ...</blockquote>
+其实你仔细看说明，最后就提示你可能会遇到稀有种。这龙不难，我困难难度低六级都能打败。
+
+
