@@ -3014,3 +3014,18 @@ TV版好感是慢慢刷出来的,一开始香和丽都不喜欢真嗣,虽然因�
 <img src="https://p.sda1.dev/2/ad4afa01686bc35fa76b950754f2ad07/20210910_152017.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  a479281660  
+##### 1693#       发表于 2021-9-12 02:41
+
+
+总算找着机会看完了，
+感觉脑子被fvck了，
+我看的这是个什么鸡掰
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
