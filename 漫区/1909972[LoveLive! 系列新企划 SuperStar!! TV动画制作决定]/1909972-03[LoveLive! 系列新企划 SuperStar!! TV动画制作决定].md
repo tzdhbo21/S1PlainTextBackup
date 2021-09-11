@@ -17510,3 +17510,16 @@ NTR本子好多都是发生在青梅竹马关系之中，虽然可能苦主从�
 容易发展成大院文学<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  a92063256  
+##### 4407#       发表于 2021-9-11 09:09
+
+
+仔细一想我好像也是有个正儿八经的青梅的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+从记事起就黏在一起玩，一起上学什么的，但是到我去外地上学之后就很少联系了，最近一次听到关于她的消息是听我妈说她要结婚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

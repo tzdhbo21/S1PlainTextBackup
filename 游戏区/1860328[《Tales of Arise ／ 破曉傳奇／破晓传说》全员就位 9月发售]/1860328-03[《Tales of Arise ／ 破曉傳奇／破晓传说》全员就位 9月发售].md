@@ -9406,3 +9406,48 @@ Hard难度不手控奥尔芬的话感觉他死的超级快，三个小怪都能�
 这文物系统一解锁，半小时内就拿了三件，还都是路边支线给的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为会跟珍稀一些
 
 
+
+
+*****
+
+####  Chia  
+##### 3789#       发表于 2021-9-11 09:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52705869&amp;ptid=1860328" target="_blank">不应 发表于 2021-9-11 07:55</a>
+
+猫头鹰是是每个地图地图都有吗，打到第二章找到了5个。只有猫耳朵没有猫尾巴，好急
+
+
+—— 来自 Xiaomi M201 ...</blockquote>
+猫尾巴在基路德营地那张图，很早的
+
+
+*****
+
+####  金子一马  
+##### 3790#       发表于 2021-9-11 09:03
+
+
+突然想到件事情，第二章boss是不是和小剧场同伴之间的对话有明显矛盾？算不算是伏笔
+
+
+*****
+
+####  oniwarud  
+##### 3791#       发表于 2021-9-11 09:10
+
+
+风大师好像已经出了
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3792#       发表于 2021-9-11 09:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这队伍从成型开始到第三章都在内讧，几乎每个人都有地雷，嘴臭女主还专门去踩
+男主表示这队我真带不动
+
+
