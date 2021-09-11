@@ -11857,3 +11857,57 @@ DLC就算不选官方经验值金手指都是10级开局
 术技等级提升能加强多少？试了下好像感觉提示不明显
 
 
+
+
+*****
+
+####  rgauss  
+##### 3987#       发表于 2021-9-11 21:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">问一下 咋防止男主拔刀蓄力暴毙啊
+蓄力不注意就被打死了
+
+
+*****
+
+####  RUANHYC  
+##### 3988#       发表于 2021-9-11 21:48
+
+
+这个焰剑蓄力不太会用<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makar0601  
+##### 3989#       发表于 2021-9-11 21:58
+
+
+说明营销真的有用，这个时代多找点媒体吹吹做广告比这笔钱放在游戏上更有用。
+
+我打到下部想骂街了比起第四章尬到我，我更不能接受的是这流程设计，泥潭批xb黑脸xb2眼神悲伤那些地方，ff7re**流程那么狠，toar就是二合一。这迷宫我真的麻了，普通版没dlc还不能不打那里三层外三层过了一会有刷新的堵门兵。
+
+我现在举双手支持GS7分
+
+
+    战斗显得过于庞杂；剧情在某些节点似乎推进太快；DLC的存在让你质疑游戏的某些设计
+
+
+说得一点没错
+
+
+*****
+
+####  laoz  
+##### 3990#       发表于 2021-9-11 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52713442&amp;ptid=1860328" target="_blank">rgauss 发表于 2021-9-11 21:41</a>
+
+问一下 咋防止男主拔刀蓄力暴毙啊
+
+蓄力不注意就被打死了</blockquote>
+时间足够你打完火剑还能带滚的话就蓄力，不然别蓄力，很容易会被打断
+
+
