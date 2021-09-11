@@ -11816,3 +11816,44 @@ DLC就算不选官方经验值金手指都是10级开局
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">蒸汽版全球在线已经5W3了
 
 
+
+
+*****
+
+####  supersssbc  
+##### 3983#       发表于 2021-9-11 21:25
+
+
+第四章名场面打到了，笑死了我，我的表情就和风领主一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cowgp01  
+##### 3984#       发表于 2021-9-11 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52712951&amp;ptid=1860328" target="_blank">久井路路 发表于 2021-9-11 21:07</a>
+
+林薇尔倒在他俩面前的时候她也主动跑过去了，我明白她肯定不是个坏人，不过我想说的其实是她看起来不太有 ...</blockquote>
+过于注重卖两人CP反而缩手缩脚了吧
+
+
+*****
+
+####  elven119  
+##### 3985#       发表于 2021-9-11 21:32
+
+
+普通难度，没用dlc，第三章打完，全部boss都是一次过，没有觉得一丝难度。反而觉得简单。因为这作人物太灵活了。系统吃透后杂兵都是进去一套连携秒，boss是挺刮痧，但是也属于正常范围，路上小兵全清，有时候刷点药和卖钱素材，也没有刻意练级。到boss处都和boss等级持平。第三章刚开始还遇到个乱入巨龙，差了7级，也打过了，吃了点药。顺便，现在快30小时，刚打完第三章。不清楚是慢还是快
+
+
+*****
+
+####  抽搐一下  
+##### 3986#       发表于 2021-9-11 21:36
+
+
+术技等级提升能加强多少？试了下好像感觉提示不明显
+
+
