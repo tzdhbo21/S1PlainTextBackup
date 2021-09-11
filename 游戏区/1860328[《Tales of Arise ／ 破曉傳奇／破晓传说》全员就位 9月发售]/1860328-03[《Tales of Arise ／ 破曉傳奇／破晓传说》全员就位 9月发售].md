@@ -12960,3 +12960,14 @@ DLC溜达了一圈看得我直呼内行，买个联动包意思下了，早知�
 到底是我不会玩jrpg还是数值不太对劲，怎么序章boss一个大风车就给我俩人全秒了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  RushMove  
+##### 4079#       发表于 2021-9-12 07:05
+
+
+怎么看出普通攻击和术技是吃攻击力还是属性攻击力加成？
+
+
