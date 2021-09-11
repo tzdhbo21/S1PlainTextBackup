@@ -10566,3 +10566,101 @@ PC版1060跑得动吗？</blockquote>
 请问一下那些氪金衣服给的称号 听说正常流程后期也是能拿到的？
 
 
+
+
+*****
+
+####  hummysiren  
+##### 3876#       发表于 2021-9-11 15:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709441&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-11 14:50</a>
+林薇儿这个术charge怎么搞？
+按住术键charge了第一次，一松手不就释放了？
+怎么继续charge成上位术呃 ...</blockquote>
+充完按普攻键或r1（我普攻是r1所以不确定
+使用跟充好的术同一个术就是上级魔法
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hypnossz86| + 1|thx|
+
+
+查看全部评分
+
+
+*****
+
+####  qiyu1234  
+##### 3877#       发表于 2021-9-11 15:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709497&amp;ptid=1860328" target="_blank">Emmerich 发表于 2021-9-11 14:58</a>
+
+请问一下那些氪金衣服给的称号 听说正常流程后期也是能拿到的？</blockquote>
+很遗憾，是DLC限定，而且里面带的技能也是独有
+
+
+*****
+
+####  JudgmentEye  
+##### 3878#       发表于 2021-9-11 15:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709497&amp;ptid=1860328" target="_blank">Emmerich 发表于 2021-9-11 14:58</a>
+
+请问一下那些氪金衣服给的称号 听说正常流程后期也是能拿到的？</blockquote>
+不能，不然还叫dlc玩死你们的财团b？
+
+
+*****
+
+####  qiyu1234  
+##### 3879#       发表于 2021-9-11 15:14
+
+
+说句题外话
+
+
+我看那个DLC界面的NEWS就觉得未来应该还是会有新DLC的
+
+不然没必要专门在游戏内嵌入一个新上架DLC介绍的页面
+
+
+*****
+
+####  zqqwe  
+##### 3880#       发表于 2021-9-11 15:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709577&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-11 15:10</a>
+
+很遗憾，是DLC限定，而且里面带的技能也是独有</blockquote>
+这就有点过分了……逼着买男角色衣服
+
+
+*****
+
+####  JudgmentEye  
+##### 3881#       发表于 2021-9-11 15:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709610&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-11 15:14</a>
+
+说句题外话
+
+
+我看那个DLC界面的NEWS就觉得未来应该还是会有新DLC的</blockquote>
+pc版可以放心，dlc都在更新补丁里，黑客应该会做（正版）一键解锁的
+
+
