@@ -12760,3 +12760,51 @@ DLC溜达了一圈看得我直呼内行，买个联动包意思下了，早知�
 变成能喝45口原素瓶 还是老婆喂我喝 瞬间好打了 cp用完最后1/4血叫队友群殴 只用了两个复活瓶
 
 
+
+
+*****
+
+####  Antidote丶  
+##### 4062#       发表于 2021-9-12 02:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52716007&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-12 01:55</a>
+
+没什么解法，我刷级了，洛有一个称号需要破甲40次，我在刷这个的时候主角就跟boss平级了，打起来不难，少 ...</blockquote>
+那个读条大招的设计感觉太恶意了，正常推进不知道能不能打断
+
+
+*****
+
+####  Dreki  
+##### 4063#       发表于 2021-9-12 02:01
+
+
+一直开的普通，打第二章boss想着提个难度看看，现在我想赢在起跑线了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这boss高难度就是折磨自己，还是小怪高难度boss低难度吧
+
+
+*****
+
+####  后入芙蓉王  
+##### 4064#       发表于 2021-9-12 02:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52715966&amp;ptid=1860328" target="_blank">Antidote丶 发表于 2021-9-12 01:47</a>
+
+我打得普通难度也被boss教育了，现在打第二个领主，有什么好点的解法嘛</blockquote>
+首饰-50%光伤，带上这个再去打
+
+
+*****
+
+####  Byronli000  
+##### 4065#       发表于 2021-9-12 02:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52716001&amp;ptid=1860328" target="_blank">听风不是雨 发表于 2021-9-12 01:54</a>
+开盾接任意一次攻击的瞬间用技能起手就会有霸体和伤害buff</blockquote>
+防御时用技能确定是瞬间防御之后用吗？我测试了下，好像是按住防御之后用技能会加段。瞬间防御之后的强化状态用的话伤害和段数好像都没变化。感觉蛮怪的按住防御之后按技能也没有缺点，没什么取舍
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
