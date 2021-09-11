@@ -9836,3 +9836,113 @@ bs是真的无缝秘奥义，强敌半血的时候用奥尔芬和奇莎兰的bs�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">到第四章剧情开始神秘起来，有种不好的预感
 
 
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 3821#       发表于 2021-9-11 11:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707541&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-11 11:14</a>
+
+那个劫法场的演出也过于神必了，比泥潭吐槽疯了的xb2小皇帝挡刀都还神秘，感情你们军队就派了两个人出来 ...</blockquote>
+我觉得最草的还是帮忙来劫法场的反派就带了一个小喽啰
+
+
+*****
+
+####  zero12  
+##### 3822#       发表于 2021-9-11 11:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707819&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-11 11:43</a>
+
+我觉得最草的还是帮忙来劫法场的反派就带了一个小喽啰</blockquote>
+可能是麻婆在愉悦看戏，放海了。
+
+
+*****
+
+####  oniwarud  
+##### 3823#       发表于 2021-9-11 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707632&amp;ptid=1860328" target="_blank">jhjy217 发表于 2021-9-11 11:24</a>
+
+应该是故意让他去救的
+
+麻婆在一边看戏看得很欢
+
+话说麻婆一出场我就知道这家伙要跳反了，真是长着一张跳反 ...</blockquote>
+麻婆的目的是吸引奥尔芬他们过去啊，洛的跳反根本就不在他计划之内啊。这作剧情里敌人的规模和战斗力真的就是突出一个随心所欲，大叔刚死，反抗军的首领是敌方大boss，这种剧情展开在后面应该是有大书特书的空间的，结果主角团:既然如此，那我们就正面冲进boss老家把他给干了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，也这展开我实在是没搞懂。
+
+而且最神必的是明明麻婆一开始都跟主角团见面了，不应该直接用计把主角团给阴了吗，为毛还要搞个处刑来吸引他们，在刑场那里也不动手把他们按死还让他们跑了，然后就啥操作都没有自己在老家里等着被人来揍，你这不是一副智将老狐狸的人设吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zero12  
+##### 3824#       发表于 2021-9-11 11:53
+
+
+nga居然有人在裱剧情+jrpg
+
+我确实感觉到这游戏火了，不火没这么多人骂.....
+
+
+*****
+
+####  大小白帝  
+##### 3825#       发表于 2021-9-11 11:53
+
+
+<blockquote>oniwarud 发表于 2021-9-11 11:49
+麻婆的目的是吸引奥尔芬他们过去啊，洛的跳反根本就不在他计划之内啊。这作剧情里敌人的规模和战斗力真的 ...</blockquote>
+其实人家是武者，你看打起来他都牛逼到天上去了
+
+
+*****
+
+####  金子一马  
+##### 3826#       发表于 2021-9-11 11:57
+
+
+今天把hard难度第二个boss 给干了，其实也没想象的完全打不过，前提是每人都装上光属性半减。只能说还好我没有把石头都拿去合成。
+
+
+*****
+
+####  hummysiren  
+##### 3827#       发表于 2021-9-11 11:58
+
+
+说来好笑法场领主露脸我就把他跟银鸦头头脸搞混，想这种黑幕是友方的秘密就这么平淡的解开了？后面两人一起出来好像是有那么不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+目前第二章结束，感觉就是中规中矩，还没有能特别带动情绪的地方，法师妹妹感觉还有谜底，接着玩了
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  法拉  
+##### 3828#       发表于 2021-9-11 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707873&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-11 11:49</a>
+麻婆的目的是吸引奥尔芬他们过去啊，洛的跳反根本就不在他计划之内啊。这作剧情里敌人的规模和战斗力真的 ...</blockquote>
+我觉得应该是在塔上可以用他攒的光星灵力吧
+而且感觉他就是个偷税犯，并不智将，单纯就想用武力干趴火剑展示自己的强大
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  目鱼  
+##### 3829#       发表于 2021-9-11 11:59
+
+
+时尚品鉴这任务怎么完成啊
+
+
