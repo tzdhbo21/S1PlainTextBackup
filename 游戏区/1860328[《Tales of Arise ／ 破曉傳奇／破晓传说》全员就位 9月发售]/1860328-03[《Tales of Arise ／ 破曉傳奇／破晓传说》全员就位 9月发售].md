@@ -12932,3 +12932,20 @@ DLC溜达了一圈看得我直呼内行，买个联动包意思下了，早知�
 你咋玩的?战斗取消mp但有cp限制啊，斗鸡场不能使用道具回复cp
 
 
+
+
+*****
+
+####  森兰丸  
+##### 4077#       发表于 2021-9-12 06:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52716508&amp;ptid=1860328" target="_blank">莱纳斯 发表于 2021-9-12 05:59</a>
+
+你咋玩的?战斗取消mp但有cp限制啊，斗鸡场不能使用道具回复cp</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">啥？这个CP不就是用来解除机关和在大地图上救人加血才会用到的么....原来战斗也用CP来代替MP的么
+
+
+还真不知道
+
+

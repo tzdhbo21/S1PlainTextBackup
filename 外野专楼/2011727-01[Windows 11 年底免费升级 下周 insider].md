@@ -6809,3 +6809,15 @@ dev推送了184，升级完蓝牙打不开了…………
 老铁们，还有办法开磁铁吗？
 
 
+
+
+*****
+
+####  すぴぱら  
+##### 560#       发表于 2021-9-12 06:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">升级完机箱前面板usb失效了，全麻
+重装回win10<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
