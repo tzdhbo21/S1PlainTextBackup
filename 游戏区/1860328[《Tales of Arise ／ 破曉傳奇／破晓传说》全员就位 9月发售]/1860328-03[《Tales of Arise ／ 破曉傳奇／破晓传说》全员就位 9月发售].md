@@ -9581,3 +9581,169 @@ PC版十分自由，主机板不清楚了，不同手柄适配还不一样，这
 后面不会解锁额外的快捷键吗？
 
 
+
+
+*****
+
+####  reficul  
+##### 3804#       发表于 2021-9-11 11:05
+
+
+困难模式下冰国下水道这个boss好难打，吃了我4个复活药才打死，一次性召唤好多小怪是最烦的
+
+
+吃了四个药想补充时才发现，这一作的东西都好贵啊。。。随随便便几百块一两千的东西，我玩到冰国身上都还只有9000+
+
+
+*****
+
+####  makar0601  
+##### 3805#       发表于 2021-9-11 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707374&amp;ptid=1860328" target="_blank">盖·福克斯 发表于 2021-9-11 11:00</a>
+只能设置地面和空中一共六个技能吗？
+
+后面不会解锁额外的快捷键吗？ ...</blockquote>
+后面有按lt开第二组
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 盖·福克斯| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  名字已被吃  
+##### 3806#       发表于 2021-9-11 11:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707319&amp;ptid=1860328" target="_blank">zero33333 发表于 2021-9-11 10:55</a>
+PC版十分自由，主机板不清楚了，不同手柄适配还不一样，这次挺用心的，还能随时调 ...</blockquote>
+非战斗状态下的按键，pc版能改？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 3807#       发表于 2021-9-11 11:07
+
+
+前面感情渲染不足啊，看到大叔刑场上嘴炮没什么感触
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  捧读小见川  
+##### 3808#       发表于 2021-9-11 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707374&amp;ptid=1860328" target="_blank">盖·福克斯 发表于 2021-9-11 11:00</a>
+
+只能设置地面和空中一共六个技能吗？
+
+后面不会解锁额外的快捷键吗？ ...</blockquote>
+后面解锁空中地面各自6个技能
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 盖·福克斯| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  盖·福克斯  
+##### 3809#       发表于 2021-9-11 11:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707442&amp;ptid=1860328" target="_blank">makar0601 发表于 2021-9-11 11:05</a>
+
+后面有按lt开第二组
+
+
+—— 来自 motorola XT2153-1, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+谢了，那就太好了···
+
+我就说这么点快捷键那么多技能玩个锤子。
+
+
+*****
+
+####  Bani82  
+##### 3810#       发表于 2021-9-11 11:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707438&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-11 11:05</a>
+
+困难模式下冰国下水道这个boss好难打，吃了我4个复活药才打死，一次性召唤好多小怪是最烦的
+
+
+吃了四个药想 ...</blockquote>
+目前我的感受就是这作得疯狂嗑药，我N难度吃了1个复活药，最后BOSS磕了起码4个
+
+
+
+
+*****
+
+####  oniwarud  
+##### 3811#       发表于 2021-9-11 11:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707465&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-11 11:07</a>
+
+前面感情渲染不足啊，看到大叔刑场上嘴炮没什么感触
+
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 S1Next- ...</blockquote>
+那个劫法场的演出也过于神必了，比泥潭吐槽疯了的xb2小皇帝挡刀都还神秘，感情你们军队就派了两个人出来处刑的，但后面打架的时候那堆魔兽和士兵又是哪冒出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七氷  
+##### 3812#       发表于 2021-9-11 11:17
+
+
+又卡死了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wuliang  
+##### 3813#       发表于 2021-9-11 11:17
+
+
+剧情这么尴尬，太蠢了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

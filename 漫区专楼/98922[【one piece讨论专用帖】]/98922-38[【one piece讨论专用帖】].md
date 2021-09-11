@@ -2094,3 +2094,27 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 大家都觉得御田当初接受跳舞这事脑残，但是御田那个时候已经知道要等到25年后了，摆明是解决不了大蛇就妥协了保存实力，到20年前挑战凯多是因为憋不住这口气了，人物情感上是捋得过去的。到最后关键点还是日记里写了啥，或者说在终点看到了啥能这么笃定要等下一代，这个设定只要够精彩就全都能捋顺了，要是不精彩就全崩…
 
 
+
+
+*****
+
+####  论讨爱  
+##### 55654#       发表于 2021-9-11 11:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52697441&amp;ptid=98922" target="_blank">小野寺熊介 发表于 2021-9-10 16:59</a>
+op世界观下如果不用霸气或者果实进行防御，普遍防御力低下，老白这种在顶上被小兵拿着火枪火箭炮破防就能说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想过大哥大和亲妈是谁不
+
+
+*****
+
+####  论讨爱  
+##### 55655#       发表于 2021-9-11 11:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52705222&amp;ptid=98922" target="_blank">faiths 发表于 2021-9-11 02:44</a>
+大家都觉得御田当初接受跳舞这事脑残，但是御田那个时候已经知道要等到25年后了，摆明是解决不了大蛇就妥协 ...</blockquote>
+还觉得能挽回的可以出去复习复习国家队经典吹爆锦织哥哥
+
+
