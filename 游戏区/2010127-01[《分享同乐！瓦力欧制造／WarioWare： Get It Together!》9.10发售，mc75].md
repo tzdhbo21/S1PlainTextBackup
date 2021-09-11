@@ -1442,3 +1442,25 @@ GBA版里有个纸飞机的小游戏，，哪里玩的到
 75这个mc分确实很准，确实还属于能玩的游戏，但是你这系列所有前作都有80分起。
 
 
+
+
+*****
+
+####  Tilocal  
+##### 119#       发表于 2021-9-12 02:46
+
+
+刚才花江夏树和小野贤章直播玩这个的时候两人轮流负责给角色配音，配到出租车司机组的时候太出戏了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这作和马造2一样比起单人受苦感觉还是看主播多人模式的节目效果比较有乐子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白昼梦  
+##### 120#       发表于 2021-9-12 02:58
+
+
+这代玩起来是真不好玩，每个小游戏之间转换的时候感觉不是一般的别扭
+
+
