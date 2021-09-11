@@ -10904,3 +10904,569 @@ boss霸体很重，硬卖血打过去的，刚好主角回避性能高和卖血�
 一共多少章啊，刚打完第四个领主
 
 
+
+
+*****
+
+####  reficul  
+##### 3902#       发表于 2021-9-11 16:32
+
+
+我买了DLC都觉得经验少，没买DLC的可怎么练级啊？
+
+19级打完困难领主2，轻轻松松，感觉还没有下水道boss强，下水道我团灭了4次，不过领主2没有核心可以打吗
+
+
+*****
+
+####  bwsusaga  
+##### 3903#       发表于 2021-9-11 16:36
+
+
+为什么传送点经常性锁定，好烦啊
+
+
+*****
+
+####  IlldianX  
+##### 3904#       发表于 2021-9-11 16:41
+
+
+空破绝掌击怎么学有人知道吗？
+
+
+*****
+
+####  lelouchwang  
+##### 3905#       发表于 2021-9-11 16:48
+
+
+玩到第三章了 女主的炸弹到底怎么丢我还是没弄明白<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  正直的黄瓜  
+##### 3906#       发表于 2021-9-11 16:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710341&amp;ptid=1860328" target="_blank">lelouchwang 发表于 2021-9-11 16:48</a>
+
+玩到第三章了 女主的炸弹到底怎么丢我还是没弄明白</blockquote>
+按住
+
+
+*****
+
+####  peh  
+##### 3907#       发表于 2021-9-11 17:07
+
+
+ 本帖最后由 peh 于 2021-9-11 17:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草啊，没想到シオン礼服是拖着男主去遗迹挖的，初始还是安全裤，换了正装裙子下面就变胖次了
+
+顺便哪个衣服dlc比较耐看啊，我扫了一下感觉就黑礼服和泳装还可以
+
+那个支线的大虫子什么时候能打？second难度，这么早就把支线丢出来应该不会到很后面吧
+
+
+*****
+
+####  Bani82  
+##### 3908#       发表于 2021-9-11 17:12
+
+
+第三章你们觉得剧本不好么？我打到第三章干掉领主，觉得还不错啊
+
+
+*****
+
+####  reficul  
+##### 3909#       发表于 2021-9-11 17:14
+
+
+第二章的领主城堡里刷洛的40次破甲，打完身上88个灵动力碎片，一个200，也是不小的一笔钱了
+
+
+*****
+
+####  entheos  
+##### 3910#       发表于 2021-9-11 17:21
+
+
+题外话 这个OVL系统直到最后都是不可视不可控的吗？和秘奥义直接挂钩但是跨战斗积累发动完全撞大运,完全没法作为可调度资源考虑,改成攒满手动发动不好吗..另外就是是不是所有人形BOSS都是无法Break的?没法拉上天输出只能倒地状态打桩,其实反正玩家拉上天打也只是刮痧,加个伤害保护强脱离机制感觉更好,可以跟BOSS皇牌空战游戏爽感可以进一步上升。
+
+
+*****
+
+####  flyskywalker92  
+##### 3911#       发表于 2021-9-11 17:22
+
+
+看了下dlc列表 乐了
+
+
+*****
+
+####  bluebaby  
+##### 3912#       发表于 2021-9-11 17:27
+
+
+第二章不太行，太短了，尤其剧情本来就好猜加上那谁都没和你讲过几句话培养感情，导致月球名场面出来一点感觉都没。
+但是和有的人感觉不一样，女主我很香，尤其第三章里各种小细节<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3913#       发表于 2021-9-11 17:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我从没在jrpg里体验到什么国家感，都当是京剧一样的高度抽象一步万里河山，你们要求放平点比较好
+
+
+*****
+
+####  Bani82  
+##### 3914#       发表于 2021-9-11 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710531&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-11 17:28</a>
+
+反正我从没在jrpg里体验到什么国家感，都当是京剧一样的高度抽象一步万里河山，你们要求放平点比较 ...</blockquote>
+FF14？其实别说一个国家了，能做出一个城的都很少了
+
+大部分城市就是来来回回几条路，也许FF7RE是我见过唯一一个像样的城？毕竟一整部都在这个城里
+
+
+*****
+
+####  名字已被吃  
+##### 3915#       发表于 2021-9-11 17:33
+
+
+普通难度，第一次接触这系列，要买dlc是不是买个赢在起跑点组合包比较好，不会像2倍经验那么破坏体验，减少cp消耗也比较友好
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Shabadadoo  
+##### 3916#       发表于 2021-9-11 17:36
+
+
+游戏难度选择和收益挂钩吗
+
+
+*****
+
+####  jimclack  
+##### 3917#       发表于 2021-9-11 17:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710341&amp;ptid=1860328" target="_blank">lelouchwang 发表于 2021-9-11 16:48</a>
+
+玩到第三章了 女主的炸弹到底怎么丢我还是没弄明白</blockquote>
+首先你要先装备炸弹技能，然后普通扔伤害低点，按住了扔伤害高点有个aoe。但是必须离近点扔，这玩意扔的距离出奇的近。。。。
+
+
+*****
+
+####  Nokazusa  
+##### 3918#       发表于 2021-9-11 17:42
+
+
+这游戏经验怎么给的这么少啊...困难模式打第一个boss我才九级，boss十五级，简直折磨，刮痧刮半天不说容错还极低...所以是一定要用经验翻倍dlc吗
+
+
+*****
+
+####  jimclack  
+##### 3919#       发表于 2021-9-11 17:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710531&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-11 17:28</a>
+
+反正我从没在jrpg里体验到什么国家感，都当是京剧一样的高度抽象一步万里河山，你们要求放平点比较 ...</blockquote>
+他这个地图也是过于小气了，这年头不说开放世界地图这么狭窄的倒也是不多了，所以不像国家争霸像是乡下旅游
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 3920#       发表于 2021-9-11 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710633&amp;ptid=1860328" target="_blank">Nokazusa 发表于 2021-9-11 17:42</a>
+
+这游戏经验怎么给的这么少啊...困难模式打第一个boss我才九级，boss十五级，简直折磨，刮痧刮半天不说容错 ...</blockquote>
+这代感觉dlc已经严重影响正常流程体验了，我看了下视频里的伤害和我正常流程打boss的伤害根本是一个档次的
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3921#       发表于 2021-9-11 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710634&amp;ptid=1860328" target="_blank">jimclack 发表于 2021-9-11 17:42</a>
+他这个地图也是过于小气了，这年头不说开放世界地图这么狭窄的倒也是不多了，所以不像国家争霸像是乡下旅 ...</blockquote>
+jrpg周游列国的传统没啥好办法
+现代真实感强的很多都把舞台缩在一个岛一个县的水平，也就死亡搁浅比较勇搞出一个微缩美国
+
+
+*****
+
+####  Nokazusa  
+##### 3922#       发表于 2021-9-11 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710689&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-11 17:49</a>
+
+这代感觉dlc已经严重影响正常流程体验了，我看了下视频里的伤害和我正常流程打boss的伤害根本是一个档次 ...</blockquote>
+所以不用双倍经验是不是连正常游戏体验都没有...这设计怎么想的啊
+
+
+*****
+
+####  oniwarud  
+##### 3923#       发表于 2021-9-11 17:53
+
+
+<blockquote>jimclack 发表于 2021-9-11 17:42
+他这个地图也是过于小气了，这年头不说开放世界地图这么狭窄的倒也是不多了，所以不像国家争霸像是乡下旅 ...</blockquote>
+第一个国家的首都连一点城市都没有，整个国家就一个小矿场实在是小过头了，这里面的与其说是国家不如说是道馆
+
+
+*****
+
+####  金子一马  
+##### 3924#       发表于 2021-9-11 17:54
+
+
+感觉确实是调低了普通玩家的经验获得率。应该就是为了卖dlc。但这不是最恶心的，还是衣服挂钩技能盘更恶心一点，发售前根本没提。
+
+
+*****
+
+####  reficul  
+##### 3925#       发表于 2021-9-11 17:56
+
+
+普通难度可以不买经验DLC
+
+困难难度不买经验DLC可就太难了
+
+
+*****
+
+####  金子一马  
+##### 3926#       发表于 2021-9-11 17:57
+
+
+<blockquote>金子一马 发表于 2021-9-11 17:54
+感觉确实是调低了普通玩家的经验获得率。应该就是为了卖dlc。但这不是最恶心的，还是衣服挂钩技能盘更恶心 ...</blockquote>
+如果说清楚了，贵也就贵了还是买究极版更划算一些，现在要买还要花更多的钱，衣服又根本不喜欢
+
+
+*****
+
+####  JudgmentEye  
+##### 3927#       发表于 2021-9-11 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710633&amp;ptid=1860328" target="_blank">Nokazusa 发表于 2021-9-11 17:42</a>
+
+这游戏经验怎么给的这么少啊...困难模式打第一个boss我才九级，boss十五级，简直折磨，刮痧刮半天不说容错 ...</blockquote>
+财团b：你自己都回答了
+
+
+*****
+
+####  Nokazusa  
+##### 3928#       发表于 2021-9-11 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710760&amp;ptid=1860328" target="_blank">JudgmentEye 发表于 2021-9-11 17:58</a>
+
+财团b：你自己都回答了</blockquote>
+不得不说DLC商法是真的屑，赶得上氪金手游了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻了翻外网评价都是说游戏本体很好，但是营地卖DLC破坏沉浸感恶心人
+
+
+*****
+
+####  虚无连斩  
+##### 3929#       发表于 2021-9-11 18:01
+
+
+第三章这剧情打得我一口老血，这什么鬼啊，把盾姐姐换成开胸教师服舔人设算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  塔奇克马  
+##### 3930#       发表于 2021-9-11 18:03
+
+
+好像难度越高经验越少?
+
+DLC给的料理 +16%攻击 女法师学攻击辅助 +30% 技能盘第一个+50攻 DLC武器 如果这些准备好,第二个boss...高攻也可以碾过去.不过这些里面dlc相关不少.
+
+
+
+
+*****
+
+####  supersssbc  
+##### 3931#       发表于 2021-9-11 18:08
+
+
+第三章我把他当讽刺文学指望青天大老爷没有意义这样理解的233
+
+
+*****
+
+####  cwbn  
+##### 3932#       发表于 2021-9-11 18:09
+
+
+穿了时装以后怎么卸掉啊？
+
+
+*****
+
+####  DraQin  
+##### 3933#       发表于 2021-9-11 18:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710711&amp;ptid=1860328" target="_blank">Nokazusa 发表于 2021-9-11 17:52</a>
+所以不用双倍经验是不是连正常游戏体验都没有...这设计怎么想的啊</blockquote>
+刚到第二章主城，普通难度我感觉撑过别组那一段以后相对就好不少了，虽然队伍等级和野怪等级依旧拉不开差距，甚至可能还赶不上，但是不会像刚上来那样那么辛苦
+即便如此我依旧感觉本作给经验那真叫一个吝啬，升一级都很费劲，精英怪和BOSS还总是高队伍等级一头，对比起基本没有刻意去刷级，把地图的怪物图鉴开完以后能溜就溜挡路才打，就这样等级基本都是够用甚至溢出的（截止到第二部分结束的）DQ11S体验确实要差不少
+
+— from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  lelouchwang  
+##### 3934#       发表于 2021-9-11 18:20
+
+
+为啥女主让电脑自动打还能用我没装备的技能<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  Nokazusa  
+##### 3935#       发表于 2021-9-11 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710933&amp;ptid=1860328" target="_blank">DraQin 发表于 2021-9-11 18:16</a>
+
+刚到第二章主城，普通难度我感觉撑过别组那一段以后相对就好不少了，虽然队伍等级和野怪等级依旧拉不开差 ...</blockquote>
+困难难度经验比普通难度要少很多...而且这游戏经验获取是和战斗评价挂钩的，打得越快越好经验越多，但是等级低就不可能打得快，恶性循环正反馈机制了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+我玩别的RPG类型都是能不打的怪就不打，打怪都是为了开图鉴一类的东西的，换到TOA之后发现正常流程每个路上遇到的怪都打掉经验都不够，说实话还是蛮离谱的，屑公司真的有必要为了卖那破dlc刻意调低经验获取倍率吗...
+
+
+*****
+
+####  flyskywalker92  
+##### 3936#       发表于 2021-9-11 18:25
+
+
+整个2倍经验后体验好很多的
+
+
+*****
+
+####  名字已被吃  
+##### 3937#       发表于 2021-9-11 18:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52708889&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-11 13:48</a>
+你在系统设置O和X反转就完美解决了</blockquote>
+跳我倒无所谓，感觉战斗中跳起来没用，我直接用x发挥闪避，跳放到r2上。就是感觉自定义按键都能差别对待，挺2b的
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  godless2020  
+##### 3938#       发表于 2021-9-11 18:26
+
+
+到第3章了，战斗爽爆了，我是消耗大户，CP药一个3000<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 3939#       发表于 2021-9-11 18:27
+
+
+wizard什么时候支持啊，我tm要改爆
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 3940#       发表于 2021-9-11 18:28
+
+
+第一次玩传说，视角怎么拉远点？默认的太近了看得难受。
+
+
+*****
+
+####  supersssbc  
+##### 3941#       发表于 2021-9-11 18:28
+
+
+<blockquote>Nokazusa 发表于 2021-9-11 18:23
+困难难度经验比普通难度要少很多...而且这游戏经验获取是和战斗评价挂钩的，打得越快越好经验越多，但是 ...</blockquote>
+我普通难度带双倍dlc每张图怪打完一般都会比boss低一到两级
+
+
+*****
+
+####  makar0601  
+##### 3942#       发表于 2021-9-11 18:28
+
+
+我前排提醒吧，第四章有雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+xb1黑脸和xb2你的眼神能在泥潭被婊这么久，toar第四章不下这俩名场面。
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Nokazusa  
+##### 3943#       发表于 2021-9-11 18:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52711048&amp;ptid=1860328" target="_blank">supersssbc 发表于 2021-9-11 18:28</a>
+
+我普通难度带双倍dlc每张图怪打完一般都会比boss低一到两级</blockquote>
+真的就离谱...
+
+
+*****
+
+####  lucky95  
+##### 3944#       发表于 2021-9-11 18:32
+
+
+笑死红迪油管都是在教人打DLC补丁来让这游戏能玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+60刀买正版了屑厂也要逼人打盗版补丁才能有好的体验<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hallowilliam  
+##### 3945#       发表于 2021-9-11 18:33
+
+
+高难度（比普通高一级）第一章打完，虽然等级不高，但是暂时没觉得很困难。。。
+
+
+*****
+
+####  金子一马  
+##### 3946#       发表于 2021-9-11 18:34
+
+
+这游戏真的，蛮好的被nb玩坏了
+
+
+*****
+
+####  JudgmentEye  
+##### 3947#       发表于 2021-9-11 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52711046&amp;ptid=1860328" target="_blank">阿卵真是牛逼 发表于 2021-9-11 18:28</a>
+
+第一次玩传说，视角怎么拉远点？默认的太近了看得难受。</blockquote>
+设定里能改
+
+
+*****
+
+####  いみじくも萌二  
+##### 3948#       发表于 2021-9-11 18:38
+
+
+有事暂时还没玩，那gs打7分dlc那理由没错啊，tov困难我到打狼才觉得难，tob到终章才觉得难，都没买官方外挂dlc
+
+
+*****
+
+####  abysschaos  
+##### 3949#       发表于 2021-9-11 18:42
+
+
+有称号的DLC是哪几个
+
+
+*****
+
+####  金子一马  
+##### 3950#       发表于 2021-9-11 18:47
+
+
+<blockquote>いみじくも萌二 发表于 2021-9-11 18:38
+有事暂时还没玩，那gs打7分dlc那理由没错啊，tov困难我到打狼才觉得难，tob到终章才觉得难，都没买官方外挂 ...</blockquote>
+有一说一等级不足难度提高以后还蛮有意思的，但问题是nb本身肯定不是要增加难度，看等级差就知道本意是想要你氪金。这就很过分了。gs说的很对，意图太明显了，平衡性故意调整过
+
+
+*****
+
+####  Vladimeow  
+##### 3951#       发表于 2021-9-11 18:48
+
+
+被这经验恶心到了，等修改器，他不配<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ff2077  
+##### 3952#       发表于 2021-9-11 18:54
+
+
+gs的几个喷点其实还都没说错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 打到第三章这边，这么高的分很难说万代没有做公关啊
+
+
+*****
+
+####  godless2020  
+##### 3953#       发表于 2021-9-11 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52711175&amp;ptid=1860328" target="_blank">abysschaos 发表于 2021-9-11 18:42</a>
+
+有称号的DLC是哪几个</blockquote>
+战国 泳装 学院..............
+
+
+*****
+
+####  oniwarud  
+##### 3954#       发表于 2021-9-11 19:12
+
+
+<blockquote>Vladimeow 发表于 2021-9-11 18:48
+被这经验恶心到了，等修改器，他不配</blockquote>
+风大师和dlc解锁补丁都有了
+
+

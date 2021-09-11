@@ -19226,3 +19226,25 @@ rapper史诗级强化，但据说由美的肥姑妈品控非常差缺胳膊少�
 一发单抽出了深沙希，万岁。<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alialex  
+##### 5992#         楼主| 发表于 2021-9-11 18:18
+
+
+看到卡池突然想起anbba第一次落地也是强袭魔女联动期间突发空降。这次复刻又来插入一次，太有缘分了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  windaria  
+##### 5993#       发表于 2021-9-11 18:45
+
+
+中了一个坂本美绪，需要花奖牌换专用吗，还是说绿装也够了
+
+

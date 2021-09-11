@@ -6767,3 +6767,17 @@ dev推送了184，升级完蓝牙打不开了…………
 —— 来自 OnePlus ONEPLUS A5010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  凶手  
+##### 557#         楼主| 发表于 2021-9-11 19:24
+
+
+[https://rammichael.com/7-taskbar ... -look-at-windows-11](https://rammichael.com/7-taskbar-tweaker-and-a-first-look-at-windows-11)
+
+
+7+ taskbar tweaker 大部分功能都无法支持了 但好像 open last window 好像还能用？
+
+

@@ -12774,3 +12774,17 @@ nga玩国服的才是大多数，所以大多数都是国服思维，红卡在�
 翻页
 
 
+
+
+*****
+
+####  都谷捻柏  
+##### 83584#       发表于 2021-9-11 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52698769&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-09-10 18:27:32</a>
+隔壁我最看不懂的就是总有人来一句换人奥宝伤害没问题。。 默认换人了还用蓝卡？ ...</blockquote>很精分的，算伤害的时候都是换人，实际组队要求都是6加成不换人不绑衣服按键少时间少不出指令卡
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

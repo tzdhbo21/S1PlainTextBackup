@@ -2129,3 +2129,66 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 应该已经明确了吧，20年后等的是白星。也许要三大古代兵器集齐才能干点什么事？
 
 
+
+
+*****
+
+####  Supermangunv3  
+##### 55657#       发表于 2021-9-11 17:54
+
+
+ 本帖最后由 Supermangunv3 于 2021-9-11 17:55 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202109/11/175447ejp0xnckpncj3cdw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>77ne71oa2pysfj6smd1b6z9d4.jpg</strong> (178.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-9-11 17:54 上传
+
+
+惊了，尾田你究竟埋了多少伏笔？
+
+
+*****
+
+####  acejoe  
+##### 55658#       发表于 2021-9-11 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52710733&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2021-9-11 17:54</a>
+惊了，尾田你究竟埋了多少伏笔？</blockquote>
+谁啊？
+
+
+*****
+
+####  小野寺熊介  
+##### 55659#       发表于 2021-9-11 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52701176&amp;ptid=98922" target="_blank">武男 发表于 2021-9-10 20:53</a>
+
+那不是更LOW嘛，实锤御田只有皇副，凯多陪他玩玩</blockquote>
+只看表现也不行……
+
+因为御田打的是龙形凯多，而龙形凯多作为一个沙包，真的是个角色就能在他身上输出<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+御田除了输出比索神强，其他的被索神全面压制<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Supermangunv3  
+##### 55660#       发表于 2021-9-11 18:51
+
+
+<blockquote>acejoe 发表于 2021-9-11 18:44
+谁啊？</blockquote>
+这副画是个双关，明面上说的的栗子头大叔对自己的血缘的厌恶，但是却画了那么大一个山治，山治说自己是北海出生的也是在空岛篇，在之前阿拉巴斯坦篇也说过自己是王子。
+
+
