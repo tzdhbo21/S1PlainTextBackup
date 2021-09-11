@@ -9462,3 +9462,29 @@ Hard难度不手控奥尔芬的话感觉他死的超级快，三个小怪都能�
 新队友的SP怎么算，支线是不是做了不要交任务，等人齐了才去交任务划算一点？
 
 
+
+
+*****
+
+####  ky怪  
+##### 3794#       发表于 2021-9-11 10:03
+
+
+原来地图上cp药不会刷新啊，我怎么记得试玩版会刷新的
+感觉打boss跑迷宫cp实在是不够用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 除非队友发呆自己单挑
+
+
+*****
+
+####  dazzle  
+##### 3795#       发表于 2021-9-11 10:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52706810&amp;ptid=1860328" target="_blank">ky怪 发表于 2021-9-11 10:03</a>
+
+原来地图上cp药不会刷新啊，我怎么记得试玩版会刷新的
+
+感觉打boss跑迷宫cp实在是不够用 除非队友发 ...</blockquote>
+hard难度AI水平确实不太行，不过快速旅行做这么方便就是为了让你随时回去睡觉吧
+
+
