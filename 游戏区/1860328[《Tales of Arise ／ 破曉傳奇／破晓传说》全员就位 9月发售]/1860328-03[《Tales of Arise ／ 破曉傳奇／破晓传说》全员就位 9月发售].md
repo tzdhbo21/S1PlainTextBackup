@@ -12596,3 +12596,60 @@ DLC溜达了一圈看得我直呼内行，买个联动包意思下了，早知�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  kalavinka  
+##### 4048#       发表于 2021-9-12 01:22
+
+
+我秘奥义同时按住2个技能键放不出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  索非亚  
+##### 4049#       发表于 2021-9-12 01:23
+
+
+随着两个法爷技能和AG越来越多，中年人战斗时已经有点眼花了。刚打盾妹的时候各种法术糊脸，盾妹一个蹲防人影都看不到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shikiki  
+##### 4050#       发表于 2021-9-12 01:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52715809&amp;ptid=1860328" target="_blank">allenz3 发表于 2021-9-12 01:20</a>
+买的乞丐版，普通难度打完第二章，明显经验偏少比boss低级，全程霸体也没啥体验，但算不上难就是嗑药罢了， ...</blockquote>
+也不是打不过，但是这么搞真就在恶心人，再加上买衣服才有的技能，，这反差也太大了……
+
+
+
+
+*****
+
+####  reficul  
+##### 4051#       发表于 2021-9-12 01:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52715809&amp;ptid=1860328" target="_blank">allenz3 发表于 2021-9-12 01:20</a>
+
+买的乞丐版，普通难度打完第二章，明显经验偏少比boss低级，全程霸体也没啥体验，但算不上难就是嗑药罢了， ...</blockquote>
+说简单的都是普通难度，喊难的都是困难难度
+
+
+*****
+
+####  reficul  
+##### 4052#       发表于 2021-9-12 01:41
+
+
+26级还是25级了，刚好第三章去训练场打初级挑战，好难啊这个敌人配置，男主和法师都要靠猥琐着打不能被碰到，反倒是希侬的敌人配置也太简单了吧？第三波压根没难度
+
+
+洛的话感觉巨爽，在试炼场摸索了几个连段，把技能都试了一遍，大概第七还是第八次挑战终于过了，而且三分钟内，舒服了
+
+
