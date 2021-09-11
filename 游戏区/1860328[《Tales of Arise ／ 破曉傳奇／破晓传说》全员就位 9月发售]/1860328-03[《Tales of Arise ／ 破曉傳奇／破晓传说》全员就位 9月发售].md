@@ -9946,3 +9946,85 @@ nga居然有人在裱剧情+jrpg
 时尚品鉴这任务怎么完成啊
 
 
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 3830#       发表于 2021-9-11 12:01
+
+
+还好PC能当叮达人，这技能要靠刷出来也太丧病了
+
+不过感觉又都不是很实用的样子，就几个空中技和爪龙还行
+
+
+*****
+
+####  zero12  
+##### 3831#       发表于 2021-9-11 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707981&amp;ptid=1860328" target="_blank">目鱼 发表于 2021-9-11 11:59</a>
+
+时尚品鉴这任务怎么完成啊</blockquote>
+打完五个领主
+
+
+*****
+
+####  oniwarud  
+##### 3832#       发表于 2021-9-11 12:03
+
+
+<blockquote>zero12 发表于 2021-9-11 11:53
+nga居然有人在裱剧情+jrpg
+
+我确实感觉到这游戏火了，不火没这么多人骂.....</blockquote>
+绯红结系当时在nga围绕剧情也是撕的飞起的
+
+
+*****
+
+####  名字已被吃  
+##### 3833#       发表于 2021-9-11 12:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707670&amp;ptid=1860328" target="_blank">PureWaltz 发表于 2021-9-11 11:29</a>
+steam版用到了steam的手柄适配功能，官方配置按照原野、战斗、菜单、钓鱼分了四个场景，每个场景的按键可 ...</blockquote>
+艹，现在主机板只能改战斗状态的按键
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  SAKURAJIMA  
+##### 3834#       发表于 2021-9-11 12:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52707917&amp;ptid=1860328" target="_blank">zero12 发表于 2021-9-11 11:53</a>
+nga居然有人在裱剧情+jrpg
+
+我确实感觉到这游戏火了，不火没这么多人骂.....</blockquote>
+正常 JRPG在NGA可是流量密码
+
+
+*****
+
+####  redsibyl  
+##### 3835#       发表于 2021-9-11 12:16
+
+
+问一哈，上来看动画，这么多国家，不会跟轨迹一样用n部完结吧，还是传说就一部一个故事
+
+
+*****
+
+####  山风短  
+##### 3836#       发表于 2021-9-11 12:17
+
+
+有没有男主技能配置阿，感觉乱配的都不好用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
