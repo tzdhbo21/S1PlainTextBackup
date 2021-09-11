@@ -12745,3 +12745,32 @@ nga玩国服的才是大多数，所以大多数都是国服思维，红卡在�
 我也没用杀狐，奥伯龙和道满随便配个打手就基本通杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  zore  
+##### 83581#       发表于 2021-9-11 00:19
+
+
+仇伽摩这特攻不能吃满吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 83582#       发表于 2021-9-11 10:28
+
+
+我竟然，缺QP<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 83583#       发表于 2021-9-11 10:43
+
+
+翻页
+
+
