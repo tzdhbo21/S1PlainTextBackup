@@ -11721,3 +11721,55 @@ BA是有限的，蓄力火剑出招速度也不是很快，蓄力的时候有可
 盾姐停龙车要一定刚好冲过来才能停吗，打领主就停成功两次，一次还是过场动画
 
 
+
+
+*****
+
+####  fuochai  
+##### 3976#       发表于 2021-9-11 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52712325&amp;ptid=1860328" target="_blank">RushMove 发表于 2021-9-11 20:26</a>
+我次级难度打到第一章boss男女主才8级，boss15级，几乎吃一招就被秒。当时我还怀疑我是不是错过了什么重要 ...</blockquote>
+次级难度，我8级差一点9级，能打，不用道具<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+再说这游戏能随时调难度 这也算逼氪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucky95  
+##### 3977#       发表于 2021-9-11 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52712325&amp;ptid=1860328" target="_blank">RushMove 发表于 2021-9-11 20:26</a>
+ 我次级难度打到第一章boss男女主才8级，boss15级，几乎吃一招就被秒。当时我还怀疑我是不是错过了什么重要 ...</blockquote>
+DLC就算不选官方经验值金手指都是10级开局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还送200攻击的屠龙宝刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RushMove  
+##### 3978#       发表于 2021-9-11 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52712559&amp;ptid=1860328" target="_blank">fuochai 发表于 2021-9-11 20:41</a>
+
+次级难度，我8级差一点9级，能打，不用道具
+
+再说这游戏能随时调难度 这也算逼氪 ...</blockquote>
+这才第一章，也不是最高难度，难不成这游戏定位是什么硬核游戏吗？
+
+
+*****
+
+####  ccow  
+##### 3979#       发表于 2021-9-11 21:00
+
+
+<blockquote>RushMove 发表于 2021-9-11 20:53
+这才第一章，也不是最高难度，难不成这游戏定位是什么硬核游戏吗？</blockquote>
+让人嗑药磕到钱不够，而且B游戏掐经验和钱，逼你买DLC。
+
+

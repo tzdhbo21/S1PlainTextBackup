@@ -17568,3 +17568,16 @@ NTR本子好多都是发生在青梅竹马关系之中，虽然可能苦主从�
 恋爱又怎样，又不是曾经是小太妹，在公园烧轮胎玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 4412#       发表于 2021-9-11 20:43
+
+
+ラブライブ！スーパースター!! Comic Book 2人の時間! ～Special times～（１）封面，2021年9月30日发售
+<img src="https://p.sda1.dev/2/716207a3af1d70e3606ac7c9456553fb/81UNWSlwgHL._AC_SL1500_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/555b55339a3a88956cae2b8f9f1f3390/91R3gcqqpWL._AC_SL1500_.jpg" referrerpolicy="no-referrer">
+
+
