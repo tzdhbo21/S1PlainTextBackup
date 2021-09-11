@@ -10664,3 +10664,221 @@ PC版1060跑得动吗？</blockquote>
 pc版可以放心，dlc都在更新补丁里，黑客应该会做（正版）一键解锁的
 
 
+
+
+*****
+
+####  qiyu1234  
+##### 3882#       发表于 2021-9-11 15:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709633&amp;ptid=1860328" target="_blank">JudgmentEye 发表于 2021-9-11 15:18</a>
+
+pc版可以放心，dlc都在更新补丁里，黑客应该会做（正版）一键解锁的</blockquote>
+个人不考虑用解锁
+
+
+对这个系列，我已经形成了除店特/杂志限定以外的官方网络商店上架的DLC全买的习惯了
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 3883#       发表于 2021-9-11 15:24
+
+
+怎么切锁定来着，感觉有时候能切有时候不能切
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  qiyu1234  
+##### 3884#       发表于 2021-9-11 15:25
+
+
+小剧场3D化了以后
+
+整个游戏时装的存在感就更强了
+
+不愧是你啊万南
+
+
+一作完结，无剧情DLC
+
+未来应该会有些服装技能类的DLC，可能有新的联动作品？
+
+
+*****
+
+####  oniwarud  
+##### 3885#       发表于 2021-9-11 15:25
+
+
+这游戏是不是没有退出，每次都得切出来关掉
+
+
+*****
+
+####  supersssbc  
+##### 3886#       发表于 2021-9-11 15:27
+
+
+<blockquote>华发夜眼[CN] 发表于 2021-9-11 15:24
+怎么切锁定来着，感觉有时候能切有时候不能切
+
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 S1Next-鹅版 v ...</blockquote>
+l1加左腰杆
+
+
+*****
+
+####  JudgmentEye  
+##### 3887#       发表于 2021-9-11 15:28
+
+
+alt+f4
+
+
+*****
+
+####  kiralzb  
+##### 3888#       发表于 2021-9-11 15:28
+
+
+玩到主角面具全破了，这风boss的结局完全意料之中，倒是男女主这展开，太有既视感了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mimikami  
+##### 3889#       发表于 2021-9-11 15:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">第二个城boss打完了，硬邦邦的不会break，法术前摇又短打起来手感奇差，嗑复活药打过去了，估计跟前几作一样不到一半就弃了，这又不act又不rpg的系统玩起来真是不惯。
+
+
+*****
+
+####  cwbn  
+##### 3890#       发表于 2021-9-11 15:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709683&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-11 15:25</a>
+
+这游戏是不是没有退出，每次都得切出来关掉</blockquote>
+主机游戏的好传统
+
+
+*****
+
+####  Dreki  
+##### 3891#       发表于 2021-9-11 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709683&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-11 15:25</a>
+
+这游戏是不是没有退出，每次都得切出来关掉</blockquote>
+暂停键有回到标题界面，我用的手柄所以我也不知道你的暂停键是哪个
+
+
+*****
+
+####  qiyu1234  
+##### 3892#       发表于 2021-9-11 15:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709683&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-11 15:25</a>
+
+这游戏是不是没有退出，每次都得切出来关掉</blockquote>
+select键按下 选择返回标题界面
+
+在标题界面下选退出游戏
+
+
+*****
+
+####  oniwarud  
+##### 3893#       发表于 2021-9-11 15:32
+
+
+<blockquote>qiyu1234 发表于 2021-9-11 15:31
+select键按下 选择返回标题界面
+
+在标题界面下选退出游戏</blockquote>
+那我还是直接切出来关了算了，还快点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电风扇  
+##### 3894#       发表于 2021-9-11 15:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709675&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-11 15:24</a>
+
+怎么切锁定来着，感觉有时候能切有时候不能切
+
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 S1Next-鹅版 v ...</blockquote>
+长按L1战斗暂停，可以用左摇杆选择敌人
+
+短按L1选择最近的敌人
+
+
+*****
+
+####  cowgp01  
+##### 3895#       发表于 2021-9-11 15:41
+
+
+boss霸体很重，硬卖血打过去的，刚好主角回避性能高和卖血加伤，有你这样设计的么
+
+
+*****
+
+####  可知歌者也奈何  
+##### 3896#       发表于 2021-9-11 15:42
+
+
+从没接触过传说系列，很喜欢女主人设，加上cv是下地紫野，想入手，请问感情线如何？孤独终老的话就不买了。。
+
+—— 来自 samsung SM-N9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  SAKURAJIMA  
+##### 3897#       发表于 2021-9-11 15:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709819&amp;ptid=1860328" target="_blank">可知歌者也奈何 发表于 2021-9-11 15:42</a>
+从没接触过传说系列，很喜欢女主人设，加上cv是下地紫野，想入手，请问感情线如何？孤独终老的话就不买了。 ...</blockquote>
+想恰糖就放心买
+
+
+*****
+
+####  黑耀星尘  
+##### 3898#       发表于 2021-9-11 15:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709683&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-11 15:25</a>
+
+这游戏是不是没有退出，每次都得切出来关掉</blockquote>
+昨天也纳闷半天，后来有人告诉我是TAB键你可以试试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 3899#       发表于 2021-9-11 15:49
+
+
+其实这个战斗系统我不太get到爽点，特别是繁琐按键这点，所以现在我都直接自动了
+自动的话就只需控制角色技能和合体技了
+只是这角色技能最难用的应该是魔法妹的吧？对面的魔法发动和再发动间隔都贼快，这边的根本回不过来，也就是该吃的还得吃，也就boss时效果比较好……
+
+
