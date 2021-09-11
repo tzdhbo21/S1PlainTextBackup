@@ -12653,3 +12653,110 @@ DLC溜达了一圈看得我直呼内行，买个联动包意思下了，早知�
 洛的话感觉巨爽，在试炼场摸索了几个连段，把技能都试了一遍，大概第七还是第八次挑战终于过了，而且三分钟内，舒服了
 
 
+
+
+*****
+
+####  Antidote丶  
+##### 4053#       发表于 2021-9-12 01:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52715908&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-12 01:38</a>
+
+说简单的都是普通难度，喊难的都是困难难度</blockquote>
+我打得普通难度也被boss教育了，现在打第二个领主，有什么好点的解法嘛
+
+
+*****
+
+####  abysschaos  
+##### 4054#       发表于 2021-9-12 01:52
+
+
+ 本帖最后由 abysschaos 于 2021-9-12 01:55 编辑 
+
+我普通打完第3章也才23级，被支线28级石头人锤了
+
+
+*****
+
+####  iop000iop  
+##### 4055#       发表于 2021-9-12 01:52
+
+
+盾姐的特性咋发挥？我看介绍是防御成功会进入一个状态？还有防御时用技能，性能会强化，是指按住防御用技能吗？还是说要进入前面说的状态才行？
+
+
+*****
+
+####  久井路路  
+##### 4056#       发表于 2021-9-12 01:54
+
+
+通常战斗的bgm可真上头
+
+
+已经循环听几个小时了，感觉再听上几天都不是问题（
+
+有这种bgm的话打杂兵刷级对我而言也毫不疲劳（
+
+
+*****
+
+####  abysschaos  
+##### 4057#       发表于 2021-9-12 01:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52715966&amp;ptid=1860328" target="_blank">Antidote丶 发表于 2021-9-12 01:47</a>
+
+我打得普通难度也被boss教育了，现在打第二个领主，有什么好点的解法嘛</blockquote>
+做4个首饰防神雷吃点药就过去了
+
+
+*****
+
+####  听风不是雨  
+##### 4058#       发表于 2021-9-12 01:54
+
+
+<blockquote>iop000iop 发表于 2021-9-12 01:52
+盾姐的特性咋发挥？我看介绍是防御成功会进入一个状态？还有防御时用技能，性能会强化，是指按住防御用技能 ...</blockquote>
+开盾接任意一次攻击的瞬间用技能起手就会有霸体和伤害buff
+
+
+*****
+
+####  reficul  
+##### 4059#       发表于 2021-9-12 01:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52715966&amp;ptid=1860328" target="_blank">Antidote丶 发表于 2021-9-12 01:47</a>
+
+我打得普通难度也被boss教育了，现在打第二个领主，有什么好点的解法嘛</blockquote>
+没什么解法，我刷级了，洛有一个称号需要破甲40次，我在刷这个的时候主角就跟boss平级了，打起来不难，少点平A多绕着观察，boss出招就J回然后丢技能，多用增幅攻击把他打趴下
+
+读条大招我没能成功打断，但是人没死，不知道是不是会留最后一滴血，磕了团队1000血的瓶子就接着上
+
+
+*****
+
+####  Antidote丶  
+##### 4060#       发表于 2021-9-12 01:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52716001&amp;ptid=1860328" target="_blank">听风不是雨 发表于 2021-9-12 01:54</a>
+
+开盾接任意一次攻击的瞬间用技能起手就会有霸体和伤害buff</blockquote>
+开盾指的是哪个
+
+
+*****
+
+####  fuochai  
+##### 4061#       发表于 2021-9-12 02:00
+
+
+那个龙打出魂味了 铸币队友完全是cp黑洞 点个只回复当魂打<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+变成能喝45口原素瓶 还是老婆喂我喝 瞬间好打了 cp用完最后1/4血叫队友群殴 只用了两个复活瓶
+
+
