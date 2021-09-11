@@ -12339,3 +12339,141 @@ DLC就算不选官方经验值金手指都是10级开局
 二周目可以chaos了吧
 
 
+
+
+*****
+
+####  mashav  
+##### 4025#       发表于 2021-9-12 00:22
+
+
+请问战斗中可以换人吗，还是只能战斗前换呀
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 4026#       发表于 2021-9-12 00:22
+
+
+玩到第四章那个剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，只能说之前没有人具体指出是哪段剧情但是一玩到就知道是这段剧情，日本人的脑回路还是一如既往
+
+
+*****
+
+####  reficul  
+##### 4027#       发表于 2021-9-12 00:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52715366&amp;ptid=1860328" target="_blank">mashav 发表于 2021-9-12 00:22</a>
+
+请问战斗中可以换人吗，还是只能战斗前换呀</blockquote>
+锁定键按紧，方向键选人
+
+
+*****
+
+####  万里小路さん  
+##### 4028#       发表于 2021-9-12 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52714699&amp;ptid=1860328" target="_blank">reficul 发表于 2021-09-11 23:20:57</a>
+猫头鹰送的笑容眼镜太搞了，根本不敢戴着过剧情
+
+盾姐这背面，hso</blockquote>在营地休息的时候还会一本正经解释为什么背面是这样的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  peh  
+##### 4029#       发表于 2021-9-12 00:24
+
+
+这小两口土味调情好尴哦....而且这作练级速度怎么这么慢，我两个8级打ピエゾ真是输出全靠老婆
+
+
+*****
+
+####  peh  
+##### 4030#       发表于 2021-9-12 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52714859&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-9-11 23:33</a>
+
+翻车不是挺正常
+
+第一个火领主招式大开大合.....能打出魂味儿.....
+
+反正一周目也不指望着连击...跟 ...</blockquote>
+ピエゾ确实有那么点魂味，我吃不下他一下攻击，但招式拿来练暗影闪避就很舒服
+
+连击的话boss好像是不会进入Break状态的
+
+
+*****
+
+####  rgauss  
+##### 4031#       发表于 2021-9-12 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52714803&amp;ptid=1860328" target="_blank">红烧肉 发表于 2021-9-11 23:28</a>
+多用凤凰天驱……
+
+
+其他罚站的等时机好再用。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这招容易空啊
+
+
+*****
+
+####  shikiki  
+##### 4032#       发表于 2021-9-12 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52713640&amp;ptid=1860328" target="_blank">makar0601 发表于 2021-9-11 21:58</a>
+说明营销真的有用，这个时代多找点媒体吹吹做广告比这笔钱放在游戏上更有用。
+
+我打到下部想骂街了比起第四 ...</blockquote>
+说的太对了，第一章做了3个任务一脸懵逼的直接boss，等级只有9级，打出了魂味，特别是女主AI被连死，直接无解，然后切了难度才过的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">。数值设计是真的往道具网游那走了，休息点特意有个dlc选项，摆明了让你买dlc。干脆默认剧情难度算了。谁买dlc谁傻逼。
+
+
+*****
+
+####  JC_AR  
+##### 4033#       发表于 2021-9-12 00:32
+
+
+这作简化了怪物资料，进战斗不能查看了，弱化了属性克制，因为有体力限制和初始霸体，连击也不是很舒服，目前看来没有TOB爽
+
+
+*****
+
+####  ky怪  
+##### 4034#       发表于 2021-9-12 00:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52715431&amp;ptid=1860328" target="_blank">rgauss 发表于 2021-9-12 00:28</a>
+这招容易空啊</blockquote>
+战斗改成手动自己控制方向，炎剑派生打boss就是抓大硬直才能用的，另外没事不要蓄力 很容易暴毙
+
+
+*****
+
+####  春目漱口  
+##### 4035#       发表于 2021-9-12 00:38
+
+
+和这游戏电波对上了，一打就是一下午，有当初沉迷xb2的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  今晚吃啥  
+##### 4036#       发表于 2021-9-12 00:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">犹豫了半天想买，结果一看没中文....
+
+
