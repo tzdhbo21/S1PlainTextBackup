@@ -17670,3 +17670,28 @@ NTR本子好多都是发生在青梅竹马关系之中，虽然可能苦主从�
 不是中文，应该是某个日式外来语吧
 
 
+
+
+*****
+
+####  DARK_HGCG  
+##### 4419#       发表于 2021-9-11 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52714664&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-11 23:17</a>
+
+不是中文，应该是某个日式外来语吧</blockquote>
+原来是  
+
+THE チャラ です。
+
+
+*****
+
+####  笋狐  
+##### 4420#       发表于 2021-9-11 23:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5个人里姿势最怪的，什么金蛇缠丝手
+
+

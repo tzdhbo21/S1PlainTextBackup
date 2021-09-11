@@ -12191,3 +12191,109 @@ DLC就算不选官方经验值金手指都是10级开局
 长按，要按1秒以上
 
 
+
+
+*****
+
+####  reficul  
+##### 4014#       发表于 2021-9-11 23:20
+
+
+ 本帖最后由 reficul 于 2021-9-11 23:22 编辑 
+
+猫头鹰送的笑容眼镜太搞了，根本不敢戴着过剧情
+
+盾姐这背面，hso
+
+
+*****
+
+####  市松椿  
+##### 4015#       发表于 2021-9-11 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52714501&amp;ptid=1860328" target="_blank">千千千千鸟 发表于 2021-9-11 23:04</a>
+
+软泥BOSS出来之后气得我把自制的武器全卖了，钱全部买药，再换上DLC武器，明天再打了，打这一个boss比玩一 ...</blockquote>
+别玩困难不就好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红烧肉  
+##### 4016#       发表于 2021-9-11 23:25
+
+
+我也刚打完第二城市。软泥BOSS第一次打团灭了。
+
+第二次打知道技能之后就轻松了，BOSS本身技能并不复杂，挺好躲的，主要是召唤小怪。
+
+
+但是小怪貌似只会3连喷水魔法，所以我主打BOSS，不管小怪，小怪魔法唱差不都了就翻滚躲水柱。
+
+靠AOE把小怪蹭死。
+
+专门打小怪反而容易进入打小怪--BOSS打不死--BOSS又召唤小怪的循环里。
+
+
+光领主……
+
+光抗+50%饰品带上。
+
+
+另外想问一下，本作是只能装3个技能（地面+空中），还是之后可以开放更多的技能组。
+
+
+*****
+
+####  火红之眼  
+##### 4017#       发表于 2021-9-11 23:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">白金了，50小时没skip过，整体内容量跟TOX差不多，隐藏要素都差不多，但没做什么刷刷刷要素，加上各方面又很人性化，耗时倒不多
+
+回头越想越觉得这作根本就是不赶工做的TOX<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，虽然内容量肯定没S组以前那么多就是了
+
+
+*****
+
+####  红烧肉  
+##### 4018#       发表于 2021-9-11 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52713442&amp;ptid=1860328" target="_blank">rgauss 发表于 2021-9-11 21:41</a>
+
+问一下 咋防止男主拔刀蓄力暴毙啊
+
+蓄力不注意就被打死了</blockquote>
+多用凤凰天驱……
+
+
+其他罚站的等时机好再用。
+
+
+*****
+
+####  hypnossz86  
+##### 4019#       发表于 2021-9-11 23:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52713979&amp;ptid=1860328" target="_blank">市松椿 发表于 2021-9-11 22:21</a>
+
+情热和绯夜都是最高难度通关的，虽然5年没玩同系列了，但现在是普通难度boss战都经常翻车，不买金手指看来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">翻车不是挺正常
+
+第一个火领主招式大开大合.....能打出魂味儿.....
+
+反正一周目也不指望着连击...跟他玩回合制呗
+
+
+*****
+
+####  正直的黄瓜  
+##### 4020#       发表于 2021-9-11 23:36
+
+
+普通难度这些BOSS我打的都吃力，好几个BOSS都重试了好多次才过
+
+
