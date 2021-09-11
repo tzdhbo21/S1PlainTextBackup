@@ -19261,3 +19261,26 @@ rapper史诗级强化，但据说由美的肥姑妈品控非常差缺胳膊少�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  yygundam  
+##### 5995#       发表于 2021-9-11 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52711195&amp;ptid=1570791" target="_blank">windaria 发表于 2021-9-11 18:45</a>
+
+中了一个坂本美绪，需要花奖牌换专用吗，还是说绿装也够了</blockquote>
+你想玩这角色的话就推荐换出来，联动角色的装备兑换是限时的，现在不换的话以后只能自己调查慢慢刷了，挺烦的。想节约牌子的话那就可以等刷到交换期限最后一天再去换缺的装备。
+
+
+*****
+
+####  hypnossz86  
+##### 5996#       发表于 2021-9-11 20:19
+
+
+美绪挺强的，目押配合反击手，容错率高输出也高
+
+
