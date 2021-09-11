@@ -10461,3 +10461,108 @@ BOSS加钢体就算了，小兵也钢体，不清楚制作人怎么想的，不�
 没懂，游戏里显示的count是次数吧？那经验是在哪里看的
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 3867#       发表于 2021-9-11 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709361&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-11 14:39</a>
+
+没懂，游戏里显示的count是次数吧？那经验是在哪里看的</blockquote>
+人物能力那个界面
+
+
+*****
+
+####  reficul  
+##### 3868#       发表于 2021-9-11 14:43
+
+
+劫法场的演出确实神秘，是机能原因吗？为什么不能把敌人复制粘贴多一些，好歹营造一个大军的样子，打了几个敌人说不行对方人太多了，镜头一转，两个步兵拿着枪慢慢走上来，拜托我们这里至少有4个战斗力啊，好歹复制黏贴20个步兵吧
+
+
+*****
+
+####  巨馍蘸酱  
+##### 3869#       发表于 2021-9-11 14:46
+
+
+PC版1060跑得动吗？
+
+
+*****
+
+####  hypnossz86  
+##### 3870#       发表于 2021-9-11 14:50
+
+
+林薇儿这个术charge怎么搞？
+按住术键charge了第一次，一松手不就释放了？
+怎么继续charge成上位术呃
+
+
+
+
+*****
+
+####  黑耀星尘  
+##### 3871#       发表于 2021-9-11 14:51
+
+
+ 本帖最后由 黑耀星尘 于 2021-9-11 14:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">玩到劫法场为止的演出是真的尬。就没有一个能调动人感情的。大叔就遗憾了还挺喜欢这角色的
+
+有一说一我很吃女主的颜<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电风扇  
+##### 3872#       发表于 2021-9-11 14:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709165&amp;ptid=1860328" target="_blank">后入芙蓉王 发表于 2021-9-11 14:19</a>
+
+玩到下水道，打怪感像是在跳舞，没有啥手感可言
+
+
+怪物自己一套动作，玩家角色自己一套动作，破不了防就是等 ...</blockquote>
+just回避<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">，J回后普通攻击会变为追踪攻击+必定破防
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 3873#       发表于 2021-9-11 14:53
+
+
+听到别祖就想到比安弗。。
+
+—— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  cwbn  
+##### 3874#       发表于 2021-9-11 14:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52709417&amp;ptid=1860328" target="_blank">巨馍蘸酱 发表于 2021-9-11 14:46</a>
+
+PC版1060跑得动吗？</blockquote>
+960都跑的很正常
+
+
+*****
+
+####  Emmerich  
+##### 3875#       发表于 2021-9-11 14:58
+
+
+请问一下那些氪金衣服给的称号 听说正常流程后期也是能拿到的？
+
+
