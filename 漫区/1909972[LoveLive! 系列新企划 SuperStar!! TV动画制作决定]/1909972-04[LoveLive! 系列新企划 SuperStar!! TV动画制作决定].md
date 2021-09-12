@@ -670,3 +670,150 @@ Eテレ 19(日)夜7時
 还有这集对民警的迫害有点过头了，我不是民警推都觉得惨
 
 
+
+
+*****
+
+####  寒风夜  
+##### 4558#       发表于 2021-9-12 21:04
+
+
+ 本帖最后由 寒风夜 于 2021-9-12 21:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724606&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-12 20:59</a>
+
+民警的塑造跟当初妮可基本是一样的，想当c位，魔性口头禅，有一个欢喜冤家，被迫害役，这集还致敬了便便帽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">真庆幸霞不是他啊 
+
+
+*****
+
+####  梶原ひかり  
+##### 4559#       发表于 2021-9-12 21:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724606&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-12 20:59</a>
+
+民警的塑造跟当初妮可基本是一样的，想当c位，魔性口头禅，有一个欢喜冤家，被迫害役，这集还致敬了便便帽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">比起nico 更像是 善子 吧....或者说是两者融合 
+
+善子 在水团里 可是引 厄运的那个..
+
+
+*****
+
+####  damian-wade  
+##### 4560#       发表于 2021-9-12 21:08
+
+
+妮就算动画各种迫害，好歹还能吃几口正常的妮姬糖，正经的时候大家也都当她是前辈部长看待，民警待遇真的纯小丑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4561#       发表于 2021-9-12 21:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ksks也是前辈前辈叫的勤快支棱起来了，一开始屑剧情也是挺多的
+
+
+*****
+
+####  qratosone  
+##### 4562#       发表于 2021-9-12 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724720&amp;ptid=1909972" target="_blank">damian-wade 发表于 2021-9-12 21:08</a>
+妮就算动画各种迫害，好歹还能吃几口正常的妮姬糖，正经的时候大家也都当她是前辈部长看待，民警待遇真的纯 ...</blockquote>
+56两集还行吧
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kata魂  
+##### 4563#       发表于 2021-9-12 21:09
+
+
+现在民堇缺一个立体的塑造，妮可看着迫害那么多，但实际上果果不干的时候自己直接拉花凛继续学园偶像很吸粉的，而且作为前辈没有什么架子人气就很高了
+
+也不求民堇个人回第一季出现，就来个跟妮可差不多的那种有魄力的行动就好。
+
+
+*****
+
+####  黑雪姫  
+##### 4564#       发表于 2021-9-12 21:11
+
+
+ 本帖最后由 黑雪姫 于 2021-9-12 21:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724744&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-12 21:09</a>
+
+现在民堇缺一个立体的塑造，妮可看着迫害那么多，但实际上果果不干的时候自己直接拉花凛继续学园偶像很吸粉 ...</blockquote>
+现在民警有两点需要解决，
+
+一是对学园偶像的态度改变，现在她依然还是拿学园偶像当跳板，
+
+二是跟可可的关系，这点也是第一点的延伸，可可对民警态度差也是因为她瞧不起学园偶像..
+
+那只有追可可飞机了，两人关系改善我只能想到这点了。
+
+
+*****
+
+####  kata魂  
+##### 4565#       发表于 2021-9-12 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724765&amp;ptid=1909972" target="_blank">黑雪姫 发表于 2021-9-12 21:11</a>
+
+那只有追可可飞机了，两人关系改善我只能想到这点了。</blockquote>
+可堇一战封神是吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+要是这么干还真的把堇的性格加上可堇一下子拉满
+
+
+*****
+
+####  Eric_方歌阙  
+##### 4566#       发表于 2021-9-12 21:15
+
+
+ 本帖最后由 Eric_方歌阙 于 2021-9-12 21:19 编辑 
+
+路人观众，就看了本季动画和一些熟肉切片。C位伊达小百合专业素质也太强了，很难想象她才18岁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，怕不是真有偶像部
+
+LL企划很多这种人才吗
+
+
+*****
+
+####  寒风夜  
+##### 4567#       发表于 2021-9-12 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724606&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-12 20:59</a>
+
+民警的塑造跟当初妮可基本是一样的，想当c位，魔性口头禅，有一个欢喜冤家，被迫害役，这集还致敬了便便帽 ...</blockquote>
+不过人这么搞也不能只怪花田，监督也跑不了
+
+
+*****
+
+####  kata魂  
+##### 4568#       发表于 2021-9-12 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724820&amp;ptid=1909972" target="_blank">Eric_方歌阙 发表于 2021-9-12 21:15</a>
+
+路人观众，就看了本季动画和一些熟肉切片。C位伊达小百合专业素质也太强了，很难想象她才18岁[f:068 ...</blockquote>
+年龄的话小百合综合是独一档的，真正的未来战士
+
+如果不限年龄看能力的话还是有很多的，不过得看生放和live去感受
+
+

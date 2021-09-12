@@ -15916,3 +15916,88 @@ N难度下买了2倍成长后，以前的传说闭眼乱砍的打法又回来了
 带不够药打BOSS真的能把人逼疯，药带够就是打消耗战罢了，BOSS杀伤我方角色速度远不及队友回复的速度<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 4320#       发表于 2021-9-12 21:11
+
+
+法师能存几个技能，只能存一个吗
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  红魔馆的糖  
+##### 4321#       发表于 2021-9-12 21:12
+
+
+不太明白为什么用这种一个野外地图接一个野外地图的闯关类叙事。。。然后城镇做的简陋，NPC没一个有眼缘。就是一关一关地跑<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">最后为了boss战给你编点剧情
+
+是没来得及打磨城镇还是干脆懒得做了，或者就是这么企划的
+
+也可能是我还没玩多少，不过我之前玩的两部传说好像和这个流程也差不离，这也算。。传统的一种？
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 4322#       发表于 2021-9-12 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723959&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-12 20:01</a>
+换下来的武器记得不要卖掉，后面会有改版的武器需要前一个武器作为素材。。。我被坑了 ...</blockquote>
+多谢，已经卖掉两把剑了，及时止损<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 4323#       发表于 2021-9-12 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724384&amp;ptid=1860328" target="_blank">喵喵叫的猫 发表于 2021-9-12 20:42</a>
+这代动画算是唯一继承传奇系列画风的 虽然有点拉但我觉得情怀上还可以吧 ...</blockquote>
+还是ufo太拉了，ufo认真做肯定不至于
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  bairn  
+##### 4324#       发表于 2021-9-12 21:19
+
+
+那个隐藏迷宫在哪，土我已经打完了现在进去就直接到一个空boss房，但旁边有一个回血阵
+
+
+*****
+
+####  黄昏的轮回  
+##### 4325#       发表于 2021-9-12 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722130&amp;ptid=1860328" target="_blank">lucky95 发表于 2021-9-12 16:49</a>
+
+可以查查ToZ真的仲间最后变成怎样了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了看ナカイド的视频，以前就有所耳闻，没想到马场英雄可以对一个女主角玩出这么大的恶意，小松的魅力原来如此之大嘛。但是这个剧情DLC是一开始就计划好的还是中途才追加的？
+
+
+*****
+
+####  whzfjk  
+##### 4326#       发表于 2021-9-12 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724771&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 21:12</a>
+
+不太明白为什么用这种一个野外地图接一个野外地图的闯关类叙事。。。然后城镇做的简陋，NPC没一个有眼缘。 ...</blockquote>
+就是保守古旧的设计，导演内心 OS：“没有那个必要”
+
+
