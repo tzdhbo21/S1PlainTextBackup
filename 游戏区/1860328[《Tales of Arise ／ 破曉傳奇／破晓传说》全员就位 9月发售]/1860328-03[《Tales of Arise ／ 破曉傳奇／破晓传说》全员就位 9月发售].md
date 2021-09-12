@@ -13373,3 +13373,88 @@ BOSS前一般都有补给阵，补满打BOSS.......</blockquote>
 秒变生存吃鸡游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  七氷  
+##### 4114#       发表于 2021-9-12 11:21
+
+
+乱入了个巨龙，复活药全用完了 ，还剩15000血，刮痧刮死了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reficul  
+##### 4115#       发表于 2021-9-12 11:24
+
+
+第三章这个剧情有点神秘啊，典型的日式思想
+
+论迹不论心，不管领主心里怎么想的，一来你们过上了好日子，二来你们也偏安一隅，你们的理想也不是复国或者推翻雷纳啊？怎么突然就无法接受了，领主大可学“老爷见不得穷人”，直接把你们赶到一个小圈子里永远不出现在他眼前啊，人家选择了这么个善待的方式本来就很说明问题了
+
+
+盾姐的声优情绪高涨时声音听起来反而变年幼了
+
+
+*****
+
+####  makar0601  
+##### 4116#       发表于 2021-9-12 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718483&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-12 11:24</a>
+
+第三章这个剧情有点神秘啊，典型的日式思想
+
+论迹不论心，不管领主心里怎么想的，一来你们过上了好日子，二 ...</blockquote>
+第三章都顶不住了，第四章欢迎你
+
+
+*****
+
+####  amuro_h  
+##### 4117#       发表于 2021-9-12 11:26
+
+
+这次杂兵战bgm 调调上和霸天开拓史1 2的杂兵bgm感觉差不多啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  415452356  
+##### 4118#       发表于 2021-9-12 11:32
+
+
+  33小时了，最开始那个给他服装建议的男的怎么还没换好衣服，是要去哪里继续推进这个任务？
+
+  还有那个找古代乐器的任务我也没做，先做这两个再推进剧情了。
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4119#       发表于 2021-9-12 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718483&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-12 11:24</a>
+第三章这个剧情有点神秘啊，典型的日式思想
+
+论迹不论心，不管领主心里怎么想的，一来你们过上了好日子，二 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盾姐的思路是自己哥哥居然是给这样一个懦弱的废物服务到死所以非常生气，有点像全副身家投给了贾老板造车的感觉
+
+
+*****
+
+####  zero12  
+##### 4120#       发表于 2021-9-12 11:38
+
+
+<blockquote>415452356 发表于 2021-9-12 11:32
+33小时了，最开始那个给他服装建议的男的怎么还没换好衣服，是要去哪里继续推进这个任务？
+
+  还有那个找 ...</blockquote>
+换衣服得打完五个领将之后才会推进
+
+
