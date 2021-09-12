@@ -12868,3 +12868,17 @@ QQ图片20210912170921.jpg
 刀剑乱舞，那么炼狱当然是男性啦（……
 
 
+
+
+*****
+
+####  森兰丸  
+##### 83591#       发表于 2021-9-12 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722406&amp;ptid=1085254" target="_blank">霧谷藤乃 发表于 2021-9-12 17:19</a>
+
+刀剑乱舞，那么炼狱当然是男性啦（……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你忘了DMM还有一个开服没多久就暴毙的剑女人
+
+
