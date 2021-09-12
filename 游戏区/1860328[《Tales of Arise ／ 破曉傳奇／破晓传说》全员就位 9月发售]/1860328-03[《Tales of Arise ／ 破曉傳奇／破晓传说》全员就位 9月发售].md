@@ -15262,3 +15262,84 @@ steam,要帧数有帧数，要画质有画质，要mod有mod，御三家全套�
 地图比较地球村的感觉，目前我感受到唯一有点PS5震动那味的场景就只有女主的秘奥义。
 
 
+
+
+*****
+
+####  hkguty  
+##### 4266#       发表于 2021-9-12 19:07
+
+
+女主感觉就是翻版光，我目前的印象就只有吃不胖的饭桶这一点，法师在阿周那加入以后依然天天嘴臭雷纳人，感觉跟当初预想的反差有点大
+
+
+*****
+
+####  JudgmentEye  
+##### 4267#       发表于 2021-9-12 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722396&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 17:17</a>
+
+ps5有手柄，pc有mod和修改
+
+
+看需要鱼还是需要熊掌，画面都差不多</blockquote>
+x确定的手柄拜拜了您那
+
+
+*****
+
+####  JudgmentEye  
+##### 4268#       发表于 2021-9-12 19:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722375&amp;ptid=1860328" target="_blank">fate99 发表于 2021-9-12 17:16</a>
+
+看了评价好像还不错，想问问steam 和PS5版哪个更好？</blockquote>
+任何游戏都是有pc当然pc
+https://bbs.saraba1st.com/2b/thread-2025914-1-1.html
+
+
+*****
+
+####  oniwarud  
+##### 4269#       发表于 2021-9-12 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723327&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 18:57</a>
+
+想了想，想象成五条村在村斗，这剧情突然就合理了</blockquote>
+哪来的村斗，这几个国家之间交流少到可以忽略不计，完全就不是国家，这就是几个道馆，主角团就是一个个道馆攻略过去打馆主拿不同属性徽章的。这领将王争的背景世界观说实话非常的黄油，你还非要搞严肃的就看着特出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 4270#       发表于 2021-9-12 19:21
+
+
+自从TOX1皇帝陛下CG里带着大帮人马御驾亲征回头和几位将军分批次一个人一把刀路边劫道之后就对打道馆压力不大了
+
+
+*****
+
+####  JudgmentEye  
+##### 4271#       发表于 2021-9-12 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722472&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2021-9-12 17:27</a>
+
+话说这个不能回看cg的吗，只找到了小剧场和ufo的动画回放</blockquote>
+直接pc播放器看/Arise/Content/Binaries/Movie下的usm动画文件吧
+
+
+*****
+
+####  mashirotan  
+##### 4272#       发表于 2021-9-12 19:23
+
+
+三个版本买哪个版本好？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+

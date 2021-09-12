@@ -1544,3 +1544,19 @@ GBA版里有个纸飞机的小游戏，，哪里玩的到
 最近的话3DS那作就有两个版本的蹦罗小游戏
 
 
+
+
+*****
+
+####  oidoid  
+##### 128#       发表于 2021-9-12 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721127&amp;ptid=2010127" target="_blank">克里斯邓恩 发表于 2021-9-12 15:14</a>
+吉米攀岩最无聊</blockquote>
+说实话要不是各角色第一次的boss战强制使用该角色
+这些boss战根本没难度和挑战感
+
+然而反过来说， 这些角色的“特殊操作”只是让人觉得系统在故意捣乱添加障碍而已
+
+
