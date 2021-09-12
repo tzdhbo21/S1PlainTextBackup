@@ -1219,3 +1219,100 @@ ll就不能把live放在ed么？
 唱歌跳舞拉流量进来确实很可能吸引到投资233333
 
 
+
+
+*****
+
+####  TTAA  
+##### 4602#       发表于 2021-9-12 23:49
+
+
+突然想到，既然恋恋家没那么多人住，可可租的地方又不能练舞，这两人干脆住一块得了，恋恋能收到一份房租，可可晚上回家也有练习的地方，平常两个学霸还能一起交流，妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 4603#       发表于 2021-9-12 23:52
+
+
+可恋永远不输呗
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4604#       发表于 2021-9-12 23:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">吉祥物只能有一个，所以刀二代杜海涛的概率还真挺大
+
+
+*****
+
+####  ads147147  
+##### 4605#       发表于 2021-9-12 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726722&amp;ptid=1909972" target="_blank">TTAA 发表于 2021-9-12 23:49</a>
+突然想到，既然恋恋家没那么多人住，可可租的地方又不能练舞，这两人干脆住一块得了，恋恋能收到一份房租， ...</blockquote>
+已经在讨论是恋恋卖房子去可可家打拼还是可可去恋家住交高额房租拯救恋恋。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  安瓦尔阿明  
+##### 4606#       发表于 2021-9-12 23:54
+
+
+前半集以欺负堇为基础的搞怪还不错，后半集的超展开感觉一般。
+
+
+*****
+
+####  wuxiaojing  
+##### 4607#       发表于 2021-9-12 23:54
+
+
+我觉得欢喜冤家的塑造也远不如之前<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 4608#       发表于 2021-9-12 23:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726670&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-12 23:43</a>
+唱歌跳舞拉流量进来确实很可能吸引到投资233333</blockquote>
+日本校园偶像培训学校，来霓虹一年集训即可回中国创业或者进修艺术大学，投资**滴有*
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  cybernetics31  
+##### 4609#       发表于 2021-9-12 23:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还好中之人漂亮
+
+
+*****
+
+####  asda  
+##### 4610#       发表于 2021-9-13 00:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724176&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-12 20:22</a>
+
+不知哪听说的，它不是直接翻译日文，而是先翻译成英文然后再翻译为中文，因为翻了两次，所以容易出错。 ...</blockquote>
+传闻google是把所有语言都翻成同一种过渡语言(好像还不是英文, 而是一种机械语), 再译过去的, 这样的话扩充新语言就可以省掉一半工作
+
+
+不过现在日译中被推荐用edge自带的啊, 特别是那个读屏的发音比google强了不只一个量级
+
+

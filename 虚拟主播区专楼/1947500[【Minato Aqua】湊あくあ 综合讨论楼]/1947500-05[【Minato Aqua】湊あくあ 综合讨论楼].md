@@ -11650,3 +11650,19 @@ TC应该还会有
 坏消息：可能只有联动3播（大胆预测）
 
 
+
+
+*****
+
+####  Scardy  
+##### 6940#       发表于 2021-9-12 23:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726204&amp;ptid=1947500" target="_blank">nian1538 发表于 2021-9-12 23:00</a>
+
+好消息：下周保底联动4播
+
+坏消息：可能只有联动4播（大胆预测）</blockquote>
+什么联动这么多啊
+
+

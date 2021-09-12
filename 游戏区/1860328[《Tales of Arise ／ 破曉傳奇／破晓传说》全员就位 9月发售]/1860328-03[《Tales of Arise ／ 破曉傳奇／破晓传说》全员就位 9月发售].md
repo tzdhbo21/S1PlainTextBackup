@@ -16343,3 +16343,63 @@ mono在xb2还是属于穷讲究，有诚意也有点想法 ...</blockquote>
 新的几代传说全是这种跑路接跑路的地图，冒险感太少了，感觉自己变成了赶剧情的工具人。
 
 
+
+
+*****
+
+####  幽香  
+##### 4355#       发表于 2021-9-12 23:47
+
+
+后排再问下这次可以操控四大精灵嘛？
+
+
+*****
+
+####  alucardcz  
+##### 4356#       发表于 2021-9-12 23:49
+
+
+现在有详细点的wiki攻略了吗
+
+
+*****
+
+####  红魔馆的糖  
+##### 4357#       发表于 2021-9-12 23:49
+
+
+第二个道馆打完。感觉这作各部分都是庸作哇
+割裂的要死的节奏，按了快进，仿佛制作组都巴不得赶紧跳过去的剧情
+
+这么紧凑却加了好多为了跑迷宫的跑迷宫
+
+不错的战斗系统，却对应拉跨到极致的怪物设计<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+女角色们和cp对话算是流程中少有的慰藉了
+
+也有可能是之前打完demo和前期的期待太高了，有点落差<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  信长的呕吐  
+##### 4358#       发表于 2021-9-12 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726620&amp;ptid=1860328" target="_blank">静静在想我 发表于 2021-9-12 23:37</a>
+第三章boss差点死档了，等级差了四级，药也只有4瓶复活药，武器装备也不是最好的，甚至没有吃饭buff，不能 ...</blockquote>
+其实 你可以回标题读auto的存档<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  静静在想我  
+##### 4359#       发表于 2021-9-12 23:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726745&amp;ptid=1860328" target="_blank">信长的呕吐 发表于 2021-9-12 23:51</a>
+其实 你可以回标题读auto的存档</blockquote>
+我读的是最近的那个档，但是已经在楼梯上了，还是不能离开，可能要读更早的那个吧，虽然还是不太能明白为什么这个boss前要这么设计<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer"> 
+
+
