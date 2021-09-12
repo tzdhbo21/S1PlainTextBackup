@@ -16121,3 +16121,38 @@ N难度下买了2倍成长后，以前的传说闭眼乱砍的打法又回来了
 而且我也没只指mono啊，前面还有个se呢，这才是jrpg里搞即时过场演出最强的。ff7re这种偏写实风的游戏各种超级细节的表情和动作让演出还有那种非常棒的二次元感。现在给我的感觉就是只有square出来的rpg制作人会在过场演出上特别注重面部表情这一块，这方面的积累还真不是靠堆技术就能实现的，特别是这种比较二次元的游戏没法用面部动捕很多时候都得靠手k表情，这就完全考验导演和团队的功力了。
 
 
+
+
+*****
+
+####  alucardcz  
+##### 4337#       发表于 2021-9-12 22:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52725214&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-12 21:43</a>
+
+问下增幅协力攻击除了用十字键选择的角色外.....和谁协力是随机还是能指定的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从偷跑的全技能视频来看 应该是都可以协力   当然我没看全 我怕被剧透
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4338#       发表于 2021-9-12 22:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52725454&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-12 21:58</a>
+所以我还专门指了个文戏，就xb2第二章最后那段篝火的文戏也没几个jrpg的即时演算过场能做到那种水平了吧 ...</blockquote>
+那是因为这方面大家都认se是大哥，虽然se路数其实不太一样吧
+mono在xb2还是属于穷讲究，有诚意也有点想法但是细节都透着预算不足的无奈，比如基本匀速移动的头部和过度使用的通用动作，你说这是业界强者我真的不是很认同
+
+
+*****
+
+####  红魔馆的糖  
+##### 4339#       发表于 2021-9-12 22:23
+
+
+小姑娘的两个buff是持续多久的呀
+
+
