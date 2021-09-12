@@ -17799,3 +17799,73 @@ THE チャラ です。
 字幕组矛盾可太正常了，哪个圈子都会有的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  D麦林  
+##### 4430#       发表于 2021-9-12 16:30
+
+
+两个瓜吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+一个是某前校对和人线下交易DD1st票闹矛盾的事情
+
+一个是俩组长矛盾 如图
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/162957gdcwf3h33n3qnf77.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210912162936.png</strong> (177.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 16:29 上传
+
+
+*****
+
+####  JustW  
+##### 4431#       发表于 2021-9-12 16:38
+
+
+毫无社会经验的人在小圈子沾了点权力和吹捧就暴露出自己的幼稚和卑劣是很正常的事，已经品鉴够多了
+
+
+*****
+
+####  D麦林  
+##### 4432#       发表于 2021-9-12 16:38
+
+
+线下闹矛盾那个 看了聊天记录 大概就是
+
+某人整了连票想出一张 本来想说送给想看的同好的
+
+结果对方似乎不怎么上心 又是鸽了对方两小时才来 又是莫名奇妙开始扭捏
+
+（有一段是到现场以后让把棒子拿出来点亮方便找人 结果对方说啥都不愿意还说什么怕社死 可那是演唱会现场啊周围不只有死宅吗）
+
+然后前者大概被搞得有点怨气就说话有点冲了 然后说你搞成这样我就不送了原价出
+
+结果后者直接找人挂了前者 直接扣大帽子说是什么坐地起价啊胁迫女性啊图谋不轨都来了
+
+给我感觉就是一方不怎么会说话 一方不怎么尊重人 挂人的文案有点逆天
+
+然后看评论区似乎还有人说背后还另有积怨 这我就真不知道了
+
+总之感觉是个烂瓜
+
+
+*****
+
+####  普之舜舜  
+##### 4433#       发表于 2021-9-12 16:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">安静看番剧就好了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

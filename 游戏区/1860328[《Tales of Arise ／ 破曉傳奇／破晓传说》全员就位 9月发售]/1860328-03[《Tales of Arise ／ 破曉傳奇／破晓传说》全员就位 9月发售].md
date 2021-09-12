@@ -14635,3 +14635,102 @@ ppt不是过场，是系列传统skit的进化版</blockquote>
 我倒是想买那个黑礼服（好像是和sao联动的？），但是商店里找不到，是没上么
 
 
+
+
+*****
+
+####  饭来张口  
+##### 4213#       发表于 2021-9-12 16:28
+
+
+刚打完别祖，战斗系统实在玩不明白，没有那种自己知道自己在干什么的掌控感。请问有没有那种给猴子看的手把手教学或者连招技能推荐之类的可看？
+
+
+*****
+
+####  Rainwedell  
+##### 4214#       发表于 2021-9-12 16:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721811&amp;ptid=1860328" target="_blank">黄昏的轮回 发表于 2021-9-12 16:14</a>
+新人传说玩家。想请问根据以往经验南万有没有靠后续dlc修正补完的可能性
+
+—— 来自 OnePlus ...</blockquote>
+一般传说不干这事，差不多就是全部dlc了，本作也没有剧情dlc（toz除外，它干了，暴死了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  饭来张口  
+##### 4215#       发表于 2021-9-12 16:32
+
+
+剧情上我喜欢男主这个个性，三观素质情商都在线，真挺好
+
+
+*****
+
+####  黄昏的轮回  
+##### 4216#       发表于 2021-9-12 16:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721987&amp;ptid=1860328" target="_blank">饭来张口 发表于 2021-9-12 16:32</a>
+剧情上我喜欢男主这个个性，三观素质情商都在线，真挺好</blockquote>
+那可真是感觉可惜，本作其他方面我都觉得很对胃口，就是这boss战实在是吃屎一样，明明演出啥的搞得挺认真的。为什么不能让我把神父踢到空中乱干呢。听说二周目也没新内容的话，战斗完全体了去哪里刷？
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  李锐可  
+##### 4217#       发表于 2021-9-12 16:39
+
+
+第三章那个在办公室的钥匙不能触发，刚从贵人之间剧情出来。是我没差什么条件还是bug吗
+
+
+*****
+
+####  索田八公  
+##### 4218#       发表于 2021-9-12 16:42
+
+
+ 本帖最后由 索田八公 于 2021-9-12 16:46 编辑 
+
+白金了，困难难度，买的普通版，花了不到60h，流程时长跟历代差不多，但总内容还是太少了
+
+
+QQ截图20210912164048.jpg
+(71.12 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-12 16:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/164111w33r0b4vujvxcvj9.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 4219#       发表于 2021-9-12 16:42
+
+
+圣堂这玩意也太奇怪了吧，进入后一直战斗模式，跑都跑不起来，最后的boss也是堆怪，场面混乱得要死<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjk  
+##### 4220#       发表于 2021-9-12 16:43
+
+
+听老手推荐手动档，但是感觉经常方向搞错距离搞错？
+
+
