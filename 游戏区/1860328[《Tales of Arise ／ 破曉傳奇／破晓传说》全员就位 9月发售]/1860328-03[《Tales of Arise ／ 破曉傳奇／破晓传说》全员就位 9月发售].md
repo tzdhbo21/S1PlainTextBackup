@@ -14933,3 +14933,68 @@ ps5有手柄，pc有mod和修改
 还好这个boss没小怪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ky怪  
+##### 4237#       发表于 2021-9-12 17:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720172&amp;ptid=1860328" target="_blank">6847651 发表于 2021-9-12 13:42</a>
+吃饱回CP每次就回2有什么用？还我1560SP</blockquote>
+多买几个 我买了3个
+
+
+*****
+
+####  alucardcz  
+##### 4238#       发表于 2021-9-12 17:42
+
+
+刚到学会魔王炎击破的地方  请问盾姐还有多久加入..急需更换领队..女主不太对胃口<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LMBS  
+##### 4239#       发表于 2021-9-12 17:47
+
+
+这次城镇布局真的小，也没有以往那种很多房子的背景
+
+剧情给人感觉就是镇子被恶霸占领压榨，5条村反抗的故事
+
+
+*****
+
+####  喵喵叫的猫  
+##### 4240#       发表于 2021-9-12 17:56
+
+
+话说秘奥义要怎么按 就是那个觉醒后同时按2个键的
+
+我平均觉醒5次才能按成功一次 倒是自动模式的队友一直有放出来
+
+
+*****
+
+####  天乃冥  
+##### 4241#       发表于 2021-9-12 17:58
+
+
+这个支线任务要啥姿势才能完成，接了冰原杀7只狼，出门屠了一圈也不见提示...
+
+
+*****
+
+####  塔奇克马  
+##### 4242#       发表于 2021-9-12 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722579&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-12 17:42</a>
+
+刚到学会魔王炎击破的地方  请问盾姐还有多久加入..急需更换领队..女主不太对胃口 ...</blockquote>
+第三将领那里就加入了,很快的
+
+

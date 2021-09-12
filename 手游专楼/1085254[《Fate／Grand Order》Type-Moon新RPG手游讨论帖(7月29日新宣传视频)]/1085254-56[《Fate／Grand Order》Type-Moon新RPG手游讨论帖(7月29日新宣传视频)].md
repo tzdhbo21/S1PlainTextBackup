@@ -12882,3 +12882,32 @@ QQ图片20210912170921.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你忘了DMM还有一个开服没多久就暴毙的剑女人
 
 
+
+
+*****
+
+####  alucardcz  
+##### 83592#       发表于 2021-9-12 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722340&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-9-12 17:13</a>
+
+这炼狱到底是男是女.....还是说因为是剑拟人怎么样都行么
+
+
+3破宝具突然冒出来中村的声音.....吓了我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么又欧了 合理吗 
+
+
+*****
+
+####  森兰丸  
+##### 83593#       发表于 2021-9-12 17:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722665&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-9-12 17:51</a>
+
+你怎么又欧了 合理吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁和你说我抽了.....这两天在玩破晓传说....才刚挤出了点时间上油管把这次的泳装模组和宝具都去看了一遍而已
+
+

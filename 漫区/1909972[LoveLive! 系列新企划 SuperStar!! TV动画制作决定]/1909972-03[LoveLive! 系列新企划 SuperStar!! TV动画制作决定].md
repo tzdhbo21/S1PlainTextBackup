@@ -17937,3 +17937,83 @@ THE チャラ です。
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  平贺才人  
+##### 4439#       发表于 2021-9-12 17:52
+
+
+<img src="http://tva2.sinaimg.cn/large/0022VSBzly1gudpdv781tj60kw0msgn002.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好惨
+
+
+*****
+
+####  HACHIMAN  
+##### 4440#       发表于 2021-9-12 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52717235&amp;ptid=1909972" target="_blank">Piano-Forest 发表于 2021-9-12 09:24</a>
+
+https://twitter.com/jd342/status/1436417206456250368
+
+6話もチェックしました。本当にありがとうございま ...</blockquote>
+这看着眼熟好像是咕老师画的，果然。
+
+有中文版的
+[https://weibo.com/1029047232/KxB ... t#_rnd1631440315457](https://weibo.com/1029047232/KxBqP4ppj?type=comment#_rnd1631440315457)
+
+
+
+
+*****
+
+####  寒风夜  
+##### 4441#       发表于 2021-9-12 17:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">感觉会插科打诨的集
+
+
+*****
+
+####  平贺才人  
+##### 4442#       发表于 2021-9-12 17:57
+
+
+[https://www.bilibili.com/video/BV11f4y1J7PY](https://www.bilibili.com/video/BV11f4y1J7PY)
+
+
+8bit版
+
+
+*****
+
+####  新HGCG  
+##### 4443#       发表于 2021-9-12 18:04
+
+
+“真爱！这是真爱呀！” ​​​​
+
+
+*****
+
+####  Arccueid  
+##### 4444#       发表于 2021-9-12 18:05
+
+
+神他妈真爱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4445#       发表于 2021-9-12 18:09
+
+
+我超，可可这有点挺王的感觉了
+
+
