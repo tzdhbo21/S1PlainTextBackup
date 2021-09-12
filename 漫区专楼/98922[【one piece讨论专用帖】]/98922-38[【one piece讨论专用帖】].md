@@ -2242,3 +2242,17 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 这要怎么发展才能形成路飞和凯多单挑的场面啊？大蛇突然跳出来？鬼岛要掉下去了桃之助和大和去推岛？
 
 
+
+
+*****
+
+####  caster  
+##### 55664#       发表于 2021-9-12 13:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52711240&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2021-9-11 18:51</a>
+
+这副画是个双关，明面上说的的栗子头大叔对自己的血缘的厌恶，但是却画了那么大一个山治，山治说自己是北 ...</blockquote>
+尾田想不到点子时，只需要上网搜一下就可以收获一大堆伏笔……
+
+

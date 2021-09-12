@@ -13849,3 +13849,111 @@ jrpg很多时候我都觉得大家好好坐下来谈谈完全可以解决问题�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">连战经验加成放到第三个首领是不是也是故意的啊?这个明明可以放到开头就给吧?
 
 
+
+
+*****
+
+####  rgauss  
+##### 4153#       发表于 2021-9-12 13:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719564&amp;ptid=1860328" target="_blank">lelouchwang 发表于 2021-9-12 12:52</a>
+雷聂斯基和雷纳到底是啥关系 一个是首都一个是国名？但对话里经常把这两并列提起 ...</blockquote>
+雷聶基斯是漂浮于达纳与雷纳之间的居住地
+
+
+*****
+
+####  轮太  
+##### 4154#       发表于 2021-9-12 13:02
+
+
+瓦造玩完了准备下单了
+
+所以这作到底是不是不叮不能玩？
+
+
+*****
+
+####  hugosol  
+##### 4155#       发表于 2021-9-12 13:17
+
+
+目前打到麻婆，这作男主性格我还挺喜欢的，篝火对话看出来其实挺会照顾人的，不知道后面恢复记忆之后能不能圆回来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  布里兰特  
+##### 4156#       发表于 2021-9-12 13:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719707&amp;ptid=1860328" target="_blank">轮太 发表于 2021-9-12 13:02</a>
+
+瓦造玩完了准备下单了
+
+所以这作到底是不是不叮不能玩？</blockquote>
+搞个全dlc补丁，把那些什么双倍都开了
+
+
+*****
+
+####  alucardcz  
+##### 4157#       发表于 2021-9-12 13:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">官方老金是买了然后领好之后就永远生效吗 能关吗?
+
+
+*****
+
+####  Rainwedell  
+##### 4158#       发表于 2021-9-12 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719973&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-12 13:25</a>
+官方老金是买了然后领好之后就永远生效吗 能关吗?</blockquote>
+能关
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  alucardcz  
+##### 4159#       发表于 2021-9-12 13:27
+
+
+ 本帖最后由 alucardcz 于 2021-9-12 13:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719980&amp;ptid=1860328" target="_blank">Rainwedell 发表于 2021-9-12 13:26</a>
+
+能关
+
+
+—— 来自 S1Fun</blockquote>
+哦 找到了
+
+
+*****
+
+####  heseran  
+##### 4160#       发表于 2021-9-12 13:28
+
+
+视角是不是不能调整呀，太近了有点不舒服<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  415452356  
+##### 4161#       发表于 2021-9-12 13:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718960&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-12 12:05</a>
+
+古代乐器的在前期イグーリア荒地左上角，篝火稍北</blockquote>
+  感谢
+
+
