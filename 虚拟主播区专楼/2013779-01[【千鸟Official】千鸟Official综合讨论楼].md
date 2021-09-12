@@ -3793,3 +3793,16 @@ P1020004.JPG
 什么大姐姐味，明明是阿姨味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  袜子  
+##### 334#       发表于 2021-9-12 20:01
+
+
+被阿姨安利到96号公路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好玩的，但是这游戏都被认为有炸弹确实有点傻逼了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

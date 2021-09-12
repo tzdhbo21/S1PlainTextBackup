@@ -15615,3 +15615,158 @@ N难度下买了2倍成长后，以前的传说闭眼乱砍的打法又回来了
 拳师手感太好了，大部分时间用拳师
 
 
+
+
+*****
+
+####  reficul  
+##### 4295#       发表于 2021-9-12 20:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724035&amp;ptid=1860328" target="_blank">makar0601 发表于 2021-9-12 20:09</a>
+
+拳师手感太好了，大部分时间用拳师</blockquote>
+别的游戏里拳师主角比较少也是一点。。洛一开始的技能用着比较憋屈，解锁多一些才好起来
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4296#       发表于 2021-9-12 20:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723907&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-12 19:55</a>
+3d的jrpg里搞大段即时演算过场演出水平还在线的也就se和mono两家了。尤其是文戏部分，武戏部分有时还可以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要不要这么捧mono
+第五章boss战过场拿去比xb2任何一段都不虚的
+
+
+*****
+
+####  火红之眼  
+##### 4297#       发表于 2021-9-12 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724003&amp;ptid=1860328" target="_blank">Emmerich 发表于 2021-9-12 20:05</a>
+
+洛完全玩不来....还是男主最爽 打某些boss时候会主控法爷 不然ai老给你跑怪脸上去唱魔法 ...</blockquote>
+狼崽算是吃空连亏最大的了，有些非挑空招式可以直接连空中技，空中技直接带入地上技衔接也流畅，可惜boss不吃这套，优势大概就叠buff和OVL超快了，然而比不过叠一堆友军受伤进OVL的盾姐，杂鱼战都能爆几次OVL.....
+
+
+男主比起手感还是炎剑技太人权了，倒地+卖整条血的伤害太夸张，想了想TOV无硬直 TOX踏地不屈 TOX2直接变来打，这组对主角的待遇真是......
+
+
+*****
+
+####  黑耀星尘  
+##### 4298#       发表于 2021-9-12 20:16
+
+
+刚玩到上飞船之前的那段剧情演出还行。主要是有歌<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 4299#       发表于 2021-9-12 20:16
+
+
+我也想知道技能盘解锁条件<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">买了个武器突然就解锁了
+
+
+*****
+
+####  人如其名  
+##### 4300#       发表于 2021-9-12 20:17
+
+
+其实我觉得ppt挺好的啊，观感比站桩对话舒服多了
+
+
+*****
+
+####  laoz  
+##### 4301#       发表于 2021-9-12 20:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724116&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 20:16</a>
+
+我也想知道技能盘解锁条件买了个武器突然就解锁了</blockquote>
+进称号里面，移动左摇杆，转一圈会看到一些空白的称号，里面有说什么条件解锁
+
+
+*****
+
+####  DraQin  
+##### 4302#       发表于 2021-9-12 20:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720087&amp;ptid=1860328" target="_blank">heseran 发表于 2021-9-12 13:35</a>
+就是第一个过场后后面不会还有这种地方吧
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+唔好意思，有的，还不算少呢
+
+— from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  火红之眼  
+##### 4303#       发表于 2021-9-12 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724116&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 20:16</a>
+
+我也想知道技能盘解锁条件买了个武器突然就解锁了</blockquote>
+当前有可能满足解锁条件的称号都有个空盘，选上去会提示解锁条件的，不显示的就是剧情还没到
+
+
+*****
+
+####  laoz  
+##### 4304#       发表于 2021-9-12 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724033&amp;ptid=1860328" target="_blank">名字已被吃 发表于 2021-9-12 20:08</a>
+
+有人知道技能盘以外的主动技能是怎么学的吗？是跟技能熟练度有关系吗？</blockquote>
+技能类型熟练度，进菜单，下面有个能力值的选项，进去就能看到各个角色的三种类型的熟练度
+
+
+*****
+
+####  红魔馆的糖  
+##### 4305#       发表于 2021-9-12 20:22
+
+
+感谢楼上几位，看到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红烧肉  
+##### 4306#       发表于 2021-9-12 20:27
+
+
+罗的前期技能太垃圾了，连牙弹和炮击，真的是臭鱼烂虾。
+
+动作慢+动作时间长。
+
+和男主前期的几个简单利落的招式完全没法比。
+
+
+我喜欢格斗家啊，不知道后期有不有好用的技能。
+
+而且这作狮子战吼也给盾了。
+
+
+*****
+
+####  fuochai  
+##### 4307#       发表于 2021-9-12 20:30
+
+
+刚买的紫水晶马上就退环境了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+

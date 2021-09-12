@@ -407,3 +407,58 @@ Eテレ 19(日)夜7時
 2021-9-12 20:00 上传
 
 
+
+
+*****
+
+####  优妮可  
+##### 4534#       发表于 2021-9-12 20:03
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/200305wrzo1gby1bzuo1g8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5f66069b22a334a.jpg</strong> (81.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 20:03 上传
+
+
+用下谷歌翻译就搞笑起来了
+
+
+*****
+
+####  普之舜舜  
+##### 4535#       发表于 2021-9-12 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723980&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-12 20:03</a>
+用下谷歌翻译就搞笑起来了</blockquote>
+一转eva 哈哈哈😂😂
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  永恒的王牌  
+##### 4536#       发表于 2021-9-12 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723980&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-12 20:03</a>
+
+用下谷歌翻译就搞笑起来了</blockquote>
+以前总有种印象就是谷歌翻译比百度翻译好用，结果现在一看谷歌翻译怎么就这么拉了，还是说一直是这么拉我的印象是记错了（
+
+
+*****
+
+####  寒风夜  
+##### 4537#       发表于 2021-9-12 20:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">是不是该庆幸霞不是花大叔操刀
+
+
