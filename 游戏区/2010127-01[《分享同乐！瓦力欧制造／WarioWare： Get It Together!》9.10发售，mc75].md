@@ -1637,3 +1637,29 @@ GBA版里有个纸飞机的小游戏，，哪里玩的到
 跟着流程走就解锁了
 
 
+
+
+*****
+
+####  日日日日日野  
+##### 134#       发表于 2021-9-12 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726024&amp;ptid=2010127" target="_blank">luoyianwu 发表于 2021-9-12 22:45</a>
+
+跟着流程走就解锁了</blockquote>
+我说的是Pyoro那种
+
+
+*****
+
+####  Limpidity  
+##### 135#       发表于 2021-9-12 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726137&amp;ptid=2010127" target="_blank">日日日日日野 发表于 2021-9-12 22:53</a>
+
+我说的是Pyoro那种</blockquote>
+pyoro打完最终boss就解锁了
+
+

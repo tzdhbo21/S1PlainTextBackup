@@ -16183,3 +16183,57 @@ mono在xb2还是属于穷讲究，有诚意也有点想法 ...</blockquote>
 破晓传说里这种类型的过场占比更多啊，希侬那几个模板动作我都快记下来了，这游戏很多过场都是巫师式的那种，只不过没给你显示对话框，但你按确定键是可以跳到下一句的，真正有动作编排的过场动画其实并不多。我拿来跟xb2对比的也是这种跳不了对话的上限部分，破晓传说光是面部表情这一块我就很不满意了，之前官方还特意说我们面部表情是精心设计的，结果就像我前面楼层里说的，希侬第一次娇那里，那僵硬的表情直接就把演出效果冲淡了不少，还有琳薇尔这种特别二次元脸的角色，我到现在也没有对她的表情上有什么深刻印象的
 
 
+
+
+*****
+
+####  すみぺ  
+##### 4342#       发表于 2021-9-12 22:49
+
+
+这代的剧情咋样，看群友评价好像很一般<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4343#       发表于 2021-9-12 22:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52725952&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-9-12 22:40</a>
+破晓传说里这种类型的过场占比更多啊，希侬那几个模板动作我都快记下来了，这游戏很多过场都是巫师式的那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得这种就是藏拙藏得好，漫画式的分镜比起全动画过场就是容易省力出效果，在堆量的小对话上表现真的不错，甚至希望假如mono预算还是吃紧能借鉴一下这种表现手法
+至于表情，我是觉得偏沉稳也没啥问题，有情绪的地方其实都有认真做，真有问题的大概是普通站姿调得不好有点3d模型味
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4344#       发表于 2021-9-12 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726093&amp;ptid=1860328" target="_blank">すみぺ 发表于 2021-9-12 22:49</a>
+这代的剧情咋样，看群友评价好像很一般</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好的意义坏的意义都是jrpg味，不过文本细节不乏亮点，仔细品也有点深度在
+
+
+*****
+
+####  信长的呕吐  
+##### 4345#       发表于 2021-9-12 23:06
+
+
+话说篝火刷羁绊只能一小时一小时等？
+
+
+*****
+
+####  oniwarud  
+##### 4346#       发表于 2021-9-12 23:06
+
+
+<blockquote>mqnwbeebwnqm 发表于 2021-9-12 22:58
+我觉得这种就是藏拙藏得好，漫画式的分镜比起全动画过场就是容易省力出效果，在堆量的小对话上表 ...</blockquote>
+我说的不是漫画式分镜的那种小对话，就是一般主线剧情里的过场演出。相当多的过场都是巫师类型的可以一句句跳对话的，只是没给显示对话框，动作也就那些模板，打到第二三章就能很容易分辨哪些过场是动作模板套用哪些过场是有动作编排跳不了的了
+
+

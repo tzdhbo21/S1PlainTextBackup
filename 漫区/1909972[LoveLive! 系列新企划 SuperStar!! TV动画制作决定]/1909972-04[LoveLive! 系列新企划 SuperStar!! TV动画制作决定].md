@@ -1033,3 +1033,45 @@ ll就不能把live放在ed么？
 大概剧本意思是把这段作为千装傻顺便迫害一波的搞笑情节，这个倒不用太上纲上线，虽然这话几乎全程迫害...
 
 
+
+
+*****
+
+####  kata魂  
+##### 4587#       发表于 2021-9-12 22:55
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/225454d6xu8lgxvna4xgaa.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (48.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 22:54 上传
+
+
+无奈~~
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 4588#       发表于 2021-9-12 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52725461&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-12 21:59</a>
+
+站可堇的我对闺女目前对民警那态度没啥不满，反而是千忘名字更无语吧？</blockquote>
+看战吧说5ch忘记名字这样吵了一大串的样子
+
+
+*****
+
+####  kirimori  
+##### 4589#       发表于 2021-9-12 23:06
+
+
+民警后面给一集和可可交心回改下态度大概能救，恋这么沉重花田你把好方向盘啊
+
+
