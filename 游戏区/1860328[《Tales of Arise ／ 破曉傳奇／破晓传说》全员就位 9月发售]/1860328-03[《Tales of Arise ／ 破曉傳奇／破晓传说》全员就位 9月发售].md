@@ -16621,3 +16621,41 @@ TOB不是最无聊的么，好像有个无限复读套路
 TOB我就记得后面大哥无限第1个秘奥义
 
 
+
+
+*****
+
+####  市松椿  
+##### 4378#       发表于 2021-9-13 01:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727438&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-13 01:12</a>
+
+这次斗技场不能挂了，没有经验
+
+但是不知道技能使用次数什么的加不加
+
+以前么就是先放置斗技场骗点经验，在 ...</blockquote>
+TOB确实没啥印象了，但我记得艾德娜挺好玩的
+
+
+*****
+
+####  良臣没有重谢  
+##### 4379#       发表于 2021-9-13 01:37
+
+
+剧情到了风国的森林追第四个领将，进楼一看法师妹子和拳师好上了还？一口屎喂我嘴里面。就现在我看到的剧情内容，能成情侣关系的就男女主，俩小朋友没有啥对彼此特别的意思，盾娘更像黑皮的麻麻<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR YOK-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  森兰丸  
+##### 4380#       发表于 2021-9-13 01:38
+
+
+钓鱼钓鱼钓鱼钓鱼钓鱼怎么又有这司马钓鱼.....好好的游戏非要加个钓鱼到底是什么臭毛病......不会真有制作人会觉得玩家很喜欢钓鱼吧.....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

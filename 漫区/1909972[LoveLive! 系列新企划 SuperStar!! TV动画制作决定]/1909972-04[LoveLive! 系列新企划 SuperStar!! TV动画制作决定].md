@@ -1454,3 +1454,50 @@ ll就不能把live放在ed么？
 如果只聚焦于解决恋的个人问题的话还是比较好办的，水水第一季第九集其实已经处理得挺不错了。一集半的时间解决恋自己的问题应该比较充裕了。恋的问题真正的核心其实就是叶月花女士与学园偶像之间的历史的问题，把这个包袱抖清楚应该还是没那么困难的
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 4622#       发表于 2021-9-13 01:28
+
+
+5ch楼吵了好久，为什么你楼一点动静都没有呀<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4623#       发表于 2021-9-13 01:32
+
+
+ 本帖最后由 兔姬姬姬姬姬 于 2021-9-13 01:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不都是在吵又回到废校老路，还有吵民警这集太惨的和可可对民警态度太差的，归根结底不就是花田大师。
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">这集看完民警单推爆炸挺容易理解的，不过民警现在“拿偶像当跳板”这点到现在都没修正可能花田大师是想留到哪次live救场吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便这理事长怎么感觉都没恋急，感觉废校跟她没关系一样
+
+
+*****
+
+####  qratosone  
+##### 4624#       发表于 2021-9-13 01:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727536&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-13 01:32</a>
+
+不都是在吵又回到废校老路，还有吵民警这集太惨的和可可对民警态度太差的，归根结底不就是花田大师 ...</blockquote>
+民警主要还是戏份分配的问题，五六两集民警的形象大幅提升就是因为认真的场景比较多，能体现出民警成熟的一面。这集民警插科打诨太多，而且还是在学生会长选举这种理应严肃对待的事情上，自然不讨喜，被可可怼也正常。实际上下半集敲门的时候可堇配合还是很默契的
+
+
+*****
+
+####  凡人  
+##### 4625#       发表于 2021-9-13 01:37
+
+
+剩下那还有给堇的时间，估计要放到第二季解决了
+
+
