@@ -18037,3 +18037,514 @@ https://twitter.com/jd342/status/1436417206456250368
 黄袍加身是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4448#       发表于 2021-9-12 18:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没钱了还行
+
+
+*****
+
+####  新HGCG  
+##### 4449#       发表于 2021-9-12 18:23
+
+
+原来大小姐家里穷得只剩个空房子了吗
+
+
+*****
+
+####  Norkey1  
+##### 4450#       发表于 2021-9-12 18:23
+
+
+这个展开又是废校是吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+恋家都破产了，这季好像没大小姐了？
+
+
+*****
+
+####  damian-wade  
+##### 4451#       发表于 2021-9-12 18:23
+
+
+谁说的一年级不能废校<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  HACHIMAN  
+##### 4452#       发表于 2021-9-12 18:24
+
+
+又要为了拯救学校而成为学园偶像了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小倉朝日  
+##### 4453#       发表于 2021-9-12 18:24
+
+
+又是废校wwwwwwwwww
+
+
+*****
+
+####  没有爱就看不见  
+##### 4454#       发表于 2021-9-12 18:24
+
+
+这都能转回来废校，算花田nb
+
+
+*****
+
+####  寒风夜  
+##### 4455#       发表于 2021-9-12 18:24
+
+
+安藤良啊，挺好 
+
+
+*****
+
+####  cybernetics31  
+##### 4456#       发表于 2021-9-12 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哇 可可咋女士位了 
+
+
+*****
+
+####  pliee  
+##### 4457#       发表于 2021-9-12 18:25
+
+
+忘记看了，结束了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 4458#       发表于 2021-9-12 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过恋确实有点惨啊，要看香音哥哥怎么攻略了
+
+
+*****
+
+####  寒风夜  
+##### 4459#       发表于 2021-9-12 18:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723009&amp;ptid=1909972" target="_blank">没有爱就看不见 发表于 2021-9-12 18:24</a>
+
+这都能转回来废校，算花田nb</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是重建的么
+
+
+*****
+
+####  JustW  
+##### 4460#       发表于 2021-9-12 18:26
+
+
+唐可可“这是真爱啊”以及拍视频把香音截出来，这是什么单恋）
+
+
+不会要收束到学园偶像拯救废校吧）
+
+
+*****
+
+####  damian-wade  
+##### 4461#       发表于 2021-9-12 18:26
+
+
+花田是真的觉得便便帽很好笑吗，居然还故意致敬了一遍妮可<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  JustW  
+##### 4462#       发表于 2021-9-12 18:27
+
+
+<blockquote>cybernetics31 发表于 2021-9-12 18:25
+哇 可可咋女士位了</blockquote>
+乐观主义者：都是后面可可回的伏笔！
+
+
+*****
+
+####  a92063256  
+##### 4463#       发表于 2021-9-12 18:28
+
+
+没太看懂，这学校不是刚重建完吗？重建是谁出的钱啊
+
+
+*****
+
+####  tjshibc21  
+##### 4464#       发表于 2021-9-12 18:28
+
+
+唐可可这单箭头也太明显了吧
+
+这样很难诶
+
+
+*****
+
+####  D麦林  
+##### 4465#       发表于 2021-9-12 18:28
+
+
+后两集够好的话这集可以连着一起算神回
+
+反正作为过渡转折回我觉得相当不错
+
+话说这后面一转沉重劲太大了 一时间缓不过来
+
+
+*****
+
+####  lj205  
+##### 4466#       发表于 2021-9-12 18:28
+
+
+…………某种意义上这集还算有点东西？
+
+
+*****
+
+####  chenflyyy  
+##### 4467#       发表于 2021-9-12 18:29
+
+
+这集节奏慢下来了，看着舒服不少，就是感觉作画变差了些
+
+
+*****
+
+####  iuhehc  
+##### 4468#       发表于 2021-9-12 18:30
+
+
+这么看下来堇单人回真的没有别人的饱满，得罪谁了
+
+
+*****
+
+####  蜜梨柑  
+##### 4469#       发表于 2021-9-12 18:32
+
+
+除了最后一转废校我觉得都挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosone  
+##### 4470#       发表于 2021-9-12 18:32
+
+
+草，那个狗是不是千歌家杜海涛生的小狗
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  没有爱就看不见  
+##### 4471#       发表于 2021-9-12 18:32
+
+
+最后这包袱抖得有点突然，观感和前面的氛围有些割裂，但还是质量在线的一集
+
+
+*****
+
+####  寒风夜  
+##### 4472#       发表于 2021-9-12 18:32
+
+
+神秘
+
+
+*****
+
+####  tjshibc21  
+##### 4473#       发表于 2021-9-12 18:33
+
+
+不过这不像是废校
+
+其实更像经营不善倒产
+
+
+*****
+
+####  lj205  
+##### 4474#       发表于 2021-9-12 18:33
+
+
+可可后面肯定出个大的，不用太担心
+
+
+*****
+
+####  笋狐  
+##### 4475#       发表于 2021-9-12 18:34
+
+
+ 本帖最后由 笋狐 于 2021-9-12 18:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不同于以前套路的废校，恋这还加了个母亲去世家道中落...在讲究爱与梦想的偶像动画里整这么现实的沉重设定属实剑走偏锋，看下话标题和那把钥匙应该是母亲留下了什么东西给女儿，这里是关键，这块到入队的剧情不讲好不光是恋的人气，作品基调都会受到一定影响
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外可可这集表现得相当香音厄介单推，不知道会不会作为后续个人剧情的伏笔
+
+
+*****
+
+####  寒风夜  
+##### 4476#       发表于 2021-9-12 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723094&amp;ptid=1909972" target="_blank">没有爱就看不见 发表于 2021-9-12 18:32</a>
+
+最后这包袱抖得有点突然，观感和前面的氛围有些割裂，但还是质量在线的一集 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">比4 5 6看的好，谨慎看咯
+
+
+*****
+
+####  星降る森  
+##### 4477#       发表于 2021-9-12 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723052&amp;ptid=1909972" target="_blank">a92063256 发表于 2021-9-12 18:28</a>
+
+没太看懂，这学校不是刚重建完吗？重建是谁出的钱啊</blockquote>
+买的废弃校
+
+
+*****
+
+####  lj205  
+##### 4478#       发表于 2021-9-12 18:35
+
+
+就是广播剧里恋恋出行不都是司机接送吗？这是直接把设定推翻？
+
+
+*****
+
+####  没有爱就看不见  
+##### 4479#       发表于 2021-9-12 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723092&amp;ptid=1909972" target="_blank">qratosone 发表于 2021-9-12 18:32</a>
+
+草，那个狗是不是千歌家杜海涛生的小狗
+
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+开场恋妈我一瞬幻视成梨子，看到杜海涛就更绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JustW  
+##### 4480#       发表于 2021-9-12 18:36
+
+
+<blockquote>lj205 发表于 2021-9-12 18:35
+就是广播剧里恋恋出行不都是司机接送吗？这是直接把设定推翻？</blockquote>
+学园偶像真是太赚钱啦（不是）
+
+
+*****
+
+####  寒风夜  
+##### 4481#       发表于 2021-9-12 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723113&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-12 18:34</a>
+
+不同于以前套路的废校，恋这还加了个母亲去世家道中落...在讲究爱与梦想的偶像动画里整这么现实的沉 ...</blockquote>
+危
+
+
+*****
+
+####  kata魂  
+##### 4482#       发表于 2021-9-12 18:41
+
+
+这集微妙，但不知道微妙的地方在哪，还得等熟肉看看，但至少比456要强一些
+
+这么一看恋入队的季节对应的是她本人现在处于凛冬将至的状态
+
+
+*****
+
+####  Arccueid  
+##### 4483#       发表于 2021-9-12 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723131&amp;ptid=1909972" target="_blank">lj205 发表于 2021-9-12 18:35</a>
+
+就是广播剧里恋恋出行不都是司机接送吗？这是直接把设定推翻？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">破产也可以有司机
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4484#       发表于 2021-9-12 18:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不管哪里都认为这集比456强，太惨了
+
+
+*****
+
+####  D麦林  
+##### 4485#       发表于 2021-9-12 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723113&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-12 18:34</a>
+
+不同于以前套路的废校，恋这还加了个母亲去世家道中落...在讲究爱与梦想的偶像动画里整这么现实的沉 ...</blockquote>
+我想到的烂展开：
+
+恋恋打开箱子发现全是金条 问题直接迎刃而解（）
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4486#       发表于 2021-9-12 18:44
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/184408gz989ufmxq6eh9ie.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (45.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 18:44 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/184451ghh50fccwcqz4wdl.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (25.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 18:44 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">HSO
+
+
+*****
+
+####  cat1230  
+##### 4487#       发表于 2021-9-12 18:44
+
+
+忘记看直播了，亏得还调了闹钟，闹心。
+
+
+*****
+
+####  寒风夜  
+##### 4488#       发表于 2021-9-12 18:45
+
+
+这家具白布是想出售么
+
+
+*****
+
+####  寒风夜  
+##### 4489#       发表于 2021-9-12 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723203&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-12 18:44</a>
+
+我想到的烂展开：
+
+恋恋打开箱子发现全是金条 问题直接迎刃而解（）</blockquote>
+有点逆天，感觉是恋妈的什么什么 
+
+
+*****
+
+####  优妮可  
+##### 4490#       发表于 2021-9-12 18:49
+
+
+箱子装着恋妈妈的锦囊
+
+
+*****
+
+####  凡人  
+##### 4491#       发表于 2021-9-12 18:49
+
+
+恋当选后直接把竞选承诺当废纸，什么美国政客。可可提前帮虹团预演
+
+
+*****
+
+####  cybernetics31  
+##### 4492#       发表于 2021-9-12 18:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">花田老贼现在写的了这么现实这么沉重的吗？………………话说女仆是香菜啊
+
+
+*****
+
+####  tjshibc21  
+##### 4493#       发表于 2021-9-12 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723251&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-12 18:49</a>
+
+箱子装着恋妈妈的锦囊</blockquote>
+“闺女，加入学园偶像拯救学校”
+
+
+*****
+
+####  寒风夜  
+##### 4494#       发表于 2021-9-12 18:51
+
+
+建议集体run星光学院当偶像 
+
+

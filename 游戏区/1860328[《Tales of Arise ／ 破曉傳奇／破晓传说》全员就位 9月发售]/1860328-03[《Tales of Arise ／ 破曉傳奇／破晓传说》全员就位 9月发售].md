@@ -15081,3 +15081,112 @@ ps5有手柄，pc有mod和修改
 这一作太依赖BA技，最好多点减BA技CD的天赋，连击数-CD那个是必点，BOSS战也有用，第四章那穿山甲只能靠打拳阿炭的BA打趴，还有击杀后强击也是必点，很容易触发连续斩杀，打杂兵会轻松很多
 
 
+
+
+*****
+
+####  yzqray  
+##### 4250#       发表于 2021-9-12 18:25
+
+
+困难boss战就选法师，无限复读扔风系下级魔法就完事了，读条短伤害不低，追踪性能无敌，打弱点非常准。
+比近战体验好的不是一点点
+
+
+*****
+
+####  红魔馆的糖  
+##### 4251#       发表于 2021-9-12 18:26
+
+
+哈哈，有点搞。五分之一的国家就这么攻进去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苇原雪道  
+##### 4252#       发表于 2021-9-12 18:29
+
+
+卧槽雪国下水道里的那个蛞蝓怎么那么恶心啊？！！！我打了快一个小时没打过去。召唤小蛞蝓个个会水魔法太恶心了吧？！怎么打啊？？
+
+
+*****
+
+####  peh  
+##### 4253#       发表于 2021-9-12 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722150&amp;ptid=1860328" target="_blank">lucky95 发表于 2021-9-12 16:51</a>
+
+黑礼服在最贵的那个皮肤包里边</blockquote>
+并没有啊。。最贵的那套女主是嗜血代码联动那个大高帽和欧巴长衣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难不成还是ps版独占服装
+
+
+*****
+
+####  苇原雪道  
+##### 4254#       发表于 2021-9-12 18:32
+
+
+还有，炎之刃怎么启动啊？我到现在还只会送的魔王炎击波，其他技能的延伸炎之刃怎么解锁啊？
+
+
+*****
+
+####  猫将军  
+##### 4255#       发表于 2021-9-12 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723100&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-9-12 18:32</a>
+还有，炎之刃怎么启动啊？我到现在还只会送的魔王炎击波，其他技能的延伸炎之刃怎么解锁啊？ ...</blockquote>
+称号学<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苇原雪道  
+##### 4256#       发表于 2021-9-12 18:35
+
+
+还有，林薇儿真可爱！贤枭那套超好看！正对我xp，单为此买DLC我觉得都值～
+还有希侬天天傲娇2333
+
+
+*****
+
+####  sodah  
+##### 4257#       发表于 2021-9-12 18:35
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/183449a251t2s3isi2i245.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210912183023.png</strong> (62.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 18:34 上传
+
+
+饰品的这精通绊脚的效果怎么样？
+
+
+*****
+
+####  SAKURAJIMA  
+##### 4258#       发表于 2021-9-12 18:37
+
+
+希侬也太可爱了8<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  peh  
+##### 4259#       发表于 2021-9-12 18:38
+
+
+这小白猫头鹰表情还挺丰富的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">能不能出个公仔
+
+
