@@ -905,3 +905,18 @@ Top10详细榜单：
 卖了这么多了，希望下一部传说把缺点改改gkd
 
 
+
+
+*****
+
+####  飞侠小黑  
+##### 79#       发表于 2021-9-13 06:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52713874&amp;ptid=2025900" target="_blank">布里兰特 发表于 2021-9-11 22:13</a>
+事实证明，做营销做皮面远比做内容有用</blockquote>
+也不能这么说，营销在一代玩家里只能吃一次，一次玩砸以后就再没机会了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
