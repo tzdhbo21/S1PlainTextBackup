@@ -18017,3 +18017,23 @@ https://twitter.com/jd342/status/1436417206456250368
 我超，可可这有点挺王的感觉了
 
 
+
+
+*****
+
+####  笋狐  
+##### 4446#       发表于 2021-9-12 18:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">制作组真的知道真爱这句中文的意思才用的吗，话说唐女士你咋重起来了，别告诉我这季夭寿的人是你啊
+
+
+*****
+
+####  Troy_VoV  
+##### 4447#       发表于 2021-9-12 18:16
+
+
+黄袍加身是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

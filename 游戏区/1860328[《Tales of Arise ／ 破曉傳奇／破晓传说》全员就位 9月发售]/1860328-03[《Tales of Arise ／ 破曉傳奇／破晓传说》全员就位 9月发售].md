@@ -14998,3 +14998,86 @@ ps5有手柄，pc有mod和修改
 第三将领那里就加入了,很快的
 
 
+
+
+*****
+
+####  fuochai  
+##### 4243#       发表于 2021-9-12 18:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722748&amp;ptid=1860328" target="_blank">天乃冥 发表于 2021-9-12 17:58</a>
+这个支线任务要啥姿势才能完成，接了冰原杀7只狼，出门屠了一圈也不见提示... ...</blockquote>
+范围内固定的7个 选为进行中主线任务会在地图上显示大区域 别的地方的不算
+
+
+*****
+
+####  czs13  
+##### 4244#       发表于 2021-9-12 18:06
+
+
+右下角小剧场字太小了！
+
+
+*****
+
+####  chris1987  
+##### 4245#       发表于 2021-9-12 18:06
+
+
+问下空中的魔王炎击波怎么放呀<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hotsmile  
+##### 4246#       发表于 2021-9-12 18:08
+
+
+ 本帖最后由 hotsmile 于 2021-9-12 18:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722509&amp;ptid=1860328" target="_blank">五星战世韩玉昆 发表于 2021-9-12 17:32</a>
+
+刚打完二章困难光boss,打之前看都说难难难。打着也还好啊
+
+因为想试试看能不能打断boss放秘奥义一共打了三遍 ...</blockquote>
+困难没DLC打光BOSS一般是15~16级（路过的怪全清），不带光抗性饰品随便被摸下就跪
+
+
+*****
+
+####  五星战世韩玉昆  
+##### 4247#       发表于 2021-9-12 18:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722848&amp;ptid=1860328" target="_blank">hotsmile 发表于 2021-9-12 18:08</a>
+
+困难没DLC打光BOSS一般是15~16级，不带光抗性饰品随便被摸下就跪</blockquote>
+没DLC一开始就别困难不就好了……
+
+我记得传说系列一直是难度越往上基础经验越低，只能靠战斗评价倍率打得好才能反过来和普通持平甚至超出
+
+而且为什么不带光饰品，我全员光饰品加属性抗料理进的图
+
+
+*****
+
+####  reficul  
+##### 4248#       发表于 2021-9-12 18:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722830&amp;ptid=1860328" target="_blank">chris1987 发表于 2021-9-12 18:06</a>
+
+问下空中的魔王炎击波怎么放呀</blockquote>
+也是按紧，下戳到地面后不要松开，就会变成炎之剑的招
+
+
+*****
+
+####  hkguty  
+##### 4249#       发表于 2021-9-12 18:20
+
+
+这一作太依赖BA技，最好多点减BA技CD的天赋，连击数-CD那个是必点，BOSS战也有用，第四章那穿山甲只能靠打拳阿炭的BA打趴，还有击杀后强击也是必点，很容易触发连续斩杀，打杂兵会轻松很多
+
+
