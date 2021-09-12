@@ -17695,3 +17695,17 @@ THE チャラ です。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5个人里姿势最怪的，什么金蛇缠丝手
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 4421#       发表于 2021-9-12 09:24
+
+
+[https://twitter.com/jd342/status/1436417206456250368](https://twitter.com/jd342/status/1436417206456250368)
+
+6話もチェックしました。本当にありがとうございました。そして最も成長したちーちゃんをかいてみた。この服、もう書かなくなるね。ポーズは友の旅行写真を参考に。春麗ポーズです。なんとなく似合ってるとか思ったので。今他話数を制作中で、楽しみにしてください。
+<img src="https://p.sda1.dev/2/a574d49c4e06d833b83802a83bafa1e5/20210912_092318.jpg" referrerpolicy="no-referrer">
+
+
