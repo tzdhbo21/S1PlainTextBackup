@@ -13416,3 +13416,66 @@ FAMH联动估计就这两天的事情了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么42KG刻到楼名里了
 
 
+
+
+*****
+
+####  collasong  
+##### 13148#       发表于 2021-9-12 10:29
+
+
+推特截图收集
+
+
+20210912_102604.jpg
+(53.8 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-12 10:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/102929upzq9p2atpadh3za.jpg" referrerpolicy="no-referrer">
+
+
+20210912_102611.jpg
+(64.56 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-12 10:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/102929ig33hf3vvhq13z3e.jpg" referrerpolicy="no-referrer">
+
+
+Screenshot_2021-09-12-10-26-19-238_com.twitter.an.jpg
+(282.48 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-12 10:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/102929eiwo1i5vr7zuovit.jpg" referrerpolicy="no-referrer">
+
+
+Screenshot_2021-09-12-10-26-27-736_com.twitter.an.jpg
+(283.59 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-12 10:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/102929v9yutcgbrvfuugfu.jpg" referrerpolicy="no-referrer">
+
+

@@ -13117,3 +13117,25 @@ BOSS前一般都有补给阵，补满打BOSS.......</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">准备开坑了  问下流程有多长   
 
 
+
+
+*****
+
+####  supersssbc  
+##### 4092#       发表于 2021-9-12 10:03
+
+
+<blockquote>alucardcz 发表于 2021-9-12 09:53
+准备开坑了  问下流程有多长</blockquote>
+正常玩全支线不舔地应该40小时左右
+
+
+*****
+
+####  fuochai  
+##### 4093#       发表于 2021-9-12 10:19
+
+
+钓鱼给的钱挺多啊，随便钓一下就三千了，cp糖不是随便吃<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
