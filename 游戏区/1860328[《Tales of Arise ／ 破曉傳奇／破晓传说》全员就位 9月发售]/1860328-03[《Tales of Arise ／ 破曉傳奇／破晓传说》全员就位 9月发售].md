@@ -13044,3 +13044,29 @@ DLC溜达了一圈看得我直呼内行，买个联动包意思下了，早知�
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  godless2020  
+##### 4086#       发表于 2021-9-12 08:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52716875&amp;ptid=1860328" target="_blank">Jumbohard 发表于 2021-9-12 08:31</a>
+
+刚刚打完光领主，总感觉boss打起来怎么这么难...z，b还有算上v的重制版也算是玩过几作了，都是一周目普通难 ...</blockquote>
+BOSS前一般都有补给阵，补满打BOSS.......
+
+
+*****
+
+####  Jumbohard  
+##### 4087#       发表于 2021-9-12 08:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52716976&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-9-12 08:50</a>
+
+BOSS前一般都有补给阵，补满打BOSS.......</blockquote>
+这个我知道...以前的绿色存档点，现在的补给阵，都是战前补给，不过我的意思是就算补满了打得还是很狼狈。借用坛友的一句话就是“满CP进去红CP出来”，光领主更是把我生命瓶都用得只剩一个了（最后居然还有9分grade真是可喜可贺）。虽然我承认我打得不算好，但是这个boss战的正反馈也太不足了，让人想切到林薇尔远程一边打滚一边磨血
+
+
