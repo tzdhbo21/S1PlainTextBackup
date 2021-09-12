@@ -13171,3 +13171,83 @@ BOSS前一般都有补给阵，补满打BOSS.......</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在boss战全程操作琳薇尔了，全程霸体+光污染，打近战药完全跟不上
 
 
+
+
+*****
+
+####  Dreki  
+##### 4097#       发表于 2021-9-12 10:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52717988&amp;ptid=1860328" target="_blank">TheOccuria 发表于 2021-9-12 10:39</a>
+
+现在boss战全程操作琳薇尔了，全程霸体+光污染，打近战药完全跟不上</blockquote>
+电脑打近战不会死的太快么，我就每次看电脑莫名其妙死了就来气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  塔奇克马  
+##### 4098#       发表于 2021-9-12 10:46
+
+
+划水队怎么组合啊. 是不是女主+法师+棍子 来个拖油瓶近战就行了？
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  司马千晶  
+##### 4099#       发表于 2021-9-12 10:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718029&amp;ptid=1860328" target="_blank">Dreki 发表于 2021-9-12 10:44</a>
+电脑打近战不会死的太快么，我就每次看电脑莫名其妙死了就来气</blockquote>
+你要是不嫌麻烦的话，可以多切作战，电脑在“什么都不做”的指令下生存力惊人，boss的回合结束你再调回去，我越级怪都这么打的。
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4100#       发表于 2021-9-12 10:47
+
+
+跪了，五章真打不过了，这逼好像会用全属性魔法，没法对策了
+
+
+*****
+
+####  虚无连斩  
+##### 4101#       发表于 2021-9-12 10:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在放弃空中只走地，无脑瞎砍放技能，随缘闪避，发现打boss舒服不少，虽然还是刮痧，好歹技能不会停了，连段也上去了
+
+
+*****
+
+####  火红之眼  
+##### 4102#       发表于 2021-9-12 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52716681&amp;ptid=1860328" target="_blank">桧山修之 发表于 2021-9-12 07:42</a>
+
+打困难难度昨晚下水道的boss打了4.5次才勉强过了，小弟比boss还强，一套魔连着打得我都没有脾气了，法师那 ...</blockquote>
+点特殊down后回BG，打断一个回半条，2个直接满
+
+其实只要被打断了就倒地，还是以制造输出机会为目的来用的，单纯打断的话除非有复数敌人同时咏唱，不然还不如自己躲了
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 4103#       发表于 2021-9-12 10:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718029&amp;ptid=1860328" target="_blank">Dreki 发表于 2021-9-12 10:44</a>
+
+电脑打近战不会死的太快么，我就每次看电脑莫名其妙死了就来气</blockquote>
+除了洛，我感觉其他近战电脑控制还行，洛真的是boss战刚一进场没几秒就暴毙了
+
+
