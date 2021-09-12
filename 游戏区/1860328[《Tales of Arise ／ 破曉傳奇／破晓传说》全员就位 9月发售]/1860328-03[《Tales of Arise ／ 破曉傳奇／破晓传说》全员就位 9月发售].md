@@ -13013,3 +13013,18 @@ DLC溜达了一圈看得我直呼内行，买个联动包意思下了，早知�
 男主就是走卖血流的，赚钱-买药-补给-加血-献血，后勤跟得上，杀敌杀得快，中期卖材料一把可以赚几万了...
 
 
+
+
+*****
+
+####  蓝雉  
+##### 4084#       发表于 2021-9-12 08:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52716680&amp;ptid=1860328" target="_blank">不应 发表于 2021-9-12 07:41</a>
+女主这个手榴弹要按什么引爆，丢出来然后平a射中？那也太难了吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11 ...</blockquote>
+长按
+
+
