@@ -13697,3 +13697,114 @@ jrpg很多时候我都觉得大家好好坐下来谈谈完全可以解决问题�
 这次没有chaos uk难度的吗，困难打了很久都没解锁难度
 
 
+
+
+*****
+
+####  hkguty  
+##### 4139#       发表于 2021-9-12 12:22
+
+
+凤凰天驱确实感觉很好用，蓄力的时候比较安全而且位移大，不过位移大打杂兵的话放完就不能续连了
+
+
+*****
+
+####  hummysiren  
+##### 4140#       发表于 2021-9-12 12:23
+
+
+法师妹入队就一直主操，盾姐bs教学时切了下盾姐，结果法师妹立马学会了一堆新技能，怎么感觉在嘲讽我操作太菜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  hkguty  
+##### 4141#       发表于 2021-9-12 12:23
+
+
+所以有没人知道奇莎兰那圈要求重击熟练度解锁的天赋到底重击是指哪一招
+
+
+*****
+
+####  火红之眼  
+##### 4142#       发表于 2021-9-12 12:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719164&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-9-12 12:19</a>
+
+这次没有chaos uk难度的吗，困难打了很久都没解锁难度</blockquote>
+斗技场阿周那最上级奖励遗物解锁chaos难度
+
+
+*****
+
+####  火红之眼  
+##### 4143#       发表于 2021-9-12 12:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719221&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-9-12 12:23</a>
+
+所以有没人知道奇莎兰那圈要求重击熟练度解锁的天赋到底重击是指哪一招</blockquote>
+看招式说明，有区分类型
+
+
+*****
+
+####  司马千晶  
+##### 4144#       发表于 2021-9-12 12:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719203&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-9-12 12:22</a>
+凤凰天驱确实感觉很好用，蓄力的时候比较安全而且位移大，不过位移大打杂兵的话放完就不能续连了 ...</blockquote>
+看打点，近墙的话往回滚接一刀平a继续代入连招，break还保留。
+
+
+*****
+
+####  haru橙子  
+##### 4145#       发表于 2021-9-12 12:29
+
+
+有个钓鱼点在运输船，运输船是什么地方
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4146#       发表于 2021-9-12 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718750&amp;ptid=1860328" target="_blank">jhjy217 发表于 2021-9-12 11:49</a>
+我觉得根本就是缺乏沟通……
+jrpg很多时候我都觉得大家好好坐下来谈谈完全可以解决问题的，但是它就不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">的确谈了啊，都挺成熟的
+虽然这游戏个别演出做得有点傻但是剧情本身是可以说得过去的，skit兜底补丁作用很大
+
+
+*****
+
+####  火红之眼  
+##### 4147#       发表于 2021-9-12 12:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719295&amp;ptid=1860328" target="_blank">haru橙子 发表于 2021-9-12 12:29</a>
+
+有个钓鱼点在运输船，运输船是什么地方</blockquote>
+四章找光头大叔开船的地方，后期再来能叫他开出海钓鱼
+
+
+*****
+
+####  Dreki  
+##### 4148#       发表于 2021-9-12 12:39
+
+
+话说这个学习技能是什么机制，有的时候用一次新技能角色自己就又学了个技能<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是一定等级之后使用特定技能？
+
+

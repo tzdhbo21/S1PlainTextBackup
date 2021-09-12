@@ -13479,3 +13479,25 @@ Screenshot_2021-09-12-10-26-27-736_com.twitter.an.jpg
 <img src="https://img.saraba1st.com/forum/202109/12/102929v9yutcgbrvfuugfu.jpg" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  nian1538  
+##### 13149#       发表于 2021-9-12 12:36
+
+
+ 本帖最后由 nian1538 于 2021-9-12 12:48 编辑 
+
+[https://www.diet-cafe.jp/height-weight/152cm/42kg.html](https://www.diet-cafe.jp/height-weight/152cm/42kg.html)
+
+看了一下这个页面列的名人，基本都是排骨了
+
+
+综合一下Holo成员的说法
+
+绫总好闻，会打扮，会做饭，讲话好听，模特体型，很有文化
+
+什么精致女性
+
+
