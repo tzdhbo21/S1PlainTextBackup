@@ -16582,3 +16582,42 @@ mono在xb2还是属于穷讲究，有诚意也有点想法 ...</blockquote>
 不可以
 
 
+
+
+*****
+
+####  Bani82  
+##### 4375#       发表于 2021-9-13 01:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727097&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-13 00:29</a>
+
+怎么挂机？</blockquote>
+这次斗技场不能挂了，没有经验
+
+但是不知道技能使用次数什么的加不加
+
+以前么就是先放置斗技场骗点经验，在之后么装个伤害1的道具刷技能熟练度之类的
+
+
+*****
+
+####  Bani82  
+##### 4376#       发表于 2021-9-13 01:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727347&amp;ptid=1860328" target="_blank">市松椿 发表于 2021-9-13 00:58</a>
+
+有没有人教下法师怎么玩，目前只会无限复读同系技能，印象里5年以前玩TOZ和TOB的法师没这么无脑无聊啊 ...</blockquote>
+TOB不是最无聊的么，好像有个无限复读套路
+
+
+*****
+
+####  abysschaos  
+##### 4377#       发表于 2021-9-13 01:17
+
+
+TOB我就记得后面大哥无限第1个秘奥义
+
+
