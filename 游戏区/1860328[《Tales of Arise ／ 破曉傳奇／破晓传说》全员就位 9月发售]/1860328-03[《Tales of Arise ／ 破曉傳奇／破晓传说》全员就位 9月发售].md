@@ -15770,3 +15770,68 @@ N难度下买了2倍成长后，以前的传说闭眼乱砍的打法又回来了
 刚买的紫水晶马上就退环境了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  名字已被吃  
+##### 4308#       发表于 2021-9-12 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724157&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-12 20:19</a>
+
+技能类型熟练度，进菜单，下面有个能力值的选项，进去就能看到各个角色的三种类型的熟练度 ...</blockquote>
+感谢，原来是这样，因为基本都是用着技能的时候学会新技能，还以为跟特定某个技能的熟练度有关
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 4309#       发表于 2021-9-12 20:35
+
+
+我真没觉得toar从过场动作来说有比xb2差多少，有些人把xb2描述的那么好我都怀疑我200小时的xb2白玩了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，xb2真要说演出好也就最后一章吧
+
+
+*****
+
+####  火红之眼  
+##### 4310#       发表于 2021-9-12 20:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724240&amp;ptid=1860328" target="_blank">红烧肉 发表于 2021-9-12 20:27</a>
+
+罗的前期技能太垃圾了，连牙弹和炮击，真的是臭鱼烂虾。
+
+动作慢+动作时间长。
+
+和男主前期的几个简单利落的 ...</blockquote>
+地上技比较干脆的就剩轮舞旋风了，最晚出的无影掌也是牙炮这种类型的，DLC给的卧狼咆虎倒是非常强.....
+
+
+*****
+
+####  喵喵叫的猫  
+##### 4311#       发表于 2021-9-12 20:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723748&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2021-9-12 19:40</a>
+说起来其实我对ufo做的过场意见还挺大的
+
+我还以为就做一个op完事没想到居然做了这么多，甚至最后两段都全是 ...</blockquote>
+这代动画算是唯一继承传奇系列画风的 虽然有点拉但我觉得情怀上还可以吧
+
+
+*****
+
+####  fuochai  
+##### 4312#       发表于 2021-9-12 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723748&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2021-9-12 19:40</a>
+说起来其实我对ufo做的过场意见还挺大的
+
+我还以为就做一个op完事没想到居然做了这么多，甚至最后两段都全是 ...</blockquote>
+防止重要过场里 玩家穿得没个人样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

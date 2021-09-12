@@ -462,3 +462,110 @@ Eテレ 19(日)夜7時
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">是不是该庆幸霞不是花大叔操刀
 
 
+
+
+*****
+
+####  优妮可  
+##### 4538#       发表于 2021-9-12 20:22
+
+
+<blockquote>永恒的王牌 发表于 2021-9-12 20:14
+以前总有种印象就是谷歌翻译比百度翻译好用，结果现在一看谷歌翻译怎么就这么拉了，还是说一直是这么拉我 ...</blockquote>
+不知哪听说的，它不是直接翻译日文，而是先翻译成英文然后再翻译为中文，因为翻了两次，所以容易出错。
+
+
+*****
+
+####  笋狐  
+##### 4539#       发表于 2021-9-12 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724093&amp;ptid=1909972" target="_blank">永恒的王牌 发表于 2021-9-12 20:14</a>
+
+以前总有种印象就是谷歌翻译比百度翻译好用，结果现在一看谷歌翻译怎么就这么拉了，还是说一直是这么拉我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">英译中是谷歌比较好用，日译中谷歌一直是生草机啊
+
+
+*****
+
+####  没有爱就看不见  
+##### 4540#       发表于 2021-9-12 20:25
+
+
+要真能写出名警追可可那我就对花田改观了，可惜大家都太了解花田了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 4541#       发表于 2021-9-12 20:26
+
+
+上海滩！
+
+
+*****
+
+####  星降る森  
+##### 4542#       发表于 2021-9-12 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724093&amp;ptid=1909972" target="_blank">永恒的王牌 发表于 2021-9-12 20:14</a>
+
+以前总有种印象就是谷歌翻译比百度翻译好用，结果现在一看谷歌翻译怎么就这么拉了，还是说一直是这么拉我 ...</blockquote>
+谷歌翻译英语好，但翻日语他是会用英语中转，百度翻日语应该是几个机翻里最准的
+
+
+*****
+
+####  cybernetics31  
+##### 4543#       发表于 2021-9-12 20:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">8和9应该是能看出来这番能到哪了，甚至觉得可可的事情可能会下季度说了
+
+
+*****
+
+####  寒风夜  
+##### 4544#       发表于 2021-9-12 20:32
+
+
+ 本帖最后由 寒风夜 于 2021-9-12 20:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">星期三有生放，这是要一集解决么.. yaoshoule
+
+
+*****
+
+####  普之舜舜  
+##### 4545#       发表于 2021-9-12 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723980&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-12 20:03</a>
+用下谷歌翻译就搞笑起来了</blockquote>
+<img src="https://p.sda1.dev/2/75d9e7be1802663fe04653f92a6d19f3/IMG_CMP_89474669.jpeg" referrerpolicy="no-referrer">
+原来中文这样哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  笋狐  
+##### 4546#       发表于 2021-9-12 20:39
+
+
+看标题就是下集解决了
+
+
+*****
+
+####  kata魂  
+##### 4547#       发表于 2021-9-12 20:41
+
+
+下周生放都是以第八集为主题，肯定一集胜负了
+
+
