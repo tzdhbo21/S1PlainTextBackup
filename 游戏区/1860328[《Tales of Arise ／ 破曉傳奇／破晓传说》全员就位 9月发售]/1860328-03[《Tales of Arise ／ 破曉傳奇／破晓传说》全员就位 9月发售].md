@@ -13458,3 +13458,84 @@ BOSS前一般都有补给阵，补满打BOSS.......</blockquote>
 换衣服得打完五个领将之后才会推进
 
 
+
+
+*****
+
+####  415452356  
+##### 4121#       发表于 2021-9-12 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718630&amp;ptid=1860328" target="_blank">zero12 发表于 2021-9-12 11:38</a>
+
+换衣服得打完五个领将之后才会推进</blockquote>
+  感谢
+
+
+*****
+
+####  nage560  
+##### 4122#       发表于 2021-9-12 11:48
+
+
+到第二章就感受到一股无力感了，剧情太水了，还有这齐尔法主动送死太迷惑了，还有后面几章不会都像魔神英雄传那样的模式吧......
+
+
+*****
+
+####  jhjy217  
+##### 4123#       发表于 2021-9-12 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718588&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-12 11:35</a>
+盾姐的思路是自己哥哥居然是给这样一个懦弱的废物服务到死所以非常生气，有点像全副身家投给了贾 ...</blockquote>
+我觉得根本就是缺乏沟通……
+jrpg很多时候我都觉得大家好好坐下来谈谈完全可以解决问题的，但是它就不
+
+
+*****
+
+####  Bani82  
+##### 4124#       发表于 2021-9-12 11:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718562&amp;ptid=1860328" target="_blank">415452356 发表于 2021-9-12 11:32</a>
+
+33小时了，最开始那个给他服装建议的男的怎么还没换好衣服，是要去哪里继续推进这个任务？
+
+  还有那个找 ...</blockquote>
+古代乐器不用日版我觉得是这辈子都不知道怎么做了，建议看攻略
+
+
+*****
+
+####  黄昏的轮回  
+##### 4125#       发表于 2021-9-12 11:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知为何，我从第一章开始脑内就是自动替换成农民里找到个浪人然后起来造反砍代官的画面，总感觉还挺贴切，尤其是第二章处刑台那个稀稀拉拉的卫兵跟根本没反应的卫队。扔个烟雾弹就能废了。
+
+
+*****
+
+####  TheOccuria  
+##### 4126#       发表于 2021-9-12 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718029&amp;ptid=1860328" target="_blank">Dreki 发表于 2021-9-12 10:44</a>
+
+电脑打近战不会死的太快么，我就每次看电脑莫名其妙死了就来气</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不带洛就行，其实boss很多招式的仇恨都是锁定你操作的人的，你切远程反而解放了近战
+
+
+*****
+
+####  Bani82  
+##### 4127#       发表于 2021-9-12 11:59
+
+
+序章打不过是H难度么，N难度感觉序章还是随便的砍的啊，其实打到上船位置N难度只要多吃药肯定是打的过去的
+
+上船后还不知道，因为目前正在船上
+
+
