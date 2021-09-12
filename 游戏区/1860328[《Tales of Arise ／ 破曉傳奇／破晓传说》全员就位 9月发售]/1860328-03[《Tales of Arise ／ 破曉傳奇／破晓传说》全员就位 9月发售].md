@@ -13106,3 +13106,14 @@ BOSS前一般都有补给阵，补满打BOSS.......</blockquote>
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  alucardcz  
+##### 4091#       发表于 2021-9-12 09:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">准备开坑了  问下流程有多长   
+
+
