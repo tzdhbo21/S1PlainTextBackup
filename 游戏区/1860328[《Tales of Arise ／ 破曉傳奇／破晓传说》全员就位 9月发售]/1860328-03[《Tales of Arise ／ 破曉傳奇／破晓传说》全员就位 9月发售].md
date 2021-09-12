@@ -16536,3 +16536,49 @@ mono在xb2还是属于穷讲究，有诚意也有点想法 ...</blockquote>
 想清料理，发现缺了几种鱼的素材，又没得买，要在哪里找
 
 
+
+
+*****
+
+####  fuochai  
+##### 4371#       发表于 2021-9-13 00:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726932&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-13 00:12</a>
+是必合还是有几率合，我感觉一样的组合有时候能和成功有时候不能</blockquote>
+试了几次，应该是必合，没合出是操作有问题 或者前面被打断了
+比如两个小雷加中水 就是小雷先合出中雷再和中水合 就可以合成 但是先中水再加两个小雷就出问题 因为中水加小雷已经丢失中水了
+
+
+*****
+
+####  fuochai  
+##### 4372#       发表于 2021-9-13 00:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726620&amp;ptid=1860328" target="_blank">静静在想我 发表于 2021-9-12 23:37</a>
+第三章boss差点死档了，等级差了四级，药也只有4瓶复活药，武器装备也不是最好的，甚至没有吃饭buff，不能 ...</blockquote>
+采石场？可以刷级的啊 每个boss前面都有睡觉的地方<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  市松椿  
+##### 4373#       发表于 2021-9-13 00:58
+
+
+有没有人教下法师怎么玩，目前只会无限复读同系技能，印象里5年以前玩TOZ和TOB的法师没这么无脑无聊啊
+
+
+*****
+
+####  索田八公  
+##### 4374#       发表于 2021-9-13 01:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726702&amp;ptid=1860328" target="_blank">幽香 发表于 2021-9-12 23:47</a>
+
+后排再问下这次可以操控四大精灵嘛？</blockquote>
+不可以
+
+

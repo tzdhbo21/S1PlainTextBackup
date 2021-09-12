@@ -2393,3 +2393,28 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 生动形象，有理有据，合情合理
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 55671#       发表于 2021-9-13 00:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726761&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2021-9-12 23:53</a>
+这活很怪很好。</blockquote>
+还是贴吧版海贼王好看，尾田懂个屁的海贼王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fengcl01  
+##### 55672#       发表于 2021-9-13 00:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726761&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2021-9-12 23:53</a>
+
+这活很怪很好。</blockquote>
+笑死了，哈哈哈
+
+
