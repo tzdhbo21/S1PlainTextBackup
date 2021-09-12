@@ -12390,3 +12390,91 @@ https://t.co/Mnevz4CEu5 https://t.co/a2XuUeRyGm
 吓到了
 
 
+
+
+*****
+
+####  时间在我手中  
+##### 2611#       发表于 2021-9-12 23:21
+
+
+又是新歌，最近歌回新歌出现率其实不低
+
+
+*****
+
+####  yywzjsw  
+##### 2612#       发表于 2021-9-12 23:22
+
+
+总于唱了
+
+
+*****
+
+####  T_Hb  
+##### 2613#       发表于 2021-9-12 23:22
+
+
+好事，新歌是好的
+
+
+*****
+
+####  时间在我手中  
+##### 2614#       发表于 2021-9-12 23:24
+
+
+哦，这歌是tiktok红曲啊，难怪
+
+
+*****
+
+####  雪风utopia  
+##### 2615#       发表于 2021-9-12 23:27
+
+
+拆那<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2616#       发表于 2021-9-12 23:29
+
+
+相对性理论连唱了
+
+
+*****
+
+####  T_Hb  
+##### 2617#       发表于 2021-9-12 23:30
+
+
+ 本帖最后由 T_Hb 于 2021-9-12 23:34 编辑 
+
+来了，地狱先生<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+为什么关键时候呛到了，相对性理论3连了
+
+
+*****
+
+####  2014720  
+##### 2618#       发表于 2021-9-12 23:30
+
+
+不来批限天天唱你那拉夫歌那啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2619#       发表于 2021-9-12 23:34
+
+
+这歌够无脑好听不就成了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+肥婆做出重要指示，按摩有助开嗓，建议让我天天帮她整整
+
+

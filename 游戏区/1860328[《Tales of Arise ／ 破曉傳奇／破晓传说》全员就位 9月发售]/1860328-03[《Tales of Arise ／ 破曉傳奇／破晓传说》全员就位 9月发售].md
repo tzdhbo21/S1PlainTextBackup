@@ -16260,3 +16260,86 @@ mono在xb2还是属于穷讲究，有诚意也有点想法 ...</blockquote>
 这台的城镇除了第三个村子没有一个有城镇的感觉，玩起来就是迷宫的一部分，睡个觉就去下一个地图了，一点故事都没有
 
 
+
+
+*****
+
+####  hypnossz86  
+##### 4349#       发表于 2021-9-12 23:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玩的hard
+杂兵战有多么爽，boss战就有多么憋屈...
+
+
+*****
+
+####  Bani82  
+##### 4350#       发表于 2021-9-12 23:35
+
+
+打了整整2天，40小时了
+
+现在挂机刷斗技场中，目前要找船去最后一个地图了
+
+
+
+
+*****
+
+####  静静在想我  
+##### 4351#       发表于 2021-9-12 23:37
+
+
+第三章boss差点死档了，等级差了四级，药也只有4瓶复活药，武器装备也不是最好的，甚至没有吃饭buff，不能传送，不能回头，打了快十次才过，体验极差<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iceplatinum  
+##### 4352#       发表于 2021-9-12 23:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726093&amp;ptid=1860328" target="_blank">すみぺ 发表于 2021-9-12 22:49</a>
+这代的剧情咋样，看群友评价好像很一般</blockquote>
+主要是老套。。。
+
+
+*****
+
+####  久井路路  
+##### 4353#       发表于 2021-9-12 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726093&amp;ptid=1860328" target="_blank">すみぺ 发表于 2021-9-12 22:49</a>
+
+这代的剧情咋样，看群友评价好像很一般</blockquote>
+最大的优点是cp很稳
+
+
+除此之外的部分只要只在乎cp稳不稳就无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红烧肉  
+##### 4354#       发表于 2021-9-12 23:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724771&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 21:12</a>
+
+不太明白为什么用这种一个野外地图接一个野外地图的闯关类叙事。。。然后城镇做的简陋，NPC没一个有眼缘。 ...</blockquote>
+近几代的传说都这德行了。
+
+
+怀念旧时代大地图+踩地雷版本的传说，虽然踩地雷很烦。
+
+但是那时候会有一些跟主线内容无关的探索性质的地图。
+
+
+最喜欢的是永恒传说的深海潜艇+飞空艇，每多一个移动方式就多一些可以探索的地点。
+
+
+新的几代传说全是这种跑路接跑路的地图，冒险感太少了，感觉自己变成了赶剧情的工具人。
+
+
