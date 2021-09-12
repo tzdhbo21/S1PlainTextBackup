@@ -14833,3 +14833,54 @@ DLC的苍破追莲神性能，没的话就用魔神剑双牙代替了，飞燕�
 boss都锁血吗，一定要触发qte干掉<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  信长的呕吐  
+##### 4229#       发表于 2021-9-12 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722202&amp;ptid=1860328" target="_blank">fuochai 发表于 2021-9-12 16:57</a>
+麻了 这个法师怎么这么难玩 还以为储存后就没有前摇 所以储存到底有什么意义我暂且蒙在鼓里
+玩了半 ...</blockquote>
+可以通过搭配出新魔法
+
+
+*****
+
+####  省心  
+##### 4230#       发表于 2021-9-12 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722052&amp;ptid=1860328" target="_blank">李锐可 发表于 2021-9-12 16:39</a>
+第三章那个在办公室的钥匙不能触发，刚从贵人之间剧情出来。是我没差什么条件还是bug吗 ...</blockquote>
+还要去询问之间还是哪，一共有两个房间两个纸条要触发
+
+—— 来自 Xiaomi Redmi K30 5G, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  fate99  
+##### 4231#       发表于 2021-9-12 17:16
+
+
+看了评价好像还不错，想问问steam 和PS5版哪个更好？
+
+
+*****
+
+####  红魔馆的糖  
+##### 4232#       发表于 2021-9-12 17:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722375&amp;ptid=1860328" target="_blank">fate99 发表于 2021-9-12 17:16</a>
+看了评价好像还不错，想问问steam 和PS5版哪个更好？</blockquote>
+ps5有手柄，pc有mod和修改
+
+看需要鱼还是需要熊掌，画面都差不多
+
+

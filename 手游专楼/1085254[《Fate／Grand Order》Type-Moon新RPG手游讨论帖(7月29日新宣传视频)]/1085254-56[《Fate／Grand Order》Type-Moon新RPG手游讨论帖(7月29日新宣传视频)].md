@@ -12823,3 +12823,48 @@ md，怎么到处都是仇凛，nga看他们花式吹看吐了去贴吧也一堆
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都可以吹,反正也碍不着你抽
 
 
+
+
+*****
+
+####  johnkamsar  
+##### 83588#       发表于 2021-9-12 17:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">总算打过南丁那个了。。。。。当初有没有debug过的啊。。。。。
+
+
+QQ图片20210912170921.jpg
+(181.86 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-9-12 17:09 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/170941xdmjdl75clbjoj3q.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 83589#       发表于 2021-9-12 17:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这炼狱到底是男是女.....还是说因为是剑拟人怎么样都行么
+
+
+3破宝具突然冒出来中村的声音.....吓了我一跳
+
+
+*****
+
+####  霧谷藤乃  
+##### 83590#       发表于 2021-9-12 17:19
+
+
+刀剑乱舞，那么炼狱当然是男性啦（……
+
+

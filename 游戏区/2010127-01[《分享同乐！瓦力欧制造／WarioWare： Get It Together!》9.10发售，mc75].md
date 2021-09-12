@@ -1530,3 +1530,17 @@ GBA版里有个纸飞机的小游戏，，哪里玩的到
 那这游戏是否可以往闸种游戏上靠
 
 
+
+
+*****
+
+####  Tilocal  
+##### 127#       发表于 2021-9-12 17:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52717213&amp;ptid=2010127" target="_blank">3D烧 发表于 2021-9-12 09:22</a>
+
+蹦罗上次出场是啥时候了？感觉好久没见过</blockquote>
+最近的话3DS那作就有两个版本的蹦罗小游戏
+
+
