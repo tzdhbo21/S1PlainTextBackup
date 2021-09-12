@@ -2429,3 +2429,15 @@ vtb模拟器里的id
 2021-9-13 01:45 上传
 
 
+
+
+*****
+
+####  kaolimadepi  
+##### 203#       发表于 2021-9-13 01:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727592&amp;ptid=2021175" target="_blank">七海七海七 发表于 2021-9-13 01:45</a></blockquote>
+这图我一直想问，左眼是otto，右眼的是谁？
+
+
