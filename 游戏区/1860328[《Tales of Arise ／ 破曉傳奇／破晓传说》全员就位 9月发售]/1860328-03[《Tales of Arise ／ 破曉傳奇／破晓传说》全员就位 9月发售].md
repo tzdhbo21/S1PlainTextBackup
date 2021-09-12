@@ -14734,3 +14734,102 @@ QQ截图20210912164048.jpg
 听老手推荐手动档，但是感觉经常方向搞错距离搞错？
 
 
+
+
+*****
+
+####  lucky95  
+##### 4221#       发表于 2021-9-12 16:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721811&amp;ptid=1860328" target="_blank">黄昏的轮回 发表于 2021-9-12 16:14</a>
+ 新人传说玩家。想请问根据以往经验南万有没有靠后续dlc修正补完的可能性  —— 来自 OnePlus ...</blockquote>
+可以查查ToZ真的仲间最后变成怎样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucky95  
+##### 4222#       发表于 2021-9-12 16:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721882&amp;ptid=1860328" target="_blank">peh 发表于 2021-9-12 16:20</a>
+ 这次dlc估计要赚麻了，我认识的新入坑的都买了成长包还有皮肤  我倒是想买那个黑礼服（好像是和sao ...</blockquote>
+黑礼服在最贵的那个皮肤包里边
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4223#       发表于 2021-9-12 16:57
+
+
+直接速通的主线准备二周目一身神装乱杀过去，然后发现什么都没继承，这也是系列传统？
+
+一周目能全成就吗，steam现在看不到
+
+
+*****
+
+####  火红之眼  
+##### 4224#       发表于 2021-9-12 16:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721810&amp;ptid=1860328" target="_blank">hotsmile 发表于 2021-9-12 16:14</a>
+
+男主有什么招式比较好用啊？我轰霸都用到4星了，感觉就这招出招快伤害足，其他还有什么比较好用的招式？ ...</blockquote>
+DLC的苍破追莲神性能，没的话就用魔神剑双牙代替了，飞燕斩基本标配，剩下的第二页随便塞些衔接性好演出又短的技能用来五连携出秘2了，例如瞬迅剑或者空破绝风，中后期基本得带个可以派生霸道灭封的技能抓倒地
+
+挑空个人是升龙剑，瞬雷飞太高有点难用
+
+空中技可以接流星尘，后期换裂空斩（神性能），高打低就崩袭剑了，然后风神剑万能，空中遇事不决直接风神剑基本能接上，落地技只考虑热破旋风或者凤凰天驱了，就不另外带了
+
+
+*****
+
+####  fuochai  
+##### 4225#       发表于 2021-9-12 16:57
+
+
+麻了 这个法师怎么这么难玩 还以为储存后就没有前摇 所以储存到底有什么意义我暂且蒙在鼓里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+玩了半天打不掉同级boss 1/4的血
+
+
+*****
+
+####  信长的呕吐  
+##### 4226#       发表于 2021-9-12 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722195&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2021-9-12 16:57</a>
+直接速通的主线准备二周目一身神装乱杀过去，然后发现什么都没继承，这也是系列传统？
+
+一周目能全成就吗，s ...</blockquote>
+这次继承项目都做在了文物里 
+
+
+*****
+
+####  火红之眼  
+##### 4227#       发表于 2021-9-12 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722195&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2021-9-12 16:57</a>
+
+直接速通的主线准备二周目一身神装乱杀过去，然后发现什么都没继承，这也是系列传统？
+
+一周目能全成就吗，s ...</blockquote>
+这作2周目继承要素都能直接1周目开启，全在遗物上
+
+一周可以全成就，船上猫头鹰没错过的话就没有别的会漏了，鉴于这作几乎所有要素都不会漏，可能猫头鹰也有救济，实在漏了的可以试试找找
+
+
+*****
+
+####  七氷  
+##### 4228#       发表于 2021-9-12 17:00
+
+
+boss都锁血吗，一定要触发qte干掉<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+

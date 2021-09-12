@@ -17869,3 +17869,54 @@ THE チャラ です。
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  笋狐  
+##### 4434#       发表于 2021-9-12 16:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上周睿站老地方播一半被超管警告改广播剧，另一个直播间历史记录被我不小心删了，有无老哥指个路
+
+
+*****
+
+####  优妮可  
+##### 4435#       发表于 2021-9-12 16:50
+
+
+<blockquote>普之舜舜 发表于 2021-9-12 16:39
+安静看番剧就好了
+
+
+—— 来自 OPPO PDKM00, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+你贴吧的贴好像只有网页端能看到
+
+
+*****
+
+####  D麦林  
+##### 4436#       发表于 2021-9-12 16:56
+
+
+11区IP应该可以直接在NHK+上看不用注册 就是会带个挡画面的大号水印
+
+反正上周V总直播间被超管干了以后我就直接去官网看了
+
+
+*****
+
+####  Troy_VoV  
+##### 4437#       发表于 2021-9-12 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722043&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-12 16:38</a>
+线下闹矛盾那个 看了聊天记录 大概就是
+
+某人整了连票想出一张 本来想说送给想看的同好的
+
+结果对方似乎不怎 ...</blockquote>
+胁迫女性，emmmmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
