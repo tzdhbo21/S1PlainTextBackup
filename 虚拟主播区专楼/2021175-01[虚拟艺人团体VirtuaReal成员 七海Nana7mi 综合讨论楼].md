@@ -2441,3 +2441,17 @@ vtb模拟器里的id
 这图我一直想问，左眼是otto，右眼的是谁？
 
 
+
+
+*****
+
+####  七海七海七  
+##### 204#       发表于 2021-9-13 03:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727602&amp;ptid=2021175" target="_blank">kaolimadepi 发表于 2021-9-13 01:50</a>
+
+这图我一直想问，左眼是otto，右眼的是谁？</blockquote>
+B站评论区只说了otto，我也不知道哈 sry
+
+

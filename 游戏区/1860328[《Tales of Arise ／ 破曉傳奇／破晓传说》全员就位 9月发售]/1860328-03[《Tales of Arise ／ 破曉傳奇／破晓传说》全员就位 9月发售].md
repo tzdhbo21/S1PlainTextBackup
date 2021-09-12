@@ -16755,3 +16755,40 @@ TOB确实没啥印象了，但我记得艾德娜挺好玩的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么设定进战斗集火一只怪，每次进战斗都是我操作的角色锁一只，其他三个人锁另一只。你们丫啥意思啊，孤立我么
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 4389#       发表于 2021-9-13 03:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726702&amp;ptid=1860328" target="_blank">幽香 发表于 2021-9-12 23:47</a>
+
+后排再问下这次可以操控四大精灵嘛？</blockquote>
+no
+
+
+*****
+
+####  古留  
+##### 4390#       发表于 2021-9-13 03:54
+
+
+这个技能升Rank到底有啥鸟用
+
+他妈的要求这么高估计通关了一个角色的一个技能都没法升5星
+
+更别提那些治疗啥的了
+
+
+还有就是除了拳击忍者洛以外其他人基本上从来不出极限状态
+
+也就女盾牌出过两次
+
+洛是一天到晚就他妈爆气然后我切过去放狼影脚
+
+
+结果一看用了50次才2星
+
+

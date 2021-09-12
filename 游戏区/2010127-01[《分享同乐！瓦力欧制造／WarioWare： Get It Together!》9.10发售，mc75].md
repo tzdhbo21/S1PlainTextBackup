@@ -1705,3 +1705,16 @@ Switch要考虑有Switch Lite存在，不可能弄成Switch专属的特异性游
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">老纠结体感干什么
 
 
+
+
+*****
+
+####  真忘私绵  
+##### 139#       发表于 2021-9-13 04:39
+
+
+<blockquote>白昼梦 发表于 2021-9-12 04:47
+第二关生活题材莫娜那关对着图片凑齐道具的boss关是不是瓦里奥全系列最无聊的boss关了 ...</blockquote>
+我卡了很久…
+
+

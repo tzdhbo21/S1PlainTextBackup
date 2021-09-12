@@ -1534,3 +1534,39 @@ ll就不能把live放在ed么？
 但按这个推断的话可香股估计真要入土了，后面没有篇幅了~<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  iuhehc  
+##### 4628#       发表于 2021-9-13 03:45
+
+
+那得看是谁去追可可的飞机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  we89623  
+##### 4629#       发表于 2021-9-13 06:02
+
+
+这段可可的行事作风和发言和表情都非常成熟...
+
+其他人还不知道该怎么办的时候可可已经行动了。
+
+跟刚刚还拿两根草当掩体的搞笑形象反差非常大。
+
+不知道是不是有意而为之...
+
+
+<img src="https://img.saraba1st.com/forum/202109/13/060254ewkwk89j9w8x9exw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210913-060145.jpg</strong> (279.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 06:02 上传
+
+
