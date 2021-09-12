@@ -16403,3 +16403,75 @@ mono在xb2还是属于穷讲究，有诚意也有点想法 ...</blockquote>
 我读的是最近的那个档，但是已经在楼梯上了，还是不能离开，可能要读更早的那个吧，虽然还是不太能明白为什么这个boss前要这么设计<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer"> 
 
 
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 4360#       发表于 2021-9-13 00:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52725111&amp;ptid=1860328" target="_blank">fuochai 发表于 2021-9-12 21:37</a>
+
+只能存一个 如果有存的时候单击技能 会把存的和单击的一起使用 或者平A把存的用出来
+
+存同系法术可以合成  ...</blockquote>
+是必合还是有几率合，我感觉一样的组合有时候能和成功有时候不能
+
+
+*****
+
+####  电风扇  
+##### 4361#       发表于 2021-9-13 00:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52725845&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-12 22:31</a>
+
+我知道每个角色都能协力啊....就是问每次协力攻击能不能指定谁和谁特定的组合 ...</blockquote>
+蓝框满的时候会有个队员喊话，组合技成员必定是这个队员+方向键指定的队员，似乎是这样
+
+
+*****
+
+####  JC_AR  
+##### 4362#       发表于 2021-9-13 00:15
+
+
+法师女和拳男的剧情也太傻逼了，刚刚还说变LCL有点意思，后面就来这么一出，我吐了，完了这么多年传说没见过这么傻逼的
+
+
+*****
+
+####  alucardcz  
+##### 4363#       发表于 2021-9-13 00:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726960&amp;ptid=1860328" target="_blank">电风扇 发表于 2021-9-13 00:15</a>
+
+蓝框满的时候会有个队员喊话，组合技成员必定是这个队员+方向键指定的队员，似乎是这样
+
+ ...</blockquote>
+不一定吧 我都按的同一个键..人会不一样
+
+
+*****
+
+####  shikiki  
+##### 4364#       发表于 2021-9-13 00:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">以前嫌弃废话铺垫太多，直接干不就完事了，这会全是走2步就干boss，一点史诗感都没了说是一个星球，感觉都没圣斗士打12宫那么大
+
+
+*****
+
+####  电风扇  
+##### 4365#       发表于 2021-9-13 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726986&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-13 00:17</a>
+
+不一定吧 我都按的同一个键..人会不一样</blockquote>
+有一种可能是喊话队员和你摁的方向是同一个人……其实具体的我也不清楚都是在猜
+
+
