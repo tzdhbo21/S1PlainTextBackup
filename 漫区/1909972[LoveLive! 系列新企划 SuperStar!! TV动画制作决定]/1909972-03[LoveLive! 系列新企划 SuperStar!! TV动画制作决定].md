@@ -18548,3 +18548,89 @@ https://twitter.com/jd342/status/1436417206456250368
 建议集体run星光学院当偶像 
 
 
+
+
+*****
+
+####  ads147147  
+##### 4495#       发表于 2021-9-12 18:52
+
+
+贫穷大小姐这个设定多少年没见到了。不是，之前有暗示过恋恋没钱吗？广播里不还是专车送？
+
+所以这次真正有钱的其实是拿家里钱疯狂挥霍的可可，结果因为钱提前花光导致被家里胁迫回国，哇嘎利马斯。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kata魂  
+##### 4496#       发表于 2021-9-12 18:55
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/185525qyri2r9gy3c7i97b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (24.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 18:55 上传
+
+
+日，你又出来了是吧
+
+
+*****
+
+####  Cushaw  
+##### 4497#       发表于 2021-9-12 18:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723203&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-12 18:44</a>
+我想到的烂展开：
+
+恋恋打开箱子发现全是金条 问题直接迎刃而解（）</blockquote>
+快给生放送投稿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  lj205  
+##### 4498#       发表于 2021-9-12 18:56
+
+
+他妈的横田又来宇宙人
+
+
+*****
+
+####  damian-wade  
+##### 4499#       发表于 2021-9-12 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723306&amp;ptid=1909972" target="_blank">kata魂 发表于 2021-9-12 18:55</a>
+日，你又出来了是吧</blockquote>
+只是普通说期待第八集而已，没有吹牛吧，不用那么紧张<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kata魂  
+##### 4500#       发表于 2021-9-12 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723333&amp;ptid=1909972" target="_blank">damian-wade 发表于 2021-9-12 18:57</a>
+
+只是普通说期待第八集而已，没有吹牛吧，不用那么紧张
+
+
+—— 来自 HUAWEI TEL-AN10, Android 10上 ...</blockquote>
+我现在很好奇他第三集说过什么预告没有
+
+

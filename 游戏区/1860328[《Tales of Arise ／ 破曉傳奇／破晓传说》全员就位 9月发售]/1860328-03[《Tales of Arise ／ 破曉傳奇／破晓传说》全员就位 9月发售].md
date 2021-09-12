@@ -15190,3 +15190,75 @@ ps5有手柄，pc有mod和修改
 这小白猫头鹰表情还挺丰富的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">能不能出个公仔
 
 
+
+
+*****
+
+####  司马千晶  
+##### 4260#       发表于 2021-9-12 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723132&amp;ptid=1860328" target="_blank">sodah 发表于 2021-9-12 18:35</a>
+饰品的这精通绊脚的效果怎么样？</blockquote>
+战斗狂更泛用
+
+
+
+
+*****
+
+####  fateultraone  
+##### 4261#       发表于 2021-9-12 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722375&amp;ptid=1860328" target="_blank">fate99 发表于 2021-9-12 17:16</a>
+
+看了评价好像还不错，想问问steam 和PS5版哪个更好？</blockquote>
+steam,要帧数有帧数，要画质有画质，要mod有mod，御三家全套手柄支持，键位随便改，这作万代对pc版用心了
+
+
+*****
+
+####  红魔馆的糖  
+##### 4262#       发表于 2021-9-12 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722630&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-9-12 17:47</a>
+这次城镇布局真的小，也没有以往那种很多房子的背景
+
+剧情给人感觉就是镇子被恶霸占领压榨，5条村反抗的故事 ...</blockquote>
+想了想，想象成五条村在村斗，这剧情突然就合理了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  慕容断月  
+##### 4263#       发表于 2021-9-12 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722375&amp;ptid=1860328" target="_blank">fate99 发表于 2021-9-12 17:16</a>
+
+看了评价好像还不错，想问问steam 和PS5版哪个更好？</blockquote>
+一句话让你选择：PC可以最高画质O确定（没错，还包含手柄图标也是ps的）
+
+
+*****
+
+####  Eadric  
+##### 4264#       发表于 2021-9-12 19:00
+
+
+确实是经典村民械斗了😂
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  hkguty  
+##### 4265#       发表于 2021-9-12 19:04
+
+
+地图比较地球村的感觉，目前我感受到唯一有点PS5震动那味的场景就只有女主的秘奥义。
+
+
