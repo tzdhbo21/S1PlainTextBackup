@@ -17742,3 +17742,18 @@ THE チャラ です。
 字幕组里矛盾摩擦有点多啊。
 
 
+
+
+*****
+
+####  ads147147  
+##### 4425#       发表于 2021-9-12 15:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719936&amp;ptid=1909972" target="_blank">midearth 发表于 2021-9-12 13:22</a>
+我LL看得少，虹团之前其他两团也是百合味这种浓的吗？</blockquote>
+缪的话公樱影响力大的小说和漫画就比较高浓度友情，缪一开始的2单和4单都是以有假象男朋友为设定的曲子（广播剧也是），还被戏称当年还是异性恋。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

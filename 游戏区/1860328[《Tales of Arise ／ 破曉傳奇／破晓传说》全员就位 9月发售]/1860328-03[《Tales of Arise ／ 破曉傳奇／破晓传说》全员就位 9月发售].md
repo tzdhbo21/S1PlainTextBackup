@@ -14279,3 +14279,70 @@ DLC真的我买了两个加经验和SP的DLC，就这样竟然还完全不够用
 BOSS战如同在玩巫师3
 
 
+
+
+*****
+
+####  火红之眼  
+##### 4186#       发表于 2021-9-12 15:00
+
+
+ 本帖最后由 火红之眼 于 2021-9-12 15:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720941&amp;ptid=1860328" target="_blank">ac130-2020 发表于 2021-9-12 14:56</a>
+
+目前到第4章结束
+
+好的地方画面演出系统简化这些都是好评
+
+但是总体剧情走向没有TOB来的好</blockquote>
+SP大头都是支线给的，其实游戏后期也能拿到双倍SP EXP这些，算是默认你后期开双倍刷的了，但也没多少就是了
+
+但用还是够用的，个人没买各种双倍DLC，打到白金的时候每人100级也只剩三四个技能没点
+
+
+等级这个只要比对方低就有加成，压级后经验激减，双倍其实也就省点点平级的时间
+
+放两对比图，敌人是95级的
+
+<img src="https://img.saraba1st.com/forum/202109/12/150441hpslp2xukm3cp3j3.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (39.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 15:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/150445zxifmgdikfdi3d68.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (38.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 15:04 上传
+
+
+*****
+
+####  真月零  
+##### 4187#       发表于 2021-9-12 15:03
+
+
+开了easy没买dlc全程自动只放放回血和必杀的就没体验到难了……
+进度第三章个人倒是非常喜欢，印度小哥废得笑出声太有意思了。唯一感想就是觉得剧情赶得以为女主策略是打闪电战（。）
+
+—— 来自 OPPO PEDM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Shabadadoo  
+##### 4188#       发表于 2021-9-12 15:16
+
+
+normal难度，洛入队打雪国领主，队伍15级，被boss开两次大，把药几乎吃空了才过。
+是不是该买个双倍经验dlc啊。
+
+

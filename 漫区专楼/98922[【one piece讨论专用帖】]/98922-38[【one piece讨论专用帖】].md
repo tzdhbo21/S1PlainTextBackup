@@ -2256,3 +2256,19 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 尾田想不到点子时，只需要上网搜一下就可以收获一大堆伏笔……
 
 
+
+
+*****
+
+####  eflni  
+##### 55665#       发表于 2021-9-12 15:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719875&amp;ptid=98922" target="_blank">caster 发表于 2021-9-12 13:17</a>
+尾田想不到点子时，只需要上网搜一下就可以收获一大堆伏笔……</blockquote>
+这一段就是大叔在讲述自己对臭名昭著的家族的厌恶，然后可以看到其他人都围在大叔旁边，就山治一个人全程拉张椅子远远坐着抽烟摆pose<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很难说是不是尾田有意的伏笔，但“山治因为想到了文斯莫克家而闷闷不乐”还是一个挺有趣的解读，逻辑上也能自洽。
+另外，虽然比较过度解读，之前草帽团在海底打捞时，索隆捡到的是一把锈坏的刀，而山治捡到的则是一副碎裂的妇女肖像，并给了一个悲伤的表情特写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VTR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
