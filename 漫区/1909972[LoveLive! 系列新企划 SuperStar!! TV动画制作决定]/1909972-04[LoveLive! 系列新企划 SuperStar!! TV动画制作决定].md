@@ -887,3 +887,67 @@ ksks也是前辈前辈叫的勤快支棱起来了，一开始屑剧情也是挺�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这还有人边吃边在抱怨可可态度差民警多温柔可可你看看，甚至把剧本省略掉的入队→互怼这段跳掉的剧情美其名曰留白的美感，实在令人扼腕
 
 
+
+
+*****
+
+####  寒风夜  
+##### 4575#       发表于 2021-9-12 21:49
+
+
+ 本帖最后由 寒风夜 于 2021-9-12 21:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">说句题外话 偶活的尤里卡写的真好，一集就写好了，然后还是年番，或者说补下来都不错，兰 葵 莓 真好啊，纯粹的梦想 
+
+
+*****
+
+####  lj205  
+##### 4576#       发表于 2021-9-12 21:59
+
+
+站可堇的我对闺女目前对民警那态度没啥不满，反而是千忘名字更无语吧？
+
+
+*****
+
+####  lj205  
+##### 4577#       发表于 2021-9-12 22:00
+
+
+<blockquote>寒风夜 发表于 2021-9-12 21:49
+说句题外话 偶活的尤里卡写的真好，一集就写好了，然后还是年番，或者说补下来都不错，兰 葵 莓 真 ...</blockquote>
+别笑的太早～～知名场景“这就是爱”和“你也选了小空吗”等着你～
+
+
+*****
+
+####  cybernetics31  
+##### 4578#       发表于 2021-9-12 22:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就这样吧，花田样板戏还能指望啥，看可可后面能整啥活出来吧
+
+
+*****
+
+####  Eric_方歌阙  
+##### 4579#       发表于 2021-9-12 22:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52725174&amp;ptid=1909972" target="_blank">cybernetics31 发表于 2021-9-12 21:42</a>
+………………企划第一个公募的立德，只能说这个企划命太好了，公募捡到这么个超级新人 ...</blockquote>
+很难想象她还是纯素人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，要说家学渊源多少还容易接受点
+
+
+*****
+
+####  蔵女  
+##### 4580#       发表于 2021-9-12 22:02
+
+
+我感觉这集节奏挺好的，其实上集也是因为强塞live才看起来赶吧？…
+
+ll就不能把live放在ed么？
+
+
