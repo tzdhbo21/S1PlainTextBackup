@@ -1560,3 +1560,33 @@ GBA版里有个纸飞机的小游戏，，哪里玩的到
 然而反过来说， 这些角色的“特殊操作”只是让人觉得系统在故意捣乱添加障碍而已
 
 
+
+
+*****
+
+####  berserker210  
+##### 129#       发表于 2021-9-12 19:35
+
+
+用礼物把九瓦特喂上去之后拿了周常金冠，现在在清成就，攒点数抽扭蛋。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/12/193358c9d22b0sc9aa5h0b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210912193302.jpg</strong> (151.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 19:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/193402m1ha2ja1p4vh41ny.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210912193307.jpg</strong> (145.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 19:34 上传
+
+

@@ -2272,3 +2272,31 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 —— 来自 HUAWEI VTR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  C男人  
+##### 55666#       发表于 2021-9-12 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721107&amp;ptid=98922" target="_blank">eflni 发表于 2021-9-12 15:12</a>
+
+这一段就是大叔在讲述自己对臭名昭著的家族的厌恶，然后可以看到其他人都围在大叔旁边，就山治一个人全程 ...</blockquote>
+如果尾田真的是事先安排好所有人的身世，再画这段的话，
+
+
+倒确实会给山治一个 “原生家庭不幸福” 的身影。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  icewolf01  
+##### 55667#       发表于 2021-9-12 19:32
+
+
+看到最后双龙会这段就特别为和之国感到不值……这段如果有两年前的故事水平绝对浪漫到爆炸，然而现在却感觉不到什么波澜<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+

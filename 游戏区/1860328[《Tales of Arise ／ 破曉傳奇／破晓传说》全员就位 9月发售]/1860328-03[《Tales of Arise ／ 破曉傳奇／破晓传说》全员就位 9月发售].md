@@ -15343,3 +15343,144 @@ https://bbs.saraba1st.com/2b/thread-2025914-1-1.html
 三个版本买哪个版本好？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  allenz3  
+##### 4273#       发表于 2021-9-12 19:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723571&amp;ptid=1860328" target="_blank">mashirotan 发表于 2021-9-12 19:23</a>
+三个版本买哪个版本好？</blockquote>
+究极版
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  黑耀星尘  
+##### 4274#       发表于 2021-9-12 19:26
+
+
+我感觉这有的关卡设计就很随意完全没有巧妙感，都是绕半天打怪开开关，玩的疲劳。水城那里跑楼顶开了开关直接叫我跳到一楼。还贴心的边上没栅栏十多米就硬跳就算是游戏也离谱
+
+
+*****
+
+####  JudgmentEye  
+##### 4275#       发表于 2021-9-12 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723571&amp;ptid=1860328" target="_blank">mashirotan 发表于 2021-9-12 19:23</a>
+
+三个版本买哪个版本好？</blockquote>
+家用机就最贵的，pc就最便宜的然后用一键dlc解锁补丁
+
+
+*****
+
+####  红烧肉  
+##### 4276#       发表于 2021-9-12 19:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723072&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-9-12 18:29</a>
+
+卧槽雪国下水道里的那个蛞蝓怎么那么恶心啊？！！！我打了快一个小时没打过去。召唤小蛞蝓个个会水魔法太恶 ...</blockquote>
+小怪只会喷水魔法。
+
+给NPC带上减水伤害的饰品。
+
+主控角色看到读条满了就回避躲，不要专门去杀小怪，逮着大的揍，靠AOE干小怪就行。
+
+
+*****
+
+####  红烧肉  
+##### 4277#       发表于 2021-9-12 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723100&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-9-12 18:32</a>
+
+还有，炎之刃怎么启动啊？我到现在还只会送的魔王炎击波，其他技能的延伸炎之刃怎么解锁啊？ ...</blockquote>
+会有新的技能盘有新的炎刀技能，用其他技能有时候也会学会，具体怎么学不清楚。
+
+
+*****
+
+####  幽香  
+##### 4278#       发表于 2021-9-12 19:30
+
+
+问下这次的精灵还能操控吗？
+
+
+*****
+
+####  alucardcz  
+##### 4279#       发表于 2021-9-12 19:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刚打完赤犬 战斗演出这部分现在挺满意的 希望后面剧情别拉跨
+
+
+*****
+
+####  Bani82  
+##### 4280#       发表于 2021-9-12 19:40
+
+
+看完OP2还剩多少剧情内容？5小时？
+
+一个下午就打了一个水国，累死了，水国这边开始战斗强度太高了
+
+
+N难度下买了2倍成长后，以前的传说闭眼乱砍的打法又回来了，甚至见BOSS时平级或者高2级？
+
+奥尔芬换血流实在太舒服了，平时刮痧但是有机会换血一次就起码2割左右有的
+
+另外霸道封灭斩这个派生怎么出？
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 4281#       发表于 2021-9-12 19:40
+
+
+说起来其实我对ufo做的过场意见还挺大的
+
+我还以为就做一个op完事没想到居然做了这么多，甚至最后两段都全是动画，真的不好看啊
+
+是因为动画成本比动捕做cg低吗，太影响观感了
+
+
+*****
+
+####  火红之眼  
+##### 4282#       发表于 2021-9-12 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723610&amp;ptid=1860328" target="_blank">黑耀星尘 发表于 2021-9-12 19:26</a>
+
+我感觉这有的关卡设计就很随意完全没有巧妙感，都是绕半天打怪开开关，玩的疲劳。水城那里跑楼顶开了开关直 ...</blockquote>
+以前是又大又绕又复杂+各种机关解谜，从战斗难度以外劝退玩家，现在改简单也是没办法
+
+
+*****
+
+####  LMBS  
+##### 4283#       发表于 2021-9-12 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723748&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2021-9-12 19:40</a>
+
+说起来其实我对ufo做的过场意见还挺大的
+
+我还以为就做一个op完事没想到居然做了这么多，甚至最后两段都全是 ...</blockquote>
+邮轮上那段剧情，从即时演算换到2D动画效果真是吓到我了
+
+下次真别搞动画过场了，把钱用来优化下即时演算不好吗
+
+
