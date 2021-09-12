@@ -16475,3 +16475,64 @@ mono在xb2还是属于穷讲究，有诚意也有点想法 ...</blockquote>
 有一种可能是喊话队员和你摁的方向是同一个人……其实具体的我也不清楚都是在猜
 
 
+
+
+*****
+
+####  aaronluray  
+##### 4366#       发表于 2021-9-13 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726968&amp;ptid=1860328" target="_blank">JC_AR 发表于 2021-9-13 00:15</a>
+
+法师女和拳男的剧情也太傻逼了，刚刚还说变LCL有点意思，后面就来这么一出，我吐了，完了这么多年传说没见 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特别是紧接着解锁的两个技能盘的描述，看了后只能真心地祝他们百年好合了
+
+
+*****
+
+####  reficul  
+##### 4367#       发表于 2021-9-13 00:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726587&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-12 23:35</a>
+
+打了整整2天，40小时了
+
+现在挂机刷斗技场中，目前要找船去最后一个地图了 ...</blockquote>
+怎么挂机？
+
+
+*****
+
+####  reficul  
+##### 4368#       发表于 2021-9-13 00:31
+
+
+22小时，清完了第三章所有支线，一口气打完飞龙、巨猿、野猪、石块，爽啊，就是药也吃光了
+
+
+买药的时候盾姐还调侃说“虽然说是有备无患，可是这下备着的钱都没有了”，笑死
+
+
+*****
+
+####  JC_AR  
+##### 4369#       发表于 2021-9-13 00:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727081&amp;ptid=1860328" target="_blank">aaronluray 发表于 2021-9-13 00:28</a>
+
+特别是紧接着解锁的两个技能盘的描述，看了后只能真心地祝他们百年好合了 ...</blockquote>
+而且这两个人也没啥感情铺垫，就硬是凑CP，他们更像是小学生班长和捣蛋男同学的关系，年级也差不多
+
+
+*****
+
+####  lbzlxx  
+##### 4370#       发表于 2021-9-13 00:40
+
+
+想清料理，发现缺了几种鱼的素材，又没得买，要在哪里找
+
+

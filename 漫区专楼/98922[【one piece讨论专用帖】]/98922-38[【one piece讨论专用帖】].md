@@ -2379,3 +2379,17 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 这活很怪很好。
 
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 55670#       发表于 2021-9-13 00:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726761&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2021-9-12 23:53</a>
+
+这活很怪很好。</blockquote>
+生动形象，有理有据，合情合理
+
+
