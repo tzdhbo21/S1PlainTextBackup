@@ -14430,3 +14430,137 @@ normal难度，洛入队打雪国领主，队伍15级，被boss开两次大，�
 —— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  名字已被吃  
+##### 4196#       发表于 2021-9-12 15:45
+
+
+打算买个成长组合包，方便刷sp，但是组合包写着将队伍全体成员我sp提升1000，现在我才打完第一个boss，是不是全员进队再买会划算点？不然现在只有两人可以加sp，感觉亏了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  horacio  
+##### 4197#       发表于 2021-9-12 15:49
+
+
+今天下午盘子刚到，正好也是玩到大门这里卡住了…
+
+
+*****
+
+####  horacio  
+##### 4198#       发表于 2021-9-12 15:51
+
+
+好像有个ps5新补丁，刚看到，可以过了
+
+
+*****
+
+####  喵喵叫的猫  
+##### 4199#       发表于 2021-9-12 15:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721506&amp;ptid=1860328" target="_blank">名字已被吃 发表于 2021-9-12 15:45</a>
+
+打算买个成长组合包，方便刷sp，但是组合包写着将队伍全体成员我sp提升1000，现在我才打完第一个boss，是不 ...</blockquote>
+应该是后续都加的
+
+我开游戏就直接用了 后面加入新队友都自带6000-8000的sp
+
+
+不过直接加等级的那个记得不要先领 不然一开始领了等于5级变10级而已亏到爆
+
+
+*****
+
+####  红魔馆的糖  
+##### 4200#       发表于 2021-9-12 15:56
+
+
+玩上了，这套ppt过场不是要沿用到以后的作品吧。。。。
+
+我宁愿站桩都不想要这个割裂感满满的过场方式<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  Mr_raindrop  
+##### 4201#       发表于 2021-9-12 15:57
+
+
+目前应该算打完了第一章，感觉还是非常不错的，故事节奏舒服，战斗比较流畅，主角两口子也很可爱。画质大好评，玩的时候就在想，如果说XB和XB2能有这种画质那该多好。
+
+
+*****
+
+####  Chia  
+##### 4202#       发表于 2021-9-12 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721637&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 15:56</a>
+
+玩上了，这套ppt过场不是要沿用到以后的作品吧。。。。
+
+
+我宁愿站桩都不想要这个割裂感满满的过场方式[f:09 ...</blockquote>
+ppt不是过场，是系列传统skit的进化版
+
+
+*****
+
+####  名字已被吃  
+##### 4203#       发表于 2021-9-12 16:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721595&amp;ptid=1860328" target="_blank">喵喵叫的猫 发表于 2021-9-12 15:52</a>
+应该是后续都加的
+
+我开游戏就直接用了 后面加入新队友都自带6000-8000的sp</blockquote>
+那我直接买了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  红魔馆的糖  
+##### 4204#       发表于 2021-9-12 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721672&amp;ptid=1860328" target="_blank">Chia 发表于 2021-9-12 16:00</a>
+ppt不是过场，是系列传统skit的进化版</blockquote>
+可是我光序章就经历了好几个主线切ppt了呀<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucky95  
+##### 4205#       发表于 2021-9-12 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721713&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 16:04</a>
+ 可是我光序章就经历了好几个主线切ppt了呀</blockquote>
+传说系列都是这样的
+
+
+*****
+
+####  alucardcz  
+##### 4206#       发表于 2021-9-12 16:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721713&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 16:04</a>
+
+可是我光序章就经历了好几个主线切ppt了呀</blockquote>
+那是以前的skit。。。算是进化。。
+
+

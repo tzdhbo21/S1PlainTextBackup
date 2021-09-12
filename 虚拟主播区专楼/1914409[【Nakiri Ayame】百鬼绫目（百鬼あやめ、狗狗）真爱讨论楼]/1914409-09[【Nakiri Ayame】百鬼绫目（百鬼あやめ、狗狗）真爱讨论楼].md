@@ -13545,3 +13545,19 @@ Screenshot_2021-09-12-10-26-27-736_com.twitter.an.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来以前观众叫她多吃饭是有道理的。
 
 
+
+
+*****
+
+####  昆西昆希昆  
+##### 13154#       发表于 2021-9-12 15:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719372&amp;ptid=1914409" target="_blank">nian1538 发表于 2021-9-12 12:36</a>
+
+https://www.diet-cafe.jp/height-weight/152cm/42kg.html
+
+看了一下这个页面列的名人，基本都是排骨了</blockquote>
+有没有可能会打扮，会做饭，有文化这三点只是相较于其他某些liver而言的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
