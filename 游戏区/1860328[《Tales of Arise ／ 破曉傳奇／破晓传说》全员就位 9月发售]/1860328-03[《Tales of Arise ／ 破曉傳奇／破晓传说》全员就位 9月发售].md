@@ -13808,3 +13808,44 @@ jrpg很多时候我都觉得大家好好坐下来谈谈完全可以解决问题�
 话说这个学习技能是什么机制，有的时候用一次新技能角色自己就又学了个技能<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是一定等级之后使用特定技能？
 
 
+
+
+*****
+
+####  火红之眼  
+##### 4149#       发表于 2021-9-12 12:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719417&amp;ptid=1860328" target="_blank">Dreki 发表于 2021-9-12 12:39</a>
+
+话说这个学习技能是什么机制，有的时候用一次新技能角色自己就又学了个技能是一定等级之后使用特定 ...</blockquote>
+主要还是熟练度吧，尽量每个技能用到1星基本就不会漏招了
+
+
+*****
+
+####  Vladimeow  
+##### 4150#       发表于 2021-9-12 12:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">用上修改器开了双倍经验体验好多了
+
+
+*****
+
+####  lelouchwang  
+##### 4151#       发表于 2021-9-12 12:52
+
+
+雷聂斯基和雷纳到底是啥关系 一个是首都一个是国名？但对话里经常把这两并列提起<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  塔奇克马  
+##### 4152#       发表于 2021-9-12 12:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">连战经验加成放到第三个首领是不是也是故意的啊?这个明明可以放到开头就给吧?
+
+
