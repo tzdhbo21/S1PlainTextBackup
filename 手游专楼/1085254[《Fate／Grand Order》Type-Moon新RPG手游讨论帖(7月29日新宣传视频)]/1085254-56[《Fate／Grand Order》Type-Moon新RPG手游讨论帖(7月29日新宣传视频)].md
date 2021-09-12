@@ -12788,3 +12788,14 @@ nga玩国服的才是大多数，所以大多数都是国服思维，红卡在�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  zakki  
+##### 83585#       发表于 2021-9-12 13:53
+
+
+md，怎么到处都是仇凛，nga看他们花式吹看吐了去贴吧也一堆。还特么是日服吧，一堆一级号在那狂吹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+

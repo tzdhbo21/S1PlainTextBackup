@@ -14049,3 +14049,46 @@ jrpg很多时候我都觉得大家好好坐下来谈谈完全可以解决问题�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  6847651  
+##### 4168#       发表于 2021-9-12 13:42
+
+
+吃饱回CP每次就回2有什么用？还我1560SP<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 4169#       发表于 2021-9-12 13:48
+
+
+我对tob的结局很满意啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 4170#       发表于 2021-9-12 13:58
+
+
+打女王蜂这任务好玩啊，发任务大叔直接看不起盾妈的颜值，只认女主美人，盾妈还闹别扭233
+之后还有盾妈的cp糖，真不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  塔奇克马  
+##### 4171#       发表于 2021-9-12 13:59
+
+
+我想问下打着打着精英怪（野猪王那几个支线？）出大硬直，并非部位破坏或者增幅攻击弱点，这个机制有具体触发条件吗？
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
