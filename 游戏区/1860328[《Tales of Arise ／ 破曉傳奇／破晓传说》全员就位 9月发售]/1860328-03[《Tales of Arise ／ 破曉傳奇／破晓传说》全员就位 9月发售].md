@@ -13251,3 +13251,125 @@ BOSS前一般都有补给阵，补满打BOSS.......</blockquote>
 除了洛，我感觉其他近战电脑控制还行，洛真的是boss战刚一进场没几秒就暴毙了
 
 
+
+
+*****
+
+####  supersssbc  
+##### 4104#       发表于 2021-9-12 11:02
+
+
+<blockquote>华发夜眼[CN] 发表于 2021-9-12 10:58
+除了洛，我感觉其他近战电脑控制还行，洛真的是boss战刚一进场没几秒就暴毙了 ...</blockquote>
+洛的技能动画长，每次都是放技能的时候boss也放技能，别的近战滚走了洛还在那打拳
+
+
+*****
+
+####  bairn  
+##### 4105#       发表于 2021-9-12 11:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52717933&amp;ptid=1860328" target="_blank">黄昏的轮回 发表于 2021-9-12 10:34</a>
+普通难度还被麻婆神父反复摩擦三四次才过的是不是只有我，这读条大招下去就只有2个活人了，带了抗性 ...</blockquote>
+没有，连招基础是建立在break上，但boss全程霸体 倒地时间连个3级技能吟唱时间都不够
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  bairn  
+##### 4106#       发表于 2021-9-12 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718190&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-12 10:58</a>
+除了洛，我感觉其他近战电脑控制还行，洛真的是boss战刚一进场没几秒就暴毙了 ...</blockquote>
+洛死太快了，后面我基本不带了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  fuochai  
+##### 4107#       发表于 2021-9-12 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52717945&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-9-12 10:35</a>
+3000一个CP糖，哪能随便吃</blockquote>
+也就打boss需要 一条鱼500 还是按比例会30% 怎么想都很香<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+至少是不需要担心卡关了
+
+
+*****
+
+####  lucky95  
+##### 4108#       发表于 2021-9-12 11:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52715391&amp;ptid=1860328" target="_blank">peh 发表于 2021-9-12 00:24</a>
+ 这小两口土味调情好尴哦....而且这作练级速度怎么这么慢，我两个8级打ピエゾ真是输出全靠老婆 ...</blockquote>
+因为你没买金手指<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我11级打的
+
+
+*****
+
+####  Dreki  
+##### 4109#       发表于 2021-9-12 11:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52718190&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-12 10:58</a>
+
+除了洛，我感觉其他近战电脑控制还行，洛真的是boss战刚一进场没几秒就暴毙了 ...</blockquote>
+我就是打第二章boss血压高了，一共也没带多少补给就去打了，然后就看洛一直送
+
+
+*****
+
+####  reficul  
+##### 4110#       发表于 2021-9-12 11:12
+
+
+第二章的领主什么臭鱼烂虾，真要看强度，还得看我们第三章的领主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+要不是有自带debuff啊，这领主不是随便团灭你们这群人。。。太强了，把我攒了两章的好药都吃光了，好心疼
+
+
+
+
+*****
+
+####  七氷  
+##### 4111#       发表于 2021-9-12 11:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52714567&amp;ptid=1860328" target="_blank">supersssbc 发表于 2021-9-11 23:08</a>
+长按，要按1秒以上</blockquote>
+确实<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Milanor  
+##### 4112#       发表于 2021-9-12 11:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52716571&amp;ptid=1860328" target="_blank">名余竹 发表于 2021-9-12 06:41</a>
+
+到底是我不会玩jrpg还是数值不太对劲，怎么序章boss一个大风车就给我俩人全秒了 ...</blockquote>
+序章數值肯定有點問題的 普通難度 摩什麽高那邊一只10級的雜兵蹭了我一下 滿血沒了
+
+
+*****
+
+####  lucky95  
+##### 4113#       发表于 2021-9-12 11:19
+
+
+秒变生存吃鸡游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
