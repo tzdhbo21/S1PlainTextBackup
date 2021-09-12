@@ -767,3 +767,60 @@ toz那事件 我是比较无所谓的。。
 toar是直接首发玩了 目前感觉不错
 
 
+
+
+*****
+
+####  无动于衷  
+##### 69#       发表于 2021-9-12 13:31
+
+
+ 本帖最后由 无动于衷 于 2021-9-12 13:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52717284&amp;ptid=2025900" target="_blank">masterzx 发表于 2021-9-12 09:32</a>
+
+那为什么光荣这种传统pc大厂到现在都不能全球同步呢为什么连今年的蓝反帝pc都要晚两周</blockquote>
+晚两周不错了 工作室说同步也是STEAM晚一个月的
+
+GUST的游戏本来就是以PS系主机为基础制作 这是基操请勿友邦惊诧
+
+
+*****
+
+####  LMBS  
+##### 70#       发表于 2021-9-12 13:31
+
+
+目前4.8万在线，今晚应该可以达到最高，估计6.5万左右吧
+
+明天周一应该就会降下来，通关和被剧情BOSS雷倒的玩家应该也多了
+
+
+*****
+
+####  masterzx  
+##### 71#       发表于 2021-9-12 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720033&amp;ptid=2025900" target="_blank">无动于衷 发表于 2021-9-12 13:31</a>
+
+晚两周不错了 工作室说同步也是STEAM晚一个月的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">所谓说思维逆转过来，像z55晚一个月倒也算了，就差两周了，为什么不能把主机版往后推两周
+
+
+我相信背后肯定也有优化等客观原因，但我觉得背后肯定也有日厂希望能优先照顾主机玩家的想法在里头
+
+
+*****
+
+####  bm7号  
+##### 72#       发表于 2021-9-12 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720081&amp;ptid=2025900" target="_blank">masterzx 发表于 2021-9-12 13:34</a>
+
+所谓说思维逆转过来，像z55晚一个月倒也算了，就差两周了，为什么不能把主机版往后推两周</blockquote>
+pc版 X
+
+欧美版 O
+
+

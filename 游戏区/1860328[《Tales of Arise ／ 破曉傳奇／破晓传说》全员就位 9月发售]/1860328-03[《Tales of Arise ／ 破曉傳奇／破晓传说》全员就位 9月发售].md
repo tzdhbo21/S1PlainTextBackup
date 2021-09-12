@@ -13957,3 +13957,95 @@ jrpg很多时候我都觉得大家好好坐下来谈谈完全可以解决问题�
   感谢
 
 
+
+
+*****
+
+####  heresiarch  
+##### 4162#       发表于 2021-9-12 13:30
+
+
+刚过了第一章，感觉不错，男主个性不错，女主莫名地也觉得蛮可爱的，两人互动挺好玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+希望剧情尤其结局不要狗血就行了，好好演绎个王道剧情就好了，狂战的结局至今给我留下了PTSD
+
+
+*****
+
+####  Rainwedell  
+##### 4163#       发表于 2021-9-12 13:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719987&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-12 13:27</a>
+哦 找到了</blockquote>
+文物里面可以设置关闭（图是b站随手找的）
+
+<img src="https://img.saraba1st.com/forum/202109/12/133024eam4zy5uuylhmo6t.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210912-132947_bilibili.png</strong> (965.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 13:30 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  heseran  
+##### 4164#       发表于 2021-9-12 13:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720002&amp;ptid=1860328" target="_blank">heseran 发表于 2021-09-12 13:28:37</a>
+视角是不是不能调整呀，太近了有点不舒服</blockquote>视角又变得正常了……开局那个视角真的不舒服
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  alucardcz  
+##### 4165#       发表于 2021-9-12 13:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720040&amp;ptid=1860328" target="_blank">heseran 发表于 2021-9-12 13:31</a>
+
+视角又变得正常了……开局那个视角真的不舒服
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">是不是开局那个通道  会突然拉的很近 后面就好了
+
+
+*****
+
+####  alucardcz  
+##### 4166#       发表于 2021-9-12 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720017&amp;ptid=1860328" target="_blank">heresiarch 发表于 2021-9-12 13:30</a>
+
+刚过了第一章，感觉不错，男主个性不错，女主莫名地也觉得蛮可爱的，两人互动挺好玩
+
+
+希望剧情尤其 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">狂战还行 只要不shi 悲剧也好大团员也好都可以接受
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">想想tox2才是最悲伤的 狂战还算轻
+
+
+*****
+
+####  heseran  
+##### 4167#       发表于 2021-9-12 13:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720065&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-09-12 13:33:17</a>
+是不是开局那个通道  会突然拉的很近 后面就好了</blockquote>就是第一个过场后<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后面不会还有这种地方吧
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
