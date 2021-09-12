@@ -569,3 +569,104 @@ Eテレ 19(日)夜7時
 下周生放都是以第八集为主题，肯定一集胜负了
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 4548#       发表于 2021-9-12 20:43
+
+
+一集能填这么坑还让人满意吗，太赶了吧，跟上集一样了，别啊花田<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TTAA  
+##### 4549#       发表于 2021-9-12 20:46
+
+
+还真是上海滩，是周润发影响力还是哏图逆输入<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kata魂  
+##### 4550#       发表于 2021-9-12 20:46
+
+
+事实上上集赶是因为加了太多无用搞笑镜头再加上把可堇和sunnypa边缘化搞得莫名其妙，还有第五集本来作小千铺垫回但实际上啥都没讲
+
+这次恋的事情已经交代清楚了，一集解决还是没什么问题的，本身恋的事情就是一条线直接走到头就行，只要花田不抽风
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4551#       发表于 2021-9-12 20:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘴炮+钥匙开盒释怀，总归就这剧情还要什么自行车
+
+
+*****
+
+####  lj205  
+##### 4552#       发表于 2021-9-12 20:50
+
+
+下次直播让鲤鱼唱上海滩
+
+
+*****
+
+####  we89623  
+##### 4553#       发表于 2021-9-12 20:50
+
+
+可可对堇的态度也太差了，应该之后两人会发生什么事情让可可改变态度吧，要不就太刻意了 欢喜冤家也不能是单方面的吧。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4554#       发表于 2021-9-12 20:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724496&amp;ptid=1909972" target="_blank">we89623 发表于 2021-9-12 20:50</a>
+
+可可对堇的态度也太差了，应该之后两人会发生什么事情让可可改变态度吧，要不就太刻意了 欢喜冤家也不能是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话小千一下子没想起来民警名字我觉得更过分，好歹都一起开live了
+
+
+*****
+
+####  saglork  
+##### 4555#       发表于 2021-9-12 20:53
+
+
+不是，这恋妈真的不是梨子吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+再配上这个似曾相识的狗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4556#       发表于 2021-9-12 20:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉挺难，这扣除前情提要oped就不到20分钟，如果还要卖歌，聚聚
+
+
+*****
+
+####  chenflyyy  
+##### 4557#       发表于 2021-9-12 20:59
+
+
+ 本帖最后由 chenflyyy 于 2021-9-12 21:00 编辑 
+
+民警的塑造跟当初妮可基本是一样的，想当c位，魔性口头禅，有一个欢喜冤家，被迫害役，这集还致敬了便便帽，花田来点有新意的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+还有这集对民警的迫害有点过头了，我不是民警推都觉得惨
+
+

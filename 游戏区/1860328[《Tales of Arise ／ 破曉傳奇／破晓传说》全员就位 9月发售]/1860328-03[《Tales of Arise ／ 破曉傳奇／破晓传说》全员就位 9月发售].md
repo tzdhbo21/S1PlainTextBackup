@@ -15835,3 +15835,84 @@ N难度下买了2倍成长后，以前的传说闭眼乱砍的打法又回来了
 防止重要过场里 玩家穿得没个人样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  sodah  
+##### 4313#       发表于 2021-9-12 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723198&amp;ptid=1860328" target="_blank">司马千晶 发表于 2021-9-12 18:43</a>
+
+战斗狂更泛用</blockquote>
+主要我手上也有战斗狂的饰品，那把火伤洗了？这种技能词条比单纯的数值词条要好吧。
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4314#       发表于 2021-9-12 20:48
+
+
+话说预购给的那套黑高贵真的色，盯着锁骨都能脑补出幼滑肌肤和粗糙蕾丝混杂在一起的触感
+
+
+*****
+
+####  FanFun  
+##### 4315#       发表于 2021-9-12 20:53
+
+
+话说上个料理效果没结束，做个其他料理会覆盖之前的吗？
+
+
+*****
+
+####  hotsmile  
+##### 4316#       发表于 2021-9-12 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722878&amp;ptid=1860328" target="_blank">五星战世韩玉昆 发表于 2021-9-12 18:11</a>
+
+没DLC一开始就别困难不就好了……
+
+我记得传说系列一直是难度越往上基础经验越低，只能靠战斗评价倍率打得 ...</blockquote>
+我感觉不少人玩游戏直接难度拉最高吧，本来属于一周目完事的游戏，你玩最低难度平A通关估计战斗系统都没摸清就封盘了，而且HARD难度到第2章水道开始都是乱杀的，然后到boss难度才升了一大截
+
+
+*****
+
+####  fuochai  
+##### 4317#       发表于 2021-9-12 20:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724528&amp;ptid=1860328" target="_blank">FanFun 发表于 2021-9-12 20:53</a>
+话说上个料理效果没结束，做个其他料理会覆盖之前的吗？</blockquote>
+只能有一个效果
+
+
+*****
+
+####  FanFun  
+##### 4318#       发表于 2021-9-12 21:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724549&amp;ptid=1860328" target="_blank">fuochai 发表于 2021-9-12 20:55</a>
+
+只能有一个效果</blockquote>
+啊，那我把自己的经验增加料理给覆盖了，好奇<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  后入芙蓉王  
+##### 4319#       发表于 2021-9-12 21:02
+
+
+打到第三章，补充了点药品，调整了一下队友用药策略，感觉没那么难打了
+
+
+带不够药打BOSS真的能把人逼疯，药带够就是打消耗战罢了，BOSS杀伤我方角色速度远不及队友回复的速度<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
