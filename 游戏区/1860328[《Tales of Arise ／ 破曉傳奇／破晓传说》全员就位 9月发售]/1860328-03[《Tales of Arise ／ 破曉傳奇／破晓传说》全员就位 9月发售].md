@@ -13093,3 +13093,16 @@ BOSS前一般都有补给阵，补满打BOSS.......</blockquote>
 三章结束开启第二套
 
 
+
+
+*****
+
+####  塔奇克马  
+##### 4090#       发表于 2021-9-12 09:23
+
+
+现在打的最有意思boss大概乱入那只龙？至少他各种状态能打断 飞天 咏唱等等破绽多，有互动.
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
