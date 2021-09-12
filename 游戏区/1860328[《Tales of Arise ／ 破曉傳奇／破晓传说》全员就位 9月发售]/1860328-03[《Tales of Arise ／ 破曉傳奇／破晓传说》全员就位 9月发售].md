@@ -13139,3 +13139,35 @@ BOSS前一般都有补给阵，补满打BOSS.......</blockquote>
 钓鱼给的钱挺多啊，随便钓一下就三千了，cp糖不是随便吃<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  黄昏的轮回  
+##### 4094#       发表于 2021-9-12 10:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">普通难度还被麻婆神父反复摩擦三四次才过的是不是只有我，这读条大招下去就只有2个活人了，带了抗性首饰总算过去了。就想请问这boss霸体有没有办法整整，我不介意被暴打，但是神父这细剑动作又快，4个人一堆特效上去根本看不清什么时候闪避。
+
+
+*****
+
+####  godless2020  
+##### 4095#       发表于 2021-9-12 10:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52717758&amp;ptid=1860328" target="_blank">fuochai 发表于 2021-9-12 10:19</a>
+
+钓鱼给的钱挺多啊，随便钓一下就三千了，cp糖不是随便吃</blockquote>
+3000一个CP糖，哪能随便吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheOccuria  
+##### 4096#       发表于 2021-9-12 10:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在boss战全程操作琳薇尔了，全程霸体+光污染，打近战药完全跟不上
+
+
