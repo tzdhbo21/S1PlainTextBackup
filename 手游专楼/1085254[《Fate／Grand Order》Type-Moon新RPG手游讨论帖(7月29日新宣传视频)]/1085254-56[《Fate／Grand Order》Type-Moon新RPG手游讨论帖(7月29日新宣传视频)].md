@@ -12799,3 +12799,16 @@ nga玩国服的才是大多数，所以大多数都是国服思维，红卡在�
 md，怎么到处都是仇凛，nga看他们花式吹看吐了去贴吧也一堆。还特么是日服吧，一堆一级号在那狂吹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  rooarr  
+##### 83586#       发表于 2021-9-12 14:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720297&amp;ptid=1085254" target="_blank">zakki 发表于 2021-9-12 13:53</a>
+md，怎么到处都是仇凛，nga看他们花式吹看吐了去贴吧也一堆。还特么是日服吧，一堆一级号在那狂吹 ...</blockquote>
+习惯就好，可能是一些人攒石抽的最高宝的卡了，跟吹陈宫差不多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

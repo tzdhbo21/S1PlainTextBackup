@@ -14092,3 +14092,81 @@ jrpg很多时候我都觉得大家好好坐下来谈谈完全可以解决问题�
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  alucardcz  
+##### 4172#       发表于 2021-9-12 14:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720239&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-12 13:48</a>
+
+我对tob的结局很满意啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么有生之年还有机会去救贝姐吗
+
+
+*****
+
+####  Bani82  
+##### 4173#       发表于 2021-9-12 14:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720396&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-12 14:00</a>
+
+那么有生之年还有机会去救贝姐吗</blockquote>
+说不定出个TOZB，玩不玩<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 4174#       发表于 2021-9-12 14:05
+
+
+话说林薇儿那个场景待机动作根本就是直接预设的T POSE吧，其他人都还好就林薇儿那个感觉特别强烈
+
+
+*****
+
+####  Bani82  
+##### 4175#       发表于 2021-9-12 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720077&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-12 13:34</a>
+
+狂战还行 只要不shi 悲剧也好大团员也好都可以接受
+
+想想tox2才是最悲伤的 狂战还算轻 ...</blockquote>
+剧情上来说TOX12我都蛮喜欢的，入坑作
+
+
+*****
+
+####  夜_乌鸦  
+##### 4176#       发表于 2021-9-12 14:18
+
+
+感觉这代搞笑要素少了不少？tob里大家那么苦大仇深平时小剧场还会讲讲相声，这代感觉大家都太严肃了
+
+
+*****
+
+####  Bani82  
+##### 4177#       发表于 2021-9-12 14:18
+
+
+突然发现文物竟然有联动，1HP那个联动刀魂
+
+
+*****
+
+####  heseran  
+##### 4178#       发表于 2021-9-12 14:19
+
+
+营地时候那个滚动广告也太掉好感了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
