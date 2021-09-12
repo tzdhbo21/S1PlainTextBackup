@@ -817,3 +817,73 @@ LL企划很多这种人才吗
 如果不限年龄看能力的话还是有很多的，不过得看生放和live去感受
 
 
+
+
+*****
+
+####  tagerto  
+##### 4569#       发表于 2021-9-12 21:29
+
+
+问可可为什么还对民警态度差的人你们难道忘了可可可是为了学园偶像一个人跑到日本的热爱级别，就民警她瞧不起学园偶像而且也一直没有改变这个态度，怎么可能让可可因为民警对她的一点温柔就改变态度，而且从可可的角度来看民警对她的好她都有还回去，所以态度一直差不是很正常，到是小千有点问题，都交了那么久的舞蹈连名字都记不住真是有点奇怪。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4570#       发表于 2021-9-12 21:33
+
+
+ 本帖最后由 寒风夜 于 2021-9-12 21:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52725027&amp;ptid=1909972" target="_blank">tagerto 发表于 2021-9-12 21:29</a>
+
+问可可为什么还对民警态度差的人你们难道忘了可可可是为了学园偶像一个人跑到日本的热爱级别，就民警她瞧不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">这感觉是个搞笑段子，不过这段子也能过？这不但不好笑还那什么..
+
+
+*****
+
+####  SBpencil  
+##### 4571#       发表于 2021-9-12 21:37
+
+
+民警和妮可根本没得比吧
+妮可可是所有人都走光了还一个人坚持做偶像的，目标就是要做第一偶像，对C位的坚持可以解读为她作为偶像的基本的追求。但是民警根本看不起偶像，想当C也是想在中间被看到从而当作进入演艺圈的跳板。我支持可可狠狠给民警上一课<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  寒风夜  
+##### 4572#       发表于 2021-9-12 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724730&amp;ptid=1909972" target="_blank">兔姬姬姬姬姬 发表于 2021-9-12 21:09</a>
+
+ksks也是前辈前辈叫的勤快支棱起来了，一开始屑剧情也是挺多的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过ksks剧情（动画） 也没让推她的喷啊
+
+
+*****
+
+####  cybernetics31  
+##### 4573#       发表于 2021-9-12 21:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724820&amp;ptid=1909972" target="_blank">Eric_方歌阙 发表于 2021-9-12 21:15</a>
+路人观众，就看了本季动画和一些熟肉切片。C位伊达小百合专业素质也太强了，很难想象她才18岁[f:068 ...</blockquote>
+………………企划第一个公募的立德，只能说这个企划命太好了，公募捡到这么个超级新人
+
+
+*****
+
+####  笋狐  
+##### 4574#       发表于 2021-9-12 21:43
+
+
+态度差是正常的，不正常的是这两人在立场冲突未解决的情况下被拉去演贴贴样板戏，所以光从表面看观感仿佛成了民警一直在包容可可一样
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这还有人边吃边在抱怨可可态度差民警多温柔可可你看看，甚至把剧本省略掉的入队→互怼这段跳掉的剧情美其名曰留白的美感，实在令人扼腕
+
+

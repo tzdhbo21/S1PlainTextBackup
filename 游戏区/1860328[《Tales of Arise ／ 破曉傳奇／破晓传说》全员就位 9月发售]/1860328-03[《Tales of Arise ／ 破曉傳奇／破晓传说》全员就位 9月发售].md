@@ -16001,3 +16001,106 @@ N难度下买了2倍成长后，以前的传说闭眼乱砍的打法又回来了
 就是保守古旧的设计，导演内心 OS：“没有那个必要”
 
 
+
+
+*****
+
+####  ccow  
+##### 4327#       发表于 2021-9-12 21:31
+
+
+妈耶，打第四个领将，我把药磕光了，打了这么多年RPG第一次。然后发现单挑就可以了，队友还不如不上。系统什么都不用管，没用。只要躲躲躲加蓄力火剑就可以。
+
+
+*****
+
+####  火红之眼  
+##### 4328#       发表于 2021-9-12 21:33
+
+
+ 本帖最后由 火红之眼 于 2021-9-12 21:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724892&amp;ptid=1860328" target="_blank">bairn 发表于 2021-9-12 21:19</a>
+
+那个隐藏迷宫在哪，土我已经打完了现在进去就直接到一个空boss房，但旁边有一个回血阵 ...</blockquote>
+就土的boss房有NPC给任务，通关后才出现（记得任务是在城里接的）
+
+
+*****
+
+####  fuochai  
+##### 4329#       发表于 2021-9-12 21:34
+
+
+ 本帖最后由 fuochai 于 2021-9-12 21:37 编辑 
+
+风怒
+
+
+*****
+
+####  PureWaltz  
+##### 4330#       发表于 2021-9-12 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724771&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 21:12</a>
+
+不太明白为什么用这种一个野外地图接一个野外地图的闯关类叙事。。。然后城镇做的简陋，NPC没一个有眼缘。 ...</blockquote>
+原来在ps3上玩过同一个制作组的《信赖铃音肖邦之梦》，差不多也是这种模式，应该算是传统了吧
+
+
+*****
+
+####  fuochai  
+##### 4331#       发表于 2021-9-12 21:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724760&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-12 21:11</a>
+法师能存几个技能，只能存一个吗
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+只能存一个 如果有存的时候单击技能 会把存的和单击的一起使用 或者平A把存的用出来
+存同系法术可以合成 小小和中 小中合大 中中合大 比如 轰雷刃 神圣之枪 天赐之剑
+存不同的法术可能搓出新的 比如神圣之枪加大气冰枪 如果不能合成就会丢失前一个了
+
+
+*****
+
+####  kazamatsuri  
+##### 4332#       发表于 2021-9-12 21:42
+
+
+才开始玩，猫头鹰的HootleDoodle眼镜怎么获得啊
+
+
+*****
+
+####  bairn  
+##### 4333#       发表于 2021-9-12 21:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52725058&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-12 21:33</a>
+
+就土的boss房有NPC给任务，通关后才出现（记得任务是在城里接的）</blockquote>
+我看看
+
+
+*****
+
+####  森兰丸  
+##### 4334#       发表于 2021-9-12 21:43
+
+
+问下增幅协力攻击除了用十字键选择的角色外.....和谁协力是随机还是能指定的
+
+
+*****
+
+####  chris1987  
+##### 4335#       发表于 2021-9-12 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722881&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-12 18:12</a>
+也是按紧，下戳到地面后不要松开，就会变成炎之剑的招</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">感谢，终于放出来了……
+
+
