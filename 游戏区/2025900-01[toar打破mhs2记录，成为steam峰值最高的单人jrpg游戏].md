@@ -824,3 +824,50 @@ pc版 X
 欧美版 O
 
 
+
+
+*****
+
+####  任天堂不哭  
+##### 73#       发表于 2021-9-12 15:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52713513&amp;ptid=2025900" target="_blank">いみじくも萌二 发表于 2021-9-11 21:48</a>
+
+我觉得对年轻人来说最重要的还是搓招和人设，难不成年轻人好鸟山明那一口把，ff7re上pc不知道能什么成绩。 ...</blockquote>
+epic独占，你说什么成绩吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天堂不哭  
+##### 74#       发表于 2021-9-12 15:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52719781&amp;ptid=2025900" target="_blank">sandro 发表于 2021-9-12 13:08</a>
+
+xb登录屎腚，绝壁再创新高！</blockquote>
+虽然知道不可能，但这个真的可以有，NS性能太拖累这游戏了
+
+
+*****
+
+####  riin  
+##### 75#       发表于 2021-9-12 15:37
+
+
+怪不得现在各大厂商都要上PC呢，真的赚钱啊
+
+
+*****
+
+####  riin  
+##### 76#       发表于 2021-9-12 15:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52713825&amp;ptid=2025900" target="_blank">MikawaFumika 发表于 2021-9-11 22:10</a>
+
+dq人设不符合二次元主流审美，toar这方面就好太多了，要不是我已经不打算再碰传说系列了我可能也会首发toar ...</blockquote>
+我总感觉日式的二次元是趁着欧美LGBT的东风进来的。一个美国玩家厌烦了LGBT式人物主人公，想找点俊男美女，发现高质量的大多数都是日式二次元游戏。于是也就开始越来越多的成为日本二次元粉丝了。原神也是借了这个东风。
+
+

@@ -17757,3 +17757,23 @@ THE チャラ です。
 —— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  cybernetics31  
+##### 4426#       发表于 2021-9-12 15:42
+
+
+10组内部矛盾 ，组员出来重组，yuistar组长和crux矛盾………………圈子不大，屁事倒是真多………………
+
+
+*****
+
+####  kata魂  
+##### 4427#       发表于 2021-9-12 15:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">为啥会有矛盾啊，分工不均吗
+
+

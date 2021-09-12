@@ -14346,3 +14346,87 @@ normal难度，洛入队打雪国领主，队伍15级，被boss开两次大，�
 是不是该买个双倍经验dlc啊。
 
 
+
+
+*****
+
+####  lucky95  
+##### 4189#       发表于 2021-9-12 15:20
+
+
+次级难度
+人物11级
+DLC除了等级的全选了
+金手指武器200攻击（不买只有100？
+金手指服装一来就解锁了三系元素攻击，女主也是一来就有寒冰风暴
+
+别祖三两下就被我拍死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+战斗手感很迷，有时能连上来个25连击，有时打两下就断了
+
+这游戏反正就是这傻逼样子了，建议买基础版+DLC补丁侍候
+
+
+*****
+
+####  Booorunestud  
+##### 4190#       发表于 2021-9-12 15:22
+
+
+这什么玩意。。。ps5版，有人知道咋解决吗，资料早就下完装完了，重启也不好使
+上推特看了看他们还没修复
+<img src="https://p.sda1.dev/2/6dd604deed08294690b766d604f35b34/IMG_CMP_212856886.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucky95  
+##### 4191#       发表于 2021-9-12 15:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721144&amp;ptid=1860328" target="_blank">Shabadadoo 发表于 2021-9-12 15:16</a>
+ normal难度，洛入队打雪国领主，队伍15级，被boss开两次大，把药几乎吃空了才过。 是不是该买个双倍经验dlc ...</blockquote>
+伞兵游戏被万代玩成了回合制RPG，等级压制不买金手指就降低难度吧，没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  金子一马  
+##### 4192#       发表于 2021-9-12 15:23
+
+
+<blockquote>Shabadadoo 发表于 2021-9-12 15:16
+normal难度，洛入队打雪国领主，队伍15级，被boss开两次大，把药几乎吃空了才过。
+
+是不是该买个双倍经验dlc ...</blockquote>
+个人觉得真要买就买+100cp和1000最大hp的那个包
+
+
+*****
+
+####  RUANHYC  
+##### 4193#       发表于 2021-9-12 15:24
+
+
+为什么steam版的桌面图标是空白的？有解决方法吗
+
+
+*****
+
+####  sad6504  
+##### 4194#       发表于 2021-9-12 15:28
+
+
+这作巨型boss战也太傻逼了，基本都是打几波小怪然后qte秒杀，刚打伊芙利特的时候一脸懵逼
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 4195#       发表于 2021-9-12 15:29
+
+
+实体版想补到终极版只能dlc一个个买？那tm比直接究极版还要贵不少，早知道买pc了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
