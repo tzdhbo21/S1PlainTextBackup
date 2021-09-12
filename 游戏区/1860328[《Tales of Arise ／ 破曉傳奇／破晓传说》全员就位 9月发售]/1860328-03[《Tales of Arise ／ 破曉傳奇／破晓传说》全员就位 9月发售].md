@@ -14564,3 +14564,74 @@ ppt不是过场，是系列传统skit的进化版</blockquote>
 那是以前的skit。。。算是进化。。
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 4207#       发表于 2021-9-12 16:10
+
+
+这样么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TOZ和TOB太久之前玩的了都没有相关记忆了
+
+
+*****
+
+####  Chia  
+##### 4208#       发表于 2021-9-12 16:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721713&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-12 16:04</a>
+
+可是我光序章就经历了好几个主线切ppt了呀</blockquote>
+啊这样，那没注意。一般是展示人物性格、关系的。
+
+隔壁绯红倒是90%用ppt安排了。
+
+
+这作的过场我感觉毛病不大。和CG、精编预渲染动画差距巨大，比主流日系作品又强了很多。
+
+
+*****
+
+####  hotsmile  
+##### 4209#       发表于 2021-9-12 16:14
+
+
+男主有什么招式比较好用啊？我轰霸都用到4星了，感觉就这招出招快伤害足，其他还有什么比较好用的招式？
+
+
+*****
+
+####  黄昏的轮回  
+##### 4210#       发表于 2021-9-12 16:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">新人传说玩家。想请问根据以往经验南万有没有靠后续dlc修正补完的可能性
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Dreki  
+##### 4211#       发表于 2021-9-12 16:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52720878&amp;ptid=1860328" target="_blank">hallowilliam 发表于 2021-9-12 14:48</a>
+开局选了第三个难度，卡到不怎么卡关，但是感觉打的好刮痧啊。。。目前刚到第二章中断，打完下水道boss。。 ...</blockquote>
+你可能需要赢在起跑线dlc<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  peh  
+##### 4212#       发表于 2021-9-12 16:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这次dlc估计要赚麻了，我认识的新入坑的都买了成长包还有皮肤
+
+
+我倒是想买那个黑礼服（好像是和sao联动的？），但是商店里找不到，是没上么
+
+

@@ -17788,3 +17788,14 @@ THE チャラ です。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会是经典的观剧立场冲突吧
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 4429#       发表于 2021-9-12 16:23
+
+
+字幕组矛盾可太正常了，哪个圈子都会有的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
