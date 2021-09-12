@@ -283,3 +283,127 @@ Eテレ 19(日)夜7時
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不幸的是，这话看下来如预料的那样制作组似乎铁了心让民警作为纯joker役，三话逛该一话入队之后成为固定台词复读机+缓和气氛用的搞笑艺人，顺便和可可制造点不走心的花田流工业糖精互动；我要是立派堇单推看了这话非得被狗花田气晕
 
 
+
+
+*****
+
+####  新HGCG  
+##### 4524#       发表于 2021-9-12 19:43
+
+
+唐可可烈士就义前珍贵影像资料
+<img src="http://wx2.sinaimg.cn/large/001TEqLLgy1gue2swf772g60fa08me8h02.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kos_mos  
+##### 4525#       发表于 2021-9-12 19:43
+
+
+自己就是堇单推<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4526#       发表于 2021-9-12 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723759&amp;ptid=1909972" target="_blank">笋狐 发表于 2021-9-12 19:41</a>
+
+不幸的是，这话看下来如预料的那样制作组似乎铁了心让民警作为纯joker役，三话逛该一话入队之后成为 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这种很难只怪他
+
+
+*****
+
+####  chenflyyy  
+##### 4527#       发表于 2021-9-12 19:46
+
+
+看了一圈，怎么这集又是好坏参半啊，个人感觉还挺不错的，可能是我对花田完全不抱期望了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AlfredXC  
+##### 4528#       发表于 2021-9-12 19:47
+
+
+小千怎么说呢，你和民堇也认识有一阵子了吧，还一起上台过，真就表面队友呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+可可真实加农单推人，这一话贴贴不少，不过截图那里感觉有点重，到底是什么心态呢
+
+恋恋这个家道中落的属性，已经可以想见会被出什么样的本了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过她的背景真有点沉重了，她想做的不是一个高中生因该背负的
+
+
+*****
+
+####  cybernetics31  
+##### 4529#       发表于 2021-9-12 19:47
+
+
+可可怕不是只被允许呆一年………………所以恋爸是怎样？看生肉没听出来个大概
+
+
+*****
+
+####  棒读  
+##### 4530#       发表于 2021-9-12 19:48
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/194844pahh93pxx9pidaxg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0023BXEigy1gue2nqbjn6j60n50d0dgx02.jpg</strong> (39.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 19:48 上传
+
+
+这个镜头要素有点多啊
+
+
+
+
+*****
+
+####  寒风夜  
+##### 4531#       发表于 2021-9-12 19:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">继续补偶活去了，37了，坛友推的好啊
+
+
+*****
+
+####  lyflyflxf  
+##### 4532#       发表于 2021-9-12 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723203&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-12 18:44</a>
+
+我想到的烂展开：
+
+恋恋打开箱子发现全是金条 问题直接迎刃而解（）</blockquote>
+恋恋隐藏设定：祖上是印度人
+
+
+*****
+
+####  kos_mos  
+##### 4533#       发表于 2021-9-12 20:00
+
+
+<img src="https://img.saraba1st.com/forum/202109/12/200048e6uh6kkz6vdu3uw8.png" referrerpolicy="no-referrer">
+
+
+<strong>ll.png</strong> (32.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-12 20:00 上传
+
+

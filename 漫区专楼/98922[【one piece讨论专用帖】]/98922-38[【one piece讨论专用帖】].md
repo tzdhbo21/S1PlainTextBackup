@@ -2300,3 +2300,18 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 看到最后双龙会这段就特别为和之国感到不值……这段如果有两年前的故事水平绝对浪漫到爆炸，然而现在却感觉不到什么波澜<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  klzxs  
+##### 55668#       发表于 2021-9-12 19:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">别的角色不说 山治肯定是早就设定好的啊 
+
+北海出生却出现在东海 沙漠时自称王子 司法岛后悬赏令没拍到照片只有画像
+
+爆出身世后很明显都有联系
+
+
