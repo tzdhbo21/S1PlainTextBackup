@@ -516,3 +516,132 @@ Z吃屎，B也不爽，隔了5年来个圆满的大团圆结局我很高兴倒�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
+*****
+
+####  alucardcz  
+##### 4536#       发表于 2021-9-13 17:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">剧情方面传说系列次时代后的基本都很拉的 你们难道第1次玩传说吗  
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">从tov开始算的话  
+
+
+tov第3部拉中拉  
+
+togf不会真有人在意过他的剧情吧  
+
+tox 突出一个？？？？？ 
+
+tox2有点回升 但是剧情太碎片化再加上分史世界这设定 阅读体验不算好  
+
+toz不谈了 前后矛盾不知所谓
+
+tob算是被toz拖累了 想圆点东西但也没怎么圆上 后面的坑估计这辈子也不会填了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">toar我刚玩到拳师加入 被这老套路弱智到了  （别剧透后面的谢谢）
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说到系统探索简化 分水岭就是tox了 我不太喜欢 但是有人喜欢不能说一定就是缺点
+
+
+*****
+
+####  中泽君  
+##### 4537#       发表于 2021-9-13 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734456&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-13 17:10</a>
+
+剧情方面传说系列次时代后的基本都很拉的 你们难道第1次玩传说吗  
+
+从tov开始算的话  </blockquote>
+可是这次战斗也拉了，战斗剧情有一样行都好
+
+
+*****
+
+####  火红之眼  
+##### 4538#       发表于 2021-9-13 17:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这作隐藏要素就是向TOX看齐的，突出一个少而简，但现在做回V那个量也不现实，之前HD都一堆人被这些内容搞得PTSD
+
+以前支线送衣服，现在衣服就单独拿来卖了，还保留的衣服支线也就剩温泉了（然后全员同一款式.....）
+
+
+*****
+
+####  6847651  
+##### 4539#       发表于 2021-9-13 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732362&amp;ptid=1860328" target="_blank">Booorunestud 发表于 2021-9-13 14:04</a>
+
+怕被剧透闭着眼睛进来问问，目前才困难难度小法师刚入队可操作。感觉升级和获取sp的速度太慢了？是不是数值 ...</blockquote>
+升级和SP获得非常非常的慢 就是逼你买内购的
+
+
+*****
+
+####  6847651  
+##### 4540#       发表于 2021-9-13 17:14
+
+
+这次剧情又是日式老套路 弄死一个国家的人说放就放了 你杀我全家我也要原谅你
+
+贰刺猿贰刺猿
+
+
+*****
+
+####  squaresfc  
+##### 4541#       发表于 2021-9-13 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734131&amp;ptid=1860328" target="_blank">sword_shrimp 发表于 2021-9-13 16:43</a>
+
+其实呢，这里面的原因不是小ＪＰ傻逼，而是你们不懂他们的文化。
+
+当然，这个世界上99%的人不懂ＪＰ文化。 ...</blockquote>
+你说得不对，那些你所谓的中式普世思维才是非黑即白。游戏角色有仇就应该去报仇，不管当时是什么情况，不管每个人有什么想法，一根筋地认为你阻止别人报仇就是傻逼角色傻逼剧情，这才是直来直去一点都不中庸的想法。你完全搞反了。
+
+
+*****
+
+####  zero12  
+##### 4542#       发表于 2021-9-13 17:16
+
+
+ 本帖最后由 zero12 于 2021-9-13 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734148&amp;ptid=1860328" target="_blank">ranapocket 发表于 2021-9-13 16:45</a>
+
+想什么呢，传说在十几年前就罐头化了，要不是马场那事踩了刹车……
+
+
+—— 来自 HUAWEI OCE-AN10, Android ...</blockquote>
+破案了，原来马场是加速党，在下坡路上猛踩一脚油门。
+
+
+*****
+
+####  alucardcz  
+##### 4543#       发表于 2021-9-13 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734498&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-9-13 17:14</a>
+
+可是这次战斗也拉了，战斗剧情有一样行都好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">战斗目前体验来说还行 就是不太象传说 感觉有点像so4。
+
+
+*****
+
+####  虚无连斩  
+##### 4544#       发表于 2021-9-13 17:19
+
+
+昨天打到第四章那个雷点剧情了....明明就是一个普通的不能被仇恨蒙蔽双眼剧情，那段演出台词的确不大对劲...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过因为你们都说了，打了预防针，除了感觉很脱力反而没啥了
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
