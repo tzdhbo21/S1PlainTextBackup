@@ -2809,3 +2809,16 @@ GAL主角香音
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恋入团之后可可要香音恋恋两头舔了，还有空管民警吗，感觉cp人要爆炸
 
 
+
+
+*****
+
+####  hcf220  
+##### 4726#       发表于 2021-9-14 06:11
+
+
+感觉废校原因好der啊，恋一学生操这么大心干嘛？校长都不怎么操心你一学生能干嘛？而且这学校怎么看生源都不低，真想续下去贷个款押个地还能续个几年，有闲心当偶像这种九死一生的活还不如去想点实际的方法。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
