@@ -21407,3 +21407,24 @@ Ame这是得新冠了么？
 自力更生EN组
 
 
+
+
+*****
+
+####  smy20011  
+##### 1359#         楼主| 发表于 2021-9-13 08:55
+
+
+<img src="https://img.saraba1st.com/forum/202109/13/085516fpp0hh6zapl6hlvp.png" referrerpolicy="no-referrer">
+
+
+<strong>1631494456425.png</strong> (72.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 08:55 上传
+
+
+Gura what?
+
+

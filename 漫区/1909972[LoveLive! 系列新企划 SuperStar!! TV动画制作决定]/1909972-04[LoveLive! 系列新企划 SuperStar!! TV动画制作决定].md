@@ -1640,3 +1640,19 @@ ll就不能把live放在ed么？
 当然一遇到堇和恋就没啥好脸色
 
 
+
+
+*****
+
+####  梶原ひかり  
+##### 4635#       发表于 2021-9-13 09:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728431&amp;ptid=1909972" target="_blank">NODY 发表于 2021-9-13 08:35</a>
+
+看到日本那边猜测恋急着看人数不是学校招生人少而是音乐科招生人少，所以她才急着违背两科一视同仁的宣言用 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">音乐科不是神宫音乐学院的传统嘛...千 和 香音都是冲着音乐科报名了..还有筛选机制 
+
+普通科 是 音乐科 人数三倍...放低标准怎么看都不会消失音乐科呀
+
+
