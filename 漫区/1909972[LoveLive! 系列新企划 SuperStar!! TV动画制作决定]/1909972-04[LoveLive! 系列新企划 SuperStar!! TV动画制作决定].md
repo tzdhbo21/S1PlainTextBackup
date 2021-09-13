@@ -1823,3 +1823,42 @@ ll就不能把live放在ed么？
 然后这周广播和生放要怎么整，毕竟是真的沉重
 
 
+
+
+*****
+
+####  JustW  
+##### 4650#       发表于 2021-9-13 11:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728431&amp;ptid=1909972" target="_blank">NODY 发表于 2021-9-13 08:35</a>
+
+看到日本那边猜测恋急着看人数不是学校招生人少而是音乐科招生人少，所以她才急着违背两科一视同仁的宣言用 ...</blockquote>
+大家性格各异凑不成团，很难参加lovelive
+
+↓
+
+解决办法：那我们就不参加lovelive了
+
+
+音乐科招不上人学校要破产了
+
+↓
+
+解决办法：我们把音乐科取消了
+
+
+未 曾 设 想 的 道 路
+
+
+
+
+*****
+
+####  永恒的王牌  
+##### 4651#       发表于 2021-9-13 11:28
+
+
+历代迫害角色差不多都这样，不过虹的小霞霞还能找侑和小静子求安慰，实在不行还会刷出个点心同好会（是这个吧？）救场，所以感觉没这么惨，别的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+

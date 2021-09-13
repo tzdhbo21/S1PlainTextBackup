@@ -12959,3 +12959,17 @@ QQ图片20210912170921.jpg
 今天第一次用黑胡子，才发现他灵衣的胜利语音是不是在哼波西米亚狂想曲
 
 
+
+
+*****
+
+####  darkjack  
+##### 83598#       发表于 2021-9-13 11:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52722310&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-9-12 17:09</a>
+
+总算打过南丁那个了。。。。。当初有没有debug过的啊。。。。。</blockquote>
+这个本太阴间了，能不能过就看对面是不是出暴击
+
+

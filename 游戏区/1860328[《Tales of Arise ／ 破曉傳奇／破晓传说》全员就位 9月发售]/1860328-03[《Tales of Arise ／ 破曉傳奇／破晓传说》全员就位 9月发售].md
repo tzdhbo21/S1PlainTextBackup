@@ -17390,3 +17390,155 @@ VOL状态也不好控制，打击感略差，希望下次能够改进手感和BO
   37小时了，这剧情真就是屁大点事一直藏着掖着，全员40多级估计差不多决战前才能打那些60级的支线了？跨级刮痧真的难顶
 
 
+
+
+*****
+
+####  zqqwe  
+##### 4439#       发表于 2021-9-13 11:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730061&amp;ptid=1860328" target="_blank">司马千晶 发表于 2021-9-13 10:58</a>
+ai不是进作战就能设置么，demo就有，简化版狒狒12那种加词条的</blockquote>
+现在设置战术不能精确到单人，的确是一种倒退
+
+
+*****
+
+####  法拉  
+##### 4440#       发表于 2021-9-13 11:02
+
+
+ 本帖最后由 法拉 于 2021-9-13 11:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728933&amp;ptid=1860328" target="_blank">REDXIII 发表于 2021-9-13 09:23</a>
+
+周五+周末三个晚上2难度推完了，3难度想打但是没那么多时间耗。
+
+隐藏迷宫之前没用经验和等级DLC，每个图的 ...</blockquote>
+感觉没什么问题，又不是叫她放弃仇恨，是让她别被仇恨冲昏头脑呗，否则事后只有空虚，罗他自己就这样，说这话还是很有说服力的
+
+他们能打赢雷纳头子全靠男主，林薇儿真要冲上去硬碰硬只能是送人头
+
+后面也是说一刀杀了那女的太便宜她了，要好好制裁她才算完
+
+
+
+
+*****
+
+####  ccow  
+##### 4441#       发表于 2021-9-13 11:04
+
+
+这故事是推倒了重新做的吧。救女主那里，简直在扯淡。
+
+
+*****
+
+####  猫将军  
+##### 4442#       发表于 2021-9-13 11:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打boss或者巨大兽前喝两快乐瓶，感觉升级也不算慢
+
+
+*****
+
+####  laoz  
+##### 4443#       发表于 2021-9-13 11:07
+
+
+没有了集火设置的AI真的放飞自我，经常出现只有一只怪（非空中）的时候，我在打，他们在摸鱼的情况
+
+
+*****
+
+####  GMJ  
+##### 4444#       发表于 2021-9-13 11:07
+
+
+ 本帖最后由 GMJ 于 2021-9-13 11:11 编辑 
+
+PC版loading造假<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，打了补丁支持21:9后，就很明显了，进出地图1秒不到就看到多出来的2侧迅速从纯白到铺满，但画面中央还档了个黑块给你看下面的loading动画，设定时间一到，黑屏才撤掉可以操作。另一个证据是不管大小场景读盘耗时都一样，进第一个旅店的时候甚至看不到两侧从纯白到场景的建立，瞬间就是所有细节齐备的画面，但愣是不给操作。。
+
+而且宽屏补丁还不是很完美，战斗技术后不是会拉一下黑色底做过场么。。只拉16:9的宽度，左对齐，右边5:9的一块是漏出来的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，战斗的时候锁定框也有点偏，应该是默认锁定后对象在屏幕中心，然后定在了16:9的中间位置，固定左边对齐，但我21:9的的时候就偏左了
+
+
+*****
+
+####  REDXIII  
+##### 4445#       发表于 2021-9-13 11:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730108&amp;ptid=1860328" target="_blank">法拉 发表于 2021-9-13 11:02</a>
+
+感觉没什么问题，又不是叫她放弃仇恨，是让她别被仇恨冲昏头脑呗，否则事后只有空虚，罗他自己就这样，说 ...</blockquote>
+那一段演的太过火，还很尬<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+和当年星海4有异曲同工之妙，我反正是一脸懵逼
+
+
+*****
+
+####  Bani82  
+##### 4446#       发表于 2021-9-13 11:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730061&amp;ptid=1860328" target="_blank">司马千晶 发表于 2021-9-13 10:58</a>
+
+ai不是进作战就能设置么，demo就有，简化版狒狒12那种加词条的</blockquote>
+那个是全体AI，以前可以细分到每个人，优先敌人什么的
+
+
+*****
+
+####  法拉  
+##### 4447#       发表于 2021-9-13 11:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730229&amp;ptid=1860328" target="_blank">REDXIII 发表于 2021-9-13 11:11</a>
+
+那一段演的太过火，还很尬
+
+和当年星海4有异曲同工之妙，我反正是一脸懵逼
+
+ ...</blockquote>
+都这样，动作幅度大，演出很用力
+
+
+*****
+
+####  司马千晶  
+##### 4448#       发表于 2021-9-13 11:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730241&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-13 11:12</a>
+那个是全体AI，以前可以细分到每个人，优先敌人什么的</blockquote>
+知道你说的意思了，你要的是以前那种比如“优先攻击xx类敌人”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">确实没有了
+
+
+*****
+
+####  无动于衷  
+##### 4449#       发表于 2021-9-13 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730139&amp;ptid=1860328" target="_blank">ccow 发表于 2021-9-13 11:04</a>
+
+这故事是推倒了重新做的吧。救女主那里，简直在扯淡。</blockquote>
+这段我也没整明白
+
+
+这不明摆着就是送吗
+
+
+*****
+
+####  yzqray  
+##### 4450#       发表于 2021-9-13 11:18
+
+
+打到雷纳了，其实就第四章尬，剧情也不是说不过去，这段演出太蠢了
+整体剧情还行，人物塑造基本在线
+
+
