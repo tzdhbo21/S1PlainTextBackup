@@ -2467,3 +2467,14 @@ B站评论区只说了otto，我也不知道哈 sry
 棍鲨，海梓已经是上一个版本了，星辰大海开炒<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  stlover  
+##### 206#       发表于 2021-9-13 09:40
+
+
+直播员和月灵姐都唱过美丽之物，要不也组个CP剪一起<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
+
+
