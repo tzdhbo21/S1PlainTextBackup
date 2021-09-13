@@ -2344,3 +2344,48 @@ TOZ之后这个系列不死就是赚了，虽然游戏越做越烂没办法了 .
 第三章过了，盾娘的声优是不是没练过哭腔。虽然剧情里也给血谏猛打补丁了，但是气氛真的不到位，建议学习一下肠粉，领将暴走就很都合了。说起来按照齐大叔的金言，这兄妹什么都指望阿周那依然是一种奴隶的表现。
 
 
+
+
+*****
+
+####  JudgmentEye  
+##### 4680#       发表于 2021-9-14 02:56
+
+
+<blockquote>引用第4678楼whzfjk于2021-09-14 02:49发表的  :
+
+第三章过了，盾娘的声优是不是没练过哭腔。虽然剧情里也给血谏猛打补丁了，但是气氛真的不到位，建议学习一......</blockquote>
+罚你回去复习一下池泽春菜配的都是什么类型的角色
+
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+
+
+
+
+*****
+
+####  江口夕  
+##### 4681#       发表于 2021-9-14 03:08
+
+
+男主用到最后就是轰霸斩和魔神剑，除了狼和鸟能轻松挑起来空连其他的真就稳如泰山。其他招一顿操作猛如虎完了不如两个轰霸斩，一些大型怪直接晕了钻怀里轰霸斩直接变2hit，那伤害简直了，其他更是拍马都追不上
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  whzfjk  
+##### 4682#       发表于 2021-9-14 03:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739562&amp;ptid=1860328" target="_blank">JudgmentEye 发表于 2021-9-14 02:56</a>
+
+罚你回去复习一下池泽春菜配的都是什么类型的角色
+
+
+----STAGE1 Mobile</blockquote>
+星马豪<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
