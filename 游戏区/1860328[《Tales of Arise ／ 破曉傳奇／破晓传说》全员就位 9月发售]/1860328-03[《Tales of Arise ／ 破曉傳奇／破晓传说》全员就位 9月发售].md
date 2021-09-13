@@ -18065,3 +18065,88 @@ ai不是进作战就能设置么，demo就有，简化版狒狒12那种加词条
 感觉第一个DLC是整好的，过后就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  Kojimaru  
+##### 4493#       发表于 2021-9-13 14:04
+
+
+任务指引确实一般，一般得按l2看提示，再打开详细地图找位置。而且地图上没第一层电梯的标记<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">迷路了几次
+
+
+*****
+
+####  Booorunestud  
+##### 4494#       发表于 2021-9-13 14:04
+
+
+怕被剧透闭着眼睛进来问问，目前才困难难度小法师刚入队可操作。感觉升级和获取sp的速度太慢了？是不是数值有点问题……而且看到几个衣服dlc好像带称号，推荐买么
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">ps版这些dlc也有点小贵，这商法有点狗
+
+
+*****
+
+####  捧读小见川  
+##### 4495#       发表于 2021-9-13 14:05
+
+
+我想知道怎么刷钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 4496#       发表于 2021-9-13 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52731623&amp;ptid=1860328" target="_blank">hugosol 发表于 2021-9-13 12:54</a>
+
+第三章最扯淡的是哥哥明明只是为了告诉阿周那果实的事情，非要当面吃下去自杀，太弱智了 ...</blockquote>
+因为那个傻（不）白甜领主他不信啊 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 4497#       发表于 2021-9-13 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732369&amp;ptid=1860328" target="_blank">捧读小见川 发表于 2021-9-13 14:05</a>
+
+我想知道怎么刷钱</blockquote>
+钓鱼，刷矿
+
+
+*****
+
+####  捧读小见川  
+##### 4498#       发表于 2021-9-13 14:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732433&amp;ptid=1860328" target="_blank">rgauss 发表于 2021-9-13 14:12</a>
+
+钓鱼，刷矿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  奈奈未喵  
+##### 4499#       发表于 2021-9-13 14:14
+
+
+钓鱼能不能换人 盾姐钓个鱼也用力过猛的嗓音有点不能忍
+
+
+*****
+
+####  rgauss  
+##### 4500#       发表于 2021-9-13 14:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732441&amp;ptid=1860328" target="_blank">捧读小见川 发表于 2021-9-13 14:13</a></blockquote>
+哦，还有些宝箱 里面也有钱，有1w多的
+
+
