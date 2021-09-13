@@ -2307,3 +2307,44 @@ ksks吃瘪基本都有人撒娇，而且本身也是团宠定位。第七集也�
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 好可爱哟，刚看完社会新闻，气得胸闷，看美少女缓解一下
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4688#       发表于 2021-9-13 19:23
+
+
+<img src="https://img.saraba1st.com/forum/202109/13/191809wkq8kbi9nk4kukuj.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210913041458.png</strong> (68.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 19:18 上传
+
+
+今天又看了一遍熟肉，这个地方有人水过吗
+
+看样子是恋妈以前的团？一个看起来就很喜欢喊怪口号的high tension绿毛，理事长，恋妈，加个波波头女生和粽子头齐刘海女生，这波是传承<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Goisdust  
+##### 4689#       发表于 2021-9-13 19:27
+
+
+之前就觉得如果是音乐科和普通科对立的主题，小千和恋维持音乐科，最后两科学生打破对立一起让live成功不是更好么。liella也可以作为音乐科和普通科共存、共荣的象征
+
+
+*****
+
+####  星降る森  
+##### 4690#       发表于 2021-9-13 19:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有一点被很多人忽视的，平安名虽然看起来是个小丑，但各方面能力都不错，只是看一遍就能复原出杂鱼可可的舞蹈，可惜现在为了给团内凑个口号役，把她弄得像地主家傻女儿一样，而且其他人真的只记得她的傻了
+
+
