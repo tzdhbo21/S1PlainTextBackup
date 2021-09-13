@@ -13389,3 +13389,16 @@ JK是高中生，而日本的高中生是地表最强物种，当然无所畏惧
 cp粉果然有不满ntr艺的，虽然不多吧，双人直播会是啥时候捏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  winda  
+##### 6990#       发表于 2021-9-13 10:05
+
+
+https://twitter.com/g6mo2/status/1437035223523282948?s=19
+https://twitter.com/g9v9g_mirei/status/1437033634913865734?s=19
+因为去sweet paradise原神联动而被疑似特定的老师<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
