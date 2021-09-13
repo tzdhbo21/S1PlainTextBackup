@@ -6920,3 +6920,27 @@ dev推送了184，升级完蓝牙打不开了…………
 开始菜单不居中了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  distrowatch  
+##### 569#       发表于 2021-9-13 13:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730673&amp;ptid=2011727" target="_blank">mashav 发表于 2021-9-13 11:43</a>
+
+开始菜单不居中了</blockquote>
+22454的话是BUG，22000倒是没碰过
+
+
+*****
+
+####  colodes  
+##### 570#       发表于 2021-9-13 13:24
+
+
+从开机开始就不居中
+<img src="https://p.sda1.dev/2/46ec6a9333bfffa7e9f155cde67d727e/s1goose.jpg" referrerpolicy="no-referrer"> 
+
+

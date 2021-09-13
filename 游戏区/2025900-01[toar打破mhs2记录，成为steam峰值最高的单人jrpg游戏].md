@@ -981,3 +981,56 @@ P4G在20年时还有这个卖相才是震惊我，我12年在宝石V上想重温
 —— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  benhawk  
+##### 85#       发表于 2021-9-13 13:29
+
+
+话说你们怎么都吐槽剧情，玩到第四章见了那个傻逼头领，除了大叔白送，感觉还成吧
+
+
+*****
+
+####  benhawk  
+##### 86#       发表于 2021-9-13 13:29
+
+
+话说你们怎么都吐槽剧情，玩到第四章见了那个傻逼头领，除了大叔白送，感觉还成吧
+
+
+*****
+
+####  lucky95  
+##### 87#       发表于 2021-9-13 13:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727574&amp;ptid=2025900" target="_blank">Dreki 发表于 2021-9-13 01:41</a>
+
+卖了这么多了，希望下一部传说把缺点改改gkd</blockquote>
+下一次增加更多氪金点<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王一唯不傲娇  
+##### 88#       发表于 2021-9-13 13:44
+
+
+我宁愿玩回合制，主要是大多数游戏回合制没有深度，不好玩
+
+
+*****
+
+####  bluebaby  
+##### 89#       发表于 2021-9-13 13:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732020&amp;ptid=2025900" target="_blank">benhawk 发表于 2021-9-13 13:29</a>
+话说你们怎么都吐槽剧情，玩到第四章见了那个傻逼头领，除了大叔白送，感觉还成吧 ...</blockquote>
+那你快到本作最傻逼剧情演出的地方了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其实逻辑还行就是当时那个场合那个演出有点让人目瞪口呆
+
+

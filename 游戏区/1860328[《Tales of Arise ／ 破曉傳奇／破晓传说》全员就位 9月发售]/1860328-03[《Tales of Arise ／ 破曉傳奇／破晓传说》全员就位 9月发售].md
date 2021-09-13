@@ -17976,3 +17976,58 @@ ai不是进作战就能设置么，demo就有，简化版狒狒12那种加词条
 打出break就可以浮空 boss似乎不能
 
 
+
+
+*****
+
+####  whzfjk  
+##### 4486#       发表于 2021-9-13 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52731746&amp;ptid=1860328" target="_blank">Errey 发表于 2021-9-13 13:04</a>
+
+主控最拉嘲讽，说明纯粹看输出能力，Ai的输出能力不可能超越你，自己开自动看看Ai怎么送的就知道了 ...</blockquote>
+我用法师，结果发现两近战男连击出BS的频率比我手控高多了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苇原雪道  
+##### 4487#       发表于 2021-9-13 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52731929&amp;ptid=1860328" target="_blank">奈奈未喵 发表于 2021-9-13 13:19</a>
+打出break就可以浮空 boss似乎不能</blockquote>
+那break是咋出来的？感觉打打打莫名其妙就break了
+
+
+*****
+
+####  Bani82  
+##### 4488#       发表于 2021-9-13 13:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52731623&amp;ptid=1860328" target="_blank">hugosol 发表于 2021-9-13 12:54</a>
+
+第三章最扯淡的是哥哥明明只是为了告诉阿周那果实的事情，非要当面吃下去自杀，太弱智了 ...</blockquote>
+这个不难理解，总不能你说怎么就怎么吧
+
+黑皮之前就说了，虽然很震撼这么多不知道的事情，但是这个事情一时也没法信啊
+
+这点上其实满合理的，要对面信就让对面亲眼看到咯
+
+
+*****
+
+####  Bani82  
+##### 4489#       发表于 2021-9-13 13:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52731888&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-9-13 13:16</a>
+
+怪什么时候能被打升空什么时候不能是怎么判定的啊？还有大型怪，boss这种是不是就不能升空？不能空战少了很 ...</blockquote>
+大型的话空战还是有用的，有些打点什么的，反正你不落地练一样打得到
+
+但是BOSS的话...
+
+
