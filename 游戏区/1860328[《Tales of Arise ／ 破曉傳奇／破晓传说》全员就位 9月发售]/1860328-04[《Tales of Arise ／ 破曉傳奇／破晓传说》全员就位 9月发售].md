@@ -1453,3 +1453,51 @@ Dlc很恶心。
 只有法师和拳师还留有以前那种欧洲乡村味
 
 
+
+
+*****
+
+####  金子一马  
+##### 4608#       发表于 2021-9-13 22:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736548&amp;ptid=1860328" target="_blank">红月当空 发表于 2021-9-13 20:24</a>
+
+虽然在RPG里说这个有点本末倒置，但我还是想问一句——这游戏战斗打击感如何？ ...</blockquote>
+我觉得是有的，特别是打boss弱点的时候，虽然全程霸体，但是打击感还是有的。
+
+
+*****
+
+####  金子一马  
+##### 4609#       发表于 2021-9-13 22:10
+
+
+还有这里讨论剧情的是不是有点太多了，每个人进度不同，不喜欢的可以去隔壁讨论啊
+
+
+*****
+
+####  lucky95  
+##### 4610#       发表于 2021-9-13 22:25
+
+
+ 本帖最后由 lucky95 于 2021-9-13 22:28 编辑 
+
+这游戏的跳就是垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+现在第二张雪国图，小怪基本是一波带走，而精英怪跳跃技用不上，不如多停停嗑药卖血更好<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+数值游戏.jpg
+
+
+*****
+
+####  DelPiero  
+##### 4611#       发表于 2021-9-13 22:26
+
+
+玩了这么多年传说，首次觉得打击感差的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+

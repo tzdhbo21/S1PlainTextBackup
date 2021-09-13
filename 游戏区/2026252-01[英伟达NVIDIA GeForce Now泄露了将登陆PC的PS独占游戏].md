@@ -1,0 +1,1049 @@
+
+
+*****
+
+####  喻鸿臣  
+##### 1#       楼主       发表于 2021-9-13 21:26
+
+
+ 本帖最后由 喻鸿臣 于 2021-9-13 21:43 编辑 
+
+在游侠网上看见的，纯搬运
+
+英伟达NVIDIA GeForce Now泄露了下一批将登陆PC平台的PlayStation独占游戏，其中包括：《战神4》、《GT赛车7》、《对马岛之魂》、《恶魔之魂：重制版》、《Returnal》、《地平线2：西部禁域》、《瑞奇与叮当》。这游戏阵容让人惊讶！这是要把自家所有独占游戏都搬到PC平台吗？索尼，你这操作也太丧心病狂了吧？
+
+
+　　为什么这次泄密可信度较高呢？因为爆料者发现GeForce Now的数据库竟然显示了最新的《神秘海域合集游戏》的准确游戏名称——《神秘海域：盗贼遗产合集》，这多少让人有点震惊，emmm，看起来英伟达的数据库早就已经洞悉了一切！如果上述爆料属实的话，这无疑是游戏业有史以来最重磅的泄密之一了！
+
+
+　　以下是NVIDIA GeForce Now泄露出来的将会登陆PC平台的独占游戏列表，除了上述几款大作，还有诸如《麻布仔大冒险》、《地狱潜者1》、《地狱潜者2》等二线作品，一起来看看吧（点击图片可看大图）！
+
+
+　　你可以通过解锁GeForce NOW来访问该数据库。当你解锁以后，你就可以进入数据库进行测试，然后你就可以找到这些未来将登陆PC的PS独占游戏的信息了。
+
+
+　　此外，GeForce NOW的数据库还确认了传闻中的《GTA》三部曲重制版，另外它也确认了《最终幻想7：重制版》确实将会登陆PC。稍显遗憾的是，数据库并没有提到《血源诅咒》（尽管此前有传闻称《血源诅咒》将于2022年登陆PC）。
+
+
+*****
+
+####  ub001  
+##### 2#       发表于 2021-9-13 21:30
+
+
+我前天还在跟朋友说gt会是未来唯一的ps独占。
+
+
+*****
+
+####  UmarIbnLaAhad  
+##### 3#       发表于 2021-9-13 21:32
+
+
+瑞奇与叮当不是sssssd才能做出来的游戏吗，有double think可看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  何然  
+##### 4#       发表于 2021-9-13 21:33
+
+
+完了，有一大堆游戏评分至少下调10%了
+
+
+*****
+
+####  针刺骑士  
+##### 5#       发表于 2021-9-13 21:33
+
+
+ 本帖最后由 针刺骑士 于 2021-9-13 21:51 编辑 
+
+可不止这些，有大量厂商的未公开游戏在列，今年最大规模泄露~
+
+Sony: Uncharted: Legacy of Thieves EditionHELLDIVERS 2Horizon Forbidden WestGT7DéracinéGod of WarReturnalDemon SoulsRatchet and ClankSackboy: A Big AdventureGhost of Tsushima
+Microsoft:Gears 6Oxide UnannouncedProject HollandProject TyphoonProject WoodstockUntitled The Initiative GameHalo 5: Guardians
+Square Enix:Chrono Cross RemasterFF7 RemakeFF9 RemakeFF 16Tomb Raider Anniversary (2021)Unannounced title by Square EnixKingdom Hearts IV
+Take Two:GTA 3, Vice City and San Andreas RemastersBioshock RTX remasterBioshock 2022
+EA:Mirrors Edge RTX RemasterUntitled Respawn Game
+Bandai:Tekken 8
+Curve Digital:Human Fall Flat 2
+Devolver Digital:The Talos Principle 2
+Crytek:Crysis 4
+D3 Publisher Inc:Earth Defence Force 6
+Sega:Bayonetta 3Judgement
+Atlus:Catherine Full BodyShin Megami Tensei V
+WB:Batman: Arkham Knight RTX Remaster
+Valve:Half-Life 2 Remastered
+Paradox:Project FPS
+
+
+Xcom 3Injustice 3: Gods will FallDestroy all Humans 3MGS 2 &amp; 3 HDMario and RabbidsDeath Stranding Directors Cut PCSniper Elite 5FF Tactics remasterMonster Hunter 6Titanfall 3City Skylines 2Total War 9Dragons Dogma 2Payday 3Hangar 13 UnannouncedFight for Middle-EarthCrash Team Racing Nitro-Fueled (PC)
+
+
+*****
+
+####  漫漫来  
+##### 6#       发表于 2021-9-13 21:34
+
+
+其他还好说，gt7和地平线2有点假了吧
+
+
+*****
+
+####  UnrealApartheid  
+##### 7#       发表于 2021-9-13 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737239&amp;ptid=2026252" target="_blank">UmarIbnLaAhad 发表于 2021-09-13 21:32:45</a>
+瑞奇与叮当不是sssssd才能做出来的游戏吗，有double think可看了</blockquote>很难说，可能是移植2016年的PS4游戏
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  妹控使徒  
+##### 8#       发表于 2021-9-13 21:35
+
+
+于是血源依旧没有?
+
+
+*****
+
+####  farland  
+##### 9#       发表于 2021-9-13 21:35
+
+
+ 本帖最后由 farland 于 2021-9-13 21:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737255&amp;ptid=2026252" target="_blank">针刺骑士 发表于 2021-9-13 21:33</a>
+
+可不止这些，由大量厂商的未公开游戏在列
+
+
+Sony: Uncharted: Legacy of Thieves EditionHELLDIVERS 2Horizo ...</blockquote>
+Chrono Cross Remaster
+
+
+这是真的嘛？真的那可就爽了。
+
+
+*****
+
+####  luoyianwu  
+##### 10#       发表于 2021-9-13 21:36
+
+
+ 本帖最后由 luoyianwu 于 2021-9-13 21:39 编辑 
+
+铁拳8？？扯淡吧，什么wishlist
+
+
+*****
+
+####  maiyunfei  
+##### 11#       发表于 2021-9-13 21:37
+
+
+cc re？不信
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  辞冬  
+##### 12#       发表于 2021-9-13 21:38
+
+
+monster hunter 6是啥，rise？
+
+
+*****
+
+####  泉美  
+##### 13#       发表于 2021-9-13 21:38
+
+
+Sega:
+Bayonetta 3
+
+Atlus:
+Shin Megami Tensei V
+
+？？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Eadric  
+##### 14#       发表于 2021-9-13 21:38
+
+
+过几年上也是上嘛
+
+
+*****
+
+####  ub001  
+##### 15#       发表于 2021-9-13 21:38
+
+
+结果crytek那个开发中的systemic开放世界fps真是Crysis4，有点失望了。
+
+bioshock光追等一个，我个人就说t2最佳ip其实是这个。
+
+
+*****
+
+####  Kojimaru  
+##### 16#       发表于 2021-9-13 21:38
+
+
+ 本帖最后由 Kojimaru 于 2021-9-13 21:48 编辑 
+
+smt5？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这料如果是真的也太狠了
+
+
+*****
+
+####  chillstar  
+##### 17#       发表于 2021-9-13 21:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这名单很多都是传奇之作的梦幻续作啊，太大胆了
+
+
+*****
+
+####  Junchoon  
+##### 18#       发表于 2021-9-13 21:39
+
+
+Bayonetta 3???
+
+
+贝姐3上PC？这个我是不信的......
+
+
+*****
+
+####  泉美  
+##### 19#       发表于 2021-9-13 21:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737312&amp;ptid=2026252" target="_blank">辞冬 发表于 2021-9-13 21:38</a>
+monster hunter 6是啥，rise？</blockquote>
+应该是之前黑客流出的24年作品
+
+
+*****
+
+####  科本学士  
+##### 20#       发表于 2021-9-13 21:39
+
+
+Half-Life 2 Remastered ？v社这什么意思
+
+
+*****
+
+####  带带阿苏卡  
+##### 21#       发表于 2021-9-13 21:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这玩意下面还有超级马里奥兄弟呢，你们信吗
+
+
+*****
+
+####  帝蓝  
+##### 22#       发表于 2021-9-13 21:40
+
+
+贝姐3上PC？老任疯了？
+
+
+*****
+
+####  aaronluray  
+##### 23#       发表于 2021-9-13 21:40
+
+
+真女5有什么值得惊讶的吗？我是一直都认为这作以后会上pc的。
+
+
+*****
+
+####  最好不说  
+##### 24#       发表于 2021-9-13 21:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737255&amp;ptid=2026252" target="_blank">针刺骑士 发表于 2021-9-13 21:33</a>
+
+可不止这些，有大量厂商的未公开游戏在列
+
+
+Sony: Uncharted: Legacy of Thieves EditionHELLDIVERS 2Horizo ...</blockquote>
+ff9re和泰坦佛3？我不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lbzlxx  
+##### 25#       发表于 2021-9-13 21:40
+
+
+FF9 remake是什么，就SE现在不可能多开啊
+
+
+*****
+
+####  Guildenstern  
+##### 26#       发表于 2021-9-13 21:40
+
+
+泰坦天降3？如果是假的，我希望他是真的。如果是真的，我希望他明天就公布。
+
+
+*****
+
+####  frankCC  
+##### 27#       发表于 2021-9-13 21:43
+
+
+ 本帖最后由 frankCC 于 2021-9-13 22:12 编辑 
+
+PCMR赢麻了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有没有泄露的源地址让我们看一下啊。
+
+————————————————————
+
+FF9 Remake
+
+FF8比FF9更值得remake吧
+
+————————————————————
+
+找到原始教程了，有条件的可以去试一下，甚至还有dolphin和新超马wii的数据，我不知道shield上有没有新超马wii，有的话可信度还挺大的。
+|[I unlocked NVIDIA GeForce NOW and stumbled upon Pirates | by Ighor July | Sep, 2021 | Medium](https://medium.com/@ighor/i-unlocked-nvidia-geforce-now-and-stumbled-upon-pirates-dc48a3f8ff7)|
+[(108) While unlocking NVIDIA GeForce NOW I found Pirates - YouTube](https://www.youtube.com/watch?v=6wQzGHpttdY)
+
+_________________________________
+
+传了一份数据，自己查吧
+[https://docs.qq.com/doc/DQWxkcWp3U2JpcVZz](https://docs.qq.com/doc/DQWxkcWp3U2JpcVZz)
+
+
+*****
+
+####  BigLittle1999  
+##### 28#       发表于 2021-9-13 21:43
+
+
+越看越离谱<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hyiang98  
+##### 29#       发表于 2021-9-13 21:43
+
+
+这个名单tm的也太假了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ff2077  
+##### 30#       发表于 2021-9-13 21:44
+
+
+只能说太大胆了，这还是有英伟达背书的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  ef6270  
+##### 31#       发表于 2021-9-13 21:44
+
+
+连这种看着有点扯淡的东西里都没出现血源。<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  frankCC  
+##### 32#       发表于 2021-9-13 21:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737338&amp;ptid=2026252" target="_blank">科本学士 发表于 2021-9-13 21:39</a>
+
+Half-Life 2 Remastered ？v社这什么意思</blockquote>
+你高看度假社了，这是第三方转正，之前就公布了。
+
+
+*****
+
+####  jiaos_99  
+##### 33#       发表于 2021-9-13 21:45
+
+
+有点假，如果是真的这世代可以不用考虑ps5了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sontag  
+##### 34#       发表于 2021-9-13 21:46
+
+
+这要是真的游戏界不漏了半边天
+
+
+*****
+
+####  丹德里恩  
+##### 35#       发表于 2021-9-13 21:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草这个列表也太劲爆了 
+
+
+*****
+
+####  makar0601  
+##### 36#       发表于 2021-9-13 21:46
+
+
+ff9re还真可能，已经做动画了
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Lynn冰翎  
+##### 37#       发表于 2021-9-13 21:46
+
+
+这名单看着像发病的人能列出来的单子。
+
+
+*****
+
+####  Aunn  
+##### 38#       发表于 2021-9-13 21:48
+
+
+卜严峻，还有血源
+
+
+*****
+
+####  armagemon  
+##### 39#       发表于 2021-9-13 21:48
+
+
+这是老任家的病人传染给索家人了？
+
+
+*****
+
+####  peh  
+##### 40#       发表于 2021-9-13 21:49
+
+
+恶魂重制也上 谁信啊
+
+
+*****
+
+####  gutzz  
+##### 41#       发表于 2021-9-13 21:50
+
+
+cc重置<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑兽  
+##### 42#       发表于 2021-9-13 21:50
+
+
+PC MASTER TIME TO HYPE！
+
+🐂逼疯了
+
+
+没有血缘让可信度增加了两成
+
+
+*****
+
+####  crosz  
+##### 43#       发表于 2021-9-13 21:51
+
+
+假到极致就是真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Ironman_mk5  
+##### 44#       发表于 2021-9-13 21:51
+
+
+真有显卡危机4希望能重振一代荣光让4090燃烧起来
+
+
+*****
+
+####  ff2077  
+##### 45#       发表于 2021-9-13 21:52
+
+
+有没有完整的表格啊
+
+
+*****
+
+####  Frimp  
+##### 46#       发表于 2021-9-13 21:52
+
+
+他妈的，这单子得是十个以上病人才凑得出来，反正我不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 47#       发表于 2021-9-13 21:52
+
+
+地狱老司机居然出2了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">母公司不是在弄别的游戏吗？
+
+
+*****
+
+####  scg2017  
+##### 48#       发表于 2021-9-13 21:53
+
+
+没有育碧什么事，应该是真的
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Guildenstern  
+##### 49#       发表于 2021-9-13 21:54
+
+
+<blockquote>引用第26楼frankCC于2021-09-13 21:43发表的  :
+
+本帖最后由 frankCC 于 2021-9-13 21:44 编辑 PCMR赢麻了有没有泄露的源地......</blockquote>
+FF9口碑一向碾压8
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  makar0601  
+##### 50#       发表于 2021-9-13 21:55
+
+
+有一说一，跳过ff8，直接remakeff9可信度暴增
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  いみじくも萌二  
+##### 51#       发表于 2021-9-13 21:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没血缘是不是搁老远了牌面不够啊，血缘上pc真能让网友做出个血缘2来
+
+
+*****
+
+####  hentianwuya  
+##### 52#       发表于 2021-9-13 21:58
+
+
+这名单有一半都显得太假了，所以是真的<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rak1  
+##### 53#       发表于 2021-9-13 21:58
+
+
+看了来源，甚至有基于dolphin模拟器的new super mario bros wii顿时感觉有点假了 https://ighor.medium.com/i-unlocked-nvidia-geforce-now-and-stumbled-upon-pirates-dc48a3f8ff7
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  针刺骑士  
+##### 54#       发表于 2021-9-13 21:59
+
+
+[https://twitter.com/JezCorden/st ... %5Es1_&amp;ref_url=](https://twitter.com/JezCorden/status/1437412970670219268?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1437412970670219268%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=)
+
+
+<img src="https://img.saraba1st.com/forum/202109/13/215941ggh88x8ksskesbsg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210913215934.jpg</strong> (53.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 21:59 上传
+
+
+*****
+
+####  hayhi  
+##### 55#       发表于 2021-9-13 22:00
+
+
+贝姐3怎么是世嘉啊，不是老任吗
+
+
+*****
+
+####  Junchoon  
+##### 56#       发表于 2021-9-13 22:00
+
+
+马里奥据外网猜测可能是特供给中国的NVIDIA Shield的......
+
+
+*****
+
+####  kuglv  
+##### 57#       发表于 2021-9-13 22:01
+
+
+这名单比索尼明天倒闭还要扯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  彩虹肥宅  
+##### 58#       发表于 2021-9-13 22:02
+
+
+真上pc我买个锤子的ps5<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">，索尼这是自掘坟墓
+
+
+*****
+
+####  Narrative  
+##### 59#       发表于 2021-9-13 22:04
+
+
+越看越扯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YFIIII  
+##### 60#       发表于 2021-9-13 22:08
+
+
+这名单太吓人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那还买个勾八ps5
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+*****
+
+####  fateultraone  
+##### 61#       发表于 2021-9-13 22:09
+
+
+又不是现在马上上，战神这种肯定会上pc的时间问题，不过我最想要的还是血源pc，血源pc谣言太多了给点力啊
+
+
+*****
+
+####  EigenVesper  
+##### 62#       发表于 2021-9-13 22:09
+
+
+贝3和世嘉还有关系？
+
+
+*****
+
+####  RedPig  
+##### 63#       发表于 2021-9-13 22:10
+
+
+病得不轻啊
+
+
+*****
+
+####  Cortana  
+##### 64#       发表于 2021-9-13 22:10
+
+
+恶魂上的是原版我就信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DraQin  
+##### 65#       发表于 2021-9-13 22:11
+
+
+看到CCRE的时候为之一振
+看到FF7RE和9RE的时候擦了下眼睛
+看到王国之心4心生怀疑
+看到泰坦佛3满脸问号
+看到马力欧和疯兔的时候感觉这名单怕不是谁喝多了随手一写
+
+— from Xiaomi M2102J2SC, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+*****
+
+####  iam_hcl  
+##### 66#       发表于 2021-9-13 22:11
+
+
+真能看见泰坦掉下来3和孤岛危机4我就满足了，其他不奢求<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sontag  
+##### 67#       发表于 2021-9-13 22:12
+
+
+这么看来ps5真就成限时独占机了，买的好3 4年  卖的差2年就得上pc
+
+
+*****
+
+####  alucardcz  
+##### 68#       发表于 2021-9-13 22:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这名单越往下看越假的离谱
+
+
+*****
+
+####  量子大蛇  
+##### 69#       发表于 2021-9-13 22:14
+
+
+Oh shit,战神4都要上PC，如果是真的那么索尼一定是疯了
+
+
+*****
+
+####  电磁炮233  
+##### 70#       发表于 2021-9-13 22:15
+
+
+纯纯的扯淡，这鬼信啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  fffsuper  
+##### 71#       发表于 2021-9-13 22:15
+
+
+ 本帖最后由 fffsuper 于 2021-9-13 22:21 编辑 
+
+贝3估计以后要全平台了吧，sega现在名越一走，很多作品都全平台了（除NS），贝姐这IP 任天堂不是只有发行权吗？一个百万级别的IP Sega肯定要利用起来呀，而且还有前车之鉴的零。就是不知道这IP归属谁家了？影不影响出4之类的。不过有一说一，我不信se能同时计划出FF9re，CCRE，还有王国之心4,索尼也不会直接把这么多作品一口气全准备登录PC。任天堂的作品是不是NV要出新的NS（nvdia shield）了，新芯片，新机型<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  alleriawr9  
+##### 72#       发表于 2021-9-13 22:16
+
+
+一般病人写不出这种名单，所以是真的
+
+
+*****
+
+####  嘉术2015  
+##### 73#       发表于 2021-9-13 22:17
+
+
+游戏主机已死（震声）
+
+
+*****
+
+####  fateultraone  
+##### 74#       发表于 2021-9-13 22:18
+
+
+贝姐3这种以后上pc也没啥太离谱的，信不信发售时ns模拟器day one完美模拟？还不如在pc上发行自己赚呢
+
+
+*****
+
+####  RedPig  
+##### 75#       发表于 2021-9-13 22:19
+
+
+3都能上了，那2咋不顺便呢
+
+
+*****
+
+####  SICP  
+##### 76#       发表于 2021-9-13 22:19
+
+
+PC Master Race狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Guildenstern  
+##### 77#       发表于 2021-9-13 22:19
+
+
+<blockquote>引用第61楼EigenVesper于2021-09-13 22:09发表的  :
+
+贝3和世嘉还有关系？</blockquote>
+贝姐ip所有权是世嘉的
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  电磁炮233  
+##### 78#       发表于 2021-9-13 22:20
+
+
+那贝姐2早该上pc了啊，任天堂没道理死扣着2代不放
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  s32244153  
+##### 79#       发表于 2021-9-13 22:20
+
+
+应该是原出处
+[https://medium.com/@ighor/i-unlo ... pirates-dc48a3f8ff7](https://medium.com/@ighor/i-unlocked-nvidia-geforce-now-and-stumbled-upon-pirates-dc48a3f8ff7)
+
+
+作者猜测可能是工作人员测试平台用的?
+
+<img src="https://img.saraba1st.com/forum/202109/13/221817ubz8ax14nxnk8x4j.png" referrerpolicy="no-referrer">
+
+
+<strong>1_AswzEj3vOFBe23oNkMThgg.png</strong> (156.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 22:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/13/215423x44zur403erkafkm.png" referrerpolicy="no-referrer">
+
+
+<strong>1_EhLkifKY3wNz8fHSeb1nMw.png</strong> (242.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 21:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/13/215404smbdmbqlfl94m4mw.png" referrerpolicy="no-referrer">
+
+
+<strong>1_Vw2QBoetsgmJl0uu5jfocw.png</strong> (264.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 21:54 上传
+
+
+*****
+
+####  针刺骑士  
+##### 80#       发表于 2021-9-13 22:20
+
+
+它的数据库里的游戏不一定是要发售的，已取消的也在其中，比如还有龙鳞化身和热血无赖续作三合会之战
+
+
+*****
+
+####  congjasd  
+##### 81#       发表于 2021-9-13 22:20
+
+
+当我看到half life 2 remastered的时候，这份名单可信度就已经是负了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rak1  
+##### 82#       发表于 2021-9-13 22:21
+
+
+是真的就太有意思了，现在显卡这么贵，给team绿的PCMR多喂点定心丸，别被主机和苏妈骗走了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  BREEEEZE  
+##### 83#       发表于 2021-9-13 22:22
+
+
+好怪的名单
+
+
+*****
+
+####  frankCC  
+##### 84#       发表于 2021-9-13 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737773&amp;ptid=2026252" target="_blank">congjasd 发表于 2021-9-13 22:20</a>
+
+当我看到half life 2 remastered的时候，这份名单可信度就已经是负了</blockquote>
+这个反而是这里最真的，因为之前就泄露了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://steamdb.info/app/600680/](https://steamdb.info/app/600680/)
+
+
+*****
+
+####  绿冰  
+##### 85#       发表于 2021-9-13 22:25
+
+
+主要是有马力欧疯兔，这个还是太不可能了
+
+
+*****
+
+####  SICP  
+##### 86#       发表于 2021-9-13 22:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737809&amp;ptid=2026252" target="_blank">frankCC 发表于 2021-9-13 22:24</a>
+
+这个反而是这里最真的，因为之前就泄露了
+
+https://steamdb.info/app/600680/</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这个图片是真的不是P的？
+
+
+*****
+
+####  帝蓝  
+##### 87#       发表于 2021-9-13 22:25
+
+
+怀疑马里奥疯兔和贝姐3是登录老黄NS而不是PC<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  congjasd  
+##### 88#       发表于 2021-9-13 22:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737809&amp;ptid=2026252" target="_blank">frankCC 发表于 2021-9-13 22:24</a>
+这个反而是这里最真的，因为之前就泄露了
+
+https://steamdb.info/app/600680/</blockquote>
+卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  何处分可  
+##### 89#       发表于 2021-9-13 22:25
+
+
+喝多了到可能是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  战狼PTSD  
+##### 90#       发表于 2021-9-13 22:26
+
+
+这就去抢显卡，买什么PS5
+
+
+
+
+*****
+
+####  帝蓝  
+##### 91#       发表于 2021-9-13 22:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737761&amp;ptid=2026252" target="_blank">Guildenstern 发表于 2021-9-13 22:19</a>
+贝姐ip所有权是世嘉的
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+贝姐1是SEGA 
+2和3都是和老任共同持有的
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  frankCC  
+##### 92#       发表于 2021-9-13 22:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737818&amp;ptid=2026252" target="_blank">SICP 发表于 2021-9-13 22:25</a>
+
+这个图片是真的不是P的？</blockquote>
+This is a mod from Filip Victor, not Valve related.
+
+标题下面都直接写了，这是mod授权转正，不是官方作品。
+
+
