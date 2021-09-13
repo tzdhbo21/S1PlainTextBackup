@@ -2822,3 +2822,31 @@ GAL主角香音
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  秋月艾莉  
+##### 4727#       发表于 2021-9-14 06:24
+
+
+ 本帖最后由 秋月艾莉 于 2021-9-14 06:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739037&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-14 00:47</a>
+
+我看有人说可可怼民警的那句类似“掂量下自己几斤几两”的话在日语里是很不礼貌的说法，有日语大手子解释下 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是有点过分，然而却被日本人当角色新名言
+
+直接拿这句话去推搜会得到“草飞了”“角色名言+1”“你哪里学的这种话ww”等评价，管的切片底下也差不多，外国人谜之暴言在他们看来是萌点，倒是这边巴不得扣个霸凌冷暴力的帽子，还挺搞笑的
+
+另外是“您哪位啊”这句本来日常就在用的话，用在那也不过就是带点嘲讽意思的日综漫才里常见的搞笑吐槽，在这边就被锐化成“你寄吧谁啊流汗黄豆”。花田固然用力过猛，某些观众也不遑多让就是
+
+
+*****
+
+####  lj205  
+##### 4728#       发表于 2021-9-14 06:44
+
+
+想多了吧你们？这是在教育频道播的片子，真那么严重不会被投诉才怪。
+
+
