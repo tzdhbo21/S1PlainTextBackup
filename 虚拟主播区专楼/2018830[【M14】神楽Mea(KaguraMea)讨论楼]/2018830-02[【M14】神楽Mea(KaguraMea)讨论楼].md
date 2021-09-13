@@ -13019,3 +13019,17 @@ mua，<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" refe
 麻将这东西嘛，没吊人视角还是臭几把三麻你挂着听都行我就这么说了
 
 
+
+
+*****
+
+####  Mr.shelter  
+##### 2672#       发表于 2021-9-13 23:45
+
+
+咩<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+（转群，希望补充出处）
+
+<img src="https://p.sda1.dev/2/80151c572f3c76aacb665aedff3dec2e/819815fea084d86.jpg" referrerpolicy="no-referrer">
+
+

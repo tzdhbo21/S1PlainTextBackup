@@ -1693,3 +1693,94 @@ Dlc很恶心。
 头两章地图设计水平直逼地雷社，直到第三章开始才算证明自己比地雷社强点
 
 
+
+
+*****
+
+####  alucardcz  
+##### 4629#       发表于 2021-9-13 23:29
+
+
+第三章终于有点大都市的感觉了。。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  李锐可  
+##### 4630#       发表于 2021-9-13 23:31
+
+
+ 本帖最后由 李锐可 于 2021-9-13 23:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738352&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-9-13 23:19</a>
+
+场景规模倒是不出所料
+
+不过确实是第一次在TO系列里有了跳跃和立体感的箱庭式区域地图（虽然自由度也就那样 ...</blockquote>
+地图小了但是没精致起来的感觉，好多都是单行1本道加小岔路，而且各种打半天拿根草真的心累<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">。只能说下部加油了，希望别摆烂
+
+
+*****
+
+####  lelouchwang  
+##### 4631#       发表于 2021-9-13 23:31
+
+
+尼玛 做林薇尔的支线上了塔，被教做人了，我才39级啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  qiyu1234  
+##### 4632#       发表于 2021-9-13 23:36
+
+
+ 本帖最后由 qiyu1234 于 2021-9-13 23:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738440&amp;ptid=1860328" target="_blank">李锐可 发表于 2021-9-13 23:31</a>
+
+地图小了但是没精致起来的感觉，好多都是单行1本道加小岔路，而且各种打半天拿根草真的心累。只能 ...</blockquote>
+其实整个游戏内环境的种类还是挺多样的
+
+就是太小了，还有各种空气墙，第五章那个野外瀑布地图和水都外场景才感觉出一点立体感
+
+
+明明作为切入式战斗，地图设计上可以更加自由一点的
+
+下部新作希望多搞点跳跳乐吧
+
+
+*****
+
+####  李锐可  
+##### 4633#       发表于 2021-9-13 23:36
+
+
+最后几个迷宫不能打bs的怪也太多了，切法师妹一路光魔法biu到ed曲<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 4634#       发表于 2021-9-13 23:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玩到第3章还有个事让我很不爽  你说进旅馆黑屏一下就算了  对个话接个支线也有必要黑屏吗  
+
+
+*****
+
+####  9α  
+##### 4635#       发表于 2021-9-13 23:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打boss真刮。小怪全靠烧血
+
+
+*****
+
+####  whzfjk  
+##### 4636#       发表于 2021-9-13 23:47
+
+
+地之国宫殿里那么多房间，全要切，既然内存能塞得下外面都城，这个宫殿同层的房间无缝进入应该不难吧。人法老控比你穷但也比你上进<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+

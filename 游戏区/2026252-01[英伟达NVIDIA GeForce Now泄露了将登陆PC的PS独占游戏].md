@@ -1450,3 +1450,34 @@ monster hunter of nintendo switch
 mons
 
 
+
+
+*****
+
+####  医生狼多  
+##### 127#       发表于 2021-9-13 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738211&amp;ptid=2026252" target="_blank">壳壳牛 发表于 2021-9-13 23:05</a>
+我竟然有点期待圣安地列斯重置...</blockquote>
+这个真的有
+
+
+*****
+
+####  shikiki  
+##### 128#       发表于 2021-9-13 23:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">5年后等挖坟，说不定就全上了
+
+
+*****
+
+####  minamichisei  
+##### 129#       发表于 2021-9-13 23:45
+
+
+卧槽这榜单也太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，我超，只能说希望是真的好吧，这太梦幻了。
+
+

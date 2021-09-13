@@ -2616,3 +2616,67 @@ https://b23.tv/LGWXst
 这5个三次元贴贴居然不是wifi信号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  TTAA  
+##### 4711#       发表于 2021-9-13 23:30
+
+
+其实我觉得这集可堇的表现多少还说得过去。可可本来就是LL狂热饭，堇对LL态度一直没变那可可对堇的态度也不会变呀。会长选举可可小千不情愿还是帮堇免费卖小丸子拉人气。
+
+看外面的帖子没看过这集估计都以为可可她们霸凌堇了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+这事唯一担心的就是pay酱了，感觉是个很敏感的人，而且也很喜欢堇这个角色
+
+
+*****
+
+####  Norkey1  
+##### 4712#       发表于 2021-9-13 23:30
+
+
+青山怎么在墙壁上搞了个外星人灯<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Totokei  
+##### 4713#       发表于 2021-9-13 23:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一开始还以为自己没被新团戳到点，这一集看下来果然是不好看…
+
+
+*****
+
+####  Norkey1  
+##### 4714#       发表于 2021-9-13 23:38
+
+
+问题是前一集可可的态度明显比这一集缓和很多，我个人也觉得这集有排挤感。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">搞笑动画迫害和这种偶像动画迫害还是不能一概而论的，感觉民警是比nico还惨的存在，迫害要适度不然角色推会很难受，他们骂还是挺能理解
+
+
+*****
+
+####  JustW  
+##### 4715#       发表于 2021-9-13 23:43
+
+
+ 本帖最后由 JustW 于 2021-9-13 23:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">关键你上集都四人live唱跳挺high了，这集感觉关系又倒退到第四五集了。而且整个学生会选举基本就是第四集选c位的复刻嘛，也没有太专注于描写恋恋，不会编剧觉得这算是给堇补了半集个人回吧。
+
+
+*****
+
+####  gzfantasy  
+##### 4716#       发表于 2021-9-13 23:47
+
+
+[https://www.bilibili.com/video/BV1j44y1h7sW/](https://www.bilibili.com/video/BV1j44y1h7sW/)
+
+虽然是粤语，但这个猜谜的二创真的好好笑
+
+
