@@ -6909,3 +6909,14 @@ dev推送了184，升级完蓝牙打不开了…………
 只有一个月就正式版了任务栏预览标题还是宋体，微软中国都没人用是吧
 
 
+
+
+*****
+
+####  mashav  
+##### 568#       发表于 2021-9-13 11:43
+
+
+开始菜单不居中了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+

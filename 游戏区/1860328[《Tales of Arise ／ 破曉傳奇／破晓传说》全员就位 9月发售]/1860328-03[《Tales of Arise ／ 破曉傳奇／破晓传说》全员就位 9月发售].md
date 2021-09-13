@@ -17674,3 +17674,119 @@ ai不是进作战就能设置么，demo就有，简化版狒狒12那种加词条
 有没有好的挂机地点，我也想挂机刷一下这个
 
 
+
+
+*****
+
+####  司马千晶  
+##### 4461#       发表于 2021-9-13 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730591&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-13 11:37</a>
+有没有好的挂机地点，我也想挂机刷一下这个</blockquote>
+随便在做支线路上找个怪就行，开那个伤害1不用bs谁都打不死谁。
+
+
+*****
+
+####  focus  
+##### 4462#       发表于 2021-9-13 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730587&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-13 11:36</a>
+
+现在最厨的招还是试玩版女主的跳箭雨么
+
+
+有没有打人形比较好用的dps招</blockquote>
+女主最强的是碧色刹那，贴身散弹威力夸张，要买dlc衣服。林薇儿近身雷阵，后期有装备支持了远程复读大魔法。男主蓄力绝境霸道封灭。目前比较吊的技能。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 红魔馆的糖| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  hkguty  
+##### 4463#       发表于 2021-9-13 11:44
+
+
+第二章也没什么，就是阿炭突然原谅老爸有点过快，估计经费不怎么多所以也没法讲太多剧情，阿炭那个性格只能说傻人有傻福吧。第三章阿周那是比较正常的，女骑士的声优感觉不是很适合配御姐……第四章问题也很多人说了，法师还有个问题就是个人剧情放太后面了导致前面要听她阴阳怪气好几章小剧场，也比较影响观感
+
+
+*****
+
+####  Bani82  
+##### 4464#       发表于 2021-9-13 11:44
+
+
+霸道封灭到底怎么学？打完水将我还是黑的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  laoz  
+##### 4465#       发表于 2021-9-13 11:45
+
+
+<blockquote>Bani82 发表于 2021-9-13 11:44
+霸道封灭到底怎么学？打完水将我还是黑的</blockquote>
+打完伊芙利特才有这个称号
+
+
+*****
+
+####  yzqray  
+##### 4466#       发表于 2021-9-13 11:55
+
+
+第三章不满挺奇怪的，也就女骑士的声优表现太用力了，剧情挺不错的啊，很有新意
+地领将塑造很不错的，越到后面越有意思
+
+
+*****
+
+####  soranoguiji  
+##### 4467#       发表于 2021-9-13 11:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 我还以为是不是翻译有问题，原来那个小法师是真的在阴阳怪气啊
+
+
+*****
+
+####  无动于衷  
+##### 4468#       发表于 2021-9-13 12:00
+
+
+<blockquote>yzqray 发表于 2021-9-13 11:55
+第三章不满挺奇怪的，也就女骑士的声优表现太用力了，剧情挺不错的啊，很有新意
+
+地领将塑造很不错的，越到 ...</blockquote>
+讲道理，果实那事根本没必要多解释，直接把锅甩给风领主完事
+
+
+*****
+
+####  Errey  
+##### 4469#       发表于 2021-9-13 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730890&amp;ptid=1860328" target="_blank">soranoguiji 发表于 2021-9-13 11:56</a>
+
+我还以为是不是翻译有问题，原来那个小法师是真的在阴阳怪气啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">小法师打完第五章还在嘴臭/阴阳怪气雷纳人，我是没见过这么不合拍的队友，您老消停点吧
+
+
