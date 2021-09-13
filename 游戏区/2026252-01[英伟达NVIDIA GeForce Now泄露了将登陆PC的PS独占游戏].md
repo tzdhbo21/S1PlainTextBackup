@@ -1591,3 +1591,89 @@ SNOW这个代号是上次黑客泄露内部文档里面写的。
 想都不敢想……<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">如果是真的，我马上买steam deck
 
 
+
+
+*****
+
+####  Vladimeow  
+##### 140#       发表于 2021-9-14 00:35
+
+
+诶？恶魂这么快就来了？好耶<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  defer  
+##### 141#       发表于 2021-9-14 00:36
+
+
+这得病成啥样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+老任的都出来了
+
+se这种山头公司，重制的ip哪个不是公司里有人的。加藤正人小胡子松野的作品还想重制？
+
+Judgement还行，前几天才爆出杰尼斯明确不允许木村上pc
+
+
+*****
+
+####  leo204672099  
+##### 142#       发表于 2021-9-14 00:38
+
+
+这什么玩意儿
+
+
+*****
+
+####  萱时令  
+##### 143#       发表于 2021-9-14 00:38
+
+
+没血源 挺真的 虽然离谱都挺真的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+填充数据随便填也不会这么…
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  walfeds  
+##### 144#       发表于 2021-9-14 00:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一定是pcmr的阴谋
+
+
+*****
+
+####  hkguty  
+##### 145#       发表于 2021-9-14 00:41
+
+
+贝姐3不可能，SMT5，很可能
+
+
+*****
+
+####  uswhzh  
+##### 146#       发表于 2021-9-14 00:46
+
+
+GeForce NOW是云游戏吧
+
+
+*****
+
+####  liuyuan23  
+##### 147#       发表于 2021-9-14 00:49
+
+
+血缘诅咒铁定留守playstation<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

@@ -13082,3 +13082,63 @@ mua，<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" refe
 舞元要被吊人飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">速攻搞起来）
 
 
+
+
+*****
+
+####  T_Hb  
+##### 2677#       发表于 2021-9-14 00:22
+
+
+ 本帖最后由 T_Hb 于 2021-9-14 00:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也杠
+
+
+*****
+
+####  时间在我手中  
+##### 2678#       发表于 2021-9-14 00:28
+
+
+唐突被18000，吊人危<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时间在我手中  
+##### 2679#       发表于 2021-9-14 00:31
+
+
+舞元直接72000，吊人和北小路要被干碎了
+
+
+*****
+
+####  T_Hb  
+##### 2680#       发表于 2021-9-14 00:33
+
+
+ 本帖最后由 T_Hb 于 2021-9-14 00:45 编辑 
+
+今晚怎么话这么多，各种效果音<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这竟然是个有后续的企划，下次玩别的
+
+
+*****
+
+####  时间在我手中  
+##### 2681#       发表于 2021-9-14 00:40
+
+
+ 本帖最后由 时间在我手中 于 2021-9-14 00:47 编辑 
+
+吃三，肥婆不行
+
+阿这，直接一把光速跑路可还行
+
+
+因为这次舞元逆一了啊，摇头，这都能被翻
+
+

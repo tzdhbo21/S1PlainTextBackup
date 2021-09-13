@@ -2018,3 +2018,133 @@ TOZ之后这个系列不死就是赚了，虽然游戏越做越烂没办法了
 说起来“次级”这个难度名称未免太迷惑了一点，直接简单/普通/困难/噩梦的话估计会少一些硬着头皮怼最高难度的人吧<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lucky95  
+##### 4654#       发表于 2021-9-14 00:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738877&amp;ptid=1860328" target="_blank">听风不是雨 发表于 2021-9-14 00:24</a>
+ 说起来“次级”这个难度名称未免太迷惑了一点，直接简单/普通/困难/噩梦的话估计会少一些硬着头皮怼最高 ...</blockquote>
+问题是都不能靠技术克服难度，只能靠金手指或疯狂肝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我这种黑魂只狼疯狂死的买了DLC不还是随便打次级boss，除了血厚半点难度都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 4655#       发表于 2021-9-14 00:33
+
+
+ 本帖最后由 qiyu1234 于 2021-9-14 00:36 编辑 
+
+天时地利人和
+
+TOAR目前看 至少占了天时，在一个竞品稀少的年份登场
+
+现在MC媒体分 87  玩家评分 9.1
+
+其中不乏情绪化的报复性高分
+
+
+我是能从那些评语中感觉出，市场对于新的大型JRPG的需求还是很迫切的
+
+
+*****
+
+####  金子一马  
+##### 4656#       发表于 2021-9-14 00:37
+
+
+希望作品活下去以后，换来的是质量越来越高，而不是dlc越来越不要脸吧。
+
+
+*****
+
+####  Booorunestud  
+##### 4657#       发表于 2021-9-14 00:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738817&amp;ptid=1860328" target="_blank">fuochai 发表于 2021-9-14 00:18</a>
+四个难度档 最难的档不难那才叫不合理吧</blockquote>
+这样啊我还以为通关能解锁个什么地狱难度之类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我还是觉得有问题
+另外问一下后期应该得有两个技能槽吧，不然只能带仨技能肯定不够用
+
+
+*****
+
+####  金子一马  
+##### 4658#       发表于 2021-9-14 00:41
+
+
+<blockquote>AEmpire 发表于 2021-9-13 03:24
+怎么设定进战斗集火一只怪，每次进战斗都是我操作的角色锁一只，其他三个人锁另一只。你们丫啥意思 ...</blockquote>
+那只能你少数服从多数了呗，哈哈
+
+
+*****
+
+####  JudgmentEye  
+##### 4659#       发表于 2021-9-14 00:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738976&amp;ptid=1860328" target="_blank">金子一马 发表于 2021-9-14 00:37</a>
+
+希望作品活下去以后，换来的是质量越来越高，而不是dlc越来越不要脸吧。</blockquote>
+财团b：你tmd醒醒
+
+
+*****
+
+####  Rainwedell  
+##### 4660#       发表于 2021-9-14 00:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738854&amp;ptid=1860328" target="_blank">lucky95 发表于 2021-9-14 00:22</a>
+泥潭真看得传说
+
+TOZ之后这个系列不死就是赚了，虽然游戏越做越烂没办法了 ...</blockquote>
+这作看起来技术积累倒是基本够用几作了，toar本质ps4世代平台开发，原生ps5平台开发的绯红优化和画面表现是更好的，下作如果能好好打磨下本作被泥潭拿出来婊的缺点（也就是把系列老本里面的优点想办法给装回去一点，剧本找个好编剧整到tob水平就够了），那还是挺看好的。毕竟去年同期制作组装死到让我和几个朋友以为这玩意儿肯定是最后一作。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  金子一马  
+##### 4661#       发表于 2021-9-14 00:42
+
+
+<blockquote>Booorunestud 发表于 2021-9-14 00:38
+这样啊我还以为通关能解锁个什么地狱难度之类的虽然我还是觉得有问题
+
+另外问一下后期应该得有两个 ...</blockquote>
+你全猜对了
+
+
+*****
+
+####  JudgmentEye  
+##### 4662#       发表于 2021-9-14 00:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738981&amp;ptid=1860328" target="_blank">Booorunestud 发表于 2021-9-14 00:38</a>
+
+这样啊我还以为通关能解锁个什么地狱难度之类的虽然我还是觉得有问题
+
+另外问一下后期应该得有两个 ...</blockquote>
+通关能解锁chaos难度，中期能追加l+技能键绑定第二套技能
+
+
+*****
+
+####  licha1995  
+##### 4663#       发表于 2021-9-14 00:45
+
+
+连招老是中段，后摇又长，打的难受的要死<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
