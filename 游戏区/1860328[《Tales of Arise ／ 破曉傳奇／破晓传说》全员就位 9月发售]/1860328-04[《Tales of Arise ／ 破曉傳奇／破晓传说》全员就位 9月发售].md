@@ -87,3 +87,28 @@ sp主要靠支线 战斗给的不多
 感谢提醒，还好我没买，昨天差点就忍不住卖掉了……
 
 
+
+
+*****
+
+####  奈奈未喵  
+##### 4508#       发表于 2021-9-13 15:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732929&amp;ptid=1860328" target="_blank">squaresfc 发表于 2021-9-13 15:00</a>
+感谢提醒，还好我没买，昨天差点就忍不住卖掉了……</blockquote>
+我也被坑了 本来心里一直有个声音在说别卖别卖 奈何实在太穷了
+
+
+*****
+
+####  Bani82  
+##### 4509#       发表于 2021-9-13 15:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732259&amp;ptid=1860328" target="_blank">一碗好吃的饭 发表于 2021-9-13 13:52</a>
+
+为什么jrpg的任务指引系统这么烂啊，好多地方没有提示都不知道怎么去，真是吐了 ...</blockquote>
+传说这个真的需要人物指引么...震惊
+
+

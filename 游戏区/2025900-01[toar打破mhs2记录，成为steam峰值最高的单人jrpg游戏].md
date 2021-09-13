@@ -1116,3 +1116,52 @@ P4G在20年时还有这个卖相才是震惊我，我12年在宝石V上想重温
 没啥希望，优化并不是太好<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  升职加薪  
+##### 97#       发表于 2021-9-13 15:12
+
+
+<blockquote>faithlifer 发表于 2021-9-13 15:09
+没啥希望，优化并不是太好</blockquote>
+配置要求不高
+
+画面明显全是大色块吧远不够精细密集
+
+
+*****
+
+####  林无德  
+##### 98#       发表于 2021-9-13 15:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732176&amp;ptid=2025900" target="_blank">bluebaby 发表于 2021-9-13 13:44</a>
+
+那你快到本作最傻逼剧情演出的地方了
+
+其实逻辑还行就是当时那个场合那个演出有点让人目瞪口呆 ...</blockquote>
+你是指不让报仇那段嘛？
+
+
+可能我看这种老套日式剧情太多习惯了，我竟觉得傻逼度只有“就这？”
+
+
+我现在可期待通关前能不能给我个“卧槽这么傻逼！”的惊喜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  faithlifer  
+##### 99#       发表于 2021-9-13 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733084&amp;ptid=2025900" target="_blank">升职加薪 发表于 2021-9-13 15:12</a>
+
+配置要求不高
+
+画面明显全是大色块吧远不够精细密集</blockquote>
+所以这才是槽点，跑起来显卡占用率很高快跑满了，然后频率基本在1000mhz左右浮动，60稳不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
