@@ -16897,3 +16897,221 @@ no
 任何连接，比如我喜欢起手一个天锤，然后冰牢，接着疯狂搓招咏唱。没豆子了就bs，你会发现那些上位也读的飞快，不过有上限，但是一旦断了要重新开始
 
 
+
+
+*****
+
+####  cder  
+##### 4399#       发表于 2021-9-13 08:43
+
+
+有人知道魔法储存怎么派生出新的吗？搓了好几次，似乎有成功几率？
+
+
+*****
+
+####  无动于衷  
+##### 4400#       发表于 2021-9-13 08:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727644&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-13 02:05</a>
+
+第四章那段有那么差么？完全感觉不出来啊
+
+其实之前铺垫不是做得还可以么，那群暴民给林薇儿那边做了对比了
+
+ ...</blockquote>
+其实只需要加一点 就是魔法小妹自己也吃了那种果实逻辑就通顺了
+
+
+而且我方吃果实那里 男主按照后面被改造的设定 吃不吃的影响根本不大
+
+
+*****
+
+####  不应  
+##### 4401#       发表于 2021-9-13 08:46
+
+
+男主还是没用会，炎剑老是空技能，而且打boss硬直高还不能随便用。我现在都是带盾姐黑皮女主和法师了，自己手操一个盾姐，全程站撸无压力
+
+
+*****
+
+####  Errey  
+##### 4402#       发表于 2021-9-13 08:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第五章的法师那桥段真是日本人念念不忘的垃圾桥段，尤其法师打完第四章还在嘴臭队友，是真的挺烦人的
+
+本来看二章那杀伐果断的态度，以为不会再出现这种幼稚的问题，小看了他们对这东西的执念
+
+仍不妨碍这次主角团其他5人那种果断行动、心态稳定、有抱负，像家一样的安心感
+
+
+*****
+
+####  魂淡放我出去  
+##### 4403#       发表于 2021-9-13 08:48
+
+
+先把男主前置技能打出来，然后再用ba技把怪打倒地，一个蓄满的火剑真的爽，就是打人形boss不能这么打真的气
+
+
+*****
+
+####  chan  
+##### 4404#       发表于 2021-9-13 08:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52726960&amp;ptid=1860328" target="_blank">电风扇 发表于 2021-9-13 00:15</a>
+
+蓝框满的时候会有个队员喊话，组合技成员必定是这个队员+方向键指定的队员，似乎是这样
+
+ ...</blockquote>
+并不。是方向键指的队员+随机其它任何一个队员，包括后备
+
+
+*****
+
+####  TerryBlues  
+##### 4405#       发表于 2021-9-13 08:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">远程和洛实在是玩不惯，还是等后期几个关键技能点完了再尝试吧。打次难刚过第三国把药掏空了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最浅的语言  
+##### 4406#       发表于 2021-9-13 08:57
+
+
+问一下玩法师和女主这种远程是不是得开半自动玩?  玩过几次女主的，强化爆破技能距离把握不好老是扔近了，或者是打枪的技能干脆直接扔歪了
+
+
+*****
+
+####  奈奈未喵  
+##### 4407#       发表于 2021-9-13 08:58
+
+
+打到水之国不能忍了 怎么连个螃蟹都砍不动了 穷的cp回复都买不起 打到boss复活药永远小于5 每次打完boss都彻底返贫 死一地队友
+
+今天回家降难度
+
+
+
+
+*****
+
+####  奈奈未喵  
+##### 4408#       发表于 2021-9-13 09:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52714248&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2021-9-11 22:43</a>
+盾妈当时我记得哭了好几次，插着耳机差点给我吼聋了</blockquote>
+是有点用力过猛了 家里的猫都惊醒了
+
+
+*****
+
+####  hypnossz86  
+##### 4409#       发表于 2021-9-13 09:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728636&amp;ptid=1860328" target="_blank">奈奈未喵 发表于 2021-9-13 08:58</a>
+打到水之国不能忍了 怎么连个螃蟹都砍不动了 穷的cp回复都买不起 打到boss复活药永远小于5 每次打完boss都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">我是玩明白了
+现在的jrpg限于成本，大多地图都做的不大，虽然一个场景走两步就过去了，但是数值上他并不是让你走两步就过去的
+所以道中要多坐篝火，在一个场景里多滞留一段时间，把等级练上去了再走也比较好
+这样素材粮食矿也都能挖足
+高难下这么玩还是很稳的
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4410#       发表于 2021-9-13 09:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728534&amp;ptid=1860328" target="_blank">Errey 发表于 2021-9-13 08:48</a>
+第五章的法师那桥段真是日本人念念不忘的垃圾桥段，尤其法师打完第四章还在嘴臭队友，是真的挺烦人 ...</blockquote>
+基本上就是jrpg固有逻辑，可以在战斗中打死人但是不能怀着杀意憎恨等负面感情去战斗
+虽然编排得不咋地但是第四章总体上讲的也就是不要被仇恨控制这类大道理
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说实话我已经彻底接受这种内在逻辑不去纠结jrpg的相关桥段了
+
+
+
+
+*****
+
+####  久井路路  
+##### 4411#       发表于 2021-9-13 09:09
+
+
+ 本帖最后由 久井路路 于 2021-9-13 09:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728689&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-13 09:04</a>
+
+基本上就是jrpg固有逻辑，可以在战斗中打死人但是不能怀着杀意憎恨等负面感情去战斗
+
+虽然编排得不咋地但 ...</blockquote>
+退一万步就当这个逻辑本身还算是可以理解，起码钢炼大佐那里我是被荒川弘说服过
+
+
+但是能不能等到把Boss打得只差一口气要补一刀的时候再说这个（
+
+不许人家为了仇恨杀人还不许人家宣泄情感打一顿了么（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+搞成这样我站在Boss角度都会觉得我赢了是不是会很尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 4412#       发表于 2021-9-13 09:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728616&amp;ptid=1860328" target="_blank">最浅的语言 发表于 2021-9-13 08:57</a>
+问一下玩法师和女主这种远程是不是得开半自动玩?  玩过几次女主的，强化爆破技能距离把握不好老是扔近了， ...</blockquote>
+不要推摇杆就是半自动锁定方向的
+
+
+*****
+
+####  chris1987  
+##### 4413#       发表于 2021-9-13 09:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727805&amp;ptid=1860328" target="_blank">AEmpire 发表于 2021-9-13 03:24</a>
+
+怎么设定进战斗集火一只怪，每次进战斗都是我操作的角色锁一只，其他三个人锁另一只。你们丫啥意思 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">我也遇到这个问题，以前可以设置优先队友激活我选的那个怪的啊，这次是在哪里设置啊
+
+
+*****
+
+####  江少寒  
+##### 4414#       发表于 2021-9-13 09:14
+
+
+到土国，虽然很美，但开始有点缺乏推进剧情的动力了。
+随随便便就打boss了，打完就解放了，这300年都干啥了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。boss还霸体，打起来就是刮痧。
+反正玩到现在感受最深的反而是哪家测评里那句“DLC很让人怀疑本体里的一些设计的意义”。买不买官方挂完全是两个游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，买了normal才是normal，没买normal就是hard
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  jy000129  
+##### 4415#       发表于 2021-9-13 09:18
+
+
+TOB用贝姐打大部分BOSS可以连的很舒服，只要选好对策技能，开了狂暴无限爆豆无限连，这作豆子可以自动回复但不能硬莽还是缺点味道
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
