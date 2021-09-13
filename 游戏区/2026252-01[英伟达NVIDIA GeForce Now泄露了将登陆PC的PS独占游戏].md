@@ -1513,3 +1513,81 @@ graphql喷了 要不然要啥有啥呢233</blockquote>
 草台论草台论<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  猫不萌  
+##### 133#       发表于 2021-9-14 00:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">贝3肯定不可能，怀疑只是占位符啊
+
+
+*****
+
+####  Guildenstern  
+##### 134#       发表于 2021-9-14 00:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738582&amp;ptid=2026252" target="_blank">clover293 发表于 2021-9-13 23:47</a>
+
+这个名单估计是真的，但关键是se头头知道kh4啥时候发售嘛。。</blockquote>
+其实不那么难猜。大阪组做完KH3，除了做KH4还能干啥？已经没有什么能重制的了。
+
+
+*****
+
+####  任天索尼子  
+##### 135#       发表于 2021-9-14 00:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738357&amp;ptid=2026252" target="_blank">凶手 发表于 2021-9-13 23:19</a>
+
+snow绝了 
+
+monster hunter of nintendo switch 
+
+mons</blockquote>
+SNOW这个代号是上次黑客泄露内部文档里面写的。
+
+
+*****
+
+####  Guildenstern  
+##### 136#       发表于 2021-9-14 00:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738255&amp;ptid=2026252" target="_blank">SorroFrost 发表于 2021-9-13 23:10</a>
+
+居然有ttf3吗 泪目，respawn原来你还记着</blockquote>
+据说这是个老代号，实际上就是Apex。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绝望队长  
+##### 137#       发表于 2021-9-14 00:28
+
+
+我擦咧！还有地狱老司机2？？？？？
+
+
+*****
+
+####  scikirbypoke  
+##### 138#       发表于 2021-9-14 00:29
+
+
+有几个看着挺合理，剩下的就离谱
+
+
+*****
+
+####  shirolin  
+##### 139#       发表于 2021-9-14 00:30
+
+
+想都不敢想……<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">如果是真的，我马上买steam deck
+
+

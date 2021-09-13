@@ -1915,3 +1915,106 @@ TOAR，目前来看其实差不多TOX这一档，战斗系统有问题，剧情�
 没买dlc困难下水道泥怪我打了俩小时才拿命填过去，虽然我只有15级吧，但怎么做出这种boss的
 
 
+
+
+*****
+
+####  lucky95  
+##### 4646#       发表于 2021-9-14 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738755&amp;ptid=1860328" target="_blank">Booorunestud 发表于 2021-9-14 00:09</a>
+ 这数值确实有大问题吧 没买dlc困难下水道泥怪我打了俩小时才拿命填过去，虽然我只有15级吧，但怎么 ...</blockquote>
+降低难度到普通秒解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JudgmentEye  
+##### 4647#       发表于 2021-9-14 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52735471&amp;ptid=1860328" target="_blank">哌啶 发表于 2021-9-13 18:41</a>
+
+我找到的dlc解锁补丁一方面UI文本错误另一方面存档好像不互通，有靠谱的路子吗？
+
+
+如果要买dlc的话哪个dlc ...</blockquote>
+你找的是给盗版用的
+
+
+*****
+
+####  fuochai  
+##### 4648#       发表于 2021-9-14 00:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738755&amp;ptid=1860328" target="_blank">Booorunestud 发表于 2021-9-14 00:09</a>
+这数值确实有大问题吧
+没买dlc困难下水道泥怪我打了俩小时才拿命填过去，虽然我只有15级吧，但怎么 ...</blockquote>
+四个难度档 最难的档不难那才叫不合理吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 4649#       发表于 2021-9-14 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736296&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-13 19:57</a>
+我觉得是发售前的期待太高了
+
+结果发现不但想象中的东西都没有</blockquote>
+确实期待太高，发售前泥潭很多人是想把这当泥潭真爱第二来看的。想着王道，bg，he三个buff那不是稳中稳，从传说的几十年老本里面改个战斗系统加明显的画面演出升级那不是吹爆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。目前看来大成功，下作开发资源至少保证了。不过传说组确实要考虑找几个好编剧和写剧本对话的了，今年一共两个作品都被写故事的坑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  lucky95  
+##### 4650#       发表于 2021-9-14 00:20
+
+
+洛那个技能盘要烹饪7次是大家都行还是只能选洛精通的菜<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  lucky95  
+##### 4651#       发表于 2021-9-14 00:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738827&amp;ptid=1860328" target="_blank">Rainwedell 发表于 2021-9-14 00:19</a>
+ 确实期待太高，发售前泥潭很多人是想把这当泥潭真爱第二来看的。想着王道，bg，he三个buff那不是稳中稳， ...</blockquote>
+泥潭真看得传说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+TOZ之后这个系列不死就是赚了，虽然游戏越做越烂没办法了
+
+
+*****
+
+####  JudgmentEye  
+##### 4652#       发表于 2021-9-14 00:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738831&amp;ptid=1860328" target="_blank">lucky95 发表于 2021-9-14 00:20</a>
+
+洛那个技能盘要烹饪7次是大家都行还是只能选洛精通的菜</blockquote>
+随便
+
+
+*****
+
+####  听风不是雨  
+##### 4653#       发表于 2021-9-14 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738817&amp;ptid=1860328" target="_blank">fuochai 发表于 2021-9-14 00:18</a>
+
+四个难度档 最难的档不难那才叫不合理吧</blockquote>
+说起来“次级”这个难度名称未免太迷惑了一点，直接简单/普通/困难/噩梦的话估计会少一些硬着头皮怼最高难度的人吧<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+

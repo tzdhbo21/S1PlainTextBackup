@@ -2680,3 +2680,39 @@ https://b23.tv/LGWXst
 虽然是粤语，但这个猜谜的二创真的好好笑
 
 
+
+
+*****
+
+####  黑雪姫  
+##### 4717#       发表于 2021-9-14 00:14
+
+
+ 本帖最后由 黑雪姫 于 2021-9-14 00:17 编辑 
+
+官方是不是觉的可可人气太高了所以弄个黑点降降人气啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+后面如果不抢救回来我看星团真就要寄了。
+
+
+人设要不就是崩了要不就是工具人。
+
+
+感觉前三集根本不是一个动画。
+
+
+GAL主角香音
+
+霸凌女唐可可
+
+大腿挂件小千
+
+小丑平安名堇
+
+最惨身世叶月恋
+
+
+结合隔壁岚珠是不是拉拉的中国角色都有霸凌属性啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
