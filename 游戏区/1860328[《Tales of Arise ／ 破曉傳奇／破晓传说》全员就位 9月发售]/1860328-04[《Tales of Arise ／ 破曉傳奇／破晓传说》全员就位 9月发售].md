@@ -776,3 +776,90 @@ tov往前的传说也一堆剧情也不怎么样吧，特别是量产化以后�
 那么女主究竟能不能学到浮空技呢？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  哌啶  
+##### 4555#       发表于 2021-9-13 18:41
+
+
+我找到的dlc解锁补丁一方面UI文本错误另一方面存档好像不互通，有靠谱的路子吗？
+
+
+如果要买dlc的话哪个dlc是带技能的？
+
+
+*****
+
+####  盖·福克斯  
+##### 4556#       发表于 2021-9-13 18:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">结局打完了，只能说编剧这是在犯罪好吧。
+
+太他妈屎了，搞的我连吃糖的心情都没有。
+
+
+*****
+
+####  godless2020  
+##### 4557#       发表于 2021-9-13 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734672&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-13 17:27</a>
+
+这个真就搞反了，等级有补正还非常大，低级打高级很快追平，高级打低级收益非常低，带两倍导致玩家比敌人 ...</blockquote>
+除了3件衣服自带技能，最实惠的其实就是有备无患包，基础HP+1000 道具99个，中期刷了15W，买了一堆药，男主卖血放火烧，CP不够狂补，太爽了
+
+
+*****
+
+####  godless2020  
+##### 4558#       发表于 2021-9-13 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52735471&amp;ptid=1860328" target="_blank">哌啶 发表于 2021-9-13 18:41</a>
+
+我找到的dlc解锁补丁一方面UI文本错误另一方面存档好像不互通，有靠谱的路子吗？
+
+
+如果要买dlc的话哪个dlc ...</blockquote>
+学院 战国 泳装只有这3套..............
+
+
+*****
+
+####  fuochai  
+##### 4559#       发表于 2021-9-13 18:51
+
+
+打完五章，清了一些支线任务已经2w块了 后面可能又要锁传送
+十分庆幸没买dlc，这游戏紧张的资源让我玩rpg时勤俭节约（抠抠索索）的好习惯终于能发挥作用了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  godless2020  
+##### 4560#       发表于 2021-9-13 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52735581&amp;ptid=1860328" target="_blank">fuochai 发表于 2021-9-13 18:51</a>
+
+打完五章，清了一些支线任务已经2w块了 后面可能又要锁传送
+
+十分庆幸没买dlc，这游戏紧张的资源让我玩rpg时 ...</blockquote>
+刚到第4章，卖血卖到无CP可补，震怒下刷钱买了50个CP药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+*****
+
+####  ky怪  
+##### 4561#       发表于 2021-9-13 19:03
+
+
+瞬星射击怎么解锁，我冰枪和神圣之枪都用到2星了还没解锁...
+
+
