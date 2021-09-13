@@ -1277,3 +1277,110 @@ MHW代号就是MH5，次世代新作代号MH6，RISE代号SNOW。
 这堆都不如血源啊 难度真的销量太低索尼连跨都觉得亏？
 
 
+
+
+*****
+
+####  Luminous脑壳痛  
+##### 112#       发表于 2021-9-13 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738008&amp;ptid=2026252" target="_blank">masterkeaton 发表于 2021-9-13 22:45</a>
+
+要是出的话倒是理解为什么se会再发型老作品了。系列最强两款重制化，se要重新成为jrpg帝国 ...</blockquote>
+当时还提到了一些细节和制作模式，不是7re那样的
+
+
+*****
+
+####  月华驱霾  
+##### 113#       发表于 2021-9-13 22:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737955&amp;ptid=2026252" target="_blank">s32244153 发表于 2021-9-13 22:39</a>
+
+https://gist.github.com/xPaw/6a42aafd3c9d19b3ceab2e90b5a37cd2
+
+这才是真正的大消息吧</blockquote>
+噗，这个真没忍住。
+
+
+*****
+
+####  frankCC  
+##### 114#       发表于 2021-9-13 22:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737955&amp;ptid=2026252" target="_blank">s32244153 发表于 2021-9-13 22:39</a>
+
+https://gist.github.com/xPaw/6a42aafd3c9d19b3ceab2e90b5a37cd2
+
+这才是真正的大消息吧</blockquote>
+这个只是代号，说不定指的就是现在的2.0呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a2042312  
+##### 115#       发表于 2021-9-13 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737955&amp;ptid=2026252" target="_blank">s32244153 发表于 2021-9-13 22:39</a>
+https://gist.github.com/xPaw/6a42aafd3c9d19b3ceab2e90b5a37cd2
+
+这才是真正的大消息吧</blockquote>
+说不定还有Artifact 2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SergeGlenn  
+##### 116#       发表于 2021-9-13 22:56
+
+
+这名单还是洗洗睡吧
+
+
+*****
+
+####  jajajzz  
+##### 117#       发表于 2021-9-13 22:58
+
+
+不得不说pcmr是真的牛逼，这写的东西一般人都不敢把他全YY出来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MARK2  
+##### 118#       发表于 2021-9-13 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738011&amp;ptid=2026252" target="_blank">luozicheng 发表于 2021-9-13 22:45</a>
+
+Chrono Cross Remaster
+
+FF7 Remake
+
+FF9 Remake</blockquote>
+FF9的重制早有消息，DQ3的重制连画面都有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  壳壳牛  
+##### 119#       发表于 2021-9-13 23:05
+
+
+我竟然有点期待圣安地列斯重置...
+
+
+*****
+
+####  SorroFrost  
+##### 120#       发表于 2021-9-13 23:10
+
+
+居然有ttf3吗 泪目，respawn原来你还记着<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+

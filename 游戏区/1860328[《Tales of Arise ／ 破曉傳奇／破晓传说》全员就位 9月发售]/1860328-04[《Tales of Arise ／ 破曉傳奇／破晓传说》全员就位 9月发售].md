@@ -1543,3 +1543,83 @@ Dlc很恶心。
 小姑娘的无限激光炮真是强到批爆啊，困难黑龙乱入直接乱宰
 
 
+
+
+*****
+
+####  oniwarud  
+##### 4616#       发表于 2021-9-13 22:51
+
+
+<blockquote>alucardcz 发表于 2021-9-13 22:41
+这走几步就到一个新城市好怪啊。。你们原来住的都这么近？</blockquote>
+当成道馆体验瞬间上升一个档次
+
+
+*****
+
+####  hkguty  
+##### 4617#       发表于 2021-9-13 22:53
+
+
+第二秘奥义的触发条件，是要使用完全不同的5招全部命中以后才能触发？如果使用两三招相同的技能轮流命中5次可以触发吗
+
+
+*****
+
+####  ♂藤冈豆腐店♂  
+##### 4618#       发表于 2021-9-13 22:53
+
+
+通关了发现自己通关奖杯和女主角羁绊奖杯拿不到，这下要重来一周目了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4619#       发表于 2021-9-13 22:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737969&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-13 22:41</a>
+
+这走几步就到一个新城市好怪啊。。你们原来住的都这么近？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">只要不是无缝都可以当成每张地图之间隔了一个月
+
+
+*****
+
+####  DKD  
+##### 4620#       发表于 2021-9-13 22:56
+
+
+地图确实有点村儿了
+
+之前看还有城市，不知道啥时候打得到
+
+
+
+
+*****
+
+####  lucky95  
+##### 4621#       发表于 2021-9-13 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737969&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-13 22:41</a>
+
+这走几步就到一个新城市好怪啊。。你们原来住的都这么近？</blockquote>
+是城中村<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucky95  
+##### 4622#       发表于 2021-9-13 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737933&amp;ptid=1860328" target="_blank">BigLittle1999 发表于 2021-9-13 22:37</a>
+
+刚打完火之领主，有不剧透的给说说怎么样才能不漏320个小剧场吗，流程中一有R1就按行吗，还是必须在某些剧 ...</blockquote>
+不会miss的，只要有叮一声的去露营都能看
+
+
