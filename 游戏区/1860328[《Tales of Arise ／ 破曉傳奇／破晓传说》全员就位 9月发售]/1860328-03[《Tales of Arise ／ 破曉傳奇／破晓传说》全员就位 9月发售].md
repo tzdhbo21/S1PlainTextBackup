@@ -18031,3 +18031,37 @@ ai不是进作战就能设置么，demo就有，简化版狒狒12那种加词条
 但是BOSS的话...
 
 
+
+
+*****
+
+####  一碗好吃的饭  
+##### 4490#       发表于 2021-9-13 13:52
+
+
+为什么jrpg的任务指引系统这么烂啊，好多地方没有提示都不知道怎么去，真是吐了
+
+
+*****
+
+####  peh  
+##### 4491#       发表于 2021-9-13 13:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52731940&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2021-9-13 13:21</a>
+
+那break是咋出来的？感觉打打打莫名其妙就break了</blockquote>
+貫通力..数值高了就容易break，break状态怪就不是霸体了
+
+
+*****
+
+####  lucky95  
+##### 4492#       发表于 2021-9-13 13:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52724941&amp;ptid=1860328" target="_blank">黄昏的轮回 发表于 2021-9-12 21:23</a>
+ 看了看ナカイド的视频，以前就有所耳闻，没想到马场英雄可以对一个女主角玩出这么大的恶意，小松 ...</blockquote>
+感觉第一个DLC是整好的，过后就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
