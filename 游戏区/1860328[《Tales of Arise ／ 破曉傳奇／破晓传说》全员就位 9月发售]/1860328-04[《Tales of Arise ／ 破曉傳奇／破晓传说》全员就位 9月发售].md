@@ -1401,3 +1401,55 @@ Dlc很恶心。
 买了双倍经验  还有什么值得买的dlc么
 
 
+
+
+*****
+
+####  妄想中毒  
+##### 4604#       发表于 2021-9-13 21:48
+
+
+打BOSS和特殊敌人队友疯狂扑街感觉无解啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  momokokaren  
+##### 4605#       发表于 2021-9-13 21:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737295&amp;ptid=1860328" target="_blank">Errey 发表于 2021-9-13 21:36</a>
+
+强词夺理，角色有仇是她想报仇，阻止别人报仇的人的想法是我觉得报仇就毁了人生，只有臆想没有佐证
+
+谁才 ...</blockquote>
+确实，整个剧本都感觉很敷衍，简单粗暴地推进剧情，角色的台词都很程式化像在喊口号，这是我至少这两年来最后悔买了的游戏了…
+
+
+*****
+
+####  捧读小见川  
+##### 4606#       发表于 2021-9-13 21:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737438&amp;ptid=1860328" target="_blank">妄想中毒 发表于 2021-9-13 21:48</a>
+
+打BOSS和特殊敌人队友疯狂扑街感觉无解啊</blockquote>
+策略设定成75%血以下别靠近怪试试，当然坦克要拉开boss
+
+
+*****
+
+####  makar0601  
+##### 4607#       发表于 2021-9-13 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736573&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-13 20:26</a>
+
+女主我也没啥感觉，不过很喜欢琳微儿的人设。看起来是个轻巧灵动又带点天然呆的JK
+
+
+没想到是个阴沉系[f:0 ...</blockquote>
+只有法师和拳师还留有以前那种欧洲乡村味
+
+
