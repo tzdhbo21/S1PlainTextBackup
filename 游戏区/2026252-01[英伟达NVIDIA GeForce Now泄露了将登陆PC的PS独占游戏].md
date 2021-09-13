@@ -1384,3 +1384,69 @@ FF9的重制早有消息，DQ3的重制连画面都有了<img src="https://stati
 居然有ttf3吗 泪目，respawn原来你还记着<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  大fish小fish  
+##### 121#       发表于 2021-9-13 23:12
+
+
+FF9重制应该是REBIO那种的或者是圣剑传说3那种的，FF7那种的可能性为零
+
+
+*****
+
+####  谢三哥  
+##### 122#       发表于 2021-9-13 23:14
+
+
+泄露为啥还一大堆unannounced title，就想看新ip来着，结果全是续作和重制。
+
+
+*****
+
+####  iceplatinum  
+##### 123#       发表于 2021-9-13 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738279&amp;ptid=2026252" target="_blank">大fish小fish 发表于 2021-9-13 23:12</a>
+FF9重制应该是REBIO那种的或者是圣剑传说3那种的，FF7那种的可能性为零</blockquote>
+如果是画面c
+
+
+*****
+
+####  iceplatinum  
+##### 124#       发表于 2021-9-13 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738279&amp;ptid=2026252" target="_blank">大fish小fish 发表于 2021-9-13 23:12</a>
+FF9重制应该是REBIO那种的或者是圣剑传说3那种的，FF7那种的可能性为零</blockquote>
+如果是画面hd不是造出了么，连动画都高清化了
+
+
+*****
+
+####  凶手  
+##### 125#       发表于 2021-9-13 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737865&amp;ptid=2026252" target="_blank">liliguo1 发表于 2021-9-13 22:30</a>
+最新进展，Nvidia那个数据库端口直接当掉了连不上，要么是紧急处理要么是连的人太多了，要么是我本地的问题 ...</blockquote>
+graphql喷了 要不然要啥有啥呢233
+
+
+*****
+
+####  凶手  
+##### 126#       发表于 2021-9-13 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738039&amp;ptid=2026252" target="_blank">任天索尼子 发表于 2021-9-13 22:47</a>
+MHW代号就是MH5，次世代新作代号MH6，RISE代号SNOW。</blockquote>
+snow绝了 
+monster hunter of nintendo switch 
+mons
+
+

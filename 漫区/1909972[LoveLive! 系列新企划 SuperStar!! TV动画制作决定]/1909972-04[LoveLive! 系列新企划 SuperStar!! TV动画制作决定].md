@@ -2570,3 +2570,49 @@ https://b23.tv/LGWXst
 在这个花田笔下残酷的世界，只有mzs一直温暖着大家
 
 
+
+
+*****
+
+####  ads147147  
+##### 4707#       发表于 2021-9-13 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738057&amp;ptid=1909972" target="_blank">chenflyyy 发表于 2021-9-13 22:50</a>
+https://b23.tv/LGWXst
+谢谢你，めざし ​老师</blockquote>
+めざし老师老擦屁股能手了，八月页游也纯靠老师的4格丰富人设。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  kirimori  
+##### 4708#       发表于 2021-9-13 23:07
+
+
+是我理解有问题吗？恋妈又是创校人又是学生？还是说那照片不是恋妈
+
+
+*****
+
+####  TTAA  
+##### 4709#       发表于 2021-9-13 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738233&amp;ptid=1909972" target="_blank">kirimori 发表于 2021-9-13 23:07</a>
+
+是我理解有问题吗？恋妈又是创校人又是学生？还是说那照片不是恋妈</blockquote>
+结丘前身学校的学生吧。可能最初的学校快无了，恋妈拯救了这个学校建立结丘，然后可可她们是第一届
+
+
+*****
+
+####  fatimagg01  
+##### 4710#       发表于 2021-9-13 23:21
+
+
+这5个三次元贴贴居然不是wifi信号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
