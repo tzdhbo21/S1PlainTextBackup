@@ -1730,3 +1730,14 @@ Switch要考虑有Switch Lite存在，不可能弄成Switch专属的特异性游
 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  soranoguiji  
+##### 141#       发表于 2021-9-13 07:57
+
+
+买都买了还是打完了单人，佩妮的锁人物+喷水反作用力双重解法+神bgm还是让我满意的，但这代明明最强调人物的结果还没有以前的个人剧情结局，老任是觉得不能当展示机能的护航作就摆烂是吧
+
+

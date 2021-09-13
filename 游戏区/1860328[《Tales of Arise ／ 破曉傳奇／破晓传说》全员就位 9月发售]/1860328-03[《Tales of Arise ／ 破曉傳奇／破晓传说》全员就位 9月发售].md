@@ -16829,3 +16829,35 @@ no
 然后就，还有CP发糖
 
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4394#       发表于 2021-9-13 08:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728108&amp;ptid=1860328" target="_blank">魂淡放我出去 发表于 2021-9-13 07:32</a>
+打到第五章开头，琳薇儿第一句话就把我整笑了
+小姑娘你这阴阳怪气跟谁学的，虽然我确实被打到触发一血保护 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太过巨魔我还以为是什么对抗心魔的场景
+
+
+*****
+
+####  盖·福克斯  
+##### 4395#       发表于 2021-9-13 08:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52727644&amp;ptid=1860328" target="_blank">Bani82 发表于 2021-9-13 02:05</a>
+
+第四章那段有那么差么？完全感觉不出来啊
+
+其实之前铺垫不是做得还可以么，那群暴民给林薇儿那边做了对比了
+
+ ...</blockquote>
+哪有什么暴民？
+
+我只看到一群受害者因为战犯要被处死而拍手称快。
+
+
