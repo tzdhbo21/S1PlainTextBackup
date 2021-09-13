@@ -1047,3 +1047,233 @@ This is a mod from Filip Victor, not Valve related.
 标题下面都直接写了，这是mod授权转正，不是官方作品。
 
 
+
+
+*****
+
+####  尘落樱飞  
+##### 93#       发表于 2021-9-13 22:27
+
+
+3要上的话求求你任把2也放上来吧，让更多玩家能玩到123
+
+
+*****
+
+####  SICP  
+##### 94#       发表于 2021-9-13 22:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737833&amp;ptid=2026252" target="_blank">frankCC 发表于 2021-9-13 22:27</a>
+
+This is a mod from Filip Victor, not Valve related.
+
+标题下面都直接写了，这是mod授权转正，不是官方 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我点了过去是Twitter的发言，但是Last Record Update又是最近，害我白激动了
+
+
+*****
+
+####  liliguo1  
+##### 95#       发表于 2021-9-13 22:30
+
+
+最新进展，Nvidia那个数据库端口直接当掉了连不上，要么是紧急处理要么是连的人太多了，要么是我本地的问题（不像是）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+网址在此 [https://games.geforce.com/graphql](https://games.geforce.com/graphql)
+
+有兴趣的等恢复了可以进去试试
+
+
+*****
+
+####  emmerMK2  
+##### 96#       发表于 2021-9-13 22:31
+
+
+FF9R？？
+
+
+*****
+
+####  Fuero  
+##### 97#       发表于 2021-9-13 22:33
+
+
+草，gt7都搬？
+
+
+*****
+
+####  masterkeaton  
+##### 98#       发表于 2021-9-13 22:37
+
+
+ff9re。。。这个可够重磅了
+
+
+*****
+
+####  Luminous脑壳痛  
+##### 99#       发表于 2021-9-13 22:37
+
+
+ff9那个remake不是去年还是前年早就有舅舅说过了吗，最近要出动画我还以为没有了呢，还是可信的
+
+
+*****
+
+####  s32244153  
+##### 100#       发表于 2021-9-13 22:39
+
+
+[https://gist.github.com/xPaw/6a42aafd3c9d19b3ceab2e90b5a37cd2](https://gist.github.com/xPaw/6a42aafd3c9d19b3ceab2e90b5a37cd2)
+
+这才是真正的大消息吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202109/13/223847afj9k9a9ye0dtzf4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2481.jpg</strong> (51.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 22:38 上传
+
+
+*****
+
+####  若槻镜  
+##### 101#       发表于 2021-9-13 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737338&amp;ptid=2026252" target="_blank">科本学士 发表于 2021-9-13 21:39</a>
+
+Half-Life 2 Remastered ？v社这什么意思</blockquote>
+看到这儿我大声笑出来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sontag  
+##### 102#       发表于 2021-9-13 22:41
+
+
+风暴英雄2   风暴要火！
+
+
+*****
+
+####  FLZB  
+##### 103#       发表于 2021-9-13 22:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737818&amp;ptid=2026252" target="_blank">SICP 发表于 2021-9-13 22:25</a>
+
+这个图片是真的不是P的？</blockquote>
+图当然是用p的，东西也是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+这个Remastered Collection是Half-Life 2: Update作者的新作，之前已经公布过了，据说是直接把引擎更新到了CSGO的版本。另外开发跟valve没关系，半条命的ip属于你喜欢就可以找他拿来用（甚至可以直接拿他们的游戏来折腾）。
+
+
+*****
+
+####  躺倒之龙  
+##### 104#       发表于 2021-9-13 22:43
+
+
+不是，MH6？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+哪个是5，哪个是6？
+
+
+*****
+
+####  SICP  
+##### 105#       发表于 2021-9-13 22:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737981&amp;ptid=2026252" target="_blank">FLZB 发表于 2021-9-13 22:42</a>
+
+图当然是用p的，东西也是真的
+
+
+这个Remastered Collection是Half-Life 2: Update作者的新作，之前 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">好耶，希望能比BioShock Remaster Edition还要好
+
+
+*****
+
+####  masterkeaton  
+##### 106#       发表于 2021-9-13 22:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737930&amp;ptid=2026252" target="_blank">Luminous脑壳痛 发表于 2021-9-13 22:37</a>
+
+ff9那个remake不是去年还是前年早就有舅舅说过了吗，最近要出动画我还以为没有了呢，还是可信的 ...</blockquote>
+要是出的话倒是理解为什么se会再发型老作品了。系列最强两款重制化，se要重新成为jrpg帝国
+
+
+*****
+
+####  luozicheng  
+##### 107#       发表于 2021-9-13 22:45
+
+
+Chrono Cross Remaster
+
+FF7 Remake
+
+FF9 Remake
+
+FF Tactics remaster
+
+DQ3
+
+你se是专业考古的吗
+
+
+*****
+
+####  dumplingpro  
+##### 108#       发表于 2021-9-13 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737818&amp;ptid=2026252" target="_blank">SICP 发表于 2021-9-13 22:25</a>
+
+这个图片是真的不是P的？</blockquote>
+重制版是玩家社区自己长出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Guildenstern  
+##### 109#       发表于 2021-9-13 22:46
+
+
+注意这个数据库里的游戏有些可能是很老的，已经被取消的游戏。比如白金的龙鳞化身。
+
+
+*****
+
+####  任天索尼子  
+##### 110#       发表于 2021-9-13 22:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737993&amp;ptid=2026252" target="_blank">躺倒之龙 发表于 2021-9-13 22:43</a>
+
+不是，MH6？
+
+哪个是5，哪个是6？</blockquote>
+MHW代号就是MH5，次世代新作代号MH6，RISE代号SNOW。
+
+
+*****
+
+####  mjzs07  
+##### 111#       发表于 2021-9-13 22:49
+
+
+这堆都不如血源啊 难度真的销量太低索尼连跨都觉得亏？
+
+

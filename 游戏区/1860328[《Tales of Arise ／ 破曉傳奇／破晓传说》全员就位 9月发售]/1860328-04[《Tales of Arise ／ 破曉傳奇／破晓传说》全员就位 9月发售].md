@@ -1501,3 +1501,45 @@ Dlc很恶心。
 玩了这么多年传说，首次觉得打击感差的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  BigLittle1999  
+##### 4612#       发表于 2021-9-13 22:37
+
+
+刚打完火之领主，有不剧透的给说说怎么样才能不漏320个小剧场吗，流程中一有R1就按行吗，还是必须在某些剧情节点前反复跑图触发某些条件才行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  alucardcz  
+##### 4613#       发表于 2021-9-13 22:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这走几步就到一个新城市好怪啊。。你们原来住的都这么近？
+
+
+*****
+
+####  红魔馆的糖  
+##### 4614#       发表于 2021-9-13 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737933&amp;ptid=1860328" target="_blank">BigLittle1999 发表于 2021-9-13 22:37</a>
+刚打完火之领主，有不剧透的给说说怎么样才能不漏320个小剧场吗，流程中一有R1就按行吗，还是必须在某些剧 ...</blockquote>
+休息的时候可以观看所有的
+
+
+*****
+
+####  红魔馆的糖  
+##### 4615#       发表于 2021-9-13 22:44
+
+
+小姑娘的无限激光炮真是强到批爆啊，困难黑龙乱入直接乱宰
+
+

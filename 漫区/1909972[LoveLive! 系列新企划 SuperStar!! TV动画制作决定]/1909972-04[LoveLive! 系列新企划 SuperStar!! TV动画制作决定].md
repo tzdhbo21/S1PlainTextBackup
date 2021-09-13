@@ -2491,3 +2491,32 @@ ksks吃瘪基本都有人撒娇，而且本身也是团宠定位。第七集也�
 这样的话是不是可以考虑将整个选拔就做成一个选秀企划，从海选就开始培养一个个LL偶像，让粉丝从从最开始就伴随自己推的小姐姐一步步看着她走上明星道路（国内不让搞选秀搞偶像养成我居然想着11区去搞这些我是不是疯了？）
 
 
+
+
+*****
+
+####  Piano-Forest  
+##### 4700#       发表于 2021-9-13 22:29
+
+
+[https://twitter.com/Lyytoaoitori/status/1437352466740301826](https://twitter.com/Lyytoaoitori/status/1437352466740301826)
+<img src="https://p.sda1.dev/2/2ade46584c75676c8a7aaf26297b328b/20210913_222716.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/4da8281922784f7a7f0f682e985580da/20210913_222718.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/kgproject2/status/1437367101753159681](https://twitter.com/kgproject2/status/1437367101753159681)
+<img src="https://p.sda1.dev/2/c31eb4b6128108be0154abf485fe77d7/20210913_222725.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CharlieZ-  
+##### 4701#       发表于 2021-9-13 22:38
+
+
+ 本帖最后由 CharlieZ- 于 2021-9-13 22:39 编辑 
+
+逛了下ll吧和战吧，大家都在争吵这集堇的遭遇，恋反而没多少人讨论，推特上画可堇的一夜跑光，b站还有堇厨破大防发视频怒喷的
+
+谢谢你，花田<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
