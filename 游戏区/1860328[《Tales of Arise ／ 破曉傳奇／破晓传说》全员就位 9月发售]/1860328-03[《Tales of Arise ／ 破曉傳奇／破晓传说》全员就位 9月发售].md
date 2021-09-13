@@ -17790,3 +17790,17 @@ ai不是进作战就能设置么，demo就有，简化版狒狒12那种加词条
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">小法师打完第五章还在嘴臭/阴阳怪气雷纳人，我是没见过这么不合拍的队友，您老消停点吧
 
 
+
+
+*****
+
+####  soranoguiji  
+##### 4470#       发表于 2021-9-13 12:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730949&amp;ptid=1860328" target="_blank">Errey 发表于 2021-9-13 12:00</a>
+
+小法师打完第五章还在嘴臭/阴阳怪气雷纳人，我是没见过这么不合拍的队友，您老消停点吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 往前翻了下小法师和男拳的大概，我很庆幸来你楼看看，还好男女主还是很王道的剧情
+
+
