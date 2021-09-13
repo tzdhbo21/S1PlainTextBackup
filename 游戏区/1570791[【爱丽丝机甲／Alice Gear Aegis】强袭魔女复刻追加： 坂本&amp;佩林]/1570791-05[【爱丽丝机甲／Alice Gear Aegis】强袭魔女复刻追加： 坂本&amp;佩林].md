@@ -37,3 +37,16 @@
 [https://colopl.co.jp/alicegearaegis/special/craft.php](https://colopl.co.jp/alicegearaegis/special/craft.php)
 
 
+
+
+*****
+
+####  wilkyway  
+##### 6004#       发表于 2021-9-13 20:43
+
+
+最后一天补了50连哈哈哈+2顺便歪了一个偶像一个素组还是没拿到佩里犬
+
+双拼是坏文明<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
+
+

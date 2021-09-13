@@ -2379,3 +2379,33 @@ ksks吃瘪基本都有人撒娇，而且本身也是团宠定位。第七集也�
 记得上次民警的闪光点还是插电线<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  AlfredXC  
+##### 4694#       发表于 2021-9-13 20:57
+
+
+[9/25（土）発売「B.L.T.11月号」にLiella!が初登場！](https://www.lovelive-anime.jp/yuigaoka/news/?id=8330)
+
+<img src="https://img.saraba1st.com/forum/202109/13/205729xiiic0nzuhd1hcad.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E_KokG5VUAUdkGX-orig.jpg</strong> (169.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 20:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202109/13/205728jz1q7xyz1yd91zq5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E_KouF4VcAI-yi2-orig.jpg</strong> (256.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 20:57 上传
+
+

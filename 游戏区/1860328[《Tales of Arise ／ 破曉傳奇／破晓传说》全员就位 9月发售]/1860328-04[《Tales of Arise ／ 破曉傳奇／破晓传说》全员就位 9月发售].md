@@ -1269,3 +1269,59 @@ Dlc很恶心。
 反正结局处我真的觉得编剧和男主在犯罪。
 
 
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4593#       发表于 2021-9-13 20:47
+
+
+ 本帖最后由 mqnwbeebwnqm 于 2021-9-13 20:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736737&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-13 20:39</a>
+这和年纪有什么关系　前段时间复习了次ｔｏａ（深渊）我依然觉得剧情很不错啊 ...</blockquote>
+我是好久没从王道作里获得刺激感了，久了也就学会欣赏好的部分自动忽略坏的部分，跟美少女谈谈恋爱就挺开心的。毕竟任你r星吹上天我就是对美国的黑帮和西部时代一点兴趣都没有，不得不接受jrpg的全部
+
+
+*****
+
+####  reficul  
+##### 4594#       发表于 2021-9-13 20:51
+
+
+第三章打完出城，走到路中间看到有人倒在路边，心想要进剧情了，果不其然人物开始自动走起来.....然后左拐开始钓鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+你们是故意的吧
+
+
+*****
+
+####  中泽君  
+##### 4595#       发表于 2021-9-13 20:53
+
+
+通关了的各位，你们战斗中主动跳跃有用50次吗？把跳跃做成一个技能，圆圈自由分配多好
+
+
+*****
+
+####  laoz  
+##### 4596#       发表于 2021-9-13 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736878&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-9-13 20:53</a>
+
+通关了的各位，你们战斗中主动跳跃有用50次吗？把跳跃做成一个技能，圆圈自由分配多好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我到现在都不知道二段跳拿来干嘛
+
+
+*****
+
+####  julia黑  
+##### 4597#       发表于 2021-9-13 21:04
+
+
+第四章这个剧情，真是麻中麻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
