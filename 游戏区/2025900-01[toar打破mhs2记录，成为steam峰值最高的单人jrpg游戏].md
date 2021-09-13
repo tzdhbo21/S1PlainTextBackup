@@ -966,3 +966,18 @@ P4G在20年时还有这个卖相才是震惊我，我12年在宝石V上想重温
 因为这游戏几乎同时（差一天）多平台，很多原本主机用户转steam吧
 
 
+
+
+*****
+
+####  医生狼多  
+##### 84#         楼主| 发表于 2021-9-13 13:14
+
+
+ 本帖最后由 医生狼多 于 2021-9-13 13:18 编辑 
+
+破6w了<img src="https://p.sda1.dev/2/bd85da7c228d2da908d04bbd904255dc/1631510000770.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
