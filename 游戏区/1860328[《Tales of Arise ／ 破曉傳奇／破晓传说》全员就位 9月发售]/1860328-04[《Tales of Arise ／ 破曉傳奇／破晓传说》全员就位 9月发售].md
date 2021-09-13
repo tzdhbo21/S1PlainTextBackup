@@ -2453,3 +2453,60 @@ AI 比玩家多一层闪避光环，受控法师输出稳定安全，攒一波 B
 传说以前也有这么多换皮小怪吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  squaresfc  
+##### 4688#       发表于 2021-9-14 07:37
+
+
+ 本帖最后由 squaresfc 于 2021-9-14 07:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737295&amp;ptid=1860328" target="_blank">Errey 发表于 2021-9-13 21:36</a>
+
+强词夺理，角色有仇是她想报仇，阻止别人报仇的人的想法是我觉得报仇就毁了人生，只有臆想没有佐证
+
+谁才 ...</blockquote>
+“只有臆想没有佐证”？很多事没做之前就是这样，这种事情没有什么证据之说，只有想法之说，如果只有推测没有证据的事情不让做，那世界上50%的事情都不能做了，各种物理化学法则在被证明之前都不能做实验了，真是搞笑得要死。你不让别人有这想法，要禁锢别人的思想，你问谁才是极端？你就是极端。
+
+
+*****
+
+####  森兰丸  
+##### 4689#       发表于 2021-9-14 07:41
+
+
+全程HARD现在刚打到换OP了.......用时27小时.....全程支线一个没漏....フクロウ也是全收集
+
+
+谁能告诉我进度还剩多少....我怎么感觉快结束了.....看了下フクロウ收集攻略之后好像都没新区域地图了？
+
+
+已经没新的フクロウ可以收集了....剩下的要等通关后
+
+
+*****
+
+####  rgauss  
+##### 4690#       发表于 2021-9-14 07:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739975&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-14 07:41</a>
+全程HARD现在刚打到换OP了.......用时27小时.....全程支线一个没漏....フクロウ也是全收集
+
+
+谁能告诉我进度 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还早 除了你本身没探索的外 还有雷聶和雷纳
+
+
+*****
+
+####  rgauss  
+##### 4691#       发表于 2021-9-14 07:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739580&amp;ptid=1860328" target="_blank">江口夕 发表于 2021-9-14 03:08</a>
+男主用到最后就是轰霸斩和魔神剑，除了狼和鸟能轻松挑起来空连其他的真就稳如泰山。一顿操作猛如虎完了不如 ...</blockquote>
+轰霸战前摇太长了
+
+
