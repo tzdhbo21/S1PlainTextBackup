@@ -2262,3 +2262,27 @@ TOZ之后这个系列不死就是赚了，虽然游戏越做越烂没办法了 .
 好累<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lucky95  
+##### 4673#       发表于 2021-9-14 02:11
+
+
+前面还手撕麻婆，后面遇到高六级的龙就团灭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  32767  
+##### 4674#       发表于 2021-9-14 02:24
+
+
+打完第三章，感觉精英怪打着还是挺快乐的，比如平原乱入的那个龙，男主女主法爷都可以打断动作，感觉有互动性，就挺好玩。
+
+
+剧情BOSS第一章还觉得挺不错，boss攻击大开大合，直回的紧张感和爽快感很够，结果很明显给了我对这游戏boss战错误的期待。
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">到了麻婆和阿周那，感觉就是我撸我的木桩，你读你的大招，带上抗性饰品，复活药和CP药堆死。参战人数多了特效一多根本看不清这种人形boss的动作还直回直防个屁。
+
+

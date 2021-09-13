@@ -2798,3 +2798,14 @@ GAL主角香音
 六七话还没看，但是看现各路论坛讨的论内容，恋难道是要复刻如月千早？可这俩片儿基调完全不一样啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 4725#       发表于 2021-9-14 02:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恋入团之后可可要香音恋恋两头舔了，还有空管民警吗，感觉cp人要爆炸
+
+
