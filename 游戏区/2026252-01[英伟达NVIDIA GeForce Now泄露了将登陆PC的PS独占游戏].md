@@ -1481,3 +1481,35 @@ mons
 卧槽这榜单也太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，我超，只能说希望是真的好吧，这太梦幻了。
 
 
+
+
+*****
+
+####  clover293  
+##### 130#       发表于 2021-9-13 23:47
+
+
+这个名单估计是真的，但关键是se头头知道kh4啥时候发售嘛。。
+
+
+*****
+
+####  JudgmentEye  
+##### 131#       发表于 2021-9-13 23:48
+
+
+确定不是根据检测的游戏标题自动调整串流参数的数据库？
+
+
+*****
+
+####  liliguo1  
+##### 132#       发表于 2021-9-13 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738325&amp;ptid=2026252" target="_blank">凶手 发表于 2021-9-13 23:16</a>
+
+graphql喷了 要不然要啥有啥呢233</blockquote>
+草台论草台论<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+

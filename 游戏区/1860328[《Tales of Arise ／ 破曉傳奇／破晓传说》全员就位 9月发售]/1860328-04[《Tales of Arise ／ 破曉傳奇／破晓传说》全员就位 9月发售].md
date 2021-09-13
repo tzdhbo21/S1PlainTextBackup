@@ -1784,3 +1784,134 @@ Dlc很恶心。
 地之国宫殿里那么多房间，全要切，既然内存能塞得下外面都城，这个宫殿同层的房间无缝进入应该不难吧。人法老控比你穷但也比你上进<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  lucky95  
+##### 4637#       发表于 2021-9-13 23:48
+
+
+次级难度
+
+全队18级
+
+金手指武器到雪国结尾没啥用了
+
+
+麻婆随便过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+分身两三下被鲨了
+
+CP确实不够用了，AI都在砸苹果软糖
+
+
+氪金衣服技能盘yyds，一来还给5-6K SP随便点<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+这些和双倍经验金手指一样重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucky95  
+##### 4638#       发表于 2021-9-13 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738575&amp;ptid=1860328" target="_blank">whzfjk 发表于 2021-9-13 23:47</a>
+
+地之国宫殿里那么多房间，全要切，既然内存能塞得下外面都城，这个宫殿同层的房间无缝进入应该不难吧。人法 ...</blockquote>
+游戏富力克：你们以后再黑我看看，报应来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucky95  
+##### 4639#       发表于 2021-9-13 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738560&amp;ptid=1860328" target="_blank">9α 发表于 2021-9-13 23:45</a>
+
+打boss真刮。小怪全靠烧血</blockquote>
+降低难度就好，数值游戏没金手指干嘛要和难度较真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 4640#       发表于 2021-9-14 00:00
+
+
+这作系统感觉就是TOB+TOX，不过细节没调好
+
+觉得林薇儿阴沉的倒是无所谓，第二部OP后就开始活泼了，各种和拳师还有印度人互动
+
+
+*****
+
+####  nekomi  
+##### 4641#       发表于 2021-9-14 00:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736516&amp;ptid=1860328" target="_blank">makar0601 发表于 2021-9-13 20:21</a>
+不喜欢这次人设的是不是极少数派了，to给我印象一直有点吉卜力那种赛璐璐老动画质感的，而且人物穿着都带点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我就是本来因为换代想试试这作传说但是觉得人设怎么都充满既视感般地土（你看阿周那.jpg）而一直犹豫不决，女主马尾大裙子造型（还是粉的）仿佛二十年前的风格
+唯一觉得有点意思的就是琳薇儿
+然后爬了发售后的楼，没然后了。
+
+
+*****
+
+####  金子一马  
+##### 4642#       发表于 2021-9-14 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738639&amp;ptid=1860328" target="_blank">lucky95 发表于 2021-9-13 23:55</a>
+
+降低难度就好，数值游戏没金手指干嘛要和难度较真</blockquote>
+其实蛮好玩的，hard，每次boss都要打个5,6次才能在cp耗完时差不多打死。
+
+
+*****
+
+####  herryk159  
+##### 4643#       发表于 2021-9-14 00:07
+
+
+通了，这动画太拉了，拉低了整体水平<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 4644#       发表于 2021-9-14 00:09
+
+
+从TOX入坑，到现在为止打了不少传说了，确实暂时来说还是TOB综合来说最不错
+
+TOV实在打不下去，最远一次到暗杀**，不过公主真可爱，百合不错，其他队友就...
+
+TOGF，打完了，但是三鹿太多了
+
+TOX，入坑作，战斗系统那块不行
+
+TOX2，总算把战斗系统做好了，剧本其实也好，但是哑巴找猫还钱实在很难受，另外因为是接着TOX所以重复度感觉特别高
+
+TOZ，运气好没玩，哈哈哈哈哈哈，宣传开始就卖腐
+
+TOB，迷宫实在没有迷宫样，其他方面没什么不满的，可能那个装备系统有点迷惑，反正没研究
+
+TOAR，目前来看其实差不多TOX这一档，战斗系统有问题，剧情没太崩
+
+顺便好像TOX2之后开始可用角色都只有6个了，TOV、TOGF可用角色多一点
+
+
+*****
+
+####  Booorunestud  
+##### 4645#       发表于 2021-9-14 00:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这数值确实有大问题吧
+没买dlc困难下水道泥怪我打了俩小时才拿命填过去，虽然我只有15级吧，但怎么做出这种boss的
+
+
