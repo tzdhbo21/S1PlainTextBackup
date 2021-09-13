@@ -894,3 +894,130 @@ tov往前的传说也一堆剧情也不怎么样吧，特别是量产化以后�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第1个boss大开大合没感觉到问题。。打麻婆终于理解到你们说的什么了。。boss这是down之外全程霸体无硬直啊。。
 
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 4565#       发表于 2021-9-13 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736072&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-13 19:36</a>
+打麻婆翻车了。。。第2个神雷怎么破。rush不掉是不是只能降难度了。。
+
+另外麻婆这里的剧情我看不懂了。几个 ...</blockquote>
+我困难难度是把男主血量加满硬吃的<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">不会直接被炸死
+
+
+*****
+
+####  nozomitech  
+##### 4566#       发表于 2021-9-13 19:51
+
+
+最近有事在外地，xsx不在手边所以没法玩，专楼怕剧透不敢翻，好像这次又阴沟里翻船了?看其他帖子有人说剧情太赶，玩法上几个boss战刮痧，按键不适应?
+
+
+所以请大家说说这作到底怎么样？还有不要剧透。。。
+
+
+*****
+
+####  alucardcz  
+##### 4567#       发表于 2021-9-13 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736212&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-13 19:50</a>
+
+我困难难度是把男主血量加满硬吃的不会直接被炸死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这是要硬吃的?mmo玩多了总以为这是叫我rush
+
+
+*****
+
+####  红魔馆的糖  
+##### 4568#       发表于 2021-9-13 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736235&amp;ptid=1860328" target="_blank">nozomitech 发表于 2021-9-13 19:51</a>
+最近有事在外地，xsx不在手边所以没法玩，专楼怕剧透不敢翻，好像这次又阴沟里翻船了?看其他帖子有人说剧情 ...</blockquote>
+我觉得是发售前的期待太高了
+
+结果发现不但想象中的东西都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+反而还把该有的东西设计的很差<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  唯一指定用户名  
+##### 4569#       发表于 2021-9-13 20:00
+
+
+通了，之前就玩了了个tob通关觉得剧情还凑合，破晓感觉剧情拉了不少。
+
+
+*****
+
+####  makar0601  
+##### 4570#       发表于 2021-9-13 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736235&amp;ptid=1860328" target="_blank">nozomitech 发表于 2021-9-13 19:51</a>
+最近有事在外地，xsx不在手边所以没法玩，专楼怕剧透不敢翻，好像这次又阴沟里翻船了?看其他帖子有人说剧情 ...</blockquote>
+战斗剧情都不咋样，连音乐也一般，下水道交响乐齐鸣属实不过脑子
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  ff2077  
+##### 4571#       发表于 2021-9-13 20:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736235&amp;ptid=1860328" target="_blank">nozomitech 发表于 2021-9-13 19:51</a>
+
+最近有事在外地，xsx不在手边所以没法玩，专楼怕剧透不敢翻，好像这次又阴沟里翻船了?看其他帖子有人说剧情 ...</blockquote>
+翻车算不上吧，主要是期待高，媒体还捧，实际玩后发现还是那么回事呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  盖·福克斯  
+##### 4572#       发表于 2021-9-13 20:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736235&amp;ptid=1860328" target="_blank">nozomitech 发表于 2021-9-13 19:51</a>
+最近有事在外地，xsx不在手边所以没法玩，专楼怕剧透不敢翻，好像这次又阴沟里翻船了?看其他帖子有人说剧情 ...</blockquote>
+画面好。
+Dlc很恶心。
+战斗打小怪很爽打boss便秘。
+剧情，特别是结局虽然he但我很想爆粗口。
+打完直接卸游戏，steam给差评然后在库里把这游戏屏蔽。
+这就是我的游戏经历。
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  nozomitech  
+##### 4573#       发表于 2021-9-13 20:07
+
+
+原来如此，感谢大家的回复，大体上有数了，看来我之前的期望也是报太高了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  alucardcz  
+##### 4574#       发表于 2021-9-13 20:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736390&amp;ptid=1860328" target="_blank">nozomitech 发表于 2021-9-13 20:07</a>
+
+原来如此，感谢大家的回复，大体上有数了，看来我之前的期望也是报太高了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然我只打了2个大boss　不然目前体验被ｔｏｂ完爆　除了画面
+
+

@@ -12898,3 +12898,45 @@ mua，<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" refe
 果然评论区的井孝子比连体壬恶心<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  T_Hb  
+##### 2661#       发表于 2021-9-13 19:53
+
+
+ 本帖最后由 T_Hb 于 2021-9-13 20:00 编辑 
+
+又关注了1个MV师，1个插画师，1个8人工作室
+
+这个工作室做L2D，有没有可能是新衣服呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 2662#       发表于 2021-9-13 19:59
+
+
+看来又有新翻唱了
+
+
+*****
+
+####  雪风utopia  
+##### 2663#       发表于 2021-9-13 20:11
+
+
+新衣服？你在做什么梦<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T_Hb  
+##### 2664#       发表于 2021-9-13 20:11
+
+
+做了三年梦了，不能再做吗
+
+
