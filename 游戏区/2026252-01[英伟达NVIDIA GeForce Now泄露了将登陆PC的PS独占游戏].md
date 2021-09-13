@@ -1774,3 +1774,28 @@ Sony: Uncharted: Legacy of Thieves Editio ...</blockquote>
 ttf3过年了~
 
 
+
+
+*****
+
+####  黑夜守望者  
+##### 155#       发表于 2021-9-14 01:51
+
+
+ 本帖最后由 黑夜守望者 于 2021-9-14 01:52 编辑 
+
+为什么atlus上的是新作smt5不是旧作p5<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  masterzx  
+##### 156#       发表于 2021-9-14 01:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739382&amp;ptid=2026252" target="_blank">黑夜守望者 发表于 2021-9-14 01:51</a>
+
+为什么atlus上的是新作smt5不是旧作p5我不信任天堂给的独占钱比索尼给的少 ...</blockquote>
+人家自带干粮独占不可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
