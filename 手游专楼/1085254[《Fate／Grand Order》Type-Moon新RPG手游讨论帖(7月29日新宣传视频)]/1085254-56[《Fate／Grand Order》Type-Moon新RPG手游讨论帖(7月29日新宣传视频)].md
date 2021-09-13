@@ -12995,3 +12995,14 @@ QQ图片20210912170921.jpg
 出现礼装终于满破了，可以挂一下氪金礼装了。看一下终本掉落如何了，如果铜不多的话就回去刷铜材料了。
 
 
+
+
+*****
+
+####  rooarr  
+##### 83601#       发表于 2021-9-14 00:51
+
+
+好像这是我第一次自回体也能跟上主线任务<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

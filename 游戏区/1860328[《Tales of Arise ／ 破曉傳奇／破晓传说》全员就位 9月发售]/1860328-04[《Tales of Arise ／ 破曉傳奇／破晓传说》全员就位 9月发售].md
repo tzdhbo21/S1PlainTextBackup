@@ -2148,3 +2148,31 @@ TOZ之后这个系列不死就是赚了，虽然游戏越做越烂没办法了 .
 连招老是中段，后摇又长，打的难受的要死<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  奈奈未喵  
+##### 4664#       发表于 2021-9-14 00:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738755&amp;ptid=1860328" target="_blank">Booorunestud 发表于 2021-9-14 00:09</a>
+这数值确实有大问题吧
+没买dlc困难下水道泥怪我打了俩小时才拿命填过去，虽然我只有15级吧，但怎么 ...</blockquote>
+这个泥怪第一波小弟别杀光 留一个 它就不会召唤下一波了 困难模式召唤的太勤了 我死了几次发现了这个套路 一下就磨过了
+
+不过我当时队友都躺了 只剩光杆司令 队友都活着也许会猛揍小泥怪 可能留不了活口
+
+
+*****
+
+####  fuochai  
+##### 4665#       发表于 2021-9-14 01:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739108&amp;ptid=1860328" target="_blank">奈奈未喵 发表于 2021-9-14 00:59</a>
+这个泥怪第一波小弟别杀光 留一个 它就不会召唤下一波了 困难模式召唤的太勤了 我死了几次发现了这个套路 ...</blockquote>
+可以给队友指定目标 切换目标时按选人物的键
+键盘操作就是按住alt再按1234选队友 然后A D切换目标 改完要按1234换回原来的角色 不然操作角色就变了
+
+
