@@ -1072,3 +1072,47 @@ P4G在20年时还有这个卖相才是震惊我，我12年在宝石V上想重温
 — from samsung SM-G9700, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
+
+
+*****
+
+####  薛定谔的小猫  
+##### 93#       发表于 2021-9-13 14:51
+
+
+我的860m的小破笔记本是不是没希望带起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenzhi11  
+##### 94#       发表于 2021-9-13 15:04
+
+
+以前传说都可以算年货希望这次能卖好了就加快下一作开发吧
+
+
+*****
+
+####  椎名mahuyo  
+##### 95#       发表于 2021-9-13 15:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732838&amp;ptid=2025900" target="_blank">薛定谔的小猫 发表于 2021-9-13 14:51</a>
+
+我的860m的小破笔记本是不是没希望带起来了</blockquote>
+看需求,PC配置要求最低760都行
+
+
+*****
+
+####  faithlifer  
+##### 96#       发表于 2021-9-13 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732838&amp;ptid=2025900" target="_blank">薛定谔的小猫 发表于 2021-9-13 14:51</a>
+
+我的860m的小破笔记本是不是没希望带起来了</blockquote>
+没啥希望，优化并不是太好<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+

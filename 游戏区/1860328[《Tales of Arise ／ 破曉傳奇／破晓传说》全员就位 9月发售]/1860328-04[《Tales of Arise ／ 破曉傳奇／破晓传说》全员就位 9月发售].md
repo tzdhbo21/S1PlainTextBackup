@@ -52,3 +52,38 @@ sp主要靠支线 战斗给的不多
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 4505#       发表于 2021-9-13 14:42
+
+
+唉，玩下来感觉toar各方面还是太小气了，老传说味太重，进步没有想象中大，除了画质其他方面都没什么实质性的突破，相当遗憾
+
+
+*****
+
+####  大哀之君  
+##### 4506#       发表于 2021-9-13 14:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732369&amp;ptid=1860328" target="_blank">捧读小见川 发表于 2021-9-13 14:05</a>
+
+我想知道怎么刷钱</blockquote>
+刷铠甲士兵卖东西。但要注意这种怪一般只在每一章固定阶段出现，打完BOSS就没了，所以要掐点反复刷够了再推剧情
+
+
+*****
+
+####  squaresfc  
+##### 4507#       发表于 2021-9-13 15:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52723959&amp;ptid=1860328" target="_blank">reficul 发表于 2021-9-12 20:01</a>
+
+换下来的武器记得不要卖掉，后面会有改版的武器需要前一个武器作为素材。。。我被坑了 ...</blockquote>
+感谢提醒，还好我没买，昨天差点就忍不住卖掉了……
+
+
