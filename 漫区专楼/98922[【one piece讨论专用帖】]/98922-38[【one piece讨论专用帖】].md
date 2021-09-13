@@ -2440,3 +2440,20 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太真实了
 
 
+
+
+*****
+
+####  古畑任三郎2015  
+##### 55675#       发表于 2021-9-13 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721107&amp;ptid=98922" target="_blank">eflni 发表于 2021-9-12 15:12</a>
+这一段就是大叔在讲述自己对臭名昭著的家族的厌恶，然后可以看到其他人都围在大叔旁边，就山治一个人全程 ...</blockquote>
+这不是n多年前就根据这个推测厨子身世不简单吗…
+然后到了蛋糕岛篇解密
+为啥现在拿出来说
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

@@ -17542,3 +17542,135 @@ ai不是进作战就能设置么，demo就有，简化版狒狒12那种加词条
 整体剧情还行，人物塑造基本在线
 
 
+
+
+*****
+
+####  REDXIII  
+##### 4451#       发表于 2021-9-13 11:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730324&amp;ptid=1860328" target="_blank">yzqray 发表于 2021-9-13 11:18</a>
+
+打到雷纳了，其实就第四章尬，剧情也不是说不过去，这段演出太蠢了
+
+整体剧情还行，人物塑造基本在线 ...</blockquote>
+在我这的话
+
+奥尔芬是除了百合之外最喜欢的男一号
+
+希侬虽然傲娇CP工具人的属性都溢出了。。。但是也还算满讨喜的
+
+
+*****
+
+####  Bani82  
+##### 4452#       发表于 2021-9-13 11:23
+
+
+目前雷点说是2和4
+
+个人觉得2还是可以理解的，大叔那个算是为了就儿子，自己不留下儿子回去肯定要被处理
+
+劫法场那边显然是BOSS故意让人进来的，不过确实你说人都进来了，直接在法场把主角队干了就完了
+
+
+第4章那个最大的问题还是演出太过于用力了，或者说让林薇尔也吃过那个果子就行了
+
+
+另外第3章也有人说不满，但是那边我觉得逻辑什么的都没问题啊
+
+
+*****
+
+####  hallowilliam  
+##### 4453#       发表于 2021-9-13 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52721858&amp;ptid=1860328" target="_blank">Dreki 发表于 2021-9-12 16:18</a>
+
+你可能需要赢在起跑线dlc</blockquote>
+看了下DLC，对这种没啥好感，赢在起跑线没买。买了一个双倍sp，因为感觉sp确实能提升体验。
+
+
+很好奇这游戏的技能为啥不像战神那样给一个演示动画，或者起码数据给齐一点。。。我现在最不明白的就是什么技能性能好。。。。
+
+
+*****
+
+####  AEmpire  
+##### 4454#       发表于 2021-9-13 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728813&amp;ptid=1860328" target="_blank">chris1987 发表于 2021-9-13 09:14</a>
+
+我也遇到这个问题，以前可以设置优先队友激活我选的那个怪的啊，这次是在哪里设置啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我现在都是进战斗之后手动切每一个人改锁定，太麻烦了
+
+
+*****
+
+####  司马千晶  
+##### 4455#       发表于 2021-9-13 11:28
+
+
+三项熟练度有什么用？昨天不小心开了双方造成hp1伤害进去了战斗，抱着熟悉下每个角色连招的心态打了好久，战斗出来后有三个角色从200-1000直升9999了，已知和学技能挂钩。出来后盾妹和棍子解锁了一堆技能。
+
+
+*****
+
+####  猫将军  
+##### 4456#       发表于 2021-9-13 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730461&amp;ptid=1860328" target="_blank">司马千晶 发表于 2021-9-13 11:28</a>
+三项熟练度有什么用？昨天不小心开了双方造成hp1伤害进去了战斗，抱着熟悉下每个角色连招的心态打了好久， ...</blockquote>
+熟练度高威力越高
+
+
+*****
+
+####  无动于衷  
+##### 4457#       发表于 2021-9-13 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730170&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-13 11:07</a>
+
+没有了集火设置的AI真的放飞自我，经常出现只有一只怪（非空中）的时候，我在打，他们在摸鱼的情况 ...</blockquote>
+改换思路 不要人家听你的 要你听人家的 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 4458#       发表于 2021-9-13 11:36
+
+
+现在最厨的招还是试玩版女主的跳箭雨么
+
+有没有打人形比较好用的dps招
+
+昨天困难打分身哥15瓶复活药硬是嗑光了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">感觉dps不够用
+
+
+*****
+
+####  lbzlxx  
+##### 4459#       发表于 2021-9-13 11:37
+
+
+有什么方法能快速刷满好感，出第二招秘奥义吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Bani82  
+##### 4460#       发表于 2021-9-13 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730461&amp;ptid=1860328" target="_blank">司马千晶 发表于 2021-9-13 11:28</a>
+
+三项熟练度有什么用？昨天不小心开了双方造成hp1伤害进去了战斗，抱着熟悉下每个角色连招的心态打了好久， ...</blockquote>
+有没有好的挂机地点，我也想挂机刷一下这个
+
+
