@@ -1810,3 +1810,35 @@ ttf3过年了~
 不信
 
 
+
+
+*****
+
+####  masterzx  
+##### 158#       发表于 2021-9-14 02:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还有这不是不信的问题，是类似于capcomleak这种如何解读的问题，有哪些是占位符，但不是说名单上有哪个不对
+
+
+好比照卡普空说法鬼武者都在开发新作，甚至还有三十多个新作企划
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 159#       发表于 2021-9-14 02:34
+
+
+双十一抢得到显卡吗<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arccueid  
+##### 160#       发表于 2021-9-14 02:40
+
+
+你妈这名单是真的就离大谱了，我不信
+
+

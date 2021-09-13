@@ -2286,3 +2286,61 @@ TOZ之后这个系列不死就是赚了，虽然游戏越做越烂没办法了 .
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">到了麻婆和阿周那，感觉就是我撸我的木桩，你读你的大招，带上抗性饰品，复活药和CP药堆死。参战人数多了特效一多根本看不清这种人形boss的动作还直回直防个屁。
 
 
+
+
+*****
+
+####  Booorunestud  
+##### 4675#       发表于 2021-9-14 02:27
+
+
+ 本帖最后由 Booorunestud 于 2021-9-14 02:31 编辑 
+
+牛批，是真滴牛批，麻婆打了我15个生命瓶10个cp药10个苹果糖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+明天起码买个两倍经验去吧，遭不住了
+
+
+*****
+
+####  JudgmentEye  
+##### 4676#       发表于 2021-9-14 02:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739340&amp;ptid=1860328" target="_blank">古留 发表于 2021-9-14 01:39</a>
+
+有些技能有个方框是啥意思啊？</blockquote>
+奥义
+
+
+*****
+
+####  lucky95  
+##### 4677#       发表于 2021-9-14 02:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739495&amp;ptid=1860328" target="_blank">Booorunestud 发表于 2021-9-14 02:27</a>
+ 牛批，是真滴牛批，麻婆打了我15个生命瓶10个cp药10个苹果糖  明天起码买个两倍经验去吧，遭不住了 ...</blockquote>
+体面点，把难度降了就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lucky95  
+##### 4678#       发表于 2021-9-14 02:48
+
+
+怎么第三张图画风突变，突然经费上线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+伊拉克和雪国是给练手用的还是外包给了暗耻<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjk  
+##### 4679#       发表于 2021-9-14 02:49
+
+
+第三章过了，盾娘的声优是不是没练过哭腔。虽然剧情里也给血谏猛打补丁了，但是气氛真的不到位，建议学习一下肠粉，领将暴走就很都合了。说起来按照齐大叔的金言，这兄妹什么都指望阿周那依然是一种奴隶的表现。
+
+
