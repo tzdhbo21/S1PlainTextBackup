@@ -645,3 +645,70 @@ tob算是被toz拖累了 想圆点东西但也没怎么圆上 后面的坑估计
 —— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  zero12  
+##### 4545#       发表于 2021-9-13 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734549&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-13 17:18</a>
+
+战斗目前体验来说还行 就是不太象传说 感觉有点像so4。</blockquote>
+主要还是boss战技能复读严重，小怪还是连得够爽。
+
+
+*****
+
+####  hkguty  
+##### 4546#       发表于 2021-9-13 17:25
+
+
+还好吧，我刚打完togf来打的toa，感觉起码主角还是挺有领袖风范的，不像前期的阿斯贝尔一样废物，希望剧情不会比tog还差吧……
+
+
+*****
+
+####  火红之眼  
+##### 4547#       发表于 2021-9-13 17:27
+
+
+ 本帖最后由 火红之眼 于 2021-9-13 17:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734504&amp;ptid=1860328" target="_blank">6847651 发表于 2021-9-13 17:14</a>
+
+升级和SP获得非常非常的慢 就是逼你买内购的</blockquote>
+这个真就搞反了，等级有补正还非常大，低级打高级很快追平，高级打低级收益非常低，带两倍导致玩家比敌人高之后实际就没多少收益了
+
+SP主要来源也是做支线，战斗的SP哪怕隐藏迷宫都非常少，不过2倍还是实打实收益就是了
+
+
+个人是没买任何2倍打完的（终盘部分隐藏boss打完实际也是可以开启各种两倍的），没刻意刷过级单纯不回避战斗，打完所有要素也差不多满级了，最后刷了半小时隐藏boss就把SP也点满了
+
+
+*****
+
+####  6847651  
+##### 4548#       发表于 2021-9-13 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734672&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-9-13 17:27</a>
+
+这个真就搞反了，等级有补正还非常大，低级打高级很快追平，高级打低级收益非常低，带两倍导致玩家比敌人 ...</blockquote>
+难道我打太慢了吗 我第四章打的很累
+
+
+*****
+
+####  火红之眼  
+##### 4549#       发表于 2021-9-13 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734704&amp;ptid=1860328" target="_blank">6847651 发表于 2021-9-13 17:30</a>
+
+难道我打太慢了吗 我第四章打的很累</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是这样的....后面都累，等级追平也就差不多了
+
+除非等级和装备都超过当前进度，不然打同水准敌人是很难碾压的，买2倍也就省点追平等级的事，想轻松大概直接买等级更实际
+
+
