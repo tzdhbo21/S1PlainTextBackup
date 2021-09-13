@@ -12836,3 +12836,34 @@ mua，<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" refe
 饭盒500
 
 
+
+
+*****
+
+####  路人庚  
+##### 2655#       发表于 2021-9-13 18:28
+
+
+希望每个社畜有朝一日也能汗阿咩一样每天睡到自然醒（）
+
+
+*****
+
+####  Klience  
+##### 2656#       发表于 2021-9-13 18:33
+
+
+有朝一日（指休息日）
+
+
+*****
+
+####  Cushaw  
+##### 2657#       发表于 2021-9-13 18:39
+
+
+社畜生物钟都定了，休息日也睡不到自然醒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+辞职就行了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+

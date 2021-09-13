@@ -764,3 +764,15 @@ tov往前的传说也一堆剧情也不怎么样吧，特别是量产化以后�
 基本思路还是开局BA打down然后炎技卖血打残一个再尝试BS了，毕竟第一个BS之后剩下的要BS也很简单了
 
 
+
+
+*****
+
+####  kiralzb  
+##### 4554#       发表于 2021-9-13 18:33
+
+
+大概知道为什么自动不会放技能了，因为女主没有浮空技，所以空中技不会自己主动放<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+那么女主究竟能不能学到浮空技呢？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
