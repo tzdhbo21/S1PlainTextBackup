@@ -112,3 +112,101 @@ sp主要靠支线 战斗给的不多
 传说这个真的需要人物指引么...震惊
 
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 4510#       发表于 2021-9-13 15:21
+
+
+钓鱼怎么触发啊，打到第四章都还没有钓鱼的
+
+
+*****
+
+####  Bani82  
+##### 4511#       发表于 2021-9-13 15:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732624&amp;ptid=1860328" target="_blank">古畑任三郎2015 发表于 2021-9-13 14:31</a>
+
+暂时玩到第三章开头
+
+第二章就是典型的jrpg弱智段子集合吧
+
+经典导师角色送头给没头脑不高兴主角刷成 ...</blockquote>
+其实，后面更傻呢
+
+
+*****
+
+####  JudgmentEye  
+##### 4512#       发表于 2021-9-13 15:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52731318&amp;ptid=1860328" target="_blank">a7828986 发表于 2021-9-13 12:29</a>
+
+感觉就是弄了新引擎 工期赶不上 或者能力有限 拿来给员工练手的
+
+每章都是同一种套路 有点腻
+
+希望续作能多点 ...</blockquote>
+和噬血代码同一个内部引擎，都是基于虚幻4的
+
+
+*****
+
+####  ac130-2020  
+##### 4513#       发表于 2021-9-13 15:24
+
+
+<blockquote>引用第4508楼Bani82于2021-09-13 15:19发表的  :
+
+引用:一碗好吃的饭 发表于 2021-9-13 13:52为什么jrpg的任务指引系统这么烂啊，好多......</blockquote>
+需要 我已经搞不清要去哪里好几次了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  kiralzb  
+##### 4514#       发表于 2021-9-13 15:24
+
+
+我开了敌我伤害1想刷一下熟练度，结果发现全自动下，即使自动使用技能都筛选好了，还是不会主动用，像女主角，空中技一个都不会放，只会用魔法，魔法都关就一直平a，怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ac130-2020  
+##### 4515#       发表于 2021-9-13 15:25
+
+
+<blockquote>引用第4493楼Booorunestud于2021-09-13 14:04发表的  :
+
+怕被剧透闭着眼睛进来问问，目前才困难难度小法师刚入队可操作。感觉升级和获取sp的速度太慢了？是不是数......</blockquote>
+我普通难度买了两个加成dlc都不太够勉强。
+尤其sp 关键这支线味同嚼蜡 做了几个就不像做了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  Total_Lau  
+##### 4516#       发表于 2021-9-13 15:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733237&amp;ptid=1860328" target="_blank">ac130-2020 发表于 2021-9-13 15:24</a>
+
+需要 我已经搞不清要去哪里好几次了
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+不知道去哪 就回地图列表找星号
+
+

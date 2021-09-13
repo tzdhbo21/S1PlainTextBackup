@@ -1165,3 +1165,37 @@ P4G在20年时还有这个卖相才是震惊我，我12年在宝石V上想重温
 所以这才是槽点，跑起来显卡占用率很高快跑满了，然后频率基本在1000mhz左右浮动，60稳不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  bluebaby  
+##### 100#       发表于 2021-9-13 15:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733094&amp;ptid=2025900" target="_blank">林无德 发表于 2021-9-13 15:13</a>
+你是指不让报仇那段嘛？
+
+
+可能我看这种老套日式剧情太多习惯了，我竟觉得傻逼度只有“就这？”</blockquote>
+那后面没有了，反正我对剧情的不满主要是每一章太短了。第二章缺少和背刺哥相处的内容以及洛的转变，第三章缺少展现两个种族和平相处的任务，第四章缺少展现领王残忍和之后城镇居民变的狂热的剧情，完全可以让主角团赶上解放战的最后再接原本的剧情。
+
+
+*****
+
+####  林无德  
+##### 101#       发表于 2021-9-13 15:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733327&amp;ptid=2025900" target="_blank">bluebaby 发表于 2021-9-13 15:31</a>
+
+那后面没有了，反正我对剧情的不满主要是每一章太短了。第二章缺少和背刺哥相处的内容以及洛的转变，第三 ...</blockquote>
+遗憾，只能到“就这”程度了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+这一代剧情的确是赶，除了主角团和大叔之外的人物全是工具人，急匆匆登场急匆匆下场，第三章的哥哥出场就是为了死，我都错愕了一下
+
+
+支线除了诗人和美食家大爷之外也是千篇一律，制作组看来根本顾不上做
+
+
