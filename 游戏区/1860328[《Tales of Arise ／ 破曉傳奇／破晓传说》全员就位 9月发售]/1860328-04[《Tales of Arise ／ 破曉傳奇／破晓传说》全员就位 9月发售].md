@@ -478,3 +478,41 @@ Z吃屎，B也不爽，隔了5年来个圆满的大团圆结局我很高兴倒�
 等之后的作品吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  塔奇克马  
+##### 4533#       发表于 2021-9-13 16:54
+
+
+法师吟唱加速是不是一直回避就能保持啊?
+
+比如吟唱两个小的,之后一直回避吟唱第三个还算的?
+
+
+*****
+
+####  中泽君  
+##### 4534#       发表于 2021-9-13 16:56
+
+
+如果破晓只做了两年还没这么失望，大不了等下一作，结果5年就这
+
+还担心以后开发思路的改变，起码破晓BOSS战已经不重视连招
+
+
+*****
+
+####  索田八公  
+##### 4535#       发表于 2021-9-13 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734225&amp;ptid=1860328" target="_blank">REDXIII 发表于 2021-09-13 16:51:06</a>
+不像倒不至于，简化系统有利有弊，去年还是前年TOV终极版一堆人还玩不懂战斗系统呢
+
+这次更好上手，除了BO ...</blockquote>主要还是内容相比前作还是太少了，不过新引擎第一作还稍微能理解，期待以后的作品吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
