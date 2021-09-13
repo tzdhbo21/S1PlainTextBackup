@@ -2774,3 +2774,27 @@ GAL主角香音
 我看有人说可可怼民警的那句类似“掂量下自己几斤几两”的话在日语里是很不礼貌的说法，有日语大手子解释下这话有多严重吗，直译成中文不会是带脏话那种的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  saglork  
+##### 4723#       发表于 2021-9-14 01:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739037&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-14 00:47</a>
+我看有人说可可怼民警的那句类似“掂量下自己几斤几两”的话在日语里是很不礼貌的说法，有日语大手子解释下 ...</blockquote>
+懒得再看一遍了，没记错大概是身の程をわきまえろです，脏话不至于，但确实是很不客气的说法了，从另一个方面说反而是关系好的体现，说话设什么顾忌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+可堇的问题其实不大，现在观感微妙主要是太单方面吃瘪，这种欢喜冤家的经典设定，必须是两边轮流装傻对面吐槽，在不同的事上互有胜负又针锋相对，才会有那种典型的喜剧感和宿命感，所以类似前两话手指相扑和可可的碳分子料理剧情，有可可和堇轮流吃瘪，观感就会提升，这个其实不难找平衡，花田不至于搞不明白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Skyline_R  
+##### 4724#       发表于 2021-9-14 01:24
+
+
+六七话还没看，但是看现各路论坛讨的论内容，恋难道是要复刻如月千早？可这俩片儿基调完全不一样啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+

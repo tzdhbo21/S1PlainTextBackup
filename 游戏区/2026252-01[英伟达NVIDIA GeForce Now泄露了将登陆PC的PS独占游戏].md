@@ -1688,3 +1688,39 @@ GeForce NOW是云游戏吧
 列表这么梦幻了甚至都不愿意加个血缘吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  dorime  
+##### 149#       发表于 2021-9-14 01:19
+
+
+ 本帖最后由 dorime 于 2021-9-14 01:23 编辑 
+
+转个Reddit整理的名单，索尼系的游戏可能仅仅只是上PS now，
+
+但战神明确标了个steam版。
+
+<img src="https://img.saraba1st.com/forum/202109/14/011513rs0cqa41xv10c60z.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (494.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 01:15 上传
+
+
+*****
+
+####  riin  
+##### 150#       发表于 2021-9-14 01:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737865&amp;ptid=2026252" target="_blank">liliguo1 发表于 2021-9-13 22:30</a>
+
+最新进展，Nvidia那个数据库端口直接当掉了连不上，要么是紧急处理要么是连的人太多了，要么是我本地的问题 ...</blockquote>
+这种接口都能对外开放，nvidia也太草台了
+
+
