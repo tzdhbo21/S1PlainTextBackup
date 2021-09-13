@@ -1984,3 +1984,58 @@ ksks这种在队里连领队的雪菜都会认真考虑她意见反省自身的�
 虽然本来也挺怪的 这悄悄地上了时间表又悄悄地撤下来
 
 
+
+
+*****
+
+####  Uгd  
+##### 4662#       发表于 2021-9-13 12:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52731452&amp;ptid=1909972" target="_blank">D麦林 发表于 2021-9-13 12:39</a>
+
+可是原定时间是周五啊
+
+倒是周六的那一堆也没变过
+
+这下又成迷了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这下感觉真的像和禁止偶像节目扯上关系了
+
+
+*****
+
+####  kata魂  
+##### 4663#       发表于 2021-9-13 12:50
+
+
+没想到可可这个角色没死于国籍要死在花田手上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒风夜  
+##### 4664#       发表于 2021-9-13 12:54
+
+
+谜i
+
+
+*****
+
+####  whzfjk  
+##### 4665#       发表于 2021-9-13 13:09
+
+
+缓和一点的版本：
+
+会长他妈是音乐科创始人或者名人
+
+会长想续音乐课，甚至不惜割普通科韭菜
+
+但最终音乐科被经营苦难的学校给卖了还钱
+
+痛定思痛，会长发现自己也没多么喜欢音乐科，**方方 love live 了
+
+多年后，星团的粉丝和普通科某一届学生之间爆发了日益持久的嘴仗
+
+
