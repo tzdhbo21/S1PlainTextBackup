@@ -21483,3 +21483,55 @@ Ame会限那个截图应该是真的?
 HoloMyth最强 HoloMyth最强！
 
 
+
+
+*****
+
+####  smy20011  
+##### 1365#         楼主| 发表于 2021-9-13 10:14
+
+
+<img src="https://img.saraba1st.com/forum/202109/13/101453oglk5ghtjnzo8kkh.png" referrerpolicy="no-referrer">
+
+
+<strong>1631499068306.png</strong> (30.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 10:14 上传
+
+
+*****
+
+####  wuzhengkai  
+##### 1366#       发表于 2021-9-13 10:20
+
+
+#AmeBeliever
+
+
+*****
+
+####  ImagOust  
+##### 1367#       发表于 2021-9-13 10:37
+
+
+Ame 真是直播天才，一次在疫情下的 3D 联动，从场景布置到节目编排，盖了帽儿了！
+
+
+*****
+
+####  smy20011  
+##### 1368#         楼主| 发表于 2021-9-13 10:43
+
+
+<img src="https://img.saraba1st.com/forum/202109/13/104311jguahoo7qxz7ehe1.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot 2021-09-12 19.42.54.png</strong> (11.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 10:43 上传
+
+

@@ -1716,3 +1716,47 @@ ll就不能把live放在ed么？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候肯定是4人一起追机啊，说真的这季度就12集，真的有空间写可可吗
 
 
+
+
+*****
+
+####  没有爱就看不见  
+##### 4641#       发表于 2021-9-13 10:04
+
+
+恋入队→合宿→发生了让某人想要退队的事件→事件解决→大家一起lovelive→学校拯救达成
+
+脱不了这个框，就看那个事件给谁了
+
+
+*****
+
+####  凡人  
+##### 4642#       发表于 2021-9-13 10:28
+
+
+截图这事真的越想越重，香音在那段视频里出现了有一秒吗？本来我是不觉得可可会成重女的，但花田这伏笔已经埋了连续三回了
+
+
+*****
+
+####  寒风夜  
+##### 4643#       发表于 2021-9-13 10:38
+
+
+过 了 
+
+
+*****
+
+####  普之舜舜  
+##### 4644#       发表于 2021-9-13 10:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52729180&amp;ptid=1909972" target="_blank">达达葱2 发表于 2021-9-13 09:43</a>
+吵什么</blockquote>
+吵花田对于民警的迫害程度，还有就是对于废校传统的吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">都吵了500多层楼了，你看前面回复就知道了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

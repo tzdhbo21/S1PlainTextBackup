@@ -17274,3 +17274,72 @@ VOL状态也不好控制，打击感略差，希望下次能够改进手感和BO
 我前面火剑开得少 连段打得多 到第五章就很不适应 增幅没了火都砍不倒敌人 虽然不卖血了
 
 
+
+
+*****
+
+####  misaki_d  
+##### 4428#       发表于 2021-9-13 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52729526&amp;ptid=1860328" target="_blank">AEmpire 发表于 2021-9-13 10:13</a>
+
+之前火剑大力出奇迹用惯了，到第五章把火剑没收之后才开窍。原来男主的术技性能这么强，打连段非常容易，经 ...</blockquote>
+那个连击槽在高血量的时候涨得很慢的
+
+
+*****
+
+####  幽香  
+##### 4429#       发表于 2021-9-13 10:22
+
+
+所以这一作精灵的定位是什么？都变成敌人了？从TOZ TOB那种把精灵定义成量产合体就很不满，所以传说是要逐渐把精灵排除了嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Errey  
+##### 4430#       发表于 2021-9-13 10:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728689&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-13 09:04</a>
+
+基本上就是jrpg固有逻辑，可以在战斗中打死人但是不能怀着杀意憎恨等负面感情去战斗
+
+虽然编排得不咋地但 ...</blockquote>
+老套路，什么复仇化身没有未来，复仇完了就好好过活呗，有什么想不想的，本应该是反玉碎成了反复仇
+
+
+*****
+
+####  zqqwe  
+##### 4431#       发表于 2021-9-13 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52729626&amp;ptid=1860328" target="_blank">幽香 发表于 2021-9-13 10:22</a>
+所以这一作精灵的定位是什么？都变成敌人了？从TOZ TOB那种把精灵定义成量产合体就很不满，所以传说是要逐 ...</blockquote>
+为啥这么执着四大，又不是每作都有
+
+
+*****
+
+####  aaronluray  
+##### 4432#       发表于 2021-9-13 10:29
+
+
+”队友嘴炮的时候boss将队友从背后捅死“是我最想看到的剧情了，弱智嘴炮就只配这么死。当然jrpg里这辈子我应该都看不到这种剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  幽香  
+##### 4433#       发表于 2021-9-13 10:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52729718&amp;ptid=1860328" target="_blank">zqqwe 发表于 2021-9-13 10:28</a>
+
+为啥这么执着四大，又不是每作都有</blockquote>
+因为从tov开始的新作就没断过啊，本来也算传说一大特色
+
+
