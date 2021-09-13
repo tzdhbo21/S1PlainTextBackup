@@ -1760,3 +1760,66 @@ ll就不能把live放在ed么？
 —— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  chenflyyy  
+##### 4645#       发表于 2021-9-13 10:46
+
+
+这集吵得比上集还凶是没想到的，主要集中于堇的塑造问题，看生放的时候明明观感还行来着，可能我不是堇推的缘故，但后来细想确实这方面问题太多了
+废校因为老梗也是一个极具争议的点，但我倒是觉得还行，当然现在说还行还太早，得看后面花田能不能圆回来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D麦林  
+##### 4646#       发表于 2021-9-13 10:56
+
+
+难道只有我一个人看了这集感觉乐观的不得了的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我觉得这次花田愿意整活到这个程度肯定不能是突发奇想 肯定是有备而来
+我对SP未来的展开极其乐观 肯定能好起来的
+
+
+*****
+
+####  笋狐  
+##### 4647#       发表于 2021-9-13 10:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新颖是很新颖，但看了456话，对这历代最沉重背景的废校情节能不能写好肯定乐观不了，毕竟这可不是能重拿轻放的玩意儿
+
+
+*****
+
+####  Piano-Forest  
+##### 4648#       发表于 2021-9-13 11:03
+
+
+【💫#毎日Liella💫】
+
+【毎週月曜更新】
+
+ちょこっとリエラ～真夏の事件簿編～
+
+第８話「ギャラクシーな私の占いによれば、探しものは海よ」
+
+イラスト／moffmachi　構成／笹波ことみ
+<img src="https://p.sda1.dev/2/4a87b8e4481b4351eccd71cc9819e4cc/20210913_110256.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lj205  
+##### 4649#       发表于 2021-9-13 11:06
+
+
+我对这集没异议，除了对民警迫害有点过以外。
+
+单单好奇恋恋这个落差实在太大，后面怎么圆。
+
+然后这周广播和生放要怎么整，毕竟是真的沉重
+
+
