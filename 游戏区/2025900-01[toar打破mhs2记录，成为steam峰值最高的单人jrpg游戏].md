@@ -1199,3 +1199,51 @@ P4G在20年时还有这个卖相才是震惊我，我12年在宝石V上想重温
 支线除了诗人和美食家大爷之外也是千篇一律，制作组看来根本顾不上做
 
 
+
+
+*****
+
+####  Total_Lau  
+##### 102#       发表于 2021-9-13 15:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733327&amp;ptid=2025900" target="_blank">bluebaby 发表于 2021-9-13 15:31</a>
+
+那后面没有了，反正我对剧情的不满主要是每一章太短了。第二章缺少和背刺哥相处的内容以及洛的转变，第三 ...</blockquote>
+你说的都是小问题了，这作大问题是剧本的自我感动和意淫。
+
+所有桥段都是为了迎合解放内心去整的。但实际玩家看到的，只是登场的NPC被设定得奇形怪状，什么没有命令就不会行动的士兵，为了工作连儿子死了都不管的母亲，被抢了粮食话都说不好的自闭症，帮他拿回食物后才巴拉巴拉变成愤青等等。这些都离常识太远的心之解放重拾人格，玩家只觉得怪诞不会觉得有血有肉
+
+
+*****
+
+####  战狼PTSD  
+##### 103#       发表于 2021-9-13 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732584&amp;ptid=2025900" target="_blank">dazzle 发表于 2021-9-13 14:27</a>
+
+我是第一章就觉得有点不对劲了，怎么刚找了衣服穿就快进到直冲敌营了，然后第二章开始全程地铁老人手机
+
+
+这 ...</blockquote>
+开局看到科技都能飞天了还要招奴隶打工还要配看守，就已经有点接受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且这代不知道为啥背景贴图有点模糊，看着很难受
+
+
+*****
+
+####  jbjack1215  
+##### 104#       发表于 2021-9-13 16:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733635&amp;ptid=2025900" target="_blank">战狼PTSD 发表于 2021-9-13 15:56</a>
+开局看到科技都能飞天了还要招奴隶打工还要配看守，就已经有点接受不了了
+
+而且这代不知道为啥背景 ...</blockquote>
+这个剧情有说
+
+重点不在于打工
+
+
