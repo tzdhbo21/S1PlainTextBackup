@@ -20,3 +20,20 @@
 好像官网就有？
 
 
+
+
+*****
+
+####  不灭的旋律  
+##### 6003#       发表于 2021-9-13 20:07
+
+
+如果指企业LOGO那么寿屋的活动直接送过。错过的话推上也有人自制
+[https://twitter.com/ojiman_Alice/status/1313373644165242886](https://twitter.com/ojiman_Alice/status/1313373644165242886)
+[https://twitter.com/ojiman_Alice/status/1313398878767468544](https://twitter.com/ojiman_Alice/status/1313398878767468544)
+
+
+另外官网直接提供下载一部分当背景的图
+[https://colopl.co.jp/alicegearaegis/special/craft.php](https://colopl.co.jp/alicegearaegis/special/craft.php)
+
+

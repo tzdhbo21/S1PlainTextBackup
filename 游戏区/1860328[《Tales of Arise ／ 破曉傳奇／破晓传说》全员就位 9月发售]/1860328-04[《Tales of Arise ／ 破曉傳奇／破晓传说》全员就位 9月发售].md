@@ -1021,3 +1021,150 @@ Dlc很恶心。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然我只打了2个大boss　不然目前体验被ｔｏｂ完爆　除了画面
 
 
+
+
+*****
+
+####  heresiarch  
+##### 4575#       发表于 2021-9-13 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736416&amp;ptid=1860328" target="_blank">alucardcz 发表于 2021-9-13 20:09</a>
+
+虽然我只打了2个大boss　不然目前体验被ｔｏｂ完爆　除了画面</blockquote>
+的确，TOB的打斗太爽了
+
+
+要不是我实在无法面对恶心的地牢设计还有那个结局，我肯定重玩了
+
+
+*****
+
+####  alucardcz  
+##### 4576#       发表于 2021-9-13 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736449&amp;ptid=1860328" target="_blank">heresiarch 发表于 2021-9-13 20:12</a>
+
+的确，TOB的打斗太爽了
+
+
+要不是我实在无法面对恶心的地牢设计还有那个结局，我肯定重玩了 ...</blockquote>
+ｔｏｂ除了不是大团员结局外剧情问题不大。。。不说特别好　但是至少值得一看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  红魔馆的糖  
+##### 4577#       发表于 2021-9-13 20:17
+
+
+ 本帖最后由 红魔馆的糖 于 2021-9-13 20:19 编辑 
+
+发售前我就看着三个女角色
+
+一个下地野紫配的冷面公主，一个屁股好晃的漏背装骑士姐姐，一个带着蝴蝶发夹的小姑娘魔法师，还有铁面帅哥男主
+
+心想，这充满剑与魔法的人设，这可爱的脸，这身材，稳了呀。
+
+然后打demo。好，画面任务动作大进化，这战斗系统还挺不错，而且只是冰山一角，这打完一个野外图之后有一个这么大的城镇能探索，稳了呀。
+
+然后看pv，沃日，bmg。而且这剧情看起来起转承结又王道，稳了呀！
+
+
+结果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makar0601  
+##### 4578#       发表于 2021-9-13 20:21
+
+
+不喜欢这次人设的是不是极少数派了，to给我印象一直有点吉卜力那种赛璐璐老动画质感的，而且人物穿着都带点少民色彩，用各式花纹做出特色，然后盔甲圆润，衣服材料厚实，本身还是普通的衣服上加细节。
+toar这些不明所以的装饰太多了，希侬那个大裙撑怎么看怎么尴尬，有种小仙女故作仙态，而且这一部不知道为什么材质显得特别没质感
+
+—— 来自 motorola XT2153-1, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  lucky95  
+##### 4579#       发表于 2021-9-13 20:22
+
+
+雪国地图小去到哪都要加载就算了
+
+
+刚到刑场的我直接被剧情和麻婆整傻了
+
+
+好他妈想烂尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魂淡放我出去  
+##### 4580#       发表于 2021-9-13 20:23
+
+
+tob我玩的太菜，稍微高难度一点很难打晕，总是罚站蓄力，打完一套就完事了，很憋屈，而且滚滚和鸟多起来的时候很烦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这部有BA技加AG，BS技演出效果好，又有无限连的方法，打起来还是比tob爽
+
+
+*****
+
+####  红月当空  
+##### 4581#       发表于 2021-9-13 20:24
+
+
+虽然在RPG里说这个有点本末倒置，但我还是想问一句——这游戏战斗打击感如何？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不应  
+##### 4582#       发表于 2021-9-13 20:25
+
+
+终于看到你们说的第四章了，这里的桥段处理的确是有够蠢的，好歹先打完再演这种剧情吧
+
+
+*****
+
+####  红魔馆的糖  
+##### 4583#       发表于 2021-9-13 20:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736516&amp;ptid=1860328" target="_blank">makar0601 发表于 2021-9-13 20:21</a>
+不喜欢这次人设的是不是极少数派了，to给我印象一直有点吉卜力那种赛璐璐老动画质感的，而且人物穿着都带点 ...</blockquote>
+女主我也没啥感觉，不过很喜欢琳微儿的人设。看起来是个轻巧灵动又带点天然呆的JK
+
+没想到是个阴沉系<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 4584#       发表于 2021-9-13 20:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736548&amp;ptid=1860328" target="_blank">红月当空 发表于 2021-9-13 20:24</a>
+
+虽然在RPG里说这个有点本末倒置，但我还是想问一句——这游戏战斗打击感如何？ ...</blockquote>
+ｂｏｓｓ战全程霸体无硬直你觉得还有打击感这玩意吗（
+
+小怪倒是不错
+
+
+*****
+
+####  mqnwbeebwnqm  
+##### 4585#       发表于 2021-9-13 20:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过了那个年纪就不要想在王道jrpg里看到什么让人拍大腿的神剧情了，终究不是那个受众，要合理调整期待
+jrpg玩滞了可以搞点锤子40000之类的调剂下，绝对no mercy only hatred，可惜没啥大制作
+
+
