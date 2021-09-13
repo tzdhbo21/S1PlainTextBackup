@@ -2222,3 +2222,41 @@ ksks吃瘪基本都有人撒娇，而且本身也是团宠定位。第七集也�
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
 
+
+
+*****
+
+####  普之舜舜  
+##### 4680#       发表于 2021-9-13 17:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52734881&amp;ptid=1909972" target="_blank">cat1230 发表于 2021-9-13 17:47</a>
+鲤鱼b站传的新vlog跟直播完全风格统一还是蛮有趣的，就是太短了
+
+
+----发送自 Xiaomi Redmi K ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不知道鲤鱼姐姐对于鬼畜怎么样哈？要是可以的话以后鬼畜就更多了哈
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  lj205  
+##### 4681#       发表于 2021-9-13 18:01
+
+
+直男表示完全看不出除了染发外发型有啥不同……
+
+
+*****
+
+####  chenflyyy  
+##### 4682#       发表于 2021-9-13 18:05
+
+
+发了自拍后还是看不出有什么差别<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
