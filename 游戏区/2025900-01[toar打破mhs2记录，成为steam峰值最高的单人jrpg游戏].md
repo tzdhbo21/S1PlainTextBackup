@@ -1247,3 +1247,53 @@ P4G在20年时还有这个卖相才是震惊我，我12年在宝石V上想重温
 重点不在于打工
 
 
+
+
+*****
+
+####  塔奇克马  
+##### 105#       发表于 2021-9-13 16:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733116&amp;ptid=2025900" target="_blank">faithlifer 发表于 2021-9-13 15:15</a>
+
+所以这才是槽点，跑起来显卡占用率很高快跑满了，然后频率基本在1000mhz左右浮动，60稳不住 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202109/13/160633wgzzbmgq3vdregqd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-09-13_16-06-07.jpg</strong> (12.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-13 16:06 上传
+
+
+还能跑1000不错了.要59-60来回跳.我这也这样.
+
+
+*****
+
+####  医生狼多  
+##### 106#         楼主| 发表于 2021-9-13 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733635&amp;ptid=2025900" target="_blank">战狼PTSD 发表于 2021-9-13 15:56</a>
+开局看到科技都能飞天了还要招奴隶打工还要配看守，就已经有点接受不了了
+
+而且这代不知道为啥背景 ...</blockquote>
+这个倒不是什么大槽点
+
+
+*****
+
+####  faithlifer  
+##### 107#       发表于 2021-9-13 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733750&amp;ptid=2025900" target="_blank">塔奇克马 发表于 2021-9-13 16:07</a>
+
+还能跑1000不错了.要59-60来回跳.我这也这样.</blockquote>
+一模一样，CPU占用率也就10，然后我也是偶尔跑到1000，大部分时候和你一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+

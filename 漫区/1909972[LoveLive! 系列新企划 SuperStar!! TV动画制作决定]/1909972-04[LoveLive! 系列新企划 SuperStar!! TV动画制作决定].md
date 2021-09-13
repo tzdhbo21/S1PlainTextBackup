@@ -2152,3 +2152,16 @@ ksks吃瘪基本都有人撒娇，而且本身也是团宠定位。第七集也�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">结果现在反而是民警处理太差搞得大家怨声载道
 
 
+
+
+*****
+
+####  D麦林  
+##### 4676#       发表于 2021-9-13 16:10
+
+
+？新番时间表又有变化
+本来唯一周六还在表上的柯南消失了
+也许不是针对LLSP？可能真是技术性调整？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+

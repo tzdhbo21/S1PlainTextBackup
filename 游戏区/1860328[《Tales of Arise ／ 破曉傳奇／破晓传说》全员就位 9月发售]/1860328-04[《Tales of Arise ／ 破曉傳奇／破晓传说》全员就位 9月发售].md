@@ -279,3 +279,80 @@ jrpg的罐头化时代，要来临了吗？ ...</blockquote>
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  捧读小见川  
+##### 4522#       发表于 2021-9-13 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52732769&amp;ptid=1860328" target="_blank">大哀之君 发表于 2021-9-13 14:44</a>
+
+刷铠甲士兵卖东西。但要注意这种怪一般只在每一章固定阶段出现，打完BOSS就没了，所以要掐点反复刷够了再 ...</blockquote>
+拿完了，我已经到最后迷宫了
+
+
+*****
+
+####  捧读小见川  
+##### 4523#       发表于 2021-9-13 16:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733207&amp;ptid=1860328" target="_blank">天堂蜘蛛 发表于 2021-9-13 15:21</a>
+
+钓鱼怎么触发啊，打到第四章都还没有钓鱼的</blockquote>
+盾姐加入后出城不远就有一个鱼点可以触发
+
+
+*****
+
+####  lelouchwang  
+##### 4524#       发表于 2021-9-13 16:10
+
+
+ 本帖最后由 lelouchwang 于 2021-9-13 16:13 编辑 
+
+风祖师开了最大掉落和素材不减，其他就不改了，老年人刷不动了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  索田八公  
+##### 4525#       发表于 2021-9-13 16:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733628&amp;ptid=1860328" target="_blank">superlink 发表于 2021-9-13 15:56</a>
+
+其实正常，换代后吸引新人，就跟当初闪轨一样。不过看这样子下一作有点堪忧。
+
+
+—— 来自 HUAWEI ELE-AL0 ...</blockquote>
+闪轨只是单纯的剧本水平下降而已，该有的东西一点都没少
+
+破晓这次已经为了迎合大众做的不像传说了
+
+
+*****
+
+####  CosimoZi  
+##### 4526#       发表于 2021-9-13 16:13
+
+
+最近3代传说都买了, 都玩不下去. 无语了.
+
+还不如给手游充钱呢
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 4527#       发表于 2021-9-13 16:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733510&amp;ptid=1860328" target="_blank">ac130-2020 发表于 2021-9-13 15:45</a>
+
+我知道啊 但是我不知道该怎么去 比如 任务只说去xx森林 但是我在当前地图应该怎么去呢?很奇怪 狂战我玩的 ...</blockquote>
+我也迷惑了很久，后来发现是因为如果你没去过目标任务的地图的话，你在当前所有地图都没法找到对应的指引<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，可以说是很弱智了。
+
+
