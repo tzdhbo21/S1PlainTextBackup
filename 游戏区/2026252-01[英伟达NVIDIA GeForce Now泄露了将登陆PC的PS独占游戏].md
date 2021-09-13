@@ -1724,3 +1724,53 @@ GeForce NOW是云游戏吧
 这种接口都能对外开放，nvidia也太草台了
 
 
+
+
+*****
+
+####  宮脇咲良  
+##### 151#       发表于 2021-9-14 01:36
+
+
+PCMASTERRACE<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liliguo1  
+##### 152#       发表于 2021-9-14 01:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739255&amp;ptid=2026252" target="_blank">riin 发表于 2021-9-14 01:23</a>
+
+这种接口都能对外开放，nvidia也太草台了</blockquote>
+更草台的你知道是啥吗
+
+刚开始进去的时候直接在浏览器里直接输网址那接口自带ide的都不用自备
+
+这会儿不行了要自己弄个ide连，虽然也没东西<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  北卡厨王  
+##### 153#       发表于 2021-9-14 01:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737255&amp;ptid=2026252" target="_blank">针刺骑士 发表于 2021-9-13 21:33</a>
+可不止这些，有大量厂商的未公开游戏在列，今年最大规模泄露~
+
+
+Sony: Uncharted: Legacy of Thieves Editio ...</blockquote>
+这个可信吗?大料太多了吧
+
+
+*****
+
+####  haruhiismer  
+##### 154#       发表于 2021-9-14 01:50
+
+
+ttf3过年了~
+
+
