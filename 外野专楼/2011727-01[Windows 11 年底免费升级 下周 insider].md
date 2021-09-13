@@ -6857,3 +6857,14 @@ dev推送了184，升级完蓝牙打不开了…………
 右键卡顿是普遍。优化一个月还没优化好
 
 
+
+
+*****
+
+####  Nanachi  
+##### 563#       发表于 2021-9-13 09:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了楼里面这么多bug决定等推送了
+
+

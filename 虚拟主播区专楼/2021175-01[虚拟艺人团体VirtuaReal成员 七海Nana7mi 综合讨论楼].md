@@ -2478,3 +2478,18 @@ B站评论区只说了otto，我也不知道哈 sry
 直播员和月灵姐都唱过美丽之物，要不也组个CP剪一起<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  ikozhneg  
+##### 207#       发表于 2021-9-13 09:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52728405&amp;ptid=2021175" target="_blank">EnbuRiAs 发表于 2021-09-13 08:30:38</a>
+【【星瞳x七海】⭐永不失联的爱🦈-哔哩哔哩】https://b23.tv/bK0rMh
+棍鲨，海梓已经是上一个版本了，星辰大 ...</blockquote>好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+

@@ -1690,3 +1690,29 @@ ll就不能把live放在ed么？
 吵什么
 
 
+
+
+*****
+
+####  不能摸的屁屁  
+##### 4639#       发表于 2021-9-13 09:57
+
+
+指望民警去追机的太乐观了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+想起拥抱Q娃时，一堆人yy让路人化的蓝毛去解开粉毛的心结，实现双赢，最后还不是屑社长showtime。
+
+追机这种事怎么看都会交给四个人，非要单人的话也只能是加农了吧。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  cybernetics31  
+##### 4640#       发表于 2021-9-13 09:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候肯定是4人一起追机啊，说真的这季度就12集，真的有空间写可可吗
+
+
