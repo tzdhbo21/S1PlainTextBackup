@@ -1168,3 +1168,104 @@ tob我玩的太菜，稍微高难度一点很难打晕，总是罚站蓄力，�
 jrpg玩滞了可以搞点锤子40000之类的调剂下，绝对no mercy only hatred，可惜没啥大制作
 
 
+
+
+*****
+
+####  SAKURAJIMA  
+##### 4586#       发表于 2021-9-13 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736573&amp;ptid=1860328" target="_blank">红魔馆的糖 发表于 2021-9-13 20:26</a>
+女主我也没啥感觉，不过很喜欢琳微儿的人设。看起来是个轻巧灵动又带点天然呆的JK
+
+没想到是个阴沉系[f:0 ...</blockquote>
+草 确实 一开始还以为小法师应该是那种元气系的设定 结果好家伙跟我想的完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  奈奈未喵  
+##### 4587#       发表于 2021-9-13 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736235&amp;ptid=1860328" target="_blank">nozomitech 发表于 2021-9-13 19:51</a>
+最近有事在外地，xsx不在手边所以没法玩，专楼怕剧透不敢翻，好像这次又阴沟里翻船了?看其他帖子有人说剧情 ...</blockquote>
+剧情拧巴 不如tob 
+像我这样只好寄希望于挑战高难战斗的 又因为流程短战斗少级别低导致被boss大幅数值碾轧 当boss剩几万血复读大招而只剩一个人死命刮痧无法打断的时候 我只想说这不算凭本事赢的
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 4588#       发表于 2021-9-13 20:35
+
+
+法师是只有风水光三系吗
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  alucardcz  
+##### 4589#       发表于 2021-9-13 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736598&amp;ptid=1860328" target="_blank">mqnwbeebwnqm 发表于 2021-9-13 20:28</a>
+
+过了那个年纪就不要想在王道jrpg里看到什么让人拍大腿的神剧情了，终究不是那个受众，要合理调整期 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这和年纪有什么关系　前段时间复习了次ｔｏａ（深渊）我依然觉得剧情很不错啊
+
+
+*****
+
+####  中泽君  
+##### 4590#       发表于 2021-9-13 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736360&amp;ptid=1860328" target="_blank">盖·福克斯 发表于 2021-9-13 20:03</a>
+
+画面好。
+
+Dlc很恶心。
+
+战斗打小怪很爽打boss便秘。</blockquote>
+刚打完第二部的第一个BOSS，你这么说搞到我都期待剧情能烂到什么程度
+
+制作人还说通关后玩家会很满足
+
+
+
+
+*****
+
+####  盖·福克斯  
+##### 4591#       发表于 2021-9-13 20:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736688&amp;ptid=1860328" target="_blank">华发夜眼[CN] 发表于 2021-9-13 20:35</a>
+
+法师是只有风水光三系吗
+
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+能解锁一个低阶火魔法，但也就这么一个。
+
+
+*****
+
+####  盖·福克斯  
+##### 4592#       发表于 2021-9-13 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736754&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-9-13 20:41</a>
+
+刚打完第二部的第一个BOSS，你这么说搞到我都期待剧情能烂到什么程度
+
+制作人还说通关后玩家会很满足 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我不确定我们俩的雷点是不是一样的。
+
+反正结局处我真的觉得编剧和男主在犯罪。
+
+

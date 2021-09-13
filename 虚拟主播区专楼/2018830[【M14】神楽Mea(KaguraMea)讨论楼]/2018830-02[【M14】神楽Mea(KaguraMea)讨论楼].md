@@ -12951,3 +12951,27 @@ mua，<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" refe
 她不是说过气再整新衣服吗？我觉得快了
 
 
+
+
+*****
+
+####  往世雷书  
+##### 2666#       发表于 2021-9-13 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736131&amp;ptid=2018830" target="_blank">雪风utopia 发表于 2021-9-13 19:43</a>
+果然评论区的井孝子比连体壬恶心</blockquote>
+他们不是喜欢说不熟吗，还有跑这找存在感的？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  T_Hb  
+##### 2667#       发表于 2021-9-13 20:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议去看看井皇的推特简介哦
+
+
