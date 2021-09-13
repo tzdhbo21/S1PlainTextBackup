@@ -21428,3 +21428,29 @@ Ame这是得新冠了么？
 Gura what?
 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 1360#       发表于 2021-9-13 09:34
+
+
+Ame会限那个截图应该是真的?
+诶<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wuzhengkai  
+##### 1361#       发表于 2021-9-13 09:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52729077&amp;ptid=1989758" target="_blank">渡鸦骑士 发表于 2021-9-13 09:34</a>
+
+Ame会限那个截图应该是真的?
+
+诶</blockquote>
+啥图？ 普通感冒吧 经常了 不像冠了
+
+
