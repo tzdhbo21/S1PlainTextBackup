@@ -1325,3 +1325,46 @@ Dlc很恶心。
 第四章这个剧情，真是麻中麻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  alucardcz  
+##### 4598#       发表于 2021-9-13 21:23
+
+
+对了这游戏ｆａｍｉ通几分啊。。好像没看到评分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  弗兰秀秀  
+##### 4599#       发表于 2021-9-13 21:24
+
+
+说起来传说系列当年不是有个大杂烩性质的换装迷宫吗？那个有续作吗？
+
+
+*****
+
+####  司马千晶  
+##### 4600#       发表于 2021-9-13 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736918&amp;ptid=1860328" target="_blank">laoz 发表于 2021-9-13 20:58</a>
+我到现在都不知道二段跳拿来干嘛</blockquote>
+风领主那说实话有点用，其他地方意味不明，高手境界.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  方块木偶  
+##### 4601#       发表于 2021-9-13 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52736878&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-9-13 20:53</a>
+
+通关了的各位，你们战斗中主动跳跃有用50次吗？把跳跃做成一个技能，圆圈自由分配多好 ...</blockquote>
+基本是用挑空技能跳起来，主要单纯跳起来也没有无敌帧也衔接不了连击，基本只有误触到的时候
+
+
