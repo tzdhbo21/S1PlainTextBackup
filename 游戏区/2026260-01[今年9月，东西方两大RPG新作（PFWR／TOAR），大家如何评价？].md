@@ -1,0 +1,892 @@
+
+
+*****
+
+####  gh1023  
+##### 1#       楼主       发表于 2021-9-13 21:58
+
+
+ 本帖最后由 gh1023 于 2021-9-13 23:03 编辑 
+
+今年9月真的算是RPG大月了：几年前还在说息微的JRPG跟CRPG都在本月同时推出了规模不小的作品，正义之怒跟破晓传说。
+
+
+作为老社畜，原本传说老粉的LZ沉迷了正义之怒40小时结果连第二章都打不完<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。毕竟下一次这种体量的RPG同时发售应该也是挺遥远的事儿了
+
+
+PS:那个，并不是对比啊，只是个人两个都会玩但两个都还没通关，想问问玩通的评价而已，一个二次元一个老炮肯定不可能对比<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xbhuang  
+##### 2#       发表于 2021-9-13 22:01
+
+
+这两群体除了玩的游戏类型有三个字母一样，有重合点？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  rak1  
+##### 3#       发表于 2021-9-13 22:06
+
+
+受众不同+刚出不久，有几个人能打完两作？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  otaku21126  
+##### 4#       发表于 2021-9-13 22:07
+
+
+正义之怒是真正的“博德—无冬—？？？”序列等待多年的继承者，正统宏大奇幻故事，游戏性丰富，系统有内容，暴杀了之前所有给自己贴金博德继承者的RTWP式RPG
+
+虽然它未必在各种各样的玩家心中比破晓传说强，但它在自身阵营里的地位已经是破晓传说不能同日而语了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| memo2| + 1|好评加鹅|
+| kita_79| + 1|好评加鹅|
+| Develde_001| + 1||
+| 屑猫猫| + 1|好评加鹅|
+| 塞利斯| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+*****
+
+####  叶雾  
+##### 5#       发表于 2021-9-13 22:09
+
+
+不惧
+
+9月还有审判之逝
+
+再不行还有黎轨
+
+
+*****
+
+####  量子大蛇  
+##### 6#       发表于 2021-9-13 22:23
+
+
+传说系列久闻大名，买过但没玩过。
+
+说说正义之怒，我觉得真的挺好的，AI调教得很棒，反正我个人体验上玩起来手感比永恒之柱顺手，也可能是我玩永恒之柱的时候还没有熟悉这类游戏的操作.
+
+总体而言我觉得开拓者属于那种爬上前辈的肩膀展翅高飞的类型，在继承了同类游戏精华的同时，又大胆地做出了自己的创新，确实可以说是同类游戏中的杰作。
+
+
+*****
+
+####  xxxllz  
+##### 7#       发表于 2021-9-13 22:27
+
+
+除了发售时间相近有啥共同点吗？不过完全版的正义之怒应该会是巫师3后我最爱的游戏吧。。。
+
+
+*****
+
+####  盖·福克斯  
+##### 8#       发表于 2021-9-13 22:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">别了，CRPG连选择杀掉当二五仔的队友都只是守序中立。
+
+JRPG哪怕杀人狂都逼你原谅。
+
+别比了，真的。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 塞利斯| + 1|欢乐多|
+
+
+查看全部评分
+
+
+*****
+
+####  Develde_001  
+##### 9#       发表于 2021-9-13 22:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">正义之怒如果后两章没有赶工缩水bug多的话，真是能登上神坛。传说不了解
+
+
+*****
+
+####  qty  
+##### 10#       发表于 2021-9-13 22:33
+
+
+这作正义之怒内容量怎么样？一周目通关时间和神界原罪2比是长是短？还是有点想玩的，不过最近感觉自己精力有点差，体量太大的怕到最后烂尾<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kyolanaya  
+##### 11#       发表于 2021-9-13 22:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737897&amp;ptid=2026260" target="_blank">qty 发表于 2021-9-13 22:33</a>
+
+这作正义之怒内容量怎么样？一周目通关时间和神界原罪2比是长是短？还是有点想玩的，不过最近感觉自己精力 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qty  
+##### 12#       发表于 2021-9-13 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737932&amp;ptid=2026260" target="_blank">kyolanaya 发表于 2021-9-13 22:37</a>
+
+毛子最爱堆料了还用说？bug一堆，优化不太行，仔细玩没有个100小时别想玩完，我玩到第四章被这移 ...</blockquote>
+行吧，那我还是再放放吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jf8350143  
+##### 13#       发表于 2021-9-13 22:59
+
+
+m你要问我的评价，那正义之怒暴打几乎所有的JRPG，哪怕是哪些经典的作品比如FF7
+
+
+因为我本来就是个WRPG爱好者，对JRPG完全不感冒，但是这毫无意义……
+
+
+*****
+
+####  casle  
+##### 14#       发表于 2021-9-13 23:03
+
+
+这次正义之怒的音乐也很优秀，第一次拿到神话之力的bgm，mythic power听得我直起鸡皮疙瘩
+
+
+*****
+
+####  gh1023  
+##### 15#         楼主| 发表于 2021-9-13 23:03
+
+
+那个，并不是对比啊，只是个人两个都会玩但两个都还没通关，想问问玩通的评价而已，肯定不可能对比
+
+
+*****
+
+####  Lunamos  
+##### 16#       发表于 2021-9-13 23:05
+
+
+我觉得能找到像LZ这样两个全通的人，就已经不大容易了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  屑猫猫  
+##### 17#       发表于 2021-9-13 23:10
+
+
+问就是辐射有后继者atom和Encased，废土有正统续作，博德之门有精神继承者正义之怒，异域镇魂曲有后续的扭蒙拉狂潮（这个划去），有后续的剧情高峰极乐迪斯科。
+这些jrpg真的有多少个继承了古早rpg的长处呢，除了dq11，哦对还有ff正统在ff14…
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  屑猫猫  
+##### 18#       发表于 2021-9-13 23:10
+
+
+风怒编辑
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  升职加薪  
+##### 19#       发表于 2021-9-13 23:22
+
+
+博德的玩法和pf差距好大，pf明明和nwn血统更接近
+
+
+*****
+
+####  windtrack  
+##### 20#       发表于 2021-9-13 23:30
+
+
+ 本帖最后由 windtrack 于 2021-9-13 23:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">两个都买了但是都没通的路过
+
+
+正义之怒这玩意着实太堆料了，从我方车卡烂强到敌方FOE配置，2级团开始怼实体恶魔，8级团开始传奇异界生物
+
+但是车卡太爽了，职业变体无数组合还有神话和道途选项，虽然平衡性基本没有，但是烂强踢门车卡管那么多呢，何况还给了你检证车卡的模组
+
+对于车卡爱好者那远胜什么博得无冬，不过对于一般玩家来说，规则太多车卡也太复杂，敌方各种超规FOE配置+黑骰，估计不看低难度是真的没法玩
+
+另外剧情上，看了下剧透虽然后面有点太草的问题，但是10个道途结局、专属任务，中途队友剧情都差别不小，还埋了个隐藏结局，100小时的容量肯定是有了
+
+
+TOAR方面，今天盘刚到，玩了个开头，TOGF之后的传说基本都没玩这算是重新捡起来了
+
+UE4引擎的画面确实不错，战斗习惯了新模式后也挺爽快
+
+不过特么的你游戏里滚动广告卖DLC算怎回事？？？
+
+
+我目前打算还是先推TOAR，正义之怒这游戏反正要修BUG可以养养
+
+
+*****
+
+####  Eric_方歌阙  
+##### 21#       发表于 2021-9-13 23:42
+
+
+除了车卡和系统的高水准之外，正义之怒的文本、剧情设计在我这独一份，主角配角都充满个性，（因为玩家行为）带来的性格转变、世界改变明确又自然，非常满足扮演、阅读和探索的乐趣<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。
+
+
+TOAR只打了前两个国度，见到了圣骑士姐姐。怎么说呢剧情和对白还是二次元老一套。除了画面的革新之外，唯一有印象的就是角色的性格刻画进步很大，蹦出来的对白充满萌点。
+
+
+*****
+
+####  liliguo1  
+##### 22#       发表于 2021-9-13 23:50
+
+
+ 本帖最后由 liliguo1 于 2021-9-14 00:38 编辑 
+
+两边都打到最后一章了但是正义之怒的隐藏结局条件缺了一个得重打干脆放放再打了
+
+就优点上来说，正义之怒很好的传承了老一代crpg的气质，有宏大的奇幻世界观和丰富的职业和系统，同时给予了玩家小队冒险的探索感和大部队的进军感，同时两者的结合也可以说是可以接受，而神话道途这一设定能切实让玩家爽到，和神话道途相关的路线选择也有助于玩家去进行带入。其剧情也是跌宕起伏环环相扣，至于选择的时候并没有感觉“你在强逼我这么选”而是“我要这么选”-----事实上大部分的选择还有中立选项。一些前作的缺点也被改善了，比如施法后打完战斗过不去这种，可以主动解除了
+
+而toar作为一个日式的arpg，在各个人物的塑造上确实很下工夫，人物自身的命运和徘徊基本都有很好的体现，再搭配上传说系列的队员对话小剧场，总的来说是吧人物立起来了，起码没有真正的伙伴那种级别的破事。另外就是在探索方面的技术革新，虽然依旧是传统的那种给你画个区域在里面走的地图模式但是起码看起来强多了。其他的来说的话就是不失jrpg的气质，喜欢jrpg又能接受动作要素的肯定会喜欢（虽然我估计喜欢的早就入坑了）
+
+而就缺点上来讲
+
+正义之怒有个非常恶心的地方就是黑骰，你就经常roll低点ai疯狂roll高点，高难度你就得疯狂sl，这个毛病前作就存在了。而英雄无敌模式玩起来虽然还行但是问题就在于太-----长了，然后不去打据点升堡垒的话你的人物在地图上走的又特别拖沓导致整个游戏被拖的特别长。说实话我一开始进军就开始犯困了。还有就是后面赶工前面有人说了不再赘述。另一个毛病就是负重，你打着打着很容易包就满了然后你就得去大地图前把东西扔在地上然后再用离开地图自动拾取拿走.........何必呢？？？？？
+
+toar的毛病说白了就在于太二次元了,什么原谅啊亚萨西啊给你满上，甚至中间有一段复仇剧情都直接给你原谅了然后后面还往回圆。另外一个毛病就是boss战打起来是真的恶心，一定会半血给你开个二阶段然后开始霸体。霸体之后你的用来击倒的增幅攻击直接废掉。而普通战斗难度和boss战又相差甚远，打起来挺割裂的。然后就是，他们的数值大概是默认玩家买了dlc的数值.......
+
+大概典型优缺点就这样了其他一些仁者见仁的东西比如正义之怒的人物啊toar的钓鱼啊就不再赘述了
+
+
+*****
+
+####  Lunamos  
+##### 23#       发表于 2021-9-13 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738270&amp;ptid=2026260" target="_blank">屑猫猫 发表于 2021-9-14 00:10</a>
+
+问就是辐射有后继者atom和Encased，废土有正统续作，博德之门有精神继承者正义之怒，异域镇魂曲有后续的扭 ...</blockquote>
+是的，如今的CRPG像墓碑前的铃兰，JRPG像繁花下的枯骨。很多人眼中的庸作八方旅人能卖200万，百英雄传宣传一出万众瞩目。岛国缺少全生态填充开发力的后备，随手把许多美好的东西当做负担丢掉，再继续沿着孤岛化的审美狂奔。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 神他妈的开胃菜| + 1|思路广|
+
+
+查看全部评分
+
+
+*****
+
+####  dumplingpro  
+##### 24#       发表于 2021-9-14 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738270&amp;ptid=2026260" target="_blank">屑猫猫 发表于 2021-9-13 23:10</a>
+
+问就是辐射有后继者atom和Encased，废土有正统续作，博德之门有精神继承者正义之怒，异域镇魂曲有后续的扭 ...</blockquote>
+博德之门3震怒，正统怎么没有我！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nukejoker  
+##### 25#       发表于 2021-9-14 00:14
+
+
+ 本帖最后由 nukejoker 于 2021-9-14 00:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738711&amp;ptid=2026260" target="_blank">dumplingpro 发表于 2021-9-14 00:03</a>
+
+博德之门3震怒，正统怎么没有我！</blockquote>
+博德3是神界2的正统<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+不过不说风凉话。这次正义之怒应该会给拉瑞安带来不少压力和启发。
+
+和正义之怒一比起来，现在的博德3实在是太保守和业余了。
+
+希望能刺激下拉瑞安整点能get到玩家的好活儿出来。
+
+
+*****
+
+####  红魔馆的糖  
+##### 26#       发表于 2021-9-14 00:22
+
+
+ 本帖最后由 红魔馆的糖 于 2021-9-14 00:35 编辑 
+
+两个我都玩了一半的样子，就前半段来说的话。破晓被秒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过这俩从上到下都完全不同，也没啥可比性
+
+另外真的有人已经同时打通了这两个么，加起来全流程支线的话有两百个小时了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjk  
+##### 27#       发表于 2021-9-14 00:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738600&amp;ptid=2026260" target="_blank">liliguo1 发表于 2021-9-13 23:50</a>
+
+两边都打到最后一章了但是正义之怒的隐藏结局条件缺了一个得重打干脆放放再打了
+
+就优点上来说，正义之怒很 ...</blockquote>
+破晓这地图主要是把材质光影和远景做好了，探索性立体性连通性方面非常保守，没什么能看的。
+
+
+*****
+
+####  windtrack  
+##### 28#       发表于 2021-9-14 00:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738784&amp;ptid=2026260" target="_blank">nukejoker 发表于 2021-9-14 00:14</a>
+
+博德3是神界2的正统
+
+
+不过不说风凉话。这次正义之怒应该会给拉瑞安带来不少压力和启发。</blockquote>
+你让拉瑞安做个这么自由的传奇车卡游戏拉瑞安那数值策划真没那能力啊
+
+
+当然毛子说白了也是靠黑骰和超模FOE来应对，结果就是职业平衡啥的根本不存在了，大部分职业纯属装饰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liliguo1  
+##### 29#       发表于 2021-9-14 00:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738917&amp;ptid=2026260" target="_blank">whzfjk 发表于 2021-9-14 00:30</a>
+
+破晓这地图主要是把材质光影和远景做好了，探索性立体性连通性方面非常保守，没什么能看的。 ...</blockquote>
+整体上还是那种到处是墙给你围条路的设计，但是没以前那么硬了.......当然也就在jrpg里比比了出去被吊着打<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjk  
+##### 30#       发表于 2021-9-14 00:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738270&amp;ptid=2026260" target="_blank">屑猫猫 发表于 2021-9-13 23:10</a>
+
+问就是辐射有后继者atom和Encased，废土有正统续作，博德之门有精神继承者正义之怒，异域镇魂曲有后续的扭 ...</blockquote>
+感觉是精神与物质双重的土壤差异了，除了同一队创作者另起炉灶的情况外，日本业界似乎并没有这种精神续作的思潮。
+
+
+当年优秀的 JRPG 大部分最终归入了 SE 的麾下，那么 SE 还没死显然是一个很重要的因素。就像魂环里的一个篇章，人们都觉得某个大容器是个好东西，却遭遇百思不得其解的慢性衰败，结果发现容器阻碍了循环，炸了容器才有未来。
+
+
+
+
+*****
+
+####  dumplingpro  
+##### 31#       发表于 2021-9-14 01:23
+
+
+ 本帖最后由 dumplingpro 于 2021-9-14 09:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739082&amp;ptid=2026260" target="_blank">whzfjk 发表于 2021-9-14 00:55</a>
+
+感觉是精神与物质双重的土壤差异了，除了同一队创作者另起炉灶的情况外，日本业界似乎并没有这种精神续作 ...</blockquote>
+欧美精神续作文化的前提，是有一个动手能力强的玩家社区，日本PC玩家数量太少了，虽然也有大佬，但玩家社区规模实在太小了。
+
+
+想起Elona的作者，自己开发续作Elin，基本上只能单打独斗，因为缺乏人手和美术资源之类的东西，而坑了2个版本，现在第三个版本简化过才算是有一定完成度。
+
+
+加贺昭三亲自做的老火纹精神续作，维斯塔利亚传说，也是只能用SRPG制作大师，后来有志愿者协助才搞定的，记得官中还是天朝玩家自己联系的？
+
+
+不过现在有了众筹的玩法，血污啊、百英雄都出来了，未来应该能逐渐改善。
+
+
+Elin一开始是这样的：
+
+<img src="https://img.saraba1st.com/forum/202109/14/012601nmzrrmmar2ard4uy.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (119.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 01:26 上传
+
+
+现在只能缩成这样：
+
+<img src="https://img.saraba1st.com/forum/202109/14/012710cg7v49zdvhmvlh9c.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (347.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-9-14 01:27 上传
+
+
+*****
+
+####  战狼PTSD  
+##### 32#       发表于 2021-9-14 01:28
+
+
+正义之怒打的挺开心，但是老是卡关干脆就重新车卡了，搞得到现在都没通关
+
+破晓我打两三个小时就放下了，2D JRPG虽然剧情又臭又长但是演出很简单，3D化站桩演出太恐怖了，尬的受不了，不过想了下这是我偏见，现在看剧情总是想吐槽
+
+
+*****
+
+####  北欧王座  
+##### 33#       发表于 2021-9-14 01:33
+
+
+巧了，都是玩了会就ban了。时长还差不多。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江口夕  
+##### 34#       发表于 2021-9-14 04:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738969&amp;ptid=2026260" target="_blank">liliguo1 发表于 2021-9-14 00:37</a>
+整体上还是那种到处是墙给你围条路的设计，但是没以前那么硬了.......当然也就在jrpg里比比了出去被吊着 ...</blockquote>
+伊苏至少一个栏杆直接能跳过去，这作后面各种没传送要求原路返回一个跨栏跳直接到最底层硬是跳不出去就挺尴尬，下作这方面能整整就好了，毕竟也是个半个arpg,大地图人物性能太拉了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  茛菪  
+##### 35#       发表于 2021-9-14 05:01
+
+
+不过毛子这个敌人堆数值我方堆buff的玩法其实抛去车卡内容的话也有点腻了……一堆妖魔鬼怪AI可能还没有无冬2里一个Orc萨满高，记得某个支线被一队orc埋伏，俩萨满起手驱散+Bigby's Forceful Hand控住dps把我打惨了，根本不需要什么夸张的数值。
+
+
+*****
+
+####  yanghuangu  
+##### 36#       发表于 2021-9-14 08:39
+
+
+一直没有东方的皮加上西方规则结合的游戏，让博爱党很是遗憾
+
+
+*****
+
+####  sandro  
+##### 37#       发表于 2021-9-14 08:41
+
+
+感觉现在rpg是真的萎了，pf传说都是二线ip吧
+
+
+*****
+
+####  jf8350143  
+##### 38#       发表于 2021-9-14 08:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738958&amp;ptid=2026260" target="_blank">windtrack 发表于 2021-9-14 00:35</a>
+你让拉瑞安做个这么自由的传奇车卡游戏拉瑞安那数值策划真没那能力啊
+
+
+当然毛子说白了也是靠黑骰和超模FO ...</blockquote>
+毛子数值策划怕是还不如拉瑞安，看他们拥王者那会给怪强行加的数据就能看出来，靠桌游规则给他们兜底罢了。
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  妮贝雅  
+##### 39#       发表于 2021-9-14 08:49
+
+
+正义之怒买了进游戏在角色编辑页面闪退数次之后怒退款了。。。。
+
+
+*****
+
+####  windtrack  
+##### 40#       发表于 2021-9-14 08:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740458&amp;ptid=2026260" target="_blank">jf8350143 发表于 2021-9-14 08:44</a>
+
+毛子数值策划怕是还不如拉瑞安，看他们拥王者那会给怪强行加的数据就能看出来，靠桌游规则给他们兜底罢了 ...</blockquote>
+所以拉瑞安作BG3有一个好就是能拿规则书兜底，避免了原罪那种后期升一级数值翻一倍的尴尬
+
+
+*****
+
+####  farseer123  
+##### 41#       发表于 2021-9-14 09:12
+
+
+ 本帖最后由 farseer123 于 2021-9-14 09:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737932&amp;ptid=2026260" target="_blank">kyolanaya 发表于 2021-9-13 22:37</a>
+
+毛子最爱堆料了还用说？bug一堆，优化不太行，仔细玩没有个100小时别想玩完，我玩到第四章被这移 ...</blockquote>
+二代还有王国管理？ 一代的地图移动速度加海量的怪  以及王国管理让我在60小时烂尾了。
+
+
+一代撑死了7分，有不错的亮点，但是硬伤又太多  给我感觉就不如柱子1
+
+
+*****
+
+####  dumplingpro  
+##### 42#       发表于 2021-9-14 09:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740420&amp;ptid=2026260" target="_blank">sandro 发表于 2021-9-14 08:41</a>
+
+感觉现在rpg是真的萎了，pf传说都是二线ip吧</blockquote>
+疫情没办法，博德之门EA到现在，其他都在跳票。
+
+
+*****
+
+####  奈奈未喵  
+##### 43#       发表于 2021-9-14 09:17
+
+
+要说哪个好 我选正义之怒 目前打了一半放置了 先把传说搓完再继续玩 
+
+
+*****
+
+####  yangkaim4  
+##### 44#       发表于 2021-9-14 09:17
+
+
+都是好游戏，但也都有明显的缺点
+
+
+*****
+
+####  yangkaim4  
+##### 45#       发表于 2021-9-14 09:19
+
+
+都是好游戏，但也都有明显的缺点
+
+
+*****
+
+####  dumplingpro  
+##### 46#       发表于 2021-9-14 09:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740742&amp;ptid=2026260" target="_blank">farseer123 发表于 2021-9-14 09:12</a>
+
+二代还有王国管理？ 一代的地图移动速度加海量的怪  以及王国管理让我在60小时烂尾了。 ...</blockquote>
+二代改了个英雄无敌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+除了主角小队之外，军队也能在大地图上推进，每过一天就能得到若干移动点，然后去推大地图上的恶魔据点，战斗就是英雄无敌那种走格子回合制，能招兵还能招募英雄带队（英雄参战方式跟英雄无敌一样）。
+
+
+直接修改器改他1000个高级兵平推就好了
+
+
+*****
+
+####  nukejoker  
+##### 47#       发表于 2021-9-14 09:24
+
+
+ 本帖最后由 nukejoker 于 2021-9-14 09:33 编辑 
+<blockquote>windtrack 发表于 2021-9-14 08:54
+所以拉瑞安作BG3有一个好就是能拿规则书兜底，避免了原罪那种后期升一级数值翻一倍的尴尬 ...</blockquote>
+问题就怕拉瑞安村规魔改非得塞自己那套环境互动，还自我感觉良好觉得自己改的很好很牛逼。EA里已经很多苗头了。事实PF这回就表现的很彻底了，DND就是要滥强超模才好玩，就那点环境互动的伤害后期能起几个用啊？
+
+
+*****
+
+####  farseer123  
+##### 48#       发表于 2021-9-14 09:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740832&amp;ptid=2026260" target="_blank">dumplingpro 发表于 2021-9-14 09:22</a>
+
+二代改了个英雄无敌
+
+
+除了主角小队之外，军队也能在大地图上推进，每过一天就能得到若干移动点， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">太蠢了 ，难道毛子觉得会有人在繁杂的小游戏中得到快感嘛。。 说到城堡管理，柱子1的城堡管理体验比拥王者开拓者好100倍。
+
+
+*****
+
+####  xxxllz  
+##### 49#       发表于 2021-9-14 09:37
+
+
+东西合璧只能上废都物语了。。。
+
+
+*****
+
+####  sfls49  
+##### 50#       发表于 2021-9-14 09:41
+
+
+正义之怒是我今年到目前为止玩的最开心的游戏，传说的话，要不是怕拖的越久被剧透的越多，这两天我都不想玩了
+
+
+*****
+
+####  saber614  
+##### 51#       发表于 2021-9-14 09:46
+
+
+传说攻关中，正义之怒有没有更好看点的mod啊
+
+
+*****
+
+####  aa_ren  
+##### 52#       发表于 2021-9-14 09:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737637&amp;ptid=2026260" target="_blank">otaku21126 发表于 2021-9-13 22:07</a>
+
+正义之怒是真正的“博德—无冬—？？？”序列等待多年的继承者，正统宏大奇幻故事，游戏性丰富，系统有内容 ...</blockquote>
+除了BUG多需要慢慢等修复这个缺点，真正担得起博德续作的名号。
+
+妈的恶魔道途任务进梦境后BUG卡死推进不了废了个30小时的档。
+
+
+*****
+
+####  DawnGuardian  
+##### 53#       发表于 2021-9-14 09:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738270&amp;ptid=2026260" target="_blank"> 屑猫猫 发表于 2021-9-13 23:10</a> 问就是辐射有后继者atom和Encased，废土有正统续作，博德之门有精神继承者正义之怒，异域镇魂曲有后续的扭蒙拉狂潮（这个划去），有后续的剧情高峰极乐迪斯科。 这些jrpg真的有多少个继承了古早rpg的长处呢，除了dq11，哦对还有ff正统在ff14…  —— 来自 HUAWEI TEL-AN00a, Android 10上的 S1Next-鹅版 v2.4.4.1 </blockquote>
+圆顶出ea了？我前几年队列刷到的时候看评价不是很好啊，不少喷更新慢还要ea阶段就出dlc的，结果现在正式版还不错吗？来自: iPhone客户端
+
+
+*****
+
+####  Dgnic_  
+##### 54#       发表于 2021-9-14 09:49
+
+
+正义之怒评价这么高<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+我最近一代玩不下去都想卸载了，难道二者爽度相差那么大吗<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月孝三  
+##### 55#       发表于 2021-9-14 10:26
+
+
+正义之怒是真的牛逼。要是能把圣教军全删了(或者单独弄一个圣教军模式)，奖励做进loot和支线就天下无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangkaim4  
+##### 56#       发表于 2021-9-14 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741645&amp;ptid=2026260" target="_blank">秋月孝三 发表于 2021-9-14 10:26</a>
+
+正义之怒是真的牛逼。要是能把圣教军全删了(或者单独弄一个圣教军模式)，奖励做进loot和支线就天下无敌了[f ...</blockquote>
+修修bug，再把56章没做完的地方充实一下，那真的天下第一了
+
+
+*****
+
+####  xgazer  
+##### 57#       发表于 2021-9-14 10:46
+
+
+正义之怒我昨天刚进第三章已经50小时了，前作显示游玩时间是587小时<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  升职加薪  
+##### 58#       发表于 2021-9-14 10:47
+
+
+作为商品，TOAR比WOTR成熟的多，虽然有点优化效率问题，画面也比较旧，但总体bug极少
+
+但是WOTR顶着这么多BUG甚至没有实装的内容也能玩的很high，还是挺了不起的
+
+
+*****
+
+####  シルフィエット  
+##### 59#       发表于 2021-9-14 10:48
+
+
+记得我拥王者玩了仨小时进个山洞砍不到虫群就弃了，正义生气一直观望到临发售前几小时才预购，现在玩了70个小时才刚要出第3章<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+破晓传说从开预购就很期待，不过实在没时间玩暂时搁置了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leader01234  
+##### 60#       发表于 2021-9-14 10:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740853&amp;ptid=2026260" target="_blank">nukejoker 发表于 2021-9-14 09:24</a>
+问题就怕拉瑞安村规魔改非得塞自己那套环境互动，还自我感觉良好觉得自己改的很好很牛逼。EA里已经很多苗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一般认为滥强是个贬义词吧
+我觉得正义之怒最出彩的地方还是队友塑造，剧情演出，游戏节奏这些方面比起拥王者提升了无数个档次。角色出彩到身边一位从来没玩过crpg的乙女游戏玩家硬是顶着无数bug打通了兰恩的真爱结局。build什么的反而是次要的。
+bg3最让人担心的是他们硬要搞镜头怼脸的动捕，从ea来看我觉得他们掌控不了这个。正义之怒证明哪怕只有小人动作的演出也可以做的很动人。
+相比之下地形染色随他们去吧，毕竟5版烟壶盲斗也挺让人津津乐道的
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+*****
+
+####  Elevation  
+##### 61#       发表于 2021-9-14 11:10
+
+
+正义之怒这次的队友塑造很给力啊，刚出来这才几天，贴吧里几百楼的吵架帖就一堆一堆的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+吃人大小姐不用多说，乐子人岱兰也被吊起来批我是真没想到<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+[https://tieba.baidu.com/p/7527692311](https://tieba.baidu.com/p/7527692311)
+
+
+*****
+
+####  gh1023  
+##### 62#         楼主| 发表于 2021-9-14 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741975&amp;ptid=2026260" target="_blank">leader01234 发表于 2021-9-14 10:49</a>
+
+一般认为滥强是个贬义词吧
+
+我觉得正义之怒最出彩的地方还是队友塑造，剧情演出，游戏节奏这些方面 ...</blockquote>
+可惜不是所有队友都有浪漫剧情，尤其是聂妞跟沃尔吉夫，人物实在出彩，结果不能泡太可惜。
+
+
+而且队友间浪漫没有做也很遗憾，貌似背景设定里沃尔吉夫是暗恋过小烬的....
+
+
+*****
+
+####  trentswd  
+##### 63#       发表于 2021-9-14 11:24
+
+
+正义之怒很好，是最近几年难得能让我玩完发现天亮了的游戏
+
+就是销量不怎么好看
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  nukejoker  
+##### 64#       发表于 2021-9-14 11:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742520&amp;ptid=2026260" target="_blank">trentswd 发表于 2021-9-14 11:24</a>
+
+正义之怒很好，是最近几年难得能让我玩完发现天亮了的游戏
+
+
+就是销量不怎么好看</blockquote>
+贴吧里说得25W销量没算众筹的吧。
+
+
+而且制作组说了拥王者1就是长卖型，最后收入很令人满意的。
+
+正义之怒这素质摆这里，修修bug，出个dlc。再降个价。
+
+
+我觉得不会是叫好不叫座的下场。
+
+
+更何况还有主机版呢。
+
+

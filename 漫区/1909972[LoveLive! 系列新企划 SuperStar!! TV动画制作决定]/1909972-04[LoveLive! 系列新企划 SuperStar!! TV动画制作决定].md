@@ -3136,3 +3136,39 @@ Staff明显是要扶加农立德的，即便她拉垮，可可比她更适合，
 —— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  CharlieZ-  
+##### 4749#       发表于 2021-9-14 11:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739765&amp;ptid=1909972" target="_blank">秋月艾莉 发表于 2021-9-14 06:24</a>
+
+是有点过分，然而却被日本人当角色新名言
+
+直接拿这句话去推搜会得到“草飞了”“角色名言+1”“你 ...</blockquote>
+单看这段是没啥问题，但结合可可这集对堇的态度就有点微妙，可可这一整集都没给过民警什么好脸色，就像是前两集的互动发生在平行宇宙一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关系甚至比第四集还要差
+
+我一个不是堇厨的人看完这集都有点同情堇了，迫害的有点过了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 4750#       发表于 2021-9-14 11:23
+
+
+制作组的态度在第四集说加农是星团发起人的时候就很明确了吧，问题是拉人的时候让其他人强制下线这种做法目前感观并不好。
+
+
+*****
+
+####  1096beam  
+##### 4751#       发表于 2021-9-14 11:26
+
+
+只能说看到把章鱼丸子摊开到学校门口的时候我就对剧情认真不起来了
+
+

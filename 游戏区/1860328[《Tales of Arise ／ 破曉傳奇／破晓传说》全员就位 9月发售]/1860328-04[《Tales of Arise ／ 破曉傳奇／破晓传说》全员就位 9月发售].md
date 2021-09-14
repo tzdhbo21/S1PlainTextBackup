@@ -2836,3 +2836,59 @@ TOX卖的不错，用户评价也有4分，但后面就改善了战斗体验
 希望把GF这种作品搬上来吧
 
 
+
+
+*****
+
+####  塔奇克马  
+##### 4716#       发表于 2021-9-14 11:12
+
+
+ 本帖最后由 塔奇克马 于 2021-9-14 11:13 编辑 
+
+风怒编辑
+
+
+*****
+
+####  塔奇克马  
+##### 4717#       发表于 2021-9-14 11:13
+
+
+<img src="https://img.saraba1st.com/forum/202109/14/111215esdhkpnuc9tvean0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>biQ177-gv00KxT3cSsg-fz.jpg.medium.jpg</strong> (16.55 KB, 下载次数: )
+
+下载附件
+
+2021-9-14 11:12 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">草
+
+
+*****
+
+####  laoz  
+##### 4718#       发表于 2021-9-14 11:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能把togf和tox2中文化搬到PC，富泽就算完成使命了，之后他们想搞tales of god eater都无所谓了
+
+
+*****
+
+####  假山君  
+##### 4719#       发表于 2021-9-14 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739975&amp;ptid=1860328" target="_blank">森兰丸 发表于 2021-9-14 07:41</a>
+
+全程HARD现在刚打到换OP了.......用时27小时.....全程支线一个没漏....フクロウ也是全收集
+
+
+谁能告诉我进度 ...</blockquote>
+还有10小时进度通关
+
+
