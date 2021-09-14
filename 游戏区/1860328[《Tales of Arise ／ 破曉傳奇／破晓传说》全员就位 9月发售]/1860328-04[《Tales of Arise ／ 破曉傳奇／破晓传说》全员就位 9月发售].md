@@ -2543,3 +2543,41 @@ AI 比玩家多一层闪避光环，受控法师输出稳定安全，攒一波 B
 声优这块一开始连立木文彦和中田让治（正式打他前那段台词简直就像广告必须要在一分钟内念完大段台词一样赶）都有点僵，加上池泽这都是老前辈了，松冈也不是平时发挥，明显是音监的锅。
 
 
+
+
+*****
+
+####  虚无连斩  
+##### 4695#       发表于 2021-9-14 08:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740040&amp;ptid=1860328" target="_blank">soranoguiji 发表于 2021-9-14 07:50</a>
+
+打完第五章想说说声优的问题，下地紫野这次配的声音也太粗了感觉她驾驭不了啊，大盾姐那哭戏我直接 ...</blockquote>
+回忆里面ネウィリ声线挺不错的，也有没几句台词的原因……シオン声线真就碧蓝航线佐治亚，又粗又沉
+
+
+*****
+
+####  森兰丸  
+##### 4696#       发表于 2021-9-14 08:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739988&amp;ptid=1860328" target="_blank">rgauss 发表于 2021-9-14 07:43</a>
+
+还早 除了你本身没探索的外 还有雷聶和雷纳</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">也就是说这些肥鸡只会出现在达纳么
+
+
+*****
+
+####  JudgmentEye  
+##### 4697#       发表于 2021-9-14 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739712&amp;ptid=1860328" target="_blank">市松椿 发表于 2021-9-14 05:20</a>
+
+传说以前也有这么多换皮小怪吗</blockquote>
+有的是换个颜色换点数值就是新怪的，系列传统别想太多
+
+

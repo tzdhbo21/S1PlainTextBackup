@@ -1987,3 +1987,65 @@ pcmr病栋一号楼！
 —— 来自 meizu MEIZU 18, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  vyou  
+##### 174#       发表于 2021-9-14 08:33
+
+
+怎么没有tlou1。
+
+
+*****
+
+####  masterzx  
+##### 175#       发表于 2021-9-14 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740343&amp;ptid=2026252" target="_blank">vyou 发表于 2021-9-14 08:33</a>
+
+怎么没有tlou1。</blockquote>
+有可能就保这个系列不上pc
+
+
+*****
+
+####  sandro  
+##### 176#       发表于 2021-9-14 08:41
+
+
+为啥就是不搞血缘
+
+
+*****
+
+####  hisousihou  
+##### 177#       发表于 2021-9-14 08:47
+
+
+地狱潜者是啥？搜了一下只找到helldiver
+
+
+*****
+
+####  navarra  
+##### 178#       发表于 2021-9-14 08:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740491&amp;ptid=2026252" target="_blank">hisousihou 发表于 2021-9-14 08:47</a>
+
+地狱潜者是啥？搜了一下只找到helldiver</blockquote>
+就是这个
+
+
+*****
+
+####  热风疾风  
+##### 179#       发表于 2021-9-14 08:57
+
+
+假的离谱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
