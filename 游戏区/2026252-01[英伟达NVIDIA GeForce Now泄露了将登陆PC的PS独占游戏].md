@@ -1965,3 +1965,25 @@ KH真的要直接出4吗？我还以为至少会再出一作外传才能轮到4�
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
+*****
+
+####  有口皆悲  
+##### 172#       发表于 2021-9-14 08:17
+
+
+pcmr病栋一号楼！
+
+
+*****
+
+####  luhf  
+##### 173#       发表于 2021-9-14 08:19
+
+
+名单里没有血源可信度暴增<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu MEIZU 18, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
