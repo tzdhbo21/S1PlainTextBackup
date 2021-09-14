@@ -3086,3 +3086,36 @@ YY一下剧情，第九话结尾live，结果没有获奖/获胜。第十回中�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">花田要是把可可剧情写烂了…………这片基本就寄了啊
 
 
+
+
+*****
+
+####  寒风夜  
+##### 4746#       发表于 2021-9-14 10:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739260&amp;ptid=1909972" target="_blank">Skyline_R 发表于 2021-9-14 01:24</a>
+
+六七话还没看，但是看现各路论坛讨的论内容，恋难道是要复刻如月千早？可这俩片儿基调完全不一样啊 ...</blockquote>
+这也完全 不一样 啊
+
+
+*****
+
+####  不能摸的屁屁  
+##### 4747#       发表于 2021-9-14 10:29
+
+
+4567看下来，星团核心还是加农。
+
+但是加农完全不主动，总是梦游然后被人推一把，到了关键节点再灵光一闪，扮演救世主，我愿称之偶像界奉太郎，ll圈玛丽苏。
+
+整体观感如果要提升，最该改变的是加农。
+
+很多人说可可才是星团灵魂，企划都是围绕可可展开的，我觉得是自欺欺人了。
+
+Staff明显是要扶加农立德的，即便她拉垮，可可比她更适合，路线早已定好了。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
