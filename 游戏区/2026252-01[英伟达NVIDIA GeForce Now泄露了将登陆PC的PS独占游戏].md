@@ -1934,3 +1934,34 @@ KH真的要直接出4吗？我还以为至少会再出一作外传才能轮到4�
 这简直可以媲美实现全球社会主义大团结
 
 
+
+
+*****
+
+####  supercellchelly  
+##### 169#       发表于 2021-9-14 08:03
+
+
+好耶 
+
+
+*****
+
+####  chenflyyy  
+##### 170#       发表于 2021-9-14 08:08
+
+
+太假了以至于觉得是真的
+
+
+*****
+
+####  ranapocket  
+##### 171#       发表于 2021-9-14 08:10
+
+
+这个列表也太假了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

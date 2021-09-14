@@ -2510,3 +2510,23 @@ AI 比玩家多一层闪避光环，受控法师输出稳定安全，攒一波 B
 轰霸战前摇太长了
 
 
+
+
+*****
+
+####  soranoguiji  
+##### 4692#       发表于 2021-9-14 07:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完第五章想说说声优的问题，下地紫野这次配的声音也太粗了感觉她驾驭不了啊，大盾姐那哭戏我直接蚌埠住了，至于小法师感觉声音好尖，我是觉得不如隔壁绯红结系
+
+
+*****
+
+####  Yason  
+##### 4693#       发表于 2021-9-14 07:57
+
+
+主机难民去哪刷钱比较好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 氪金呀哒呀哒
+
+
