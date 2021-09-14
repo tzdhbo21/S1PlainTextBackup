@@ -2480,3 +2480,20 @@ op世界观下如果不用霸气或者果实进行防御，普遍防御力低下
 身体虽大但脑子仍然不行，啥也不是的和之国将军光月桃之助，真相永远只有一个
 
 
+
+
+*****
+
+####  eflni  
+##### 55678#       发表于 2021-9-14 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52730412&amp;ptid=98922" target="_blank">古畑任三郎2015 发表于 2021-9-13 11:25</a>
+这不是n多年前就根据这个推测厨子身世不简单吗…
+然后到了蛋糕岛篇解密
+为啥现在拿出来说</blockquote>
+啊这……我也不知道，就是看上面有人提了就帮他解释一下。
+
+—— 来自 HUAWEI VTR-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

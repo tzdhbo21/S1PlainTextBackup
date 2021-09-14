@@ -3172,3 +3172,47 @@ Staff明显是要扶加农立德的，即便她拉垮，可可比她更适合，
 只能说看到把章鱼丸子摊开到学校门口的时候我就对剧情认真不起来了
 
 
+
+
+*****
+
+####  寒风夜  
+##### 4752#       发表于 2021-9-14 11:32
+
+
+ 感觉就没想好写什么。。
+
+
+*****
+
+####  CharlieZ-  
+##### 4753#       发表于 2021-9-14 11:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52739225&amp;ptid=1909972" target="_blank">saglork 发表于 2021-9-14 01:16</a>
+
+懒得再看一遍了，没记错大概是身の程をわきまえろです，脏话不至于，但确实是很不客气的说法了，从另一个 ...</blockquote>
+我也觉得，这集就做成前两集那样互相吃瘪互相吐槽观感都不至于像现在这样差，而且吃完瘪还没人安慰更是惨上加惨<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">小千这集纯划水
+
+
+*****
+
+####  寒风夜  
+##### 4754#       发表于 2021-9-14 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52742386&amp;ptid=1909972" target="_blank">CharlieZ- 发表于 2021-9-14 11:15</a>
+
+单看这段是没啥问题，但结合可可这集对堇的态度就有点微妙，可可这一整集都没给过民警什么好脸色，就像是 ...</blockquote>
+其实4集 之后5 6这2互动也有点快。
+
+
+*****
+
+####  Ironman_mk5  
+##### 4755#       发表于 2021-9-14 11:40
+
+
+星团和考哥的对谈因日期过于敏感被贴吧删了还行
+
+

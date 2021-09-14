@@ -1297,3 +1297,19 @@ P4G在20年时还有这个卖相才是震惊我，我12年在宝石V上想重温
 一模一样，CPU占用率也就10，然后我也是偶尔跑到1000，大部分时候和你一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  jhjy217  
+##### 108#       发表于 2021-9-14 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52733635&amp;ptid=2025900" target="_blank">战狼PTSD 发表于 2021-9-13 15:56</a>
+开局看到科技都能飞天了还要招奴隶打工还要配看守，就已经有点接受不了了
+
+而且这代不知道为啥背景 ...</blockquote>
+这个后面有解释的，逻辑是通的，甚至采取爆政的逻辑也是通的
+阿周那那种和平的统治也就只有阿周那根本不在意目的才做得到
+
+
