@@ -2083,3 +2083,155 @@ CCR完全要问一句凭啥啊......啊,想想RS1R突然又河狸了......
 风怒自删.......
 
 
+
+
+*****
+
+####  darkfall  
+##### 182#       发表于 2021-9-14 09:57
+
+
+ 本帖最后由 darkfall 于 2021-9-14 10:09 编辑 
+
+趁着这里出现了Deus Ex据称是SE舅舅的人跑出来说了一通关于SE， Huge grain of salt，看能对多少吧。上一次泄漏FF16的时候Jason说是Fake（[https://www.reddit.com/r/GamingL ... r_a_year_ago_by_the](https://www.reddit.com/r/GamingLeaksAndRumours/comments/pnpwpw/deus_ex_5_was_leaked_over_a_year_ago_by_the)）
+
+
+FF 16 2022-2023. 目前为止规模最大的FF
+
+FF 7 RE P2 - 2023，并且和P1不同
+
+FF 9 REMAKE将在FF7 RE P2之后
+
+FF 14一大堆后续更新在开发
+
+FF CHAOS - 看起来玩起来都像坨屎
+
+新古墓丽影 - 2022网飞电视剧之后公布，因为有关联
+
+没有新的睡狗
+
+凯恩的遗产新作在前期开发
+
+两个尼尔，一个Automata续作，一个衍生作
+
+王国之心没有主线作品在开发，只有衍生作
+
+迪斯尼对SE：如果银河护卫队再次像复仇者那样失败那会有麻烦
+
+Forspoken：SE近10年做过的最好的游戏。如果卖得好还会有续作（故事大纲有）
+
+Deus Ex V：软重启早期开发中。想要做成2077没有做成功的样子，起码很多年以后
+
+再也没有什么Balan Wonderland了
+
+也没有凯恩和林奇新作
+
+CC重启还在早期开发
+
+
+*****
+
+####  TimDOK  
+##### 183#       发表于 2021-9-14 09:59
+
+
+ 本帖最后由 TimDOK 于 2021-9-14 10:01 编辑 
+
+GeForce Now不是英伟达的云游戏平台吗？
+
+所以这个可能是索尼的ps now平台和英伟达合作？
+
+
+*****
+
+####  高龙  
+##### 184#       发表于 2021-9-14 10:01
+
+
+血源诅咒上PC梗我记得就是S1这边造出来的吧。
+
+
+*****
+
+####  Nosgoth  
+##### 185#       发表于 2021-9-14 10:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741246&amp;ptid=2026252" target="_blank">darkfall 发表于 2021-9-14 09:57</a>
+
+趁着这里出现了Deus Ex据称是SE舅舅的人跑出来说了一通关于SE
+
+
+FF 16 2022-2023. 目前为止规模最大的FF</blockquote>
+哪里看到的，妈的，凯恩的遗产都跑出来了。
+
+
+*****
+
+####  ff2077  
+##### 186#       发表于 2021-9-14 10:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741246&amp;ptid=2026252" target="_blank">darkfall 发表于 2021-9-14 09:57</a>
+
+趁着这里出现了Deus Ex据称是SE舅舅的人跑出来说了一通关于SE
+
+
+FF 16 2022-2023. 目前为止规模最大的FF</blockquote>
+杀出重围重启啊，有没有来源啊
+
+
+*****
+
+####  pliee  
+##### 187#       发表于 2021-9-14 10:05
+
+
+不信，除非sony溜大了，这么搞谁买ps5
+
+
+*****
+
+####  clover293  
+##### 188#       发表于 2021-9-14 10:06
+
+
+ 本帖最后由 clover293 于 2021-9-14 10:08 编辑 
+
+？？SE近10年做过的最好的游戏
+
+不是我瞧不起夜光，我也希望夜光组能打我脸，但一个新工作室配吗？
+
+
+*****
+
+####  Lamas  
+##### 189#       发表于 2021-9-14 10:07
+
+
+能信这个的我只能😅
+
+
+*****
+
+####  大fish小fish  
+##### 190#       发表于 2021-9-14 10:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52738312&amp;ptid=2026252" target="_blank">iceplatinum 发表于 2021-9-13 23:15</a>
+如果是画面hd不是造出了么，连动画都高清化了</blockquote>
+我说的那俩remake方式都不只是简单的remastered啊
+
+
+*****
+
+####  mcq_2  
+##### 191#       发表于 2021-9-14 10:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741352&amp;ptid=2026252" target="_blank">pliee 发表于 2021-9-14 10:05</a>
+
+不信，除非sony溜大了，这么搞谁买ps5</blockquote>
+为啥不能买，ps5多便宜
+
+
