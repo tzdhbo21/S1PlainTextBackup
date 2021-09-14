@@ -2049,3 +2049,37 @@ pcmr病栋一号楼！
 假的离谱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  KOGmk2  
+##### 180#       发表于 2021-9-14 09:00
+
+
+ 本帖最后由 KOGmk2 于 2021-9-14 09:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52737350&amp;ptid=2026252" target="_blank">aaronluray 发表于 2021-9-13 21:40</a>
+
+真女5有什么值得惊讶的吗？我是一直都认为这作以后会上pc的。</blockquote>
+P5/P5R还没上上真女5......你觉得这河狸吗?
+
+
+CCR完全要问一句凭啥啊......啊,想想RS1R突然又河狸了......
+
+
+理论上PS5转PC完全就是个另存(自从console主流SOC转农企之后基本都是个另存解决),但是真要这么搞PS5还有可战之兵?
+
+
+
+
+*****
+
+####  KOGmk2  
+##### 181#       发表于 2021-9-14 09:04
+
+
+ 本帖最后由 KOGmk2 于 2021-9-14 09:11 编辑 
+
+风怒自删.......
+
+

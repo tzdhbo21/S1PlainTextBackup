@@ -2979,3 +2979,17 @@ InkedInkedIMG_0759(20210913-192401)_LI.jpg
 还好我看的开，只要可可这里不出什么事，星团安安稳稳播完就行了。剧情什么的能做好那当然很棒，做不好那我没办法了。
 
 
+
+
+*****
+
+####  lj205  
+##### 4738#       发表于 2021-9-14 08:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52740427&amp;ptid=1909972" target="_blank">优妮可 发表于 2021-9-14 08:41</a>
+
+还好我看的开，只要可可这里不出什么事，星团安安稳稳播完就行了。剧情什么的能做好那当然很棒，做不好那也 ...</blockquote>
+对，就是这个理。
+
+
