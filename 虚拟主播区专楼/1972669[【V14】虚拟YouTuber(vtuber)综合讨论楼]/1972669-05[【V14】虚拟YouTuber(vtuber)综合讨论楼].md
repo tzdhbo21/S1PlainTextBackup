@@ -13493,3 +13493,17 @@ Selen联动今天联动了Tempplex，这周还要和叶师组队，感觉离联�
 原来hnn也戴眼镜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
+
+
+*****
+
+####  noHentai  
+##### 6999#       发表于 2021-9-14 10:59
+
+
+全人类都应该来看看这把游戏
+
+Qu: "Scan the enemy<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">"
+[https://youtu.be/_S3DE5yss7U?t=5741](https://youtu.be/_S3DE5yss7U?t=5741)
+
+

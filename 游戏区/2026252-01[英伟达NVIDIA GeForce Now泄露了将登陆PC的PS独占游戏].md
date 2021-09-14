@@ -2252,3 +2252,16 @@ SONY 这是缺钱了吗？不应该啊。
 如果是真的，也不见得是坏事。
 
 
+
+
+*****
+
+####  提挈天地  
+##### 193#       发表于 2021-9-14 11:00
+
+
+要是真的的确不用买啥PS5了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+

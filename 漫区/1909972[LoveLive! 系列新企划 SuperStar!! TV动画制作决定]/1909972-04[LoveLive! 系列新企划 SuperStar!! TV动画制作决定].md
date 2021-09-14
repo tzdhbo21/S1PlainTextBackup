@@ -3119,3 +3119,20 @@ Staff明显是要扶加农立德的，即便她拉垮，可可比她更适合，
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
+*****
+
+####  damian-wade  
+##### 4748#       发表于 2021-9-14 10:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=52741679&amp;ptid=1909972" target="_blank">不能摸的屁屁 发表于 2021-9-14 10:29</a>
+4567看下来，星团核心还是加农。
+
+但是加农完全不主动，总是梦游然后被人推一把，到了关键节点再灵光一闪， ...</blockquote>
+主角肯定是卡农，可可中心论基本都是被前面力捧的戏份忽悠到，加上可厨多，角色厨总是希望自己厨的角色戏多讨喜的
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
